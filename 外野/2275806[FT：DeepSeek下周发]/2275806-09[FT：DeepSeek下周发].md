@@ -7026,3 +7026,15 @@ export PI_NO_TITLE=1
 
 - 主请求 live KV 保持 → 追问命中 → **显著改进（用户确认）**</blockquote>
 
+
+*****
+
+####  qwased  
+##### 12493#       发表于 2026-9-3 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196481&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-3 18:44</a>
+
+我自己用ds4项目部署的本地模型就是有这个毛病，我让dsv4自己用代理拦截仔细分析了数据包，结论就是这样的 ...</blockquote>
+我把你这个报告发给DS，他扫完现有版本和未更新的最新版omp，都说根本不存在这个生成标题这个机制
+  报告对应的是一套更"新"的代码，不是本机这套  报告引用的源码路径（packages/coding-agent/src/session/agent-session.ts、utils/title-generator.ts）对不上 0.83.0 我下载了 npm 上最新的 pi-coding-agent 0.84.4 验证：同样没有这些机制 → 报告里那套（含 TINY role / tinyModel 回退）是另一分支或未发布的开发版 4. 运行期实证（本次会话）：前缀缓存一直命中，无穿插污染  本会话多轮对话中，上游 usage 的 cacheRead 稳定递增（10880 → 15488 → 16768），说明主请求连续命中上游前缀缓存 —— 若像报告那样每轮穿插 ~172 token 的标题请求，缓存会被打爆归零，这里没有发生 会话 jsonl 中也无任何 session_info/name 条目（此前 grep 到的 "session_info" 是工具回显代码的误报） 5. 环境差异  本机 /tmp 无 ds4-server.log，localhost:8000 无监听 —— 报告里那台 ds4 live-KV 服务器并不以该形态存在于本机 结论 报告描述的"每轮用主模型(ds4)生成标题→污染 KV→下轮全量 prefill 37s"在本机不成立：本机跑的是无自动标题生成功能的 0.83.0。因此按报告在 shell 里写 export PI_NO_TITLE=1 在本机不会有任何效果（没有代码读取它），无需设置，我也未做任何改动。复制代码
+

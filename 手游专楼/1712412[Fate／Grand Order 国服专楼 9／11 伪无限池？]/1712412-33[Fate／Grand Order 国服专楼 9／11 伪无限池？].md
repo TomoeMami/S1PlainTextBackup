@@ -214,3 +214,25 @@ MuMu-20260903-184912-715.jpg
 
 <img src="https://img.stage1st.com/forum/202609/03/185152v1usmueth11a11hn.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 48180#       发表于 2026-9-3 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196514&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-9-3 18:52</a>
+
+不错不错，就是怕剑心还债</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这石头数还想剑心吗 这难道就是欧狗的自信
+
+
+*****
+
+####  khxooo  
+##### 48181#       发表于 2026-9-3 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196533&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-9-3 18:57</a>
+
+你这石头数还想剑心吗 这难道就是欧狗的自信</blockquote>
+剑心的时候差不多生日，动用一点钞能力还是可以的<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
