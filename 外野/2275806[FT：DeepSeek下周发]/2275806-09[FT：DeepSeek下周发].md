@@ -6786,3 +6786,24 @@ web没发现这个问题，我就用的本地部署的qwen3.8，不用上下文�
  ...</blockquote>
 qwen3.8的缓存结构跟dsv4flash的提示缓存结构完全不同
 
+
+*****
+
+####  qwased  
+##### 12477#       发表于 2026-9-3 17:08
+
+ 本帖最后由 qwased 于 2026-9-3 17:10 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195940&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-3 17:07</a>
+qwen3.8的缓存结构跟dsv4flash的提示缓存结构完全不同</blockquote>
+我接ds官方api也是绝大部分中缓存啊？
+不过web端压根就没有标题，对话只会显示我发的第一句话
+
+*****
+
+####  舞以  
+##### 12478#       发表于 2026-9-3 17:11
+
+大的又来了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
