@@ -6519,3 +6519,49 @@ gemini现在不是有8块18个月的羊毛么
 反代还是有风险，建议小号或者家庭组方式
 随便玩玩的话直接 command code 10 刀套餐的额度足够了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  jinuzuktII  
+##### 12453#       发表于 2026-9-3 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195575&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-9-3 16:04</a>
+
+反代还是有风险，建议小号或者家庭组方式
+
+随便玩玩的话直接 command code 10 刀套餐的额度足够了    Re:S ...</blockquote>
+搞个小号，一共不到10块钱封就封了
+
+*****
+
+####  qwased  
+##### 12454#       发表于 2026-9-3 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192783&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-3 08:49</a>
+
+omp我用下来对dsv4flash的适配一坨啊
+
+提示缓存前缀会被它的自动标题破坏掉，每一次追问都要全量prefill ...</blockquote>
+自动标题是啥？我用omp-web没发现这个问题啊
+
+
+*****
+
+####  drodchang  
+##### 12455#       发表于 2026-9-3 16:15
+
+kimi k3.1怎么还没消息，这是不是也太慢了？
+
+*****
+
+####  tonyunreal  
+##### 12456#       发表于 2026-9-3 16:15
+
+Arena随便抽了个提示词
+Opus 5 Max做的像大号glm 5.3 flash
+Qwen 3.8 max 0902做的像大号mimo
+
+想念ds灰测<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
