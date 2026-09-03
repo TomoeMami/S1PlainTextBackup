@@ -393,3 +393,13 @@ g世纪原创角色应该出点ssr啊。
 
 来点红机体验榜单        pve
 
+
+*****
+
+####  arthes  
+##### 4667#       发表于 2026-9-3 22:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">百式改那么强的吗 
+
+F91原来也是T1，当初运气还不错给满破了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，掉毛可惜一直没船配合
+
