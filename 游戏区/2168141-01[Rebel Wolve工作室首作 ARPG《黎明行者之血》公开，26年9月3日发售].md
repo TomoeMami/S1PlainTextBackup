@@ -677,3 +677,11 @@ MC 83
 
 早上才解锁，玩了个教程上班去了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  drenched  
+##### 58#       发表于 2026-9-3 09:10
+
+我真的觉得吸血鬼题材太土了。。。除非他的剧情是神作级别，不然完全玩不下去。。蹲一手后续口碑
+
