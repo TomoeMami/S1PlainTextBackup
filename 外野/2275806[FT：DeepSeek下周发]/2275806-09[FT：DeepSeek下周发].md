@@ -8087,3 +8087,36 @@ ao旗舰都出了，ds的灰测模型是不是该出来狙击一下了<img src="
 
 拉完了，有的地方牙膏倒吸，价格还和Fable看齐了
 
+
+*****
+
+####  HazukiShion  
+##### 12597#       发表于 2026-9-4 07:11
+
+喷了。<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/04/071124e19yqreeqmeeksn8.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0348.jpeg</strong> (175.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 07:11 上传
+
+
+*****
+
+####  nxmonitor  
+##### 12598#       发表于 2026-9-4 07:15
+
+思考级别提升怎么强度还能下降的？这不是0813在非DSH的毛病吗？怪不得跑分不放出来呢…
+
+*****
+
+####  serj005  
+##### 12599#       发表于 2026-9-4 07:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198648&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-3 23:46</a>
+话说Ds这个公告看起来像是可以选模型版本了？真要v5和v4共存？</blockquote>
+建议降低预期，可能就是单纯的把识图模式和快速模式合并，现在识图模型都已经切到v4fv了，能支持联网搜索，快速模式没啥存在必要了。
+
