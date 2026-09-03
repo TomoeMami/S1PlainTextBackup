@@ -5700,3 +5700,11 @@ ps5pro帧率模式下，开启光追有多少影响，刚打个开头感觉也�
 
 杂兵战太无聊，真不如直接砍来得快<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thecatnie  
+##### 1256#       发表于 2026-9-4 06:50
+
+感觉老卡在“降难度能够扩大受众”这个制作思路上越来越魔怔了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

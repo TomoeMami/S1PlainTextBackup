@@ -8079,3 +8079,11 @@ ao旗舰都出了，ds的灰测模型是不是该出来狙击一下了<img src="
 
 —— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  nxmonitor  
+##### 12596#       发表于 2026-9-4 06:55
+
+拉完了，有的地方牙膏倒吸，价格还和Fable看齐了
+
