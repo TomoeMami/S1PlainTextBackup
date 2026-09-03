@@ -557,3 +557,15 @@ Saber的后期和最终Boss令和没有能碰瓷的，前期我当战队看的�
 
 幪面超人进军欧米就是个伪命题，欧米根本不缺等身英雄，且超英影视工业化体系成熟，闲的没事谁看幪面超人啊
 
+
+*****
+
+####  pointer243  
+##### 2269#       发表于 2026-9-3 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193486&amp;ptid=2250267" target="_blank">清风朗月 发表于 2026-9-3 10:26</a>
+所以这部开播之前吹的拓展国际市场到底体现在哪了呢，连中日两边都看得云里雾里了，还指望欧美人看得懂吗 ...</blockquote>
+拓展国际市场，指用常年没有相关资讯更新的油土鳖官方频道24小时滚动播放zzz<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

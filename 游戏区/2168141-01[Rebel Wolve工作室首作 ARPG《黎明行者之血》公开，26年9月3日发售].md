@@ -685,3 +685,26 @@ MC 83
 
 我真的觉得吸血鬼题材太土了。。。除非他的剧情是神作级别，不然完全玩不下去。。蹲一手后续口碑
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 59#       发表于 2026-9-3 10:56
+
+手柄奔跑有问题，动不动就卡，在修复之前我是不打算玩了。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 60#       发表于 2026-9-3 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192854&amp;ptid=2168141" target="_blank">Schwarzess 发表于 2026-9-3 09:01</a>
+早上才解锁，玩了个教程上班去了。   
+
+更新一点感想：</blockquote>
+比天国拯救2还要简单不少，方向输入的判定非常宽松。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

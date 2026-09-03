@@ -4224,3 +4224,99 @@ ign视频里透了弁庆战，所以笼手女真是那个静御前，三木演�
 
 PRAGMATA有金发小萝莉 卖相这块不可能差的
 
+
+*****
+
+####  魂淡放我出去  
+##### 1111#       发表于 2026-9-3 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193667&amp;ptid=2210366" target="_blank">乔迪奥 发表于 2026-9-3 10:55</a>
+静御前就是鬼之佳人（笼手女）</blockquote>
+丑的爆炸我艹<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  JOJOROY  
+##### 1112#       发表于 2026-9-3 10:57
+
+人脸除了宫本武藏都好丑
+
+*****
+
+####  saber614  
+##### 1113#       发表于 2026-9-3 10:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哪来的幻魔装成静御前，看我斩了你
+
+*****
+
+####  kuarwbwe  
+##### 1114#       发表于 2026-9-3 10:58
+
+这作女角色就是丑。没啥好说的。尤其是今年还有一家的生9和识质存在对比。
+
+*****
+
+####  缺德猫  
+##### 1115#       发表于 2026-9-3 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192770&amp;ptid=2210366" target="_blank">Cranberries 发表于 2026-9-3 08:46</a>
+
+至于剑星，手感和地图做的烂的抠脚的游戏。
+
+我之前还吐槽过黑神话动作延迟不跟手，剑星比黑神话还离谱。
+
+剑 ...</blockquote>
+剑星也是我第一次感受到什么叫操作延迟，法环、黑猴也被说延迟，但我没啥感觉，剑星真的特别明显。
+
+
+*****
+
+####  缺德猫  
+##### 1116#       发表于 2026-9-3 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193463&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-9-3 10:22</a>
+
+这游戏在港区PSN跟没有一样。。。预购前十都看不到，看来是亚洲不太买账。 ...</blockquote>
+PDD盘不到300，不可能在PSN买吧
+
+*****
+
+####  银色天空  
+##### 1117#       发表于 2026-9-3 11:02
+
+ 本帖最后由 银色天空 于 2026-9-3 11:04 编辑 
+
+这是卡普空最近唯一的没有一个能看角色的游戏了吧，同为和风要能做成祗女神之路的女神那样都能接受
+
+*****
+
+####  乔迪奥  
+##### 1118#       发表于 2026-9-3 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193628&amp;ptid=2210366" target="_blank">Schwarzess 发表于 2026-9-3 10:50</a>
+
+紫式部部分角度还行但整体普得可怕。
+
+哪位漏油发个静御前看看呢？    Re:Source ...</blockquote>
+紫式部塌鼻梁眼距还大，发行和眼镜放大了脸型和五官的缺陷，纯纯的付首尔长相，卡表这次负责人设的有点神人了
+
+<img src="https://img.stage1st.com/forum/202609/03/110458td49nyb5b490mm9m.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20260903110330.png</strong> (194.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 11:04 上传
+
+*****
+
+####  卡拉德利姆  
+##### 1119#       发表于 2026-9-3 11:06
+
+主角也是有三船敏郎加持还不至于太离谱
+
+其实脸也改的很难认出来了
+

@@ -6141,3 +6141,13 @@ muse spark 1.3 继续斩杀国产模型</blockquote>
 体感meta那帮人是真的直接把题喂进去做rl了</blockquote>
 考虑到 Meta 不营销就会死的调性，亚历山大王一定会选择流量最多的打法，当然有 A➗珠玉在前，目前来看还玩不出新花样<img src="https://static.stage1st.com/image/smiley/face/79.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  drodchang  
+##### 12419#       发表于 2026-9-3 10:59
+
+ 本帖最后由 drodchang 于 2026-9-3 11:01 编辑 
+
+kimi现在最大的问题是没有computer use，gpt虽然有computer use但视觉能力太差，我觉得谁家的computer use强就是真的强，这应该是下一个战场。
+
