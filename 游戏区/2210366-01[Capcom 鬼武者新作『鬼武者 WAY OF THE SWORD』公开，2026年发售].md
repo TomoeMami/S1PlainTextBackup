@@ -5631,3 +5631,13 @@ ff16的马桶除了主线强制那几个我就没通，这次一样专攻主线�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我寻思蓝色萝莉全收集也有30小时呢
 
+
+*****
+
+####  nagitoY  
+##### 1248#       发表于 2026-9-3 22:42
+
+<blockquote>乔迪奥 发表于 2026-9-3 19:25
+16小时马桶也太猛了</blockquote>
+主线才8h也太短了，通马桶要16h更是逆天
+

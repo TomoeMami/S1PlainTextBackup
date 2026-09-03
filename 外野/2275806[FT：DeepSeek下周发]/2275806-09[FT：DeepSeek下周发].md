@@ -7189,3 +7189,21 @@ Codex的Ultrafast模式好像也要上了，之前报道是正常速度的14倍�
 我出问题的版本18.0.4不算太老吧？omp的标题生成模型的设计就是多余，用在本地部署模型上一堆毛病，结论 ...</blockquote>
 我是18.0.1<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看来是新版引入了标题功能然后做坏了
 
+
+*****
+
+####  舞以  
+##### 12508#       发表于 2026-9-3 22:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">升级到0.1.2rc.1几个自己手搓的插件炸了艹，又得请codex修好再说了
+
+
+*****
+
+####  舞以  
+##### 12509#       发表于 2026-9-3 22:41
+
+从理性上讲，灰测模型的奇怪思维链很有可能就是服务端加了个额外的cot后处理。
+
+但是我也挺希望梁叔叔还有新活，这个cot就是ds新模型的原生表现<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。
+
