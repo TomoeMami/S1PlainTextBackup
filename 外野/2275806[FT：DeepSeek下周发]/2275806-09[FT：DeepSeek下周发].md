@@ -7905,3 +7905,26 @@ arc-agi-3是不是下一个刷分目标
 
 gpt自己的解释
 
+
+*****
+
+####  lactone  
+##### 12579#       发表于 2026-9-4 02:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199209&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-4 02:43</a>
+gpt自己的解释</blockquote>
+https://zhuanlan.zhihu.com/p/2061961027856635809
+
+之前就有特殊harness能实现95%甚至更高了
+
+感觉是个很吃提示词的项目
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  jojog  
+##### 12580#       发表于 2026-9-4 02:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">那个有小游戏又不是不能穷举 谁知道怎么弄的
+
