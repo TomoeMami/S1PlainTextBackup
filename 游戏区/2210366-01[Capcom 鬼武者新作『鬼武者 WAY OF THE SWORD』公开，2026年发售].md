@@ -4732,3 +4732,23 @@ a556be2a-0d9f-438c-955e-327e9c01f4ef.png
 
 （不过我要下班了才能玩。）
 
+
+*****
+
+####  Jabeck  
+##### 1158#       发表于 2026-9-3 12:24
+
+这游戏的试玩里连女人的影子都没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然买不买是你的自由，但这么一个优秀的动作游戏看到人说女人丑了实际普信女水平不买我只能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+最大的问题是吹了半天忍龙4女角色多漂亮你这销量也没多少啊。
+
+*****
+
+####  zqqwe  
+##### 1159#       发表于 2026-9-3 12:25
+
+也就因为demo二次更新后的体验能顶着丑女预购了，但动作游戏美女就不重要是什么屁话，鬼佬屎吃上瘾了是吧
+即使不和kt比，鬼武者自己4个旧正作哪个不是按当时机能下尽力捏美女角色的，倒车还不让提了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
