@@ -139,3 +139,28 @@
 最后一段又整段垮掉了
 12集演完了除了由乃和藤都子其他人有什么有效塑造吗
 
+
+*****
+
+####  新HGCG  
+##### 405#       发表于 2026-9-3 22:29
+
+至少在经过连续两周白毛的弱智轰炸后，刚才藤都子的宣泄很有效果
+
+打个不恰当的比方，白毛之于梦限大就是周锦华之于提坦斯
+
+
+*****
+
+####  犯困的猫  
+##### 406#       发表于 2026-9-3 22:33
+
+这集nnk都没出场多少，每次都来楼里说句，也太恨nnk了，显得挺深柜的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mika-S  
+##### 407#       发表于 2026-9-3 22:33
+
+梦团这几个人轮流发起狂来究竟谁能绷得住啊看了，yuno你真不是人而是ai吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

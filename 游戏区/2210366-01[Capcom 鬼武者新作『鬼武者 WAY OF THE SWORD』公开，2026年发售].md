@@ -5623,3 +5623,11 @@ ff16的马桶除了主线强制那几个我就没通，这次一样专攻主线�
 
 考虑到这位的操作水平，普通玩家10小时怎么也是要的
 
+
+*****
+
+####  adw667  
+##### 1247#       发表于 2026-9-3 22:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我寻思蓝色萝莉全收集也有30小时呢
+
