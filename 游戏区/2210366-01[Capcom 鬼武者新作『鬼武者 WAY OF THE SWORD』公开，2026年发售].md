@@ -4488,3 +4488,57 @@ PDD盘不到300，不可能在PSN买吧
 我也不懂到底是来打游戏还是干嘛的，就拿楼里（应该会）喜欢的忍龙4网红脸大奶女主来说，打完忍龙4真的对她有什么印象吗
 感觉不如天狗鲨鱼坦克这死了吗的三兄弟有印象啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jabeck  
+##### 1139#       发表于 2026-9-3 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193977&amp;ptid=2210366" target="_blank">scp073 发表于 2026-9-3 11:34</a>
+
+至少比这游戏好看多了吧，钟馗pv里那怕是女鬼打光下妹子的脸都比这游戏的大妈脸强吧 ...</blockquote>
+一个村姑，跟鬼武者比起来好一点地方就是画面很精细，但你说好看？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+7ab6d439-cd05-4693-a3b5-d7e41aa2d624.png
+(471.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 11:38 上传
+
+<img src="https://img.stage1st.com/forum/202609/03/113858ol9rrfubvrlav9k6.png" referrerpolicy="no-referrer">
+
+a556be2a-0d9f-438c-955e-327e9c01f4ef.png
+(348.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 11:41 上传
+
+<img src="https://img.stage1st.com/forum/202609/03/114105vb77zvb42jz7cfji.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 1140#       发表于 2026-9-3 11:44
+
+不提这茬还真忘了，之前看前几页有人用忍龙4濑织举例子说直接拉爆还专门去搜了一下，看完大失所望<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">人与人的审美差异实在太大。
+
+*****
+
+####  kuarwbwe  
+##### 1141#       发表于 2026-9-3 11:45
+
+ 本帖最后由 kuarwbwe 于 2026-9-3 11:46 编辑 
+
+我预购这游戏一个是demo玩爽了；另一个是这游戏作为剑戟题材，找了三船敏郎做脸模（虽然完全不像）。光这两点我就不可能不买了。<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+当然这作女角色也是今年卡表三个作品里最丑的。<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+只能说十分遗憾了。
+
+最后就是有些人也别跟这拐忍龙，影之刃和钟馗了，这仨作品女角色确实就是比鬼武者这堆女角色好看啊。
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
