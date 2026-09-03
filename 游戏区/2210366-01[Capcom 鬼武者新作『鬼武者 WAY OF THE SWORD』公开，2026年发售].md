@@ -4580,3 +4580,71 @@ a556be2a-0d9f-438c-955e-327e9c01f4ef.png
 
 而且这个妹子也确实比鬼武者里这群大妈有姿色吧，我反过来问问你，你难道真觉得这两波人颜值在一个水平线上？<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 1146#       发表于 2026-9-3 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194129&amp;ptid=2210366" target="_blank">姬茧墨 发表于 2026-9-3 11:56</a>
+不是说拐不拐的，突然进来一大波人对着一个动作游戏说女的太丑了助长不正之风
+那我还说现在一堆野狗arpg游 ...</blockquote>
+这又是啥不正之风，系统出来就评价系统，boss战出来就评价boss战，女人人设出来就评价女人人设，不都是游戏的一环，都评论不是很正常么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+平时评价系统的时候不也是拉其他的对比，评价女人的时候拉其他的对比也很正常
+
+*****
+
+####  Schwarzess  
+##### 1147#       发表于 2026-9-3 12:00
+
+玩游戏和看女人不冲突吧？就算是对比自家今年的re9格蕾丝和pragmata黛安娜，不行就是不行这个客观事实已经不能说了么？尤其还是你日战国的知名美女这种玩家主观上会有一定颜值预期
+的角色。
+叠甲：买还是买的，但最近会优先打隔壁黎明行者。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  heseran  
+##### 1148#       发表于 2026-9-3 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194136&amp;ptid=2210366" target="_blank">scp073 发表于 2026-9-3 11:58</a>
+我说的是最近刚发的那个pv啊，这个pv哪有什么女鬼打光
+
+而且这个妹子也确实比鬼武者里这群大妈有姿色吧， ...</blockquote>
+就1139楼那两张截图来看纯属各有各的丑，跟美不沾边。
+
+*****
+
+####  mai6696  
+##### 1149#       发表于 2026-9-3 12:05
+
+我寻思前两页我们也没少批剑星吧。
+
+谁因为颜值之类的影响对游戏性的判断了吗？
+
+*****
+
+####  Jabeck  
+##### 1150#       发表于 2026-9-3 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194136&amp;ptid=2210366" target="_blank">scp073 发表于 2026-9-3 11:58</a>
+
+我说的是最近刚发的那个pv啊，这个pv哪有什么女鬼打光
+
+而且这个妹子也确实比鬼武者里这群大妈有姿色吧， ...</blockquote>
+最近发的PV有女的吗？只记得水里有个女的但脸都看不清。
+
+你钟馗里女的跟黑神话那几个女的比比？<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳄鱼亮爪  
+##### 1151#       发表于 2026-9-3 12:07
+
+<blockquote>姬茧墨 发表于 2026-9-3 11:56
+不是说拐不拐的，突然进来一大波人对着一个动作游戏说女的太丑了助长不正之风
+
+那我还说现在一堆野狗arpg游 ...</blockquote>
+小心坛友很记仇的，等下次轮到你发帖抱怨你在意的影视动画漫画游戏有丑人时网友就把你以前的发言截图打你脸上了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">。当然如果是确实觉得不难看那另说
+

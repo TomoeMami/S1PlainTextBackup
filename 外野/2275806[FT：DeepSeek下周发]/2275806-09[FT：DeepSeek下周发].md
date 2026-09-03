@@ -6191,3 +6191,13 @@ openai的astra据说是recurrent depth
 muse spark 1.3 继续斩杀国产模型</blockquote>
 这哥们也是个跑分高手。
 
+
+*****
+
+####  CCauchy  
+##### 12424#       发表于 2026-9-3 11:59
+
+我就想知道codex、claude这类harness是不是不能随意修改中间对话，不能直接提交中断的会话而是必须提示继续，如果子代理环境出bug导致会话根本动不了只能另起会话修复？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
