@@ -849,3 +849,11 @@ Vampyr试一哈？
 
 有没有在 ps5 pro 上玩的，优化咋样<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sotsu  
+##### 77#       发表于 2026-9-4 03:07
+
+刚开始玩 感觉摇杆走路手感很是奇怪。。。慢速太慢，跑步走路之间速度提升又太多
+
