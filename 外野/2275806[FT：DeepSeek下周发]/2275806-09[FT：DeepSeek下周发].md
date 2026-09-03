@@ -6891,3 +6891,31 @@ qwen3.8的缓存结构跟dsv4flash的提示缓存结构完全不同</blockquote>
 
 我觉得月之暗面可能在憋个大的
 
+
+*****
+
+####  jinuzuktII  
+##### 12488#       发表于 2026-9-3 18:07
+
+说是今晚1点ASTRA？
+
+*****
+
+####  qwased  
+##### 12489#       发表于 2026-9-3 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196167&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-9-3 17:49</a>
+
+西班牙AI公司发布Quasar438B，打平Qwen27B低推理档成欧洲模型第一...
+
+怕是这438B都是套皮的 ...</blockquote>
+老钟一开源，自研就纷纷冒出来了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  很久就在那边l  
+##### 12490#       发表于 2026-9-3 18:15
+
+anyrouter到底是哪家开的，体验已经烂到没法用了没人修但是依然第一时间上fable5.1，收数据也好好收啊
+
