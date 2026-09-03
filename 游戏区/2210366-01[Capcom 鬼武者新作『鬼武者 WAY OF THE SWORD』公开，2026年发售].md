@@ -4114,3 +4114,16 @@ MC剑星 82分，轮回之兽 73分，自己想想卡婊这些游戏85到90之�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Jabeck  
+##### 1100#       发表于 2026-9-3 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192493&amp;ptid=2210366" target="_blank">缺德猫 发表于 2026-9-3 05:40</a>
+
+黎明行者之血全球销量这么爆啊？登顶了，不过鬼武者也升了几位，看来卖个200W问题不大！
+
+更新：已经第六了 ...</blockquote>
+这游戏在港区PSN跟没有一样。。。预购前十都看不到，看来是亚洲不太买账。
+
