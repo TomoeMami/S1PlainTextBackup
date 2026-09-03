@@ -6038,3 +6038,11 @@ breaking change 太多了，要等等 [Re:Source](https://stage1st.com/2b/thread
 
 最重要的是快！而且测下来没有3.7那种动不动截断的毛病
 
+
+*****
+
+####  HazukiShion  
+##### 12411#       发表于 2026-9-3 10:10
+
+话说 K3.1 现在有消息了吗？
+
