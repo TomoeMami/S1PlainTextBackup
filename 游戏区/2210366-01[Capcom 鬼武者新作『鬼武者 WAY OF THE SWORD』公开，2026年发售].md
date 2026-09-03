@@ -4150,3 +4150,77 @@ MC剑星 82分，轮回之兽 73分，自己想想卡婊这些游戏85到90之�
 ign视频里透了弁庆战，所以笼手女真是那个静御前，三木演的那个是黑化义经吗
 仁王3那边只是比自己退步了，不妨碍吊打其他日厂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（但阴阳师套大腿都加布真得喷）
 
+
+*****
+
+####  恋妖壶  
+##### 1104#       发表于 2026-9-3 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193463&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-9-3 10:22</a>
+
+这游戏在港区PSN跟没有一样。。。预购前十都看不到，看来是亚洲不太买账。 ...</blockquote>
+港区大部分也是大陆玩家，而这游戏港服数字版价格不管是和自己的实体还是和steam国区都差的实在过于多了，我这种PS5买来没用过光驱的都买不下手
+
+*****
+
+####  Jabeck  
+##### 1105#       发表于 2026-9-3 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193587&amp;ptid=2210366" target="_blank">恋妖壶 发表于 2026-9-3 10:44</a>
+
+港区大部分也是大陆玩家，而这游戏港服数字版价格不管是和自己的实体还是和steam国区都差的实在过于多了 ...</blockquote>
+但鬼武者和影之刃预购排名靠前，黎明之血真就是连影子都见不到。
+
+*****
+
+####  mai6696  
+##### 1106#       发表于 2026-9-3 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193530&amp;ptid=2210366" target="_blank">银色天空 发表于 2026-9-3 10:33</a>
+
+我倒是觉得这游戏应该会卖得不如识质存在，卖相还是差了点</blockquote>
+只看卖相的话，PRAGMATA的“左右脑互搏”也挺劝退了吧。
+
+
+*****
+
+####  Schwarzess  
+##### 1107#       发表于 2026-9-3 10:50
+
+紫式部部分角度还行但整体普得可怕。
+哪位漏油发个静御前看看呢？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  鳄鱼亮爪  
+##### 1108#       发表于 2026-9-3 10:53
+
+在b站搜了下才发现怎么这么难看，这要是国产早就查成分加开骂一条龙了（没有说这种行为好的意思）<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乔迪奥  
+##### 1109#       发表于 2026-9-3 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193628&amp;ptid=2210366" target="_blank">Schwarzess 发表于 2026-9-3 10:50</a>
+
+紫式部部分角度还行但整体普得可怕。
+
+哪位漏油发个静御前看看呢？    Re:Source ...</blockquote>
+静御前就是鬼之佳人（笼手女）
+
+<img src="https://img.stage1st.com/forum/202609/03/105535x8ui88ytqspbt3s4.png" referrerpolicy="no-referrer">
+
+<strong>159BE985087BD0DCDE804A2471F95DC7.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 10:55 上传
+
+*****
+
+####  卡拉德利姆  
+##### 1110#       发表于 2026-9-3 10:56
+
+PRAGMATA有金发小萝莉 卖相这块不可能差的
+

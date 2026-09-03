@@ -3408,3 +3408,19 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 
 黑皮的肉体啊，美好<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑卷轴陶德传  
+##### 3273#       发表于 2026-9-3 10:48
+
+假小子黑皮怕不是第一天到帝都达古西翁就被人骂乡毋宁
+
+
+*****
+
+####  蓮華  
+##### 3274#       发表于 2026-9-3 10:50
+
+穿着像北斗神拳里的莫西干<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

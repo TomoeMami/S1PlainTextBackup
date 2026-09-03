@@ -6129,3 +6129,15 @@ muse spark 1.3 继续斩杀国产模型</blockquote>
 
 — from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  绕指流光  
+##### 12418#         楼主| 发表于 2026-9-3 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193585&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-9-3 10:44</a>
+当时Muse spark1.2说斩了 结果发现是个强化过头的弱智
+
+体感meta那帮人是真的直接把题喂进去做rl了</blockquote>
+考虑到 Meta 不营销就会死的调性，亚历山大王一定会选择流量最多的打法，当然有 A➗珠玉在前，目前来看还玩不出新花样<img src="https://static.stage1st.com/image/smiley/face/79.gif" referrerpolicy="no-referrer">
+
