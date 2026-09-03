@@ -236,3 +236,21 @@ MuMu-20260903-184912-715.jpg
 你这石头数还想剑心吗 这难道就是欧狗的自信</blockquote>
 剑心的时候差不多生日，动用一点钞能力还是可以的<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 48182#       发表于 2026-9-3 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196553&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-9-3 19:02</a>
+
+剑心的时候差不多生日，动用一点钞能力还是可以的</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/03/190405mh7dh57ufo530u73.jpg" referrerpolicy="no-referrer">
+
+<strong>KV]69K`9]}2[W)_K0FJ]MWC.jpg</strong> (4.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 19:04 上传
+
