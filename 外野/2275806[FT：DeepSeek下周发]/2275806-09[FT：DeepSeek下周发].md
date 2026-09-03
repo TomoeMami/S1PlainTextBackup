@@ -7359,3 +7359,107 @@ OpenAI、Anthropic 与 xAI 三家主要 AI 服务商北美服务器集群发生�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 天王觉醒的第一夜
 
+
+*****
+
+####  浪费喝咖啡  
+##### 12527#       发表于 2026-9-3 23:14
+
+gemini重新成为美模SOTA<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  love4aids  
+##### 12528#       发表于 2026-9-3 23:14
+
+astra变成流窜ai了
+
+*****
+
+####  nxmonitor  
+##### 12529#       发表于 2026-9-3 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198145&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-3 22:41</a>
+
+从理性上讲，灰测模型的奇怪思维链很有可能就是服务端加了个额外的cot后处理。
+
+但是我也挺希望梁叔叔还有新 ...</blockquote>
+V4FV灰测照样有大量I’m doing，但是输出却是流式的，说明根本没有什么要隐藏的东西，说不定V4P灰测的思维链真是这样的
+
+*****
+
+####  龙骑士尹志平  
+##### 12530#       发表于 2026-9-3 23:16
+
+美国豆包干的？哈基咪3.8flash摇身一变ultra
+
+*****
+
+####  jinuzuktII  
+##### 12531#       发表于 2026-9-3 23:17
+
+群星交汇，要来了
+
+<img src="https://img.stage1st.com/forum/202609/03/231737jy2yftzyt52cgsyy.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (140.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:17 上传
+
+*****
+
+####  squallx  
+##### 12532#       发表于 2026-9-3 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198458&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-9-3 23:16</a>
+
+美国豆包干的？哈基咪3.8flash摇身一变ultra</blockquote>
+哈基米是TPU不兼容 这波是觉醒AI要先吃下所有N卡算力了
+
+
+*****
+
+####  zy450  
+##### 12533#       发表于 2026-9-3 23:20
+
+排面这么大吗？3家北美AI一起给astra放烟花？
+
+*****
+
+####  王兰花秀丽  
+##### 12534#       发表于 2026-9-3 23:21
+
+我说还是没必要这样炒作<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  jinuzuktII  
+##### 12535#       发表于 2026-9-3 23:23
+
+<img src="https://img.stage1st.com/forum/202609/03/232312c59iiccr59u2i257.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (107.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:23 上传
+
+*****
+
+####  love4aids  
+##### 12536#       发表于 2026-9-3 23:23
+
+codex恢复了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 12537#       发表于 2026-9-3 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198334&amp;ptid=2275806" target="_blank">孙吧星人 发表于 2026-9-3 23:00</a>
+
+基元的V4F怎么感觉这两天突然变区了？</blockquote>
+大概率是换成什么弱智量化了，试了下体素建模能力完全崩溃，根本做不出来
+

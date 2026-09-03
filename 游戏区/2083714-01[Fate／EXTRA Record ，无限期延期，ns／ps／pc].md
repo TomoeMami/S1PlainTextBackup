@@ -2226,3 +2226,35 @@ FE原作游戏性烂到逆天，不如80年代大部分红白机游戏的游戏�
 
 新纳一哉说的做了大部分内容还是真的行吧，原来是之前真做不到6月发售<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 218#       发表于 2026-9-3 23:20
+
+明天有场直播，然后服装DLC<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/03/231941tcskzo0o4zscz4bv.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1788448780325_1.webp</strong> (85.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:19 上传
+
+<img src="https://img.stage1st.com/forum/202609/03/231941nqj2sqg0kx0hw4xx.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1788448780462_2.webp</strong> (83.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:19 上传
+
+<img src="https://img.stage1st.com/forum/202609/03/231941x37743qeye7yx2w5.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1788448780554_3.webp</strong> (107.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:19 上传
+

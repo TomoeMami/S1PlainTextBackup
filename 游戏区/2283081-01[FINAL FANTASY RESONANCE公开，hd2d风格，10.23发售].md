@@ -1056,3 +1056,44 @@ demo上了，steam也上了
 
 存档能继承吗
 
+
+*****
+
+####  h122h  
+##### 99#       发表于 2026-9-3 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198447&amp;ptid=2283081" target="_blank">大喇叭花田 发表于 2026-9-3 23:15</a>
+
+存档能继承吗</blockquote>
+可以
+
+<img src="https://img.stage1st.com/forum/202609/03/231703ww52o7fa0ao707ff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (457.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:17 上传
+
+*****
+
+####  白夜凛音  
+##### 100#       发表于 2026-9-3 23:18
+
+PC的抢先体验也上了
+
+
+*****
+
+####  猪突猛进R  
+##### 101#       发表于 2026-9-3 23:22
+
+好玩吗？
+
+*****
+
+####  horacio  
+##### 102#       发表于 2026-9-3 23:23
+
+se以后还是专注2d回合制吧，开头对砍燃爆了。我以前玩过手游，全是我抽的卡还挺怀念的
+
