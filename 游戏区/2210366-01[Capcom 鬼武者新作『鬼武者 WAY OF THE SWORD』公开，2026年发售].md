@@ -4320,3 +4320,60 @@ PDD盘不到300，不可能在PSN买吧
 
 其实脸也改的很难认出来了
 
+
+*****
+
+####  mai6696  
+##### 1120#       发表于 2026-9-3 11:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 影之刃零有神秘眼镜女，鬼武者也干了。
+
+阿国怎么还是个萝莉？长得也挺一般的。
+
+
+*****
+
+####  红魔馆的糖  
+##### 1121#       发表于 2026-9-3 11:07
+
+还是在这种烂环境下面卡表太有恃无恐了，这些脸要是放国产游戏哪怕放个演示这游戏都别想活<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1122#       发表于 2026-9-3 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193759&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-3 11:07</a>
+
+还是在这种烂环境下面卡表太有恃无恐了，这些脸要是放国产游戏哪怕放个演示这游戏都别想活 ...</blockquote>
+没办法，什么影刃、钟馗看过一遍，还是鬼武者的打击反馈最强<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zqqwe  
+##### 1123#       发表于 2026-9-3 11:09
+
+唉，因为仁3舔完图不想刷装备这周末空出来，预购了普通版感觉也在助长卡婊这种丑女风气<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  woshenc  
+##### 1124#       发表于 2026-9-3 11:10
+
+看到这个鬼之佳人，哈哈哈，放弃原价购买了...<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  缺德猫  
+##### 1125#       发表于 2026-9-3 11:13
+
+鬼之佳人不是前几个预告就有的吗，你们都不追宣发的？
+
+*****
+
+####  Jabeck  
+##### 1126#       发表于 2026-9-3 11:15
+
+国单刚起步谁知道你游戏好不好玩当然需要美女来做宣传，像嗜血印都能靠着RSQ翻盘。。卡普空又不怕。<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
