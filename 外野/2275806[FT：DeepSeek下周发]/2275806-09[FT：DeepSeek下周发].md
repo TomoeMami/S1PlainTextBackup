@@ -7982,3 +7982,33 @@ Fireworks的D4P六倍价格，拿来养我自己的agent感觉还不如D4F。
 
 ppt里面全是画大饼，还不给用
 
+
+*****
+
+####  lactone  
+##### 12586#       发表于 2026-9-4 03:55
+
+openai的ceo都吹agi来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  泰坦失足  
+##### 12587#       发表于 2026-9-4 03:57
+
+没有人:
+
+Antigravity: 重置额度
+
+要不是我扫了眼自制的Antigravity 监控表还发现不了这种事情
+
+*****
+
+####  御坂MKII  
+##### 12588#       发表于 2026-9-4 03:58
+
+炒了一晚上结果现在 blog 都还点不开，闹麻了
+
+就看能不能提升写代码的品味以及不要 xjb 搞 over engineering 了
+
