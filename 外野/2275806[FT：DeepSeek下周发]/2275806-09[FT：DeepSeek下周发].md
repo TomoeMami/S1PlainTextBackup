@@ -6077,3 +6077,14 @@ XXX 仍是同一 PID、NRestarts=0、stop-sigterm，没有出现失败或重复�
 
 muse spark 1.3 继续斩杀国产模型 
 
+
+*****
+
+####  Rowen233  
+##### 12414#       发表于 2026-9-3 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193440&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-9-3 10:20</a>
+
+muse spark 1.3 继续斩杀国产模型</blockquote>
+有自动代码上传真不太想用
+
