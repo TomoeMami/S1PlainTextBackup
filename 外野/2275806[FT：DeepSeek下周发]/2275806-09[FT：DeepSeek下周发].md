@@ -6831,3 +6831,22 @@ qwen3.8的缓存结构跟dsv4flash的提示缓存结构完全不同</blockquote>
 
 哪有大, 天天吓自己
 
+
+*****
+
+####  Freewolf  
+##### 12482#       发表于 2026-9-3 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195827&amp;ptid=2275806" target="_blank">NMTor 发表于 2026-9-3 16:49</a>
+
+现在把美国豆包web当搜索引擎用，今天感觉没聊什么就触发5小时限额(plus，额度砍过？ ...</blockquote>
+哈基米这玩意真能当搜索引擎用吗？我让他上网搜都不搜，搁那嘴硬
+
+*****
+
+####  蛋黄酱Release  
+##### 12483#       发表于 2026-9-3 17:42
+
+刷分小更新已经懒得看了，突破了可用线之后小参数模型不如多去卷一卷速度和价格，刷分实在是意义不大。
+还是期待接下来的大参数模型更新，灰测ds什么时候才能端上来，k3.1也迟迟没消息<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
