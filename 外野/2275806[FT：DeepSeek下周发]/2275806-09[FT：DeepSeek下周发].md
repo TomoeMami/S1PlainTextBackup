@@ -8052,3 +8052,30 @@ openai觉得代码卷下去性价比不高
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  drodchang  
+##### 12593#       发表于 2026-9-4 05:47
+
+很失望astra居然和fable一样贵，那说个屁啊，可以说毫无优势。
+
+*****
+
+####  cscbzcbz  
+##### 12594#       发表于 2026-9-4 05:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199261&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-4 04:22</a>
+所以那个什么loop transformer呢</blockquote>
+同问<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wandeeees  
+##### 12595#       发表于 2026-9-4 05:52
+
+ao旗舰都出了，ds的灰测模型是不是该出来狙击一下了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
