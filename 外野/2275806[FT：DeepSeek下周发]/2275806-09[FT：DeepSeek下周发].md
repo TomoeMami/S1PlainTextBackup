@@ -6393,3 +6393,15 @@ flash next还能这样部署，速度也还可以
 这两天蹬千问plan的qwen3.8flash蹬爽了，开了Standard套餐。53个小时蹬了234M了。我感觉已经替代v4f了，能 ...</blockquote>
 234M是多少积分？
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12441#       发表于 2026-9-3 13:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194377&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-3 12:31</a>
+那GLM5.3Flash的TPS就行了？也不怎么样，所以我现在还在用V4F…</blockquote>
+glm5.3f的tps更是超级蜗牛 但是它不怎么雷霆大思考 所以从时间上看是更快的
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
