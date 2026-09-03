@@ -7133,3 +7133,11 @@ Fixed automatic title generation so --no-title also prevents todo-initialization
 
 Fixed provider errors so they wrap to the terminal width and remain readable in the transcript and pinned error banner, with long messages available through the expansion hint.</blockquote>刚修的，一大堆用户明显是被这个弱智机制坑了无数token
 
+
+*****
+
+####  王兰花秀丽  
+##### 12502#       发表于 2026-9-3 20:16
+
+Astra来了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
