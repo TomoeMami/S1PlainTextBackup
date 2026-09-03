@@ -4848,3 +4848,52 @@ a556be2a-0d9f-438c-955e-327e9c01f4ef.png
 
 也不能说毫不重要，我也预购豪华版了，要不是这女角色太丑我直接就预购终极版了，官方不也是拿女角色的服装在卖嘛，但是毫无吸引力啊。
 
+
+*****
+
+####  zqqwe  
+##### 1170#       发表于 2026-9-3 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194385&amp;ptid=2210366" target="_blank">interzhang 发表于 2026-9-3 12:32</a>
+有一说一鬼子给古典文学女戴眼镜也算是刻板印象了，我觉得很大程度上眼镜这个要素确实很挑人 ...</blockquote>
+眼镜甚至厚唇都可以是加分点，紫式部问题是下半脸的圆脸赘肉太写实，动起来就像O首尔了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 1171#       发表于 2026-9-3 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193880&amp;ptid=2210366" target="_blank">黑暗之眼 发表于 2026-9-3 11:22</a>
+你们到底来玩游戏的还是来看女人的？</blockquote>
+那当然是游戏也要玩，女人也要看了，这样才算得上健全。
+
+
+*****
+
+####  shimotsuki14  
+##### 1172#       发表于 2026-9-3 12:42
+
+说真的女角色人设这次真不行
+主角说是三船，但我没觉得很像，三船年轻时造型印象不深，说起三船想到的还是椿三十郎和夺命剑那种中-老年造型。
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  银色天空  
+##### 1173#       发表于 2026-9-3 12:43
+
+影之刃黑神话剑星仁王忍龙都来了，怎么能少了只狼，我看隔壁尼莫船长说这游戏模仿了只狼。
+我是觉得这俩游戏的战斗循环很不一样。只狼围绕架势条，剑之道则更多样化，除了应对投技的时候按哪个键都行；另外这游戏相比老鬼武者真正新增的系统只有化劲，而这玩意和弹刀完全不同是个随便打断敌人动作的imba动作，无法被化劲打断的连续攻击要在百秽这种精英怪身上才出现。
+
+*****
+
+####  scp073  
+##### 1174#       发表于 2026-9-3 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194400&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-9-3 12:35</a>
+动作游戏女的重要吗？ 卖得最好的动作游戏之一鬼泣5女角色没丑化？ 女主角的贝姐3销量才100W出头，系列生 ...</blockquote>
+那我只能说，我关心妹妹颜值更甚于游戏销量，游戏销量又不会影响体验
+而且还是前面的话，给角色搞个一般审美以上的脸不是那么困难的事。
+你不给我金发盲眼裸足大胸小姐姐当防火女我其实也无所谓，但你告诉我笼手里的剧情引导员是这种大妈脸我是不能接受的，甚至要怀疑你的动机，更别说这种大妈颜值的高手后面还有好几个<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
