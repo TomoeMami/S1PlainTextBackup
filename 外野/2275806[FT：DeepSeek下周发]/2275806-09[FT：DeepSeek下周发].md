@@ -6667,3 +6667,41 @@ astra能碾压5.1吗
 
 根据另一波 app更新版-火鸡科学家 的观察，最近app没更新，所以本周无D<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NMTor  
+##### 12467#       发表于 2026-9-3 16:49
+
+<img src="https://img.stage1st.com/forum/202609/03/164739d63exhfzm5aqtkak.jpg" referrerpolicy="no-referrer">
+
+<strong>img_0232.jpg</strong> (22.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 16:47 上传
+
+现在把美国豆包web当搜索引擎用，今天感觉没聊什么就触发5小时限额(plus，额度砍过？
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+img_0158.jpg
+(1.14 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 16:47 上传
+
+<img src="https://img.stage1st.com/forum/202609/03/164726f8oekb3csp3dasjz.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 12468#       发表于 2026-9-3 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195725&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-3 16:29</a>
+
+omp默认会给对话打标题，而且会根据对话状态自动更新标题，这个功能会破坏dsv4的缓存格式，ds4模型的缓存 ...</blockquote>
+web没发现这个问题，我就用的本地部署的qwen3.8，不用上下文压缩不会prefill啊
+
