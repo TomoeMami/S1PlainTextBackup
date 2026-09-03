@@ -5255,3 +5255,11 @@ BV1Xxtt6TEE2
 
 只有我觉得眼镜张靓颖很戳中我吗……
 
+
+*****
+
+####  Yugao  
+##### 1208#       发表于 2026-9-3 18:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fgo玩家看到这个紫式部就很亲切有没有懂的
+

@@ -6927,3 +6927,102 @@ anyrouter到底是哪家开的，体验已经烂到没法用了没人修但是�
 
 话说这个WorkBuddy用5.3f说我超出频率，我切成没用过V4f也说我超过频率，怎么这么坑啊
 
+
+*****
+
+####  mitzvah  
+##### 12492#       发表于 2026-9-3 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195954&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-3 17:08</a>
+
+我接ds官方api也是绝大部分中缓存啊？
+
+不过web端压根就没有标题，对话只会显示我发的第一句话 ...</blockquote>
+我自己用ds4项目部署的本地模型就是有这个毛病，我让dsv4自己用代理拦截仔细分析了数据包，结论就是这样的：<blockquote>### 2.2 ds4-server.log 分析（`/tmp/ds4-server.log`，860MB+）
+
+关键日志模式：
+
+```
+
+live kv cache miss live=249640 prompt=34645 common=341 reason=token-mismatch
+
+kv cache hit text tokens=34492 load=353.3 ms
+
+chat ctx=34492..34629:137 prefill ... 4.084s
+
+chat ctx=0..26657:26657 prompt done 37.035s   ← 全量 prefill
+
+```
+
+- omp 请求 **live KV 几乎总是 miss**（common=1 或 341）
+
+- 磁盘缓存能命中（加载 250-350ms），但之后要 prefill
+
+- **关键发现**：`common=26637 / prompt=26657 = 99.9% 匹配`，却判定 miss，从 0 全量 prefill 37s —— 因 `prompt &lt; live`（长度回退）
+
+### 2.3 拦截代理（Python 转发代理，记录完整请求体）
+
+- 写 `/tmp/omp-intercept-proxy.py`，把 omp baseUrl 临时指向 8999，转发到 8000 并记录 JSON 请求体
+
+- **结论 A**：omp 相邻请求前缀**逐字节稳定**（seq5→seq11 全部一致，无早期消息重渲染）→ #3406 假设不成立
+
+- **结论 B**：拦截到 **title 生成请求**（`# Task\nWrite a 3-7 word title`，172 tokens），在主请求之间穿插
+
+### 2.4 源码分析
+
+- `packages/coding-agent/src/session/agent-session.ts` `maybeStartTitleGeneration()`：
+
+  - 触发条件：会话未命名（`sessionName` 为空）+ 未 in-flight + 非 `PI_NO_TITLE` + 非低信号输入
+
+  - **会话没命名成功就每轮用户消息后重试**
+
+- `packages/coding-agent/src/utils/title-generator.ts`：
+
+  - `providers.tinyModel` 默认 `online` → 走 TINY role → 用户未配 → **回退到 ds4 主模型**
+
+- 本地模型选项存在（lfm2-350m / qwen3-0.6b / gemma-270m 等 ONNX）
+
+### 2.5 尝试的方案（均无效/副作用）
+
+|| 方案 | 结果 ||
+||---|---||
+|| `replayReasoningContent: true` + `requiresReasoningContentForAllAssistantTurns`（models.yml） | 无效，且可能加剧 reasoning 重渲染 ||
+|| `extraBody: {thinking: {type: enabled}}`（对齐 pi） | 无效 ||
+|| `providers.tinyModel: lfm2-350m`（本地 ONNX 标题模型） | **更慢**（本地 CPU 推理开销），用户否决 ||
+
+## 3. 根因（最终确认）
+
+**omp 自动会话标题生成每轮走 ds4，污染 KV 缓存：**
+
+1. 每轮用户消息后，`maybeStartTitleGeneration` 触发（会话未命名时）
+
+2. title 请求走 **ds4**（TINY role 未配置 → 回退到 ds4/deepseek-v4-flash）
+
+3. title 请求只有 ~172 tokens + maxTokens=1024，**覆盖 ds4 的 live KV**（主请求 26K KV 被替换）
+
+4. 下次主请求 **live miss**（common=1/341）→ 磁盘加载 + 全量/大量 prefill → 37s
+
+5. 标题生成**失败率高**（`model-returned-none`）→ 会话一直未命名 → **每轮都重试** → 每轮都污染
+
+6. **pi 不慢**：pi 的标题生成不走 ds4（无此污染），主请求 live KV 保持 → 秒出
+
+## 4. 解决方案（生效）
+
+**设置环境变量 `PI_NO_TITLE=1`，彻底关闭自动标题生成。**
+
+写入 `~/.zshrc`：
+
+```bash
+
+export PI_NO_TITLE=1
+
+```
+
+效果：
+
+- omp 日志不再有 `title-generator` 记录
+
+- ds4 日志不再有 172-token 的 title 请求插入
+
+- 主请求 live KV 保持 → 追问命中 → **显著改进（用户确认）**</blockquote>
+
