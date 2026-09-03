@@ -7207,3 +7207,11 @@ Codex的Ultrafast模式好像也要上了，之前报道是正常速度的14倍�
 
 但是我也挺希望梁叔叔还有新活，这个cot就是ds新模型的原生表现<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  love4aids  
+##### 12510#       发表于 2026-9-3 22:53
+
+gpt崩了？这是要上新模型了吗?
+
