@@ -8012,3 +8012,13 @@ Antigravity: 重置额度
 
 就看能不能提升写代码的品味以及不要 xjb 搞 over engineering 了
 
+
+*****
+
+####  御坂MKII  
+##### 12589#       发表于 2026-9-4 04:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看了看 blog，总感觉这后训练现在没咋管代码，全去搞其他乱七八糟的活去了
+
+感觉品味问题和各种过度设计过度防御的问题都还在
+
