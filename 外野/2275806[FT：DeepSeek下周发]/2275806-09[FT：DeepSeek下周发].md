@@ -6452,3 +6452,14 @@ gemini现在不是有8块18个月的羊毛么
 
 —— 来自 OnePlus PJX110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  mitzvah  
+##### 12447#       发表于 2026-9-3 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195031&amp;ptid=2275806" target="_blank">cd112332255 发表于 2026-9-3 14:34</a>
+
+小白借楼问一下，家用机本地部署的话，是不是专项专用效果最好。比如我想翻译就只去hugging face 上专门tra ...</blockquote>
+本地模型翻译写作能跑动就是gemma4 31b，跑不动日文Sakura 4b 那个CPU都能跑英文腾讯那个也行
+
