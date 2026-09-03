@@ -6405,3 +6405,30 @@ glm5.3f的tps更是超级蜗牛 但是它不怎么雷霆大思考 所以从时�
 
 — from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  小山内梢子  
+##### 12442#       发表于 2026-9-3 14:11
+
+现在酒馆还能怎么用哈基米
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  唠叨  
+##### 12443#       发表于 2026-9-3 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194729&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-9-3 13:38</a>
+
+234M是多少积分？</blockquote>
+Standard 套餐7天用量的42%
+
+*****
+
+####  tewaku  
+##### 12444#       发表于 2026-9-3 14:17
+
+想问一下现在用哈基米玩酒馆要怎么搞？我 dc 号被封了进不了类脑。以前 2.5 时代玩过一段时间后来甲厚了额度砍了就不玩了，记得那时要搞什么反代什么的，现在还要吗？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
