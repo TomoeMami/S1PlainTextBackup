@@ -108,3 +108,34 @@
 
 下一话就是大决战了吗，藤都子和大薇老师会一转百年好合吗<img src="https://static.stage1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 402#       发表于 2026-9-3 22:21
+
+跟藤都子和薇奥拉一比
+
+阿拉蕾和白毛的人物描写简直就是垃圾
+
+尤其是白毛，塑造得一坨屎
+
+
+*****
+
+####  jstcsjx  
+##### 403#       发表于 2026-9-3 22:25
+
+藤都子和薇欧拉分道扬镳的剧情拍得神神叨叨的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  无端崖之辞  
+##### 404#       发表于 2026-9-3 22:26
+
+本来想夸分手戏写的还可以
+最后一段又整段垮掉了
+12集演完了除了由乃和藤都子其他人有什么有效塑造吗
+
