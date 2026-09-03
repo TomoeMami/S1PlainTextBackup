@@ -5049,3 +5049,40 @@ a556be2a-0d9f-438c-955e-327e9c01f4ef.png
 【鬼武者剑之道制作人回应难 ...</blockquote>
 新动作靠点技能树来解锁
 
+
+*****
+
+####  mai6696  
+##### 1190#       发表于 2026-9-3 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194573&amp;ptid=2210366" target="_blank">scp073 发表于 2026-9-3 13:05</a>
+
+我看这个视频00:25的部分说Demo里是提前解锁后期动作的，动作是逐个解锁的吗
+
+【鬼武者剑之道制作人回应难 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/03/133946b10403it6mzti1yu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (430.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 13:39 上传
+
+BV1Xxtt6TEE2
+
+07:00
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ scp073 + 1好评加鹅
+
+查看全部评分
+

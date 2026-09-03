@@ -6382,3 +6382,14 @@ flash next还能这样部署，速度也还可以
 
 大多数专家放入单卡，速度也能接受
 
+
+*****
+
+####  UncleDracula  
+##### 12440#       发表于 2026-9-3 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192328&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-9-3 01:15</a>
+
+这两天蹬千问plan的qwen3.8flash蹬爽了，开了Standard套餐。53个小时蹬了234M了。我感觉已经替代v4f了，能 ...</blockquote>
+234M是多少积分？
+
