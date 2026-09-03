@@ -3951,3 +3951,16 @@ MC剑星 82分，轮回之兽 73分，自己想想卡婊这些游戏85到90之�
 
 静御前怎么那么丑啊，丑的我都想退款了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  汪达  
+##### 1085#       发表于 2026-9-3 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192688&amp;ptid=2210366" target="_blank">wthall 发表于 2026-9-3 08:27</a>
+
+静御前怎么那么丑啊，丑的我都想退款了</blockquote>
+义经的女人，和宫本武藏组CP不太合适，弄难看点玩家就不用期待浪漫剧情了
+
+一个想法不一定对
+
