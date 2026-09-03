@@ -6872,3 +6872,22 @@ qwen3.8的缓存结构跟dsv4flash的提示缓存结构完全不同</blockquote>
 怕是这438B都是套皮的 ...</blockquote>
 微调版的GLM-5.2
 
+
+*****
+
+####  城北无尘  
+##### 12486#       发表于 2026-9-3 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195880&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-9-3 16:58</a>
+
+啊，怎么没有更新？不是刚刚才更新到224吗？我刚才逛系统商城的时候就发现了。大概是今天还是昨天的事情 ...</blockquote>
+苹果app store显示2.4.2版本是6天前
+
+
+*****
+
+####  lactone  
+##### 12487#       发表于 2026-9-3 18:05
+
+我觉得月之暗面可能在憋个大的
+

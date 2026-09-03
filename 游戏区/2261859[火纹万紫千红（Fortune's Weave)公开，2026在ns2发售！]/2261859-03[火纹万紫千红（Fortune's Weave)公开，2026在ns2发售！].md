@@ -3463,3 +3463,24 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 
 豪华版淘宝和pdd都要八百多耶
 
+
+*****
+
+####  thecatnie  
+##### 3280#       发表于 2026-9-3 17:56
+
+这个人设算是黑皮+假小子+村姑？
+
+
+*****
+
+####  黑上シグマ  
+##### 3281#       发表于 2026-9-3 18:04
+
+<blockquote>引用第3278楼蓮華于2026-09-03 15:11发表的  :
+
+豪华版淘宝和pdd都要八百多耶</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海淘的日版才1W3，发EMS回来我感觉都不会要800
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
