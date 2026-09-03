@@ -7728,3 +7728,57 @@ rubin比gb300更可怕，950打gb200要4块拼一块，打rubin搞不好要十�
 
 能不能先把sol级模型的价格打下来
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 12564#       发表于 2026-9-4 00:40
+
+oai主要是降智太恶心，上周内都流口水流成啥了
+
+*****
+
+####  lactone  
+##### 12565#       发表于 2026-9-4 00:42
+
+openai上市前最后一哆嗦了，透支也得把声势造起来啊
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  绝地潜兵  
+##### 12566#       发表于 2026-9-4 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196834&amp;ptid=2275806" target="_blank">fat 发表于 2026-9-3 20:04</a>
+
+请问有啥airp的agent推荐么？</blockquote>
+PC端太多了：
+
+基于DSH魔改
+[https://github.com/lutrodev/dsh-roleplay](https://github.com/lutrodev/dsh-roleplay)
+[https://github.com/hewzhew/dsh-agent-rp](https://github.com/hewzhew/dsh-agent-rp)
+
+基于酒馆的分支
+[https://github.com/funnycups/Luker](https://github.com/funnycups/Luker)
+
+还有安卓的Tavo、TauriTavern各种
+
+这些玩意用于制卡工具的时候，生成json、正则式，直接和编程一样烧词元
+
+*****
+
+####  lactone  
+##### 12567#       发表于 2026-9-4 00:47
+
+fable这一波国产模型赶的其实挺快
+
+国产模型最弱势其实是claude4.5-gpt5.5时代
+
+不知道astra这波国产模型要赶多久
+
+贷款年底前国模能出astra级别的开源模型
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

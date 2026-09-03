@@ -1163,3 +1163,26 @@ se以后还是专注2d回合制吧，开头对砍燃爆了。我以前玩过手�
 这个买PC还是NS2版好？</blockquote>
 单纯从价格上来说，肯定PC好<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝色暴鲤龙  
+##### 111#       发表于 2026-9-4 00:37
+
+玩了十几分钟，大作感太强了。。。甚至让我有买实体豪华版的冲动。。。超预期
+
+*****
+
+####  Flechette  
+##### 112#       发表于 2026-9-4 00:39
+
+demo差不多半个小时处的进度，有一种极其强烈的手游教程到了抽卡阶段的既视感<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  horacio  
+##### 113#       发表于 2026-9-4 00:43
+
+和手游一样会有很多地图上没标记的隐藏道路…
+
