@@ -6591,3 +6591,46 @@ astra能碾压5.1吗
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mitzvah  
+##### 12460#       发表于 2026-9-3 16:29
+
+ 本帖最后由 mitzvah 于 2026-9-3 16:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195623&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-3 16:11</a>
+
+自动标题是啥？我用omp-web没发现这个问题啊</blockquote>
+omp默认会给对话打标题，而且会根据对话状态自动更新标题，这个功能会破坏dsv4的缓存格式，ds4模型的缓存命中率高度依赖于前缀格式。一旦被破坏，提示缓存就失效了
+
+你要是用api，因为官方服务器prefill速度快感觉不出来，但是这时候其实已经全量prefill，我本地部署就非常明显，提示缓存正常的情况，所有的追问都是秒出命中率99%但是一旦全量prefill就要等半天才吐字
+
+除此之外omp的提示缓存还有一堆毛病，总之就是卡的要死，那个rust重构的内核也不行稳定性比pi差一截，这东西其实已经不能算是pi了
+
+*****
+
+####  siebten  
+##### 12461#       发表于 2026-9-3 16:30
+
+哈基米build反代不会封吧 但是每天没多少次数了 反重力看类脑好像封的很厉害
+
+
+*****
+
+####  drodchang  
+##### 12462#       发表于 2026-9-3 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195705&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-3 16:25</a>
+
+astra能碾压5.1吗
+
+—— 来自 HONOR AAK-AN00, Android 16, 鹅球 v3.5.99</blockquote>
+估计不能，应该还是和以前一样各有所长
+
+*****
+
+####  wandeeees  
+##### 12463#       发表于 2026-9-3 16:34
+
+我不要DSH，我要灰测啊<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

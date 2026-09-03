@@ -450,3 +450,13 @@ https://www.procyon-studio.com/blog/?p=18673</blockquote>
 他说自己审美一开始学了泽野的电视剧配乐风格，相关曲子也成了xb ...</blockquote>
 问题是最平庸没感觉的几首背景曲他用得很多，要么都用得少，增加曲目，要么别乱用啊
 
+
+*****
+
+####  serj005  
+##### 2090#       发表于 2026-9-3 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195281&amp;ptid=2283074" target="_blank">Dai-Dai-Dai-Dai 发表于 2026-9-3 15:14</a>
+与此同时，送行曲旋律翻来覆去地用，屁大点事也用，结果特别滥情。</blockquote>
+一堆小支线反复播放同一首煽情bgm这破毛病感觉是xb祖传的，今年打xbx支线感觉和xb3乱用bgm的情况一样，严重出戏<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
