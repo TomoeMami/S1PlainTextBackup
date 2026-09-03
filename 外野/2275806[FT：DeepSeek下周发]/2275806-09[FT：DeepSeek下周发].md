@@ -6565,3 +6565,29 @@ Qwen 3.8 max 0902做的像大号mimo
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  王兰花秀丽  
+##### 12457#       发表于 2026-9-3 16:21
+
+夸张的更新速度，dsh 0.1.2的rc1来了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  cscbzcbz  
+##### 12458#       发表于 2026-9-3 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195676&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-3 16:21</a>
+夸张的更新速度，dsh 0.1.2的rc1来了    Re:Source</blockquote>
+昨天刚更新alpha5<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 12459#       发表于 2026-9-3 16:25
+
+astra能碾压5.1吗
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
