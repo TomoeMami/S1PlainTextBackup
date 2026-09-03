@@ -2077,3 +2077,15 @@ j2k又更新了一版，语言问题修复了
 
 —— 来自 Xiaomi 25102RKBEC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  azbhg1  
+##### 182#         楼主| 发表于 2026-9-4 03:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196734&amp;ptid=2254551" target="_blank">希鲁夫 发表于 2026-9-3 19:45</a>
+装的yokai，平板是小米平板5pro  装插件的时候一直提示安装中，但也不跳出来安装界面  这是啥奇怪问题？
+
+更 ...</blockquote>
+安装方式用shizuku试试，需要你手机里有shizuku
+

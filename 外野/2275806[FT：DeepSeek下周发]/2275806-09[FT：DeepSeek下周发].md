@@ -7946,3 +7946,18 @@ https://zhuanlan.zhihu.com/p/2061961027856635809
 
 现在直接把官网公告给撤了只剩下网上买的商稿了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lubo  
+##### 12582#       发表于 2026-9-4 03:31
+
+跟fable同样的输入输出价格<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 12583#       发表于 2026-9-4 03:33
+
+teffa alpha又是啥，说是千问的？
+
