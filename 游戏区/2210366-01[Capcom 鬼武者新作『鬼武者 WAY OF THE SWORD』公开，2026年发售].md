@@ -4435,3 +4435,56 @@ PDD盘不到300，不可能在PSN买吧
 可能演员本人不难看，但游戏里就…</blockquote>
 我觉得现在日本女演员都很丑，不化妆没法看的类型
 
+
+*****
+
+####  wwhaha  
+##### 1133#       发表于 2026-9-3 11:28
+
+是真实的战国时期人类长相<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kancola  
+##### 1134#       发表于 2026-9-3 11:29
+
+紫式部我觉得挺色的啊
+
+可能确实入不了“只喜欢十多岁10分身材+10分颜值还得穿着暴露的小妹妹的坛友”的法眼，剑之道紫式部很有一种“日产成人影像里的熟女人妻”的味道，就挺色的
+
+*****
+
+####  scp073  
+##### 1135#       发表于 2026-9-3 11:31
+
+有理由怀疑是和dei达成了什么不可告人的py交易，恶心到我了<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+早知道不预购了
+
+*****
+
+####  乔迪奥  
+##### 1136#       发表于 2026-9-3 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193890&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-9-3 11:23</a>
+
+钟馗里的女人很好看吗？</blockquote>
+钟馗脸模长得真挺好看的
+
+
+*****
+
+####  scp073  
+##### 1137#       发表于 2026-9-3 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193890&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-9-3 11:23</a>
+钟馗里的女人很好看吗？</blockquote>
+至少比这游戏好看多了吧，钟馗pv里那怕是女鬼打光下妹子的脸都比这游戏的大妈脸强吧<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  姬茧墨  
+##### 1138#       发表于 2026-9-3 11:36
+
+我也不懂到底是来打游戏还是干嘛的，就拿楼里（应该会）喜欢的忍龙4网红脸大奶女主来说，打完忍龙4真的对她有什么印象吗
+感觉不如天狗鲨鱼坦克这死了吗的三兄弟有印象啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
