@@ -6302,3 +6302,67 @@ aa这个榜也是完蛋了，muse spark1.3完全没有这个分的水平
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  魔法师lain  
+##### 12434#       发表于 2026-9-3 13:06
+
+dsh那插件系统太呕心了，装了几个就是dshmarket有问题，卸载了些直接打不开dsh主页。用别的desktop看到有能ai修插件的，一按直接耗光token。用npm来管理插件太不稳定了，那么多依赖。
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Azcarlo  
+##### 12435#       发表于 2026-9-3 13:07
+
+我的建议是除非你热爱折腾，否则别用dsh，破坏性更新太多了
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  来都来了  
+##### 12436#       发表于 2026-9-3 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192783&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-3 08:49</a>
+omp我用下来对dsv4flash的适配一坨啊
+
+提示缓存前缀会被它的自动标题破坏掉，每一次追问都要全量prefill ...</blockquote>
+用Pi，别用那些花里胡哨的。
+
+
+*****
+
+####  kinfox  
+##### 12437#       发表于 2026-9-3 13:12
+
+因为我怕出去旅行坐飞机坐高铁路上无聊， 就趁出发前两天用ai做了个手机可以玩的修仙版风来的西林。。
+
+改完bug和优化手感，这就是个简化表现但完整可玩的，还上头的有难度的刷子rogue游戏，风来西林味道齐全。
+
+全程我只用了WorkBuddy加hy和ds模型（没办法，每天免费额度有限），修bug上了glm 5.3flash
+
+全是送的积分，在我看来现在的国产模型性价比真是无敌
+
+搓点这种小东西给自己取乐是真的方便啊，还没什么成本
+
+演示视频：
+[https://www.bilibili.com/video/B ... 385100e1c6bb3fc26df](https://www.bilibili.com/video/BV1UJt96TECx/?spm_id_from=333.1387.homepage.video_card.click&amp;vd_source=e99e9960e7679385100e1c6bb3fc26df)
+
+*****
+
+####  自由之紫roy  
+##### 12438#       发表于 2026-9-3 13:13
+
+<img src="https://img.stage1st.com/forum/202609/03/131246jc2agpwa88wwmjty.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260903131155_493_111.png</strong> (36.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 13:12 上传
+
+flash next还能这样部署，速度也还可以
+
