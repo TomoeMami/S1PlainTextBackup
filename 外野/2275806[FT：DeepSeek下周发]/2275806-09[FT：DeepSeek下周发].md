@@ -7100,3 +7100,36 @@ omp的版本号有吗是不是比较老的了 现在整个coding-agent/src/sessi
 现在airp已经agent化了，token消耗速度起飞</blockquote>
 请问有啥airp的agent推荐么？<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀人鲸  
+##### 12500#       发表于 2026-9-3 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196229&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-9-3 17:58</a>
+苹果app store显示2.4.2版本是6天前。我去，看了下小米商店今天更新到2.4.4了，那看来是苹果问题 ...</blockquote>
+只不过这里其实我也有点好奇苹果和安卓的版本会不会出现一些区别，还是说都是同步的版本号吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  mitzvah  
+##### 12501#       发表于 2026-9-3 20:13
+
+ 本帖最后由 mitzvah 于 2026-9-3 20:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196545&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-3 19:01</a>
+
+我把你这个报告发给DS，他扫完现有版本和未更新的最新版omp，都说根本不存在这个生成标题这个机制
+
+ ...</blockquote>
+官网不是[https://github.com/can1357/oh-my ... -agent/CHANGELOG.md](https://github.com/can1357/oh-my-pi/blob/main/packages/coding-agent/CHANGELOG.md)这个吗？
+
+[https://github.com/can1357/oh-my ... /title-generator.ts](https://github.com/can1357/oh-my-pi/blob/main/packages/coding-agent/src/utils/title-generator.ts)————-最新版是修了我这个问题
+ <blockquote>Fixed
+
+Fixed automatic title generation so --no-title also prevents todo-initialization title refreshes, while automatic titles retain the selected OAuth account without sharing foreground request identity.
+
+Fixed provider errors so they wrap to the terminal width and remain readable in the transcript and pinned error banner, with long messages available through the expansion hint.</blockquote>刚修的，一大堆用户明显是被这个弱智机制坑了无数token
+
