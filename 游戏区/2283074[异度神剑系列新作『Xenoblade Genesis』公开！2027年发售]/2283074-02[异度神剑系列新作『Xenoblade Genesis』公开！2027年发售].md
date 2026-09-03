@@ -387,3 +387,54 @@ xbg也是能看到很多更激进的想法和技术
 
 3的反击曲确实好听，不过我觉得是因为出现的太少反而体现出它的惊艳了，这个得骂骂3的音监了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  装甲突击者  
+##### 2084#       发表于 2026-9-3 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70190015&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-9-2 17:14</a>
+
+其实xb没有专职音乐监督
+
+都是高桥包办了什么曲风放哪里怎么放</blockquote>
+但好像3代有了，光田说（AI翻译）： <blockquote>最大的原因是Monolith公司入职了一位音乐总监。有了音乐总监，从日程管理到列表制作、资料准备都由他负责，这样一来我自己的工作量一下子减少了很多，能更专注于作曲，这就是好处所在。</blockquote>
+[https://www.procyon-studio.com/blog/?p=18673](https://www.procyon-studio.com/blog/?p=18673)
+
+*****
+
+####  狸狸狐  
+##### 2085#       发表于 2026-9-3 15:06
+
+<blockquote>椎名mahuyo 发表于 2026-9-3 14:58
+3的反击曲确实好听，不过我觉得是因为出现的太少反而体现出它的惊艳了，这个得骂骂3的音监了 ...</blockquote>
+这个确实是高桥自己意思，见OST访谈。
+
+他说自己审美一开始学了泽野的电视剧配乐风格，相关曲子也成了xb系列的代表曲目，但是后面他审美变了，也觉得要跟上新的配乐潮流。所以哪怕这首确实写的非常出色，他也不想多用，只在他觉得合适的地方用，所以只出现两次。
+
+*****
+
+####  狸狸狐  
+##### 2086#       发表于 2026-9-3 15:08
+
+<blockquote>装甲突击者 发表于 2026-9-3 15:05
+但好像3代有了，光田说（AI翻译）：
+
+https://www.procyon-studio.com/blog/?p=18673</blockquote>
+那确实有专人统筹配乐方面是好事。还是解决不了用曲问题（）
+
+
+*****
+
+####  misya  
+##### 2087#       发表于 2026-9-3 15:10
+
+至于XBG的音乐，光田这么多年合作下来了，在音乐上最能听得懂高桥需求的大概也就他了，质量保底应该没啥问题，剩下就看高桥会不会犯病<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 2088#       发表于 2026-9-3 15:14
+
+与此同时，送行曲旋律翻来覆去地用，屁大点事也用，结果特别滥情。
+
