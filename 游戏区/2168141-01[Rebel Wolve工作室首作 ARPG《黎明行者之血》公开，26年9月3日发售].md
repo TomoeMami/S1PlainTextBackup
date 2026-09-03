@@ -841,3 +841,11 @@ Vampyr试一哈？
 
 很值得玩了，实在太巫师3了。就是人物移动很奇怪，拐弯要用移动视角的方式，直接摇杆动左右会停顿
 
+
+*****
+
+####  医生狼多  
+##### 76#       发表于 2026-9-4 01:35
+
+有没有在 ps5 pro 上玩的，优化咋样<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -5682,3 +5682,13 @@ ps5pro帧率模式下，开启光追有多少影响，刚打个开头感觉也�
 
 这杂兵攻击欲望属实幽默了，刚拿到笼手我在那数了十多秒才有兵上来砍我<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanoysq  
+##### 1254#       发表于 2026-9-4 01:35
+
+小次郎个逗比，长得和浪客行里那么像，性格倒是完全相反。武藏的台词真接地气呀，非常符合他流氓个性。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
