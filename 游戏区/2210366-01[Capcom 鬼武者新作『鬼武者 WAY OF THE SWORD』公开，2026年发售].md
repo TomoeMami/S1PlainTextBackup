@@ -4648,3 +4648,87 @@ a556be2a-0d9f-438c-955e-327e9c01f4ef.png
 那我还说现在一堆野狗arpg游 ...</blockquote>
 小心坛友很记仇的，等下次轮到你发帖抱怨你在意的影视动画漫画游戏有丑人时网友就把你以前的发言截图打你脸上了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">。当然如果是确实觉得不难看那另说
 
+
+*****
+
+####  姬茧墨  
+##### 1152#       发表于 2026-9-3 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194192&amp;ptid=2210366" target="_blank">mai6696 发表于 2026-9-3 12:05</a>
+我寻思前两页我们也没少批剑星吧。
+
+谁因为颜值之类的影响对游戏性的判断了吗？ ...</blockquote>
+点进一个动作游戏专楼整整两页是在比女的颜值（甚至比的里面不止一个丑的）
+我是觉得很难绷得住<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ heseran + 1欢乐多
+
+查看全部评分
+
+*****
+
+####  彩虹肥宅  
+##### 1153#       发表于 2026-9-3 12:10
+
+等一个tga年度动作游戏的大戏<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  天悬星河  
+##### 1154#       发表于 2026-9-3 12:14
+
+动作游戏有x女郎不是很传统的事情吗，为什么不能说
+
+*****
+
+####  scp073  
+##### 1155#       发表于 2026-9-3 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194205&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-9-3 12:07</a>
+最近发的PV有女的吗？只记得水里有个女的但脸都看不清。
+
+我觉得两个游戏半斤八两都把女的往丑了装扮，钟 ...</blockquote>
+女鬼镜头啊，pv里的jumpscare
+而且你看这两次钟馗pv发出来，没太多人讨论女角色颜值问题对吧，作为对比你看看楼里最近这两页
+
+也不是说一定要把角色搞得多漂亮，但至少把大部分角色搞到一般审美水平线以上也不是多困难的事
+
+说点过激的话，你不给我盲眼裸足金发小姐姐当防火女我其实也无所谓，但你要是给我个雷霆人妖大光头陪伴我整个游戏时长那我就要怀疑你的动机了<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  魂淡放我出去  
+##### 1156#       发表于 2026-9-3 12:15
+
+丑就是丑，还不让说了，罚你街霸6每天只能匹配金伯利看她那B脸
+
+批判女角色丑也没aoe到卡婊动作这一块不是？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  mai6696  
+##### 1157#       发表于 2026-9-3 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194229&amp;ptid=2210366" target="_blank">姬茧墨 发表于 2026-9-3 12:10</a>
+
+点进一个动作游戏专楼整整两页是在比女的颜值（甚至比的里面不止一个丑的）
+
+我是觉得很难绷得住 ...</blockquote>
+明天才发售呢，到时候再聊游戏内容。
+
+（不过我要下班了才能玩。）
+

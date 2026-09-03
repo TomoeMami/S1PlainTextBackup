@@ -6201,3 +6201,32 @@ muse spark 1.3 继续斩杀国产模型</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12425#       发表于 2026-9-3 12:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+火山和阿里疯狂价格战 
+阿里给了奇怪的免费额度用超过这个钱只付多出的
+火山的glm5.3不是flash给了tmd 0.05折 
+
+虽然火山之前测出来的智力超级低 低到类似豆包 但是这个价格好像也不是不能接受了
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  nxmonitor  
+##### 12426#       发表于 2026-9-3 12:10
+
+<blockquote>IIIIIlllllIIIII 发表于 2026-9-3 12:05
+火山和阿里疯狂价格战 
+
+阿里给了奇怪的免费额度用超过这个钱只付多出的
+
+火山的glm5.3不是flash给了tmd 0.0 ...</blockquote>
+看看阿里的那个3.8flash
+
