@@ -986,3 +986,18 @@ PV2：[https://youtu.be/IFqpz8GHmKk](https://youtu.be/IFqpz8GHmKk)
 
 今天有 demo<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wilkyway  
+##### 93#       发表于 2026-9-3 21:36
+
+他这demo发哪了？ps和ns都搜不到 还是说日本宣发前只有美服有？
+
+*****
+
+####  horacio  
+##### 94#       发表于 2026-9-3 21:39
+
+我也想问demo在哪里呢，还是要等
+
