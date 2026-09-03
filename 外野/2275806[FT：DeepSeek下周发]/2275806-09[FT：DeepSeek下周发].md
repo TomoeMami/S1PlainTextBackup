@@ -6442,3 +6442,13 @@ gemini现在不是有8块18个月的羊毛么
 
 还是订阅然后反代
 
+
+*****
+
+####  cd112332255  
+##### 12446#       发表于 2026-9-3 14:34
+
+小白借楼问一下，家用机本地部署的话，是不是专项专用效果最好。比如我想翻译就只去hugging face 上专门translate 的模型，想写作就专门去找writing 的？<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJX110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
