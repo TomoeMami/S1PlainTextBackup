@@ -5374,3 +5374,45 @@ BV1Xxtt6TEE2
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我之前想的是12小时左右的主线，13小时的马桶，没想到比我想的还短点吗
 
+
+*****
+
+####  红魔馆的糖  
+##### 1220#       发表于 2026-9-3 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196656&amp;ptid=2210366" target="_blank">乔迪奥 发表于 2026-9-3 19:25</a>
+16小时马桶也太猛了</blockquote>
+感觉是标准的压成本拔优点卡表游戏<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  八云的式神  
+##### 1221#       发表于 2026-9-3 19:48
+
+意料之中，之前统一口径的20h怎么想都怪，现在倒是正常了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JOJO42  
+##### 1222#       发表于 2026-9-3 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196731&amp;ptid=2210366" target="_blank">D-JoeII 发表于 2026-9-3 19:44</a>
+
+8小時主線+16小時通馬桶,好像也不意外</blockquote>
+畏惧了，上次ff16的马桶给我通出来了ptsd，我现在还记得打完泰坦后那一连串的马桶，直接给我干入深度睡眠
+
+*****
+
+####  inhalc  
+##### 1223#       发表于 2026-9-3 19:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真的假的强制打支线硬灌到20h吗，那比10h通关直奔主线还整蛊了啊
+
+
+*****
+
+####  zqqwe  
+##### 1224#       发表于 2026-9-3 19:52
+
+ff16的马桶除了主线强制那几个我就没通，这次一样专攻主线看boss演出就完事了，反正后面即使反复玩也只会单点boss，技能树一堆基础数值和场景伤害的技能感觉也没必要浪费时间刷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

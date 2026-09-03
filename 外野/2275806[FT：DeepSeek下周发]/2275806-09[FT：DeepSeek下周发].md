@@ -7078,3 +7078,14 @@ omp的版本号有吗是不是比较老的了 现在整个coding-agent/src/sessi
 
 2026-9-3 19:34 上传
 
+
+*****
+
+####  ななひら  
+##### 12498#       发表于 2026-9-3 19:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196614&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-9-3 19:16</a>
+
+现在airp已经agent化了，token消耗速度起飞</blockquote>
+消耗得多只要效果变好了也不是坏事吧
+
