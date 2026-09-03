@@ -7809,3 +7809,35 @@ astra不发了，先供daybreak企业用户
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 12570#       发表于 2026-9-4 02:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">烂炒完的结果就是请继续用sol喵
+
+
+*****
+
+####  tonyunreal  
+##### 12571#       发表于 2026-9-4 02:32
+
+<img src="https://p.sda1.dev/34/c3ad69caad96a0c31c9f5cd51d6cfe00/1000049041.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  jojog  
+##### 12572#       发表于 2026-9-4 02:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刷分能不能说已经毫无意义了
+
+*****
+
+####  lly778  
+##### 12573#       发表于 2026-9-4 02:34
+
+Astra没出怎么就开吹了，Astra能超5.1都不一定，最后估计就5.0的水平
+
