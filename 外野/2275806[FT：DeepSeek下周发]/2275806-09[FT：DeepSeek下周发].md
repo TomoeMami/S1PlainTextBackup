@@ -8128,3 +8128,13 @@ ao旗舰都出了，ds的灰测模型是不是该出来狙击一下了<img src="
 
 让本地的qwen3.8 27b帮我搭了new-api和sub2api，自己做了中转站，20美元一个月爽了
 
+
+*****
+
+####  overflowal  
+##### 12601#       发表于 2026-9-4 07:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199348&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-9-4 07:11</a>
+喷了。</blockquote>
+这个榜已经坏了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
