@@ -7961,3 +7961,24 @@ https://zhuanlan.zhihu.com/p/2061961027856635809
 
 teffa alpha又是啥，说是千问的？
 
+
+*****
+
+####  AraTurambar  
+##### 12584#       发表于 2026-9-4 03:44
+
+一般使用D4F多快好省，复杂使用（做数学）Fable也得一步一步盯着动手验算，看不出中间这些水平的模型拿来干嘛。
+
+Fireworks的D4P六倍价格，拿来养我自己的agent感觉还不如D4F。
+
+*****
+
+####  jojog  
+##### 12585#       发表于 2026-9-4 03:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">拉完了
+
+说是分高了但是价格和fable一样，然后AA的benchmark简直一坨
+
+ppt里面全是画大饼，还不给用
+
