@@ -5101,3 +5101,14 @@ BV1Xxtt6TEE2
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这几个女角色不就是很普通的日本女演员妆造，比起女鬼我更想吐槽怪物的设计，一股子战队怪人皮套味。。。。感觉好无聊
 
+
+*****
+
+####  红魔馆的糖  
+##### 1193#       发表于 2026-9-3 14:28
+
+ 本帖最后由 红魔馆的糖 于 2026-9-3 14:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194523&amp;ptid=2210366" target="_blank">nage560 发表于 2026-9-3 12:55</a>
+黑神话的脸都是普遍夸好看，GTA6那比卡戴珊屁股还大比卡戴珊腿还粗的女主都能被夸好看，卡表的街霸6还不够 ...</blockquote>
+其实我说的烂环境是指现在动作游戏没什么货，国产都是饼，白皮不会做动作，其他日本厂没盼头，只有卡普空在端出卖相还行的<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
