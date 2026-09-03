@@ -377,3 +377,19 @@ g世纪原创角色应该出点ssr啊。
 
 比如：一击必杀标签三动人，或者突破力标签双支援人，之类的……
 
+
+*****
+
+####  AminGly  
+##### 4666#       发表于 2026-9-3 21:53
+
+<img src="https://img.stage1st.com/forum/202609/03/215308zcxnixvxx14xyadf.png" referrerpolicy="no-referrer">
+
+<strong>tierlist (5).png</strong> (191.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 21:53 上传
+
+来点红机体验榜单        pve
+
