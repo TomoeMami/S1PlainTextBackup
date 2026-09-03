@@ -2326,3 +2326,14 @@ FER这次能不能让红a和学姐互动啊。红a的红布不是学姐送的吗
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要问题还是初期开发时候的吧，当时就招十几个人还要开多个项目一看就不靠谱，现代游戏项目不用人堆出来不可能的
 
+
+*****
+
+####  ナルバレック  
+##### 224#       发表于 2026-9-4 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198709&amp;ptid=2083714" target="_blank">l⑨th_Knight 发表于 2026-9-3 23:54</a>
+
+主要问题还是初期开发时候的吧，当时就招十几个人还要开多个项目一看就不靠谱，现代游戏项目不用人堆出来不 ...</blockquote>
+扩招是一直有扩招的，不是本社那种关系户看玩不玩得到一起那种鸟性，螺旋社也扩招了好几年了，看招工介绍一直在做大型游戏，还给十时裕树看过，也不知道是个什么鬼，早年D社庄司整了几年整出来的作品是个不可燃物
+

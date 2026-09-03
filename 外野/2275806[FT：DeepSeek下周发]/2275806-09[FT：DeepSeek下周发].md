@@ -7638,3 +7638,23 @@ rubin比gb300更可怕，950打gb200要4块拼一块，打rubin搞不好要十�
 
 下一阶段是拼自主芯片的时代了，openai的辣椒都已经出了，A/的也快了，国内这方面还是差了很多。
 
+
+*****
+
+####  lactone  
+##### 12555#       发表于 2026-9-4 00:12
+
+国模啥时候开卷ai4science<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  龙骑士尹志平  
+##### 12556#       发表于 2026-9-4 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198340&amp;ptid=2275806" target="_blank">vxzms 发表于 2026-9-3 23:00</a>
+
+再见了 梁文谷</blockquote>
+好像只有订阅了coding plan的才能用，我刚刚登录上zcode 免费用户好像用不了
+
