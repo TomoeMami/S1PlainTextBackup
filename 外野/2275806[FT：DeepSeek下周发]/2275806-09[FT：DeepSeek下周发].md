@@ -7841,3 +7841,67 @@ astra不发了，先供daybreak企业用户
 
 Astra没出怎么就开吹了，Astra能超5.1都不一定，最后估计就5.0的水平
 
+
+*****
+
+####  lactone  
+##### 12574#       发表于 2026-9-4 02:37
+
+arc-agi-3是不是下一个刷分目标<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  tonyunreal  
+##### 12575#       发表于 2026-9-4 02:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199200&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-4 02:37</a>
+arc-agi-3是不是下一个刷分目标
+
+—— 来自 HONOR AAK-AN00, Android 16, 鹅球 v3.5.99</blockquote>
+可以去官网看一下，是个纯靠视觉来打游戏的
+还挺难的
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lactone  
+##### 12576#       发表于 2026-9-4 02:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199203&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-4 02:41</a>
+可以去官网看一下，是个纯靠视觉来打游戏的
+还挺难的</blockquote>
+前几天nvidia就搞了个智能体，直接把opus5打这个的分刷到100%了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  phorcys02  
+##### 12577#       发表于 2026-9-4 02:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199203&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-4 02:41</a>
+
+可以去官网看一下，是个纯靠视觉来打游戏的
+
+还挺难的</blockquote>
+什么时候能靠视觉通关 factorio呢
+
+*****
+
+####  舞以  
+##### 12578#       发表于 2026-9-4 02:43
+
+<img src="https://img.stage1st.com/forum/202609/04/024337ur4k0ztrakf4raar.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (246.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 02:43 上传
+
+gpt自己的解释
+
