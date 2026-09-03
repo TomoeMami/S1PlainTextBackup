@@ -7794,3 +7794,18 @@ AIRP还加了甲，收费直接最高档3/9，不如官肥鱼一根毛<img src="
 
 虽说是薅羊毛，但用完后还是用回官方罢
 
+
+*****
+
+####  tonyunreal  
+##### 12569#       发表于 2026-9-4 02:18
+
+ 本帖最后由 tonyunreal 于 2026-9-4 02:20 编辑 
+
+astra不发了，先供daybreak企业用户
+普通用户慢慢等吧
+
+消息来源是wired和cnbc
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
