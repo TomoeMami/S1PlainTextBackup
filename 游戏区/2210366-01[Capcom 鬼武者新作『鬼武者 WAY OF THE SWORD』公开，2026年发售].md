@@ -5349,3 +5349,28 @@ BV1Xxtt6TEE2
 我反而挺喜欢4代那几位画师的风格，虽然确实不太smt，但话说回来金子一马的作品设计也受到过特摄的启发， ...</blockquote>
 那一代的男设计师或者说喜欢二次元的多多少少都有特摄和大怪兽情结的，各种作品里面都会有致敬和相关元素，只能说我不是受众了
 
+
+*****
+
+####  JOJO42  
+##### 1217#       发表于 2026-9-3 19:40
+
+我靠，真的假的，20多小时的流程里有16小时马桶<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D-JoeII  
+##### 1218#       发表于 2026-9-3 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196714&amp;ptid=2210366" target="_blank">JOJO42 发表于 2026-9-3 19:40</a>
+
+我靠，真的假的，20多小时的流程里有16小时马桶</blockquote>
+8小時主線+16小時通馬桶,好像也不意外
+
+*****
+
+####  手铐君  
+##### 1219#       发表于 2026-9-3 19:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我之前想的是12小时左右的主线，13小时的马桶，没想到比我想的还短点吗
+

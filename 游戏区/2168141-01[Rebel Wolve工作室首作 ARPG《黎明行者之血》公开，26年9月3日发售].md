@@ -788,3 +788,15 @@ MC 83
 
 开放世界基本就是听着莫名其妙的老外村民吐槽原生家庭然后帮他通马桶 战斗手感也是沟槽的
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 70#       发表于 2026-9-3 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196558&amp;ptid=2168141" target="_blank">awy002 发表于 2026-9-3 19:04</a>
+我其实挺想玩都市吸血鬼题材的，这个中世纪吸血鬼没一点兴趣。</blockquote>
+Vampyr试一哈？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
