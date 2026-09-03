@@ -7141,3 +7141,41 @@ Fixed provider errors so they wrap to the terminal width and remain readable in 
 
 Astra来了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  jinuzuktII  
+##### 12503#       发表于 2026-9-3 20:25
+
+还没来，别急
+
+*****
+
+####  mitzvah  
+##### 12504#       发表于 2026-9-3 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196684&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-3 19:31</a>
+
+可以确认基元自己部署的模型全都量化降智得很夸张，27b打不过本地部署的IQ3，0731和pro0813复现别人的提示 ...</blockquote>
+我出问题的版本18.0.4不算太老吧？omp的标题生成模型的设计就是多余，用在本地部署模型上一堆毛病，结论就是彻底禁用最好，但即便如此，依然随机全量prefill，稳定性也不如pi，不能边用边改就丢掉了pi的基本方法论
+
+
+*****
+
+####  lubo  
+##### 12505#       发表于 2026-9-3 20:30
+
+Codex的Ultrafast模式好像也要上了，之前报道是正常速度的14倍，～750tok/s，不知道计费是多少倍
+
+
+*****
+
+####  tonyunreal  
+##### 12506#       发表于 2026-9-3 20:37
+
+[https://blogs.nvidia.com/blog/nvidia-to-acquire-hugging-face/](https://blogs.nvidia.com/blog/nvidia-to-acquire-hugging-face/)
+
+英伟达官宣130亿美元收购Hugging Face
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
