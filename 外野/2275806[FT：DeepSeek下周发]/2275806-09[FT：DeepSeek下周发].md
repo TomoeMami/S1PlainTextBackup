@@ -6272,3 +6272,23 @@ muse spark 1.3 继续斩杀国产模型</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  相见恨晚  
+##### 12431#       发表于 2026-9-3 12:46
+
+WorkBuddy好不容易把hy4调教正常点了结果限额，换了k3几十秒思考就直接用掉一百三积分，这也太不经用了吧。
+
+大伙还有没有其他好用的来办公加编程啊
+
+
+*****
+
+####  Milarvoz  
+##### 12432#       发表于 2026-9-3 12:52
+
+阿里的llm一用就有客服打电话，很讨厌。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

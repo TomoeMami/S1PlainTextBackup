@@ -4897,3 +4897,61 @@ a556be2a-0d9f-438c-955e-327e9c01f4ef.png
 而且还是前面的话，给角色搞个一般审美以上的脸不是那么困难的事。
 你不给我金发盲眼裸足大胸小姐姐当防火女我其实也无所谓，但你告诉我笼手里的剧情引导员是这种大妈脸我是不能接受的，甚至要怀疑你的动机，更别说这种大妈颜值的高手后面还有好几个<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skgaminger1988  
+##### 1175#       发表于 2026-9-3 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193880&amp;ptid=2210366" target="_blank">黑暗之眼 发表于 2026-9-3 11:22</a>
+你们到底来玩游戏的还是来看女人的？</blockquote>
+有没有可能漂亮女人不影响游戏好不好玩，非整个丑的就是故意恶心人来的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2458A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ティグル  
+##### 1176#       发表于 2026-9-3 12:52
+
+主角脸模用三船就摆明了想要走剑戟片写实风了
+
+有没有可能女性角色不好看是因为纯菜捏不明白人呢？
+
+*****
+
+####  MRhythm  
+##### 1177#       发表于 2026-9-3 12:54
+
+卡婊就是故意往丑了做, 早就对卡婊游戏里的女性形象绝望了
+
+*****
+
+####  nage560  
+##### 1178#       发表于 2026-9-3 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193759&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-3 11:07</a>
+
+还是在这种烂环境下面卡表太有恃无恐了，这些脸要是放国产游戏哪怕放个演示这游戏都别想活 ...</blockquote>
+黑神话的脸都是普遍夸好看，GTA6那比卡戴珊屁股还大比卡戴珊腿还粗的女主都能被夸好看，你是不是觉得现在国人的审美很好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nagitoY  
+##### 1179#       发表于 2026-9-3 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194497&amp;ptid=2210366" target="_blank">ティグル 发表于 2026-9-3 12:52</a>
+
+主角脸模用三船就摆明了想要走剑戟片写实风了
+
+有没有可能女性角色不好看是因为纯菜捏不明白人呢？ ...</blockquote>
+卡表有王阿姨珠玉在前，应该不至于菜到不会捏人吧
+
+*****
+
+####  theworld  
+##### 1180#       发表于 2026-9-3 12:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">女的丑就丑点吧反正不是可操作角色，不过没法骗我买豪华版了，普通版伺候
+
