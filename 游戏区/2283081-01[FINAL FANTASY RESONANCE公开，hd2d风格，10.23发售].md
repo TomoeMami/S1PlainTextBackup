@@ -1025,3 +1025,34 @@ PV2：[https://youtu.be/IFqpz8GHmKk](https://youtu.be/IFqpz8GHmKk)
 
 ps 港服看到 demo 上了
 
+
+*****
+
+####  h122h  
+##### 97#       发表于 2026-9-3 23:09
+
+demo上了，steam也上了
+
+<img src="https://img.stage1st.com/forum/202609/03/230802w7jkorsz765ijvso.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:08 上传
+
+<img src="https://img.stage1st.com/forum/202609/03/230916x00or0p62c00ptn2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:09 上传
+
+*****
+
+####  大喇叭花田  
+##### 98#       发表于 2026-9-3 23:15
+
+存档能继承吗
+

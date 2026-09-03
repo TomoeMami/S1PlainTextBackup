@@ -7293,3 +7293,69 @@ GPT6逃逸了是吧<img src="https://static.stage1st.com/image/smiley/face2017/0
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">晚上十一点和下午六点之间可是最黄金的自娱自乐时间啊漏油
 
+
+*****
+
+####  奥柏伦亲王  
+##### 12520#       发表于 2026-9-3 23:04
+
+正准备用codex编个程，就发现全方位的挂了，难道astra要来了？
+
+
+*****
+
+####  squallx  
+##### 12521#       发表于 2026-9-3 23:06
+
+22:56:14  财联社9月3日电，据DownDetector监测数据，大量用户报告OpenAI服务出现故障。(来自财联社APP)
+
+22:55:46  财联社9月3日电，Anthropic称正在调查Claude出现的错误，正在研究修复方案。(来自财联社APP)
+
+22:54:53  财联社9月3日电，SpaceXAI表示，Grok出现故障，目前已启动调查处理此次服务中断。(来自财联社APP)
+
+逃逸觉醒爆破一气呵成 这不比天网6多了？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gp1390  
+##### 12522#       发表于 2026-9-3 23:06
+
+感情只有美国大豆包能用了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  love4aids  
+##### 12523#       发表于 2026-9-3 23:07
+
+OpenAI、Anthropic 与 xAI 三家主要 AI 服务商北美服务器集群发生大面积故障
+
+真逃逸了吗<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 12524#       发表于 2026-9-3 23:08
+
+全面爆炸了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 美国豆包启动了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  奥柏伦亲王  
+##### 12525#       发表于 2026-9-3 23:12
+
+ 本帖最后由 奥柏伦亲王 于 2026-9-3 23:13 编辑 
+
+喷了，美国豆包连被黑都不配是吧（开玩笑的，我猜是因为谷歌的基建好
+
+转去蹬官方的V4FlashVE了，怎么一堆英文思考链？这是灰测吗？看了一下，全是"let me…"开头
+
+*****
+
+####  yikka  
+##### 12526#       发表于 2026-9-3 23:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 天王觉醒的第一夜
+
