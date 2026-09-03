@@ -6162,3 +6162,32 @@ openai的astra据说是recurrent depth
 那其实对推理速度有很大帮助啊
 就是不知道隐空间的思维链怎么训练呢？
 
+
+*****
+
+####  王兰花秀丽  
+##### 12421#       发表于 2026-9-3 11:51
+
+之前k开头的神秘模型没动静了吗，又来了个teffa alpha    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  startraveller  
+##### 12422#       发表于 2026-9-3 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193852&amp;ptid=2275806" target="_blank">haiuhfuwah 发表于 2026-9-3 11:19</a>
+openai的astra据说是recurrent depth
+可以理解为在隐空间做思考 最后才解码
+那其实对推理速度有很大帮助啊</blockquote>
+现在都是给个环境和题目 AI 自己训练
+
+*****
+
+####  xiaohanne  
+##### 12423#       发表于 2026-9-3 11:56
+
+<blockquote>C0s4qmLH9eF9P3w 发表于 2026-9-3 10:20
+muse spark 1.3 继续斩杀国产模型</blockquote>
+这哥们也是个跑分高手。
+

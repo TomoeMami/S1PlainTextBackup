@@ -4542,3 +4542,41 @@ a556be2a-0d9f-438c-955e-327e9c01f4ef.png
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  汪达  
+##### 1142#       发表于 2026-9-3 11:52
+
+估计是随便找的便宜面捕演员，官网连演员名字都没放，反正也不是什么恋爱故事，预算不高女角色意思一下得了
+
+*****
+
+####  红魔馆的糖  
+##### 1143#       发表于 2026-9-3 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193880&amp;ptid=2210366" target="_blank">黑暗之眼 发表于 2026-9-3 11:22</a>
+你们到底来玩游戏的还是来看女人的？</blockquote>
+玩游戏和喷女人捏得丑有冲突吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  姬茧墨  
+##### 1144#       发表于 2026-9-3 11:56
+
+不是说拐不拐的，突然进来一大波人对着一个动作游戏说女的太丑了助长不正之风
+那我还说现在一堆野狗arpg游戏战斗系统做得跟坨💩一样危害游戏业界呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+你说女的太丑了导致我玩不下act也无所谓，那是玩家的自由，但在这舞大旗也太变态了
+忍龙4女主好看也不能解决这游戏作为act的重大缺陷，甚至女的好不好看甚至不能留下啥记忆点，至少女主长啥样肯定不如那个死吗鲨鱼的虚空投技和0帧起手甩尾能给人留下印象
+
+*****
+
+####  scp073  
+##### 1145#       发表于 2026-9-3 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194043&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-9-3 11:42</a>
+一个村姑，跟鬼武者比起来好一点地方就是画面很精细，但你说好看？</blockquote>
+我说的是最近刚发的那个pv啊，这个pv哪有什么女鬼打光
+
+而且这个妹子也确实比鬼武者里这群大妈有姿色吧，我反过来问问你，你难道真觉得这两波人颜值在一个水平线上？<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+

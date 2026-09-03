@@ -3424,3 +3424,19 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 
 穿着像北斗神拳里的莫西干<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lbj5454  
+##### 3275#       发表于 2026-9-3 11:50
+
+还有半个月就能玩到了
+
+
+*****
+
+####  flyingover  
+##### 3276#       发表于 2026-9-3 11:54
+
+看了下，这个黑皮好像评价居然不低诶，假小子加成吗？
+
