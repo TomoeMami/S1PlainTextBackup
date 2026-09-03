@@ -6705,3 +6705,84 @@ img_0158.jpg
 omp默认会给对话打标题，而且会根据对话状态自动更新标题，这个功能会破坏dsv4的缓存格式，ds4模型的缓存 ...</blockquote>
 web没发现这个问题，我就用的本地部署的qwen3.8，不用上下文压缩不会prefill啊
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12469#       发表于 2026-9-3 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195725&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-3 16:29</a>
+omp默认会给对话打标题，而且会根据对话状态自动更新标题，这个功能会破坏dsv4的缓存格式，ds4模型的缓存 ...</blockquote>
+ 它的title应该只会在第一条消息/plan mode结束 / 还有/rename 才会改啊 
+你本地部署不会一直在compact吧。。。
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  杀人鲸  
+##### 12470#       发表于 2026-9-3 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195799&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-9-3 16:44</a>
+根据另一波 app更新版-火鸡科学家 的观察，最近app没更新，所以本周无D</blockquote>
+啊，怎么没有更新？不是刚刚才更新到224吗？我刚才逛系统商城的时候就发现了。大概是今天还是昨天的事情？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nxmonitor  
+##### 12471#       发表于 2026-9-3 17:00
+
+Asrtra号称用了隐空间生成新思维链，有一定可能灰测的神秘模型也是这个样子，毕竟Flash出了流式的I'm doing，Pro就没理由把思维链隐藏起来…
+
+*****
+
+####  nxmonitor  
+##### 12472#       发表于 2026-9-3 17:01
+
+如果这个判断是真的，那这个技术防蒸馏强度大幅提升，灰测模型的思维链依然能给0813用，但是结果一坨…
+
+
+*****
+
+####  cscbzcbz  
+##### 12473#       发表于 2026-9-3 17:04
+
+大的要来了，大的要来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mitzvah  
+##### 12474#       发表于 2026-9-3 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195869&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-9-3 16:57</a>
+
+它的title应该只会在第一条消息/plan mode结束 / 还有/rename 才会改啊 
+
+你本地部署不会一直在compact吧 ...</blockquote>
+不是的title会在追问时自动触发，绝不是啥压缩的问题，在ds4v4flash中特别明显
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12475#       发表于 2026-9-3 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195919&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-3 17:04</a>
+不是的title会在追问时自动触发，绝不是啥压缩的问题，在ds4v4flash中特别明显 ...</blockquote>
+可是omp代码里没有这个路径能改啊。。。假如是真的那cache rate会烂掉的。。。
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  mitzvah  
+##### 12476#       发表于 2026-9-3 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195854&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-3 16:53</a>
+
+web没发现这个问题，我就用的本地部署的qwen3.8，不用上下文压缩不会prefill啊
+
+ ...</blockquote>
+qwen3.8的缓存结构跟dsv4flash的提示缓存结构完全不同
+
