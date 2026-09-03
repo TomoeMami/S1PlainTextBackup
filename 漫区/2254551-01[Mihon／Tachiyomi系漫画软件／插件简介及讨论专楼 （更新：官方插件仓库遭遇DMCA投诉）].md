@@ -2062,3 +2062,18 @@ j2k又更新了一版，语言问题修复了
 
 不知为啥我的mihon有105m缓存的限制，超了就加载不了内容，期初我以为是拷贝的限制，直到我最近在刷rawKuma的生肉，才发现不是拷贝源才有的问题
 
+
+*****
+
+####  帝蓝  
+##### 181#       发表于 2026-9-4 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196734&amp;ptid=2254551" target="_blank">希鲁夫 发表于 2026-9-3 19:45</a>
+装的yokai，平板是小米平板5pro  装插件的时候一直提示安装中，但也不跳出来安装界面  这是啥奇怪问题？
+
+更 ...</blockquote>
+同这个问题 但是我的问题只在米板5Pro上存在 在手机K90PM上没问题 怀疑是哪个权限的问题 折腾了很久都没找到解决办法
+目前是装个mihon来更新用
+
+—— 来自 Xiaomi 25102RKBEC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
