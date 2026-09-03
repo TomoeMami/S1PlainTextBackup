@@ -7046,3 +7046,35 @@ export PI_NO_TITLE=1
 
 现在airp已经agent化了，token消耗速度起飞<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12495#       发表于 2026-9-3 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196481&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-3 18:44</a>
+我自己用ds4项目部署的本地模型就是有这个毛病，我让dsv4自己用代理拦截仔细分析了数据包，结论就是这样的 ...</blockquote>
+omp的版本号有吗是不是比较老的了 现在整个coding-agent/src/session 里是没有一个叫utils的文件的
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 12496#       发表于 2026-9-3 19:31
+
+可以确认基元自己部署的模型全都量化降智得很夸张，27b打不过本地部署的IQ3，0731和pro0813复现别人的提示词全都做出来一坨
+
+*****
+
+####  love4aids  
+##### 12497#       发表于 2026-9-3 19:34
+
+<img src="https://img.stage1st.com/forum/202609/03/193415zbbzp99mbbo00poo.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (164.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 19:34 上传
+
