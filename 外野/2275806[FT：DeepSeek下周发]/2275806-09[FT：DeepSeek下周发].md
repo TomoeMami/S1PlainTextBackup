@@ -7519,3 +7519,68 @@ oai不是说要明年上吗？
 
 真要是狙击fable5.1和astra那高低得封一个梁天帝<img src="https://static.stage1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tonyunreal  
+##### 12543#       发表于 2026-9-3 23:44
+
+吊图两张
+
+<img src="https://p.sda1.dev/34/b05946e65b47562df978aa7c35d43fe5/1000049037.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/70024c162cc932d8fd7f3a0ae16b706e/1000049036.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王兰花秀丽  
+##### 12544#       发表于 2026-9-3 23:46
+
+真希望梁圣能狙击啊，唉又幻想了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  Promeus  
+##### 12545#       发表于 2026-9-3 23:46
+
+话说Ds这个公告看起来像是可以选模型版本了？<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">真要v5和v4共存？
+
+*****
+
+####  舞以  
+##### 12546#       发表于 2026-9-3 23:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">dsh更新炸了，codex炸了，后来全靠kimi老师救死扶伤了
+
+*****
+
+####  王兰花秀丽  
+##### 12547#       发表于 2026-9-3 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198648&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-3 23:46</a>
+话说Ds这个公告看起来像是可以选模型版本了？真要v5和v4共存？</blockquote>
+这个公告完全是我自己注入的不要当真啊，只能从函数名看出可能会合并一些模型    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  drodchang  
+##### 12548#       发表于 2026-9-3 23:50
+
+k3.1也该出来了，不知道再等什么，难道要为上市做准备吗
+
+
+*****
+
+####  novem  
+##### 12549#       发表于 2026-9-3 23:53
+
+明年真是关键的一年啊
+
+AI 2027报告简直把2027年吹出了花
+
+GB300会让的中美算力差距拉大，AO两家肯定卯足了劲堆算力，不在这个节点做出成果等中国突破EUV就没机会捞钱了
+
+明年AGI做不出突破性成果这泡沫肯定要顶不住了
+

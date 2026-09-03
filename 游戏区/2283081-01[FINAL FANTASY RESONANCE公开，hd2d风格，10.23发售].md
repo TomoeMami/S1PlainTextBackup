@@ -1114,3 +1114,11 @@ se以后还是专注2d回合制吧，开头对砍燃爆了。我以前玩过手�
 
 看到土之神殿，死去的记忆复活了，之前用模拟器挂自动战斗土之神殿刷信赖
 
+
+*****
+
+####  Soyo  
+##### 105#       发表于 2026-9-3 23:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个演出也太劲了，感觉拿别的hd2d游戏和这个并称hd2d是不是有点侮辱这游戏了
+
