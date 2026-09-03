@@ -7179,3 +7179,13 @@ Codex的Ultrafast模式好像也要上了，之前报道是正常速度的14倍�
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 12507#       发表于 2026-9-3 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196990&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-3 20:29</a>
+我出问题的版本18.0.4不算太老吧？omp的标题生成模型的设计就是多余，用在本地部署模型上一堆毛病，结论 ...</blockquote>
+我是18.0.1<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看来是新版引入了标题功能然后做坏了
+
