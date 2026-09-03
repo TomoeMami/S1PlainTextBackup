@@ -5674,3 +5674,11 @@ ps5pro帧率模式下，开启光追有多少影响，刚打个开头感觉也�
 
 有没有玩上的说一下PC帧率怎么设置体验比较好？
 
+
+*****
+
+####  医生狼多  
+##### 1253#       发表于 2026-9-4 01:06
+
+这杂兵攻击欲望属实幽默了，刚拿到笼手我在那数了十多秒才有兵上来砍我<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
