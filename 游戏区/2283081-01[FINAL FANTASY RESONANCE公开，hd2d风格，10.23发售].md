@@ -1122,3 +1122,33 @@ se以后还是专注2d回合制吧，开头对砍燃爆了。我以前玩过手�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个演出也太劲了，感觉拿别的hd2d游戏和这个并称hd2d是不是有点侮辱这游戏了
 
+
+*****
+
+####  猫将军  
+##### 106#       发表于 2026-9-4 00:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">这才是ff，正统续作也不为过
+
+*****
+
+####  白夜凛音  
+##### 107#       发表于 2026-9-4 00:19
+
+开篇的演出有点爽，不知道后面能不能保持
+
+
+*****
+
+####  大喇叭花田  
+##### 108#       发表于 2026-9-4 00:21
+
+这个买PC还是NS2版好？
+
+*****
+
+####  跑调跑掉  
+##### 109#       发表于 2026-9-4 00:23
+
+只能说单看开篇，可能这游戏比八方更适合卖一方50的价格<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。当然现在SE明显对于国区怎么定价已经比较了解了，以后都定不出那种高价了
+

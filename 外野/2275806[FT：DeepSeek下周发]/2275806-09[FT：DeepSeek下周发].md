@@ -7658,3 +7658,23 @@ rubin比gb300更可怕，950打gb200要4块拼一块，打rubin搞不好要十�
 再见了 梁文谷</blockquote>
 好像只有订阅了coding plan的才能用，我刚刚登录上zcode 免费用户好像用不了
 
+
+*****
+
+####  StrangerJ  
+##### 12557#       发表于 2026-9-4 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198739&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-9-4 00:00</a>
+rubin比gb300更可怕，950打gb200要4块拼一块，打rubin搞不好要十几甚至几十块才能打一块了，现在国内计算 ...</blockquote>
+rubin主要目标是perf per watt，你只要量化能到fp4，电够用，良率能稳定出货，性能拉不出数量级差距
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  squallx  
+##### 12558#       发表于 2026-9-4 00:24
+
+codex活了 赶紧吧额度蹬完等重置
+
