@@ -65,3 +65,14 @@
 
 革命军活动有bug，开头弓女说话第二句就弹不出来，一直卡着死机了
 
+
+*****
+
+####  mnmn  
+##### 77#       发表于 2026-9-3 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192503&amp;ptid=2287441" target="_blank">Lds19 发表于 2026-9-3 06:11</a>
+
+革命军活动有bug，开头弓女说话第二句就弹不出来，一直卡着死机了</blockquote>
+关掉汉化再试试
+
