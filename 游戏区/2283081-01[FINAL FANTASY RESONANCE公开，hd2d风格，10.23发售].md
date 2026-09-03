@@ -1097,3 +1097,20 @@ PC的抢先体验也上了
 
 se以后还是专注2d回合制吧，开头对砍燃爆了。我以前玩过手游，全是我抽的卡还挺怀念的
 
+
+*****
+
+####  ff2077  
+##### 103#       发表于 2026-9-3 23:30
+
+浅野组能不能看看人家hd2d演出咋做，虽然这也归浅野管，但这个演出差距<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  horacio  
+##### 104#       发表于 2026-9-3 23:31
+
+看到土之神殿，死去的记忆复活了，之前用模拟器挂自动战斗土之神殿刷信赖
+

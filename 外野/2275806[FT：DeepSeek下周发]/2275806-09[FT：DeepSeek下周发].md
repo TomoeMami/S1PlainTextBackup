@@ -7463,3 +7463,40 @@ codex恢复了<img src="https://static.stage1st.com/image/smiley/face2017/018.pn
 基元的V4F怎么感觉这两天突然变区了？</blockquote>
 大概率是换成什么弱智量化了，试了下体素建模能力完全崩溃，根本做不出来
 
+
+*****
+
+####  王兰花秀丽  
+##### 12538#       发表于 2026-9-3 23:25
+
+哦对了，ds app 2.4.4更新的内容就是多了一个用于在模型更新合并时的公告弹窗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+1000052920.png
+(224.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:25 上传
+
+<img src="https://img.stage1st.com/forum/202609/03/232524ophysln6aiff6yz0.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 12539#       发表于 2026-9-3 23:26
+
+Astra是oai上市之前最后的一波了吧，上市之后很多事情很麻烦的
+这波究极烂炒也能理解，甚至真是官方拿Astra把北美同行黑个遍我都理解
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 12540#       发表于 2026-9-3 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198518&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-3 23:25</a>
+
+哦对了，ds app 2.4.4更新的内容就是多了一个用于在模型更新合并时的公告弹窗    Re:Source ...</blockquote>
+这个更新反而说明最近可能有动作了……
+

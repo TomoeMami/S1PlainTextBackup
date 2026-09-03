@@ -187,3 +187,37 @@
 
 下星期薇藤翻盘。
 
+
+*****
+
+####  aptx8285144  
+##### 411#       发表于 2026-9-3 23:30
+
+为了配合藤雪峰的表演，牢薇化身安安静静的好女孩，这妙趣横生的剧情有谁能懂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 412#       发表于 2026-9-3 23:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我靠  B站被剧透突脸了 看笑了 这梦限大你可以说他烂 但是不可能说他没活 这活的乐子可是**的有 
+
+这集开始还好但是最后垮掉了 怎么有种可惜的感觉
+
+*****
+
+####  himfsz  
+##### 413#       发表于 2026-9-3 23:32
+
+看得我好尴尬啊
+
+*****
+
+####  aptx8285144  
+##### 414#       发表于 2026-9-3 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198056&amp;ptid=2283962" target="_blank">Mika-S 发表于 2026-9-3 22:33</a>
+
+梦团这几个人轮流发起狂来究竟谁能绷得住啊看了，yuno你真不是人而是ai吧</blockquote>
+yuno：我不想有过家家的友情，但是我已经被天意的大手按着不让退呀<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
