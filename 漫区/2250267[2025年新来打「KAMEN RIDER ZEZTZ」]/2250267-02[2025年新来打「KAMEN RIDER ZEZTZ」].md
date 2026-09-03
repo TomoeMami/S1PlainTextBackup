@@ -544,3 +544,16 @@ Saber的后期和最终Boss令和没有能碰瓷的，前期我当战队看的�
 
 所以这部开播之前吹的拓展国际市场到底体现在哪了呢，连中日两边都看得云里雾里了，还指望欧美人看得懂吗
 
+
+*****
+
+####  浅川雏羽  
+##### 2268#       发表于 2026-9-3 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193486&amp;ptid=2250267" target="_blank">清风朗月 发表于 2026-9-3 10:26</a>
+
+所以这部开播之前吹的拓展国际市场到底体现在哪了呢，连中日两边都看得云里雾里了，还指望欧美人看得懂吗 ...</blockquote>
+根本没有欧美人看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+幪面超人进军欧米就是个伪命题，欧米根本不缺等身英雄，且超英影视工业化体系成熟，闲的没事谁看幪面超人啊
+

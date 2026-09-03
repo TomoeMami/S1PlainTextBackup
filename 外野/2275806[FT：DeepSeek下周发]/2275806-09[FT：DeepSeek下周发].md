@@ -6088,3 +6088,44 @@ muse spark 1.3 继续斩杀国产模型
 muse spark 1.3 继续斩杀国产模型</blockquote>
 有自动代码上传真不太想用
 
+
+*****
+
+####  nxmonitor  
+##### 12415#       发表于 2026-9-3 10:38
+
+1.2也这么说的，真有人用过就不会吹了…
+
+*****
+
+####  vincevincetang  
+##### 12416#       发表于 2026-9-3 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160954&amp;ptid=2275806" target="_blank">vincevincetang 发表于 2026-8-28 11:24</a>
+
+为什么 agentrouter.org 要BAN "You are a helpful assistant."这句话 今早有些会话请求一直莫名奇妙被敏/ ...</blockquote>
+agentrouter的敏/感/词怪了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 又碰到一个， "cch"是何意味
+
+<img src="https://img.stage1st.com/forum/202609/03/102839qyz9hkeu2wudueuv.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-09-03_102029_897.png</strong> (45.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 10:28 上传
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12417#       发表于 2026-9-3 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193440&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-9-3 10:20</a>
+muse spark 1.3 继续斩杀国产模型</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+当时Muse spark1.2说斩了 结果发现是个强化过头的弱智
+
+体感meta那帮人是真的直接把题喂进去做rl了
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
