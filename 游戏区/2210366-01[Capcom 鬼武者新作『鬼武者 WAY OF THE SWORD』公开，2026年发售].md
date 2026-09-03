@@ -4752,3 +4752,99 @@ a556be2a-0d9f-438c-955e-327e9c01f4ef.png
 也就因为demo二次更新后的体验能顶着丑女预购了，但动作游戏美女就不重要是什么屁话，鬼佬屎吃上瘾了是吧
 即使不和kt比，鬼武者自己4个旧正作哪个不是按当时机能下尽力捏美女角色的，倒车还不让提了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jabeck  
+##### 1160#       发表于 2026-9-3 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194267&amp;ptid=2210366" target="_blank">scp073 发表于 2026-9-3 12:15</a>
+
+女鬼镜头啊，pv里的jumpscare
+
+而且你看这两次钟馗pv发出来，没太多人讨论女角色颜值问题对吧，作为对比你 ...</blockquote>
+你以为钟馗第一个PV没人提女的不好看吗？只不过也是找各种理由搪塞过去了。
+
+
+*****
+
+####  conanoysq  
+##### 1161#       发表于 2026-9-3 12:28
+
+云了一下巴哈姆特的评测，探索和支线任务非常非常非常的水和无聊，支线任务中只有紫式部给的京都奇谭任务稍微有点完成的价值。另外武器和御守升级给的数值提升几乎是毛毛雨（除了一个蓝火槽增加20%），数值提升几乎为0，RPG部分就等于是没有了。一周目可以酌情直奔主线，这些探索不会带来任何BD改变。所以boss以外的部分估计到时候会被玩家们大批特批，就全靠boss战的长板来抗住了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  姬茧墨  
+##### 1162#       发表于 2026-9-3 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194210&amp;ptid=2210366" target="_blank">鳄鱼亮爪 发表于 2026-9-3 12:07</a>
+小心坛友很记仇的，等下次轮到你发帖抱怨你在意的影视动画漫画游戏有丑人时网友就把你以前的发言截图打你 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那只能说发言可查好吧，你要说来个黄油专楼整个女的丑不丑的话题我可能还会参与一下，毕竟这算是核心玩法
+但至少我在游戏区绝大多数发言过游戏专楼里都是在正经分享自己的游戏心得和体验的，真对这种边角料话题不感兴趣
+
+*****
+
+####  セリア=キルミン  
+##### 1163#       发表于 2026-9-3 12:30
+
+真羡慕坛友鬼脑战胜小头，“我的拳头想喝血了”，纯粹的战斗欲望
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  汪达  
+##### 1164#       发表于 2026-9-3 12:32
+
+现在某些玩家阈值被拔太高了，剑星2女主都有dei节奏，有就有吧无所谓了
+
+*****
+
+####  interzhang  
+##### 1165#       发表于 2026-9-3 12:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一鬼子给古典文学女戴眼镜也算是刻板印象了，我觉得很大程度上眼镜这个要素确实很挑人
+
+*****
+
+####  scp073  
+##### 1166#       发表于 2026-9-3 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194335&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-9-3 12:24</a>
+这游戏的试玩里连女人的影子都没有
+
+虽然买不买是你的自由，但这么一个优秀的动作游戏看到人说女人丑了实际 ...</blockquote>
+我预购了啊，还是贪便宜买的小黑盒的key，要不然我闲的无聊搁这窝火<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+而且先不说漂亮妹妹对销量有没有正作用，不漂亮妹妹对游戏销量大概率是有负作用的<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Philister  
+##### 1167#       发表于 2026-9-3 12:35
+
+挺久之前在泥潭碰到过认定剑星1是女权游戏的哥们，你游女人不露大奈不抖屁股的被认为是DEI也不是不行吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大 大方方辩，不过网上各骂一句啥比然后互相拉黑会更有效率点
+
+*****
+
+####  Jabeck  
+##### 1168#       发表于 2026-9-3 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194389&amp;ptid=2210366" target="_blank">scp073 发表于 2026-9-3 12:33</a>
+
+我预购了啊，还是贪便宜买的小黑盒的key，要不然我闲的无聊搁这窝火
+
+而且先不说漂亮妹妹对销量有没有正 ...</blockquote>
+动作游戏女的重要吗？ 卖得最好的动作游戏之一鬼泣5女角色没丑化？ 女主角的贝姐3销量才100W出头，系列生死未卜。被各种吹的忍龙4女角色，结果忍龙4自己不还是褒姒了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 1169#       发表于 2026-9-3 12:37
+
+也不能说毫不重要，我也预购豪华版了，要不是这女角色太丑我直接就预购终极版了，官方不也是拿女角色的服装在卖嘛，但是毫无吸引力啊。
+

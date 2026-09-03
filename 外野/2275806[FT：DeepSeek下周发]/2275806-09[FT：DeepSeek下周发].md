@@ -6230,3 +6230,45 @@ muse spark 1.3 继续斩杀国产模型</blockquote>
 火山的glm5.3不是flash给了tmd 0.0 ...</blockquote>
 看看阿里的那个3.8flash
 
+
+*****
+
+####  →熙←  
+##### 12427#       发表于 2026-9-3 12:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天阿里的销售打我电话,问他价格,给我一个api的, 问他token plan的,给我一个包月的总价, 问每一个模型在token plan里的价格, 没声了
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12428#       发表于 2026-9-3 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194230&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-3 12:10</a>
+看看阿里的那个3.8flash</blockquote>
+比v4f还严重的雷霆大思考配上更慢的tps 虽然很听话也很会用工具但是拿来干活有点不太行
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  nxmonitor  
+##### 12429#       发表于 2026-9-3 12:31
+
+ 本帖最后由 nxmonitor 于 2026-9-3 12:33 编辑 
+<blockquote>IIIIIlllllIIIII 发表于 2026-9-3 12:27
+比v4f还严重的雷霆大思考配上更慢的tps 虽然很听话也很会用工具但是拿来干活有点不太行
+
+— from motorol ...</blockquote>
+
+那GLM5.3Flash的TPS就行了？也不怎么样，所以我现在还在用V4F…
+
+*****
+
+####  CCauchy  
+##### 12430#       发表于 2026-9-3 12:35
+
+今天agent router怎么这么坚挺
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

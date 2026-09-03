@@ -745,3 +745,11 @@ MC 83
 
 一看就是低成本游戏，但是讲故事的味道看着还行
 
+
+*****
+
+####  就是剑鞘  
+##### 65#       发表于 2026-9-3 12:27
+
+日区在喷血腥程度和谐，俄区在喷没有翻译，有种奇妙的感觉<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
