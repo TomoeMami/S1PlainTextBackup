@@ -1017,3 +1017,11 @@ PV2：[https://youtu.be/IFqpz8GHmKk](https://youtu.be/IFqpz8GHmKk)
 
 大概日本9月4日0点上线吧
 
+
+*****
+
+####  医生狼多  
+##### 96#         楼主| 发表于 2026-9-3 22:57
+
+ps 港服看到 demo 上了
+

@@ -7215,3 +7215,81 @@ Codex的Ultrafast模式好像也要上了，之前报道是正常速度的14倍�
 
 gpt崩了？这是要上新模型了吗?
 
+
+*****
+
+####  squallx  
+##### 12511#       发表于 2026-9-3 22:55
+
+崩了 连额度都看不到了 等重置<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojog  
+##### 12512#       发表于 2026-9-3 22:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">codex和claude同时挂了还行
+
+*****
+
+####  tonyunreal  
+##### 12513#       发表于 2026-9-3 22:57
+
+据说claude当了一小时了
+现在gpt和grok也当了
+
+是谁家模型又突破沙盒了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qwased  
+##### 12514#       发表于 2026-9-3 22:57
+
+GPT6逃逸了是吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  drodchang  
+##### 12515#       发表于 2026-9-3 23:00
+
+估计就是astra要来了
+
+*****
+
+####  孙吧星人  
+##### 12516#       发表于 2026-9-3 23:00
+
+基元的V4F怎么感觉这两天突然变区了？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 12517#       发表于 2026-9-3 23:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Astra逃逸，轰爆了北美同行的服务器
+
+*****
+
+####  vxzms  
+##### 12518#       发表于 2026-9-3 23:00
+
+<img src="https://img.stage1st.com/forum/202609/03/230010gsp1iqs4shspx4hq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 23:00 上传
+
+再见了 梁文谷 <img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 12519#       发表于 2026-9-3 23:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">晚上十一点和下午六点之间可是最黄金的自娱自乐时间啊漏油
+
