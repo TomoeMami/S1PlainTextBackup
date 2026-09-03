@@ -5594,3 +5594,14 @@ ff16的马桶除了主线强制那几个我就没通，这次一样专攻主线�
 但另一个说法是敌人后期数值会 ...</blockquote>
 这就看擅不擅长act了。
 
+
+*****
+
+####  手铐君  
+##### 1245#       发表于 2026-9-3 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196830&amp;ptid=2210366" target="_blank">horacio 发表于 2026-9-3 20:04</a>
+
+都说20小时主线10小时支线吧</blockquote>
+我看的a9和ucg，都是说主线+全支线20多小时
+
