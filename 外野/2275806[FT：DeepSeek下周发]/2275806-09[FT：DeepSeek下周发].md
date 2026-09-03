@@ -8030,3 +8030,15 @@ Antigravity: 重置额度
 
 所以那个什么loop transformer呢
 
+
+*****
+
+####  lactone  
+##### 12591#       发表于 2026-9-4 04:52
+
+openai觉得代码卷下去性价比不高
+
+开始玩别的了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
