@@ -460,3 +460,13 @@ https://www.procyon-studio.com/blog/?p=18673</blockquote>
 与此同时，送行曲旋律翻来覆去地用，屁大点事也用，结果特别滥情。</blockquote>
 一堆小支线反复播放同一首煽情bgm这破毛病感觉是xb祖传的，今年打xbx支线感觉和xb3乱用bgm的情况一样，严重出戏<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilod  
+##### 2091#       发表于 2026-9-3 16:44
+
+纠结这些都没有用，翻来覆去就是曲子用少了，曲子用多了。。
+
+说的好像 Mono 是有多少预算有多少人的公司一样，接受现状就完事了。。。
+
