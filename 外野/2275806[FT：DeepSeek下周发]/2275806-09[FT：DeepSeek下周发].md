@@ -6506,3 +6506,16 @@ https://mp.weixin.qq.com/s/MafY4h7Tju-pmxf30tjjKA
 
 Astra好像凌晨1点放
 
+
+*****
+
+####  绕指流光  
+##### 12452#         楼主| 发表于 2026-9-3 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70194965&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-3 14:23</a>
+gemini现在不是有8块18个月的羊毛么
+
+还是订阅然后反代，然后就是按普通API部署 ...</blockquote>
+反代还是有风险，建议小号或者家庭组方式
+随便玩玩的话直接 command code 10 刀套餐的额度足够了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

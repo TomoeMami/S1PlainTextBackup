@@ -753,3 +753,11 @@ MC 83
 
 日区在喷血腥程度和谐，俄区在喷没有翻译，有种奇妙的感觉<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 66#       发表于 2026-9-3 16:01
+
+有人试过煮错药吗，他妈会死吗
+
