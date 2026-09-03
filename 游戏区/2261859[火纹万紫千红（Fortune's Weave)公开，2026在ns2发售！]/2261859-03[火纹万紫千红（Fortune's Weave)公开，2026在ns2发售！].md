@@ -3337,3 +3337,11 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 
 这次天马的颜值都还在线的啊
 
+
+*****
+
+####  cox  
+##### 3266#       发表于 2026-9-3 09:46
+
+其实我说实话，这次几个女角色的服装，隐隐约约都挺色气的。<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

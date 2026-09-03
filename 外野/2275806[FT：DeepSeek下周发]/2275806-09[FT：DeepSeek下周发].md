@@ -6025,3 +6025,16 @@ dsh0.1.2的alpha都更新到5了，何时rc啊
 新版本的子代理优化还挺好的</blockquote>
 breaking change 太多了，要等等 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  绕指流光  
+##### 12410#         楼主| 发表于 2026-9-3 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192879&amp;ptid=2275806" target="_blank">squallx 发表于 2026-9-3 09:06</a>
+
+不和谐打得过grok吗</blockquote>
+哈基米在酒馆各种预设加持下文风更多样化，Grok写文突出一个全是黄色废料，而且中文表现是相对较差的，英文倒是得到鬼佬一致好评<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+最重要的是快！而且测下来没有3.7那种动不动截断的毛病
+
