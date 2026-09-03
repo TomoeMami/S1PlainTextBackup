@@ -6475,3 +6475,16 @@ gemini现在不是有8块18个月的羊毛么
 
 —— 来自 OnePlus PJX110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  mitzvah  
+##### 12449#       发表于 2026-9-3 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70195170&amp;ptid=2275806" target="_blank">cd112332255 发表于 2026-9-3 14:58</a>
+
+跑是能跑的。也就是说现在其实没必要去区分对吗？
+
+—— 来自 OnePlus PJX110, Android 15, 鹅球 v3.5.99 ...</blockquote>
+gemma4 31b 就是本地现阶段最好的写作翻译模型，其它的都往编程特化了
+
