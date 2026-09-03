@@ -6850,3 +6850,25 @@ qwen3.8的缓存结构跟dsv4flash的提示缓存结构完全不同</blockquote>
 刷分小更新已经懒得看了，突破了可用线之后小参数模型不如多去卷一卷速度和价格，刷分实在是意义不大。
 还是期待接下来的大参数模型更新，灰测ds什么时候才能端上来，k3.1也迟迟没消息<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绝地潜兵  
+##### 12484#       发表于 2026-9-3 17:49
+
+西班牙AI公司发布Quasar438B，打平Qwen27B低推理档成欧洲模型第一...
+
+怕是这438B都是套皮的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 12485#       发表于 2026-9-3 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196167&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-9-3 17:49</a>
+
+西班牙AI公司发布Quasar438B，打平Qwen27B低推理档成欧洲模型第一...
+
+怕是这438B都是套皮的 ...</blockquote>
+微调版的GLM-5.2
+
