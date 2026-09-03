@@ -6292,3 +6292,13 @@ WorkBuddy好不容易把hy4调教正常点了结果限额，换了k3几十秒思
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 12433#       发表于 2026-9-3 13:01
+
+aa这个榜也是完蛋了，muse spark1.3完全没有这个分的水平
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

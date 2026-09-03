@@ -569,3 +569,13 @@ Saber的后期和最终Boss令和没有能碰瓷的，前期我当战队看的�
 
 —— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  FACS  
+##### 2270#       发表于 2026-9-3 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193486&amp;ptid=2250267" target="_blank">清风朗月 发表于 2026-9-3 10:26</a>
+所以这部开播之前吹的拓展国际市场到底体现在哪了呢，连中日两边都看得云里雾里了，还指望欧美人看得懂吗 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">听听得了，哪怕真开拓了麦斯不又改回去了吗
+
