@@ -1152,3 +1152,14 @@ se以后还是专注2d回合制吧，开头对砍燃爆了。我以前玩过手�
 
 只能说单看开篇，可能这游戏比八方更适合卖一方50的价格<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。当然现在SE明显对于国区怎么定价已经比较了解了，以后都定不出那种高价了
 
+
+*****
+
+####  linyc0010  
+##### 110#       发表于 2026-9-4 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198870&amp;ptid=2283081" target="_blank">大喇叭花田 发表于 2026-9-4 00:21</a>
+
+这个买PC还是NS2版好？</blockquote>
+单纯从价格上来说，肯定PC好<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

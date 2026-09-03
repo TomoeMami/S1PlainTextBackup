@@ -7678,3 +7678,53 @@ rubin主要目标是perf per watt，你只要量化能到fp4，电够用，良�
 
 codex活了 赶紧吧额度蹬完等重置
 
+
+*****
+
+####  杀人鲸  
+##### 12559#       发表于 2026-9-4 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198518&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-3 23:25</a>
+哦对了，ds app 2.4.4更新的内容就是多了一个用于在模型更新合并时的公告弹窗    Re:Source ...</blockquote>
+我感觉有点奇怪，为什么我没有这个东西？明明我也更新了，可恶。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lactone  
+##### 12560#       发表于 2026-9-4 00:30
+
+altmann很自信，说astra 能大幅领先fable5.1
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  qwased  
+##### 12561#       发表于 2026-9-4 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198739&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-9-4 00:00</a>
+
+rubin比gb300更可怕，950打gb200要4块拼一块，打rubin搞不好要十几甚至几十块才能打一块了，现在国内计算 ...</blockquote>
+现在闹钟这边最缺的不是这种算力密度大的旗舰卡，而是数量管够的普通推理卡，只要各家flash模型能到电价，黄金时代就回来了
+
+旗舰模型的需求真没那么大
+
+*****
+
+####  贝恩德塔  
+##### 12562#       发表于 2026-9-4 00:35
+
+吹的震天响，当时sol出的时候也就opus5不到的水准，真能这么快达到远超fable5.1水准那得多贵
+
+*****
+
+####  贝恩德塔  
+##### 12563#       发表于 2026-9-4 00:36
+
+ 本帖最后由 贝恩德塔 于 2026-9-4 00:37 编辑 
+
+能不能先把sol级模型的价格打下来
+
