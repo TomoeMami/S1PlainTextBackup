@@ -4045,3 +4045,62 @@ MC剑星 82分，轮回之兽 73分，自己想想卡婊这些游戏85到90之�
 
 虽然大家都吐槽人亡3的土屋太凤但是至少她扮演的静御前还是完爆这个静御前的
 
+
+*****
+
+####  隔壁老黄  
+##### 1094#       发表于 2026-9-3 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193051&amp;ptid=2210366" target="_blank">hkguty 发表于 2026-9-3 09:31</a>
+虽然大家都吐槽人亡3的土屋太凤但是至少她扮演的静御前还是完爆这个静御前的 ...</blockquote>
+我宁愿看真田总司，比她漂亮多了
+
+*****
+
+####  mai6696  
+##### 1095#       发表于 2026-9-3 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193035&amp;ptid=2210366" target="_blank">隔壁老黄 发表于 2026-9-3 09:29</a>
+
+算了吧，剑星那独立游戏都不如的大地图，有啥探索可言，也就几张大迷宫的地图做得不错，整体就是个三流游 ...</blockquote>
+我真心觉得剑星把地图删了直接让我玩BOSS RUSH可能还更好玩一点。
+
+虽然它这战斗是字面意义上的信号灯训狗，但是那也比灾难地图强。
+
+*****
+
+####  blueeyesww  
+##### 1096#       发表于 2026-9-3 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192493&amp;ptid=2210366" target="_blank">缺德猫 发表于 2026-9-3 05:40</a>
+
+黎明行者之血全球销量这么爆啊？登顶了，不过鬼武者也升了几位，看来卖个200W问题不大！
+
+更新：已经第六了 ...</blockquote>
+200w应该小意思吧
+
+*****
+
+####  卡拉德利姆  
+##### 1097#       发表于 2026-9-3 09:39
+
+剑星最烂的就是那个沙漠大地图啊，打到那我差点都要放弃了
+后面太空电梯走**反而还很多
+
+
+*****
+
+####  mai6696  
+##### 1098#       发表于 2026-9-3 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193051&amp;ptid=2210366" target="_blank">hkguty 发表于 2026-9-3 09:31</a>
+
+虽然大家都吐槽人亡3的土屋太凤但是至少她扮演的静御前还是完爆这个静御前的 ...</blockquote>
+她最好看的造型还是卑弥呼吧。
+
+但是不管她哪个身份，我觉得都很难和竹千代搞起暧昧。
+
+一会儿源义经一会儿坂本龙马的。
+
+哪怕是卑弥呼都有个“让人操心的臭弟弟”。
+

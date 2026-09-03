@@ -5987,3 +5987,41 @@ qwen3.8 flash next好像是因为官方的MTP有问题导致上下文一长就�
 其实主要原因是原生上下文是256k，1m是扩展上下文。
 训练的时候用的只有256k，上下文多了自然会流口水
 
+
+*****
+
+####  haiuhfuwah  
+##### 12406#       发表于 2026-9-3 09:36
+
+李飞飞那个好像也没开源 看起来是把视觉 位姿信息 高斯泼溅 都混在一起了 这得多大啊 自回归transformer的话 能生成每一帧的场景 不知道要多少算力啊
+
+
+*****
+
+####  舞以  
+##### 12407#       发表于 2026-9-3 09:45
+
+dsh0.1.2的alpha都更新到5了，何时rc啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+新版本的子代理优化还挺好的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  tk553521  
+##### 12408#       发表于 2026-9-3 09:46
+
+anyrouter挂了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  overflowal  
+##### 12409#       发表于 2026-9-3 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193173&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-3 09:45</a>
+dsh0.1.2的alpha都更新到5了，何时rc啊
+新版本的子代理优化还挺好的</blockquote>
+breaking change 太多了，要等等 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
