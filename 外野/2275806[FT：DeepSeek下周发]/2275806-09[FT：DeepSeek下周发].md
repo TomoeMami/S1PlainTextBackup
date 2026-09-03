@@ -7500,3 +7500,22 @@ Astra是oai上市之前最后的一波了吧，上市之后很多事情很麻烦
 哦对了，ds app 2.4.4更新的内容就是多了一个用于在模型更新合并时的公告弹窗    Re:Source ...</blockquote>
 这个更新反而说明最近可能有动作了……
 
+
+*****
+
+####  浪费喝咖啡  
+##### 12541#       发表于 2026-9-3 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198524&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-3 23:26</a>
+Astra是oai上市之前最后的一波了吧，上市之后很多事情很麻烦的
+这波究极烂炒也能理解，甚至真是官方拿Astra ...</blockquote>
+oai不是说要明年上吗？
+
+
+*****
+
+####  Promeus  
+##### 12542#       发表于 2026-9-3 23:41
+
+真要是狙击fable5.1和astra那高低得封一个梁天帝<img src="https://static.stage1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+

@@ -221,3 +221,19 @@
 梦团这几个人轮流发起狂来究竟谁能绷得住啊看了，yuno你真不是人而是ai吧</blockquote>
 yuno：我不想有过家家的友情，但是我已经被天意的大手按着不让退呀<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 415#       发表于 2026-9-3 23:38
+
+弹幕为什么经常冒出一句：千圣罪不至此<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 416#       发表于 2026-9-3 23:43
+
+蛮能理解疼肚子那段发言的，我见过比她说话更电波的真人
+

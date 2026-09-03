@@ -2299,3 +2299,14 @@ FE原作游戏性烂到逆天，不如80年代大部分红白机游戏的游戏�
 
 一个复刻作怎么这么多幺蛾子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  g救世主高达  
+##### 221#       发表于 2026-9-3 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70198555&amp;ptid=2083714" target="_blank">岸浪白野 发表于 2026-9-3 23:30</a>
+
+久远寺累珠和学姐</blockquote>
+FER这次能不能让红a和学姐互动啊。红a的红布不是学姐送的吗，fgo这两没语音太遗憾了
+
