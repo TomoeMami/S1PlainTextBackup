@@ -4377,3 +4377,61 @@ PDD盘不到300，不可能在PSN买吧
 
 国单刚起步谁知道你游戏好不好玩当然需要美女来做宣传，像嗜血印都能靠着RSQ翻盘。。卡普空又不怕。<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwarzess  
+##### 1127#       发表于 2026-9-3 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193805&amp;ptid=2210366" target="_blank">缺德猫 发表于 2026-9-3 11:13</a>
+鬼之佳人不是前几个预告就有的吗，你们都不追宣发的？</blockquote>
+紫式部是上了我逼站首页的，太普了都不想点进去，所以其他女性角色的pv我都没看。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 1128#       发表于 2026-9-3 11:18
+
+两个主要女角色倒是很普，紫式部几乎照着张靓颖做的还普啊。。。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑暗之眼  
+##### 1129#       发表于 2026-9-3 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193759&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-3 11:07</a>
+
+还是在这种烂环境下面卡表太有恃无恐了，这些脸要是放国产游戏哪怕放个演示这游戏都别想活 ...</blockquote>
+你们到底来玩游戏的还是来看女人的？
+
+*****
+
+####  鳄鱼亮爪  
+##### 1130#       发表于 2026-9-3 11:23
+
+<blockquote>Jabeck 发表于 2026-9-3 11:18
+两个主要女角色倒是很普，紫式部几乎照着张靓颖做的还普啊。。。</blockquote>
+可能演员本人不难看，但游戏里就…<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 1131#       发表于 2026-9-3 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193759&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-3 11:07</a>
+
+还是在这种烂环境下面卡表太有恃无恐了，这些脸要是放国产游戏哪怕放个演示这游戏都别想活 ...</blockquote>
+钟馗里的女人很好看吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jabeck  
+##### 1132#       发表于 2026-9-3 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70193886&amp;ptid=2210366" target="_blank">鳄鱼亮爪 发表于 2026-9-3 11:23</a>
+
+可能演员本人不难看，但游戏里就…</blockquote>
+我觉得现在日本女演员都很丑，不化妆没法看的类型
+

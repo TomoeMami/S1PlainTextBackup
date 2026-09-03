@@ -6151,3 +6151,14 @@ muse spark 1.3 继续斩杀国产模型</blockquote>
 
 kimi现在最大的问题是没有computer use，gpt虽然有computer use但视觉能力太差，我觉得谁家的computer use强就是真的强，这应该是下一个战场。
 
+
+*****
+
+####  haiuhfuwah  
+##### 12420#       发表于 2026-9-3 11:19
+
+openai的astra据说是recurrent depth
+可以理解为在隐空间做思考 最后才解码
+那其实对推理速度有很大帮助啊
+就是不知道隐空间的思维链怎么训练呢？
+

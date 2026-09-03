@@ -708,3 +708,15 @@ MC 83
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zris  
+##### 61#       发表于 2026-9-3 11:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">吸血鬼怎么会土呢
+
+看看我们最in最潮的vtm
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
