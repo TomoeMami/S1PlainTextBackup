@@ -3497,3 +3497,16 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 ----发送自 STAGE1 App for Android. ...</blockquote>
 给个链接，搜不到啊
 
+
+*****
+
+####  黑上シグマ  
+##### 3283#       发表于 2026-9-3 18:50
+
+<blockquote>引用第3281楼蓮華于2026-09-03 18:26发表的  :
+
+黑上シグマ 发表于 2026-9-3 18:04海淘的日版才1W3，发EMS回来我感觉都不会要800......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都说海淘了，那自然是日亚啊，现在都还是1W3挂在那儿呢
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
