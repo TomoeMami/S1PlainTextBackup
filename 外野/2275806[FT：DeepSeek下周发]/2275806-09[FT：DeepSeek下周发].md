@@ -7782,3 +7782,15 @@ fable这一波国产模型赶的其实挺快
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  绝地潜兵  
+##### 12568#       发表于 2026-9-4 00:50
+
+晚上加班用第三方的V4F来干活，动不动就没响应重连，明显是限制agent了
+
+AIRP还加了甲，收费直接最高档3/9，不如官肥鱼一根毛<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+虽说是薅羊毛，但用完后还是用回官方罢
+
