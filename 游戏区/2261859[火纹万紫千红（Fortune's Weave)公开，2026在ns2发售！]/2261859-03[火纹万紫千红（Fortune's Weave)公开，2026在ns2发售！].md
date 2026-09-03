@@ -3345,3 +3345,25 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 
 其实我说实话，这次几个女角色的服装，隐隐约约都挺色气的。<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyingover  
+##### 3267#       发表于 2026-9-3 10:01
+
+<img src="https://img.stage1st.com/forum/202609/03/100048lb7wwnow2osnwfz7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 10:00 上传
+
+【キャラクター】ノクチュラ（CV：夏姫りんこ）
+
+鍛え抜かれた肉体が自慢の女剣闘士。
+
+好戦的な部族の娘として生まれるが、田舎の暮らしと里の男どもに嫌気が差し、幼少期から憧れていた帝都ダグシオンへとやってきた。
+
+●好きなもの：都会の生活、都会の人間、拳での殴り合い、鍛錬
+
