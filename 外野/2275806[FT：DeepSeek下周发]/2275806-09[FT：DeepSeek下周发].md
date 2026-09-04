@@ -10001,3 +10001,23 @@ llm原理上还是不黑盒的吧，本质上字典压缩解压算法，你真�
 
 怎么又是Astra又是Omen<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tonyunreal  
+##### 12783#       发表于 2026-9-4 20:11
+
+zcode是不是又在送token了
+没订阅的能领吗
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  AraTurambar  
+##### 12784#       发表于 2026-9-4 20:12
+
+突然想起来我对kimi有这么多滤镜因为我是苏剑林人迷。
+
+泥潭也有是苏剑林而非杨植麟人迷的朋友吗🤣
+

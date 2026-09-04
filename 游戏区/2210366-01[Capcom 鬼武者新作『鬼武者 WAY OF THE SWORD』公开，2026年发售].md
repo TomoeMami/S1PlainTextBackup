@@ -6849,3 +6849,34 @@ IGN 10这么快就陨落了吗？
 
 所以不是特别好CAPCOM这一口的话没必要冲首发，尤其是在游戏上花不了多少时间的朋友，等几个月降价了再买最好
 
+
+*****
+
+####  Piano-Forest  
+##### 1380#         楼主| 发表于 2026-9-4 20:10
+
+『鬼武者 Way of the Sword』発売を記念して、芥見下々先生より、豪華なお祝いイラストが到着！
+
+かねてより「鬼武者」シリーズをプレイされていたという芥見先生から、発売を記念したお祝いイラストを描いていただきました。
+
+公式サイトではコメントも公開中です。
+<img src="https://p.sda1.dev/34/696025f23d075514447d828ba701e21f/HRWHuhibEAAIGfD.jpg" referrerpolicy="no-referrer">
+
+Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel à Tony Valente, qui signe une superbe illustration des rivaux légendaires Miyamoto Musashi et Sasaki Ganryu.
+<img src="https://p.sda1.dev/34/3cf004c454efa9c731224e308ed21940/HRSmWrdW0AIvrOz.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  桥洞底下盖小被  
+##### 1381#       发表于 2026-9-4 20:10
+
+唉，这些支线做完能不能让我直接传回去交任务，还要自己绕一圈跑回去是真难顶
+
+
+*****
+
+####  泥潭办证先锋  
+##### 1382#       发表于 2026-9-4 20:17
+
+这字幕和口型跟日语语音对不上啊……
+
