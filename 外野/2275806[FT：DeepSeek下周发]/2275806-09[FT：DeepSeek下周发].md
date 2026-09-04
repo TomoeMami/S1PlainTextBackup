@@ -8138,3 +8138,13 @@ ao旗舰都出了，ds的灰测模型是不是该出来狙击一下了<img src="
 喷了。</blockquote>
 这个榜已经坏了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  zhongjie  
+##### 12602#       发表于 2026-9-4 07:52
+
+tibo说还没发Astra的延迟一天发一张重置卡
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
