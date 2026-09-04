@@ -7011,3 +7011,11 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 真的觉得把探索部分全部去掉就做一个十小时流程的游戏还更好，通关解锁boss rush战斗爽<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  临界点  
+##### 1398#       发表于 2026-9-4 23:21
+
+这游戏的光照怎么能做得这么烂啊，明明过场还可以但一到实机感觉就是那种高清复刻的游戏，之前生化危机感觉也没这么差啊，而且生化危机都是美女怎么到了这部都是丑八怪<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
