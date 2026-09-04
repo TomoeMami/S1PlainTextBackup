@@ -9446,3 +9446,33 @@ k3竟然免费了，不过trae实在不好用 Re:Source</blockquote>
 看输出速度，可能GLM5.5，500K这是注意力练炸了</blockquote>
 5.5规模应该不小吧，这个吐字速度像小模
 
+
+*****
+
+####  舞以  
+##### 12730#       发表于 2026-9-4 15:09
+
+0731之后，人人都做flash了？
+
+
+*****
+
+####  xiaohanne  
+##### 12731#       发表于 2026-9-4 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201857&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-4 14:51</a>
+
+看主播测试omen alpha要笑死了
+
+300tok/s狂奔，代码一波生成不测试</blockquote>
+你别说，正式上线还这速度，用途也挺多的……
+
+*****
+
+####  orca  
+##### 12732#       发表于 2026-9-4 15:15
+
+标题里的哈基米能不能去掉了？已经好几次害我错过这个帖子了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+每次瞟见它就下意识无视这一行标题了，然后还上下划拉着找帖子“咦，大模型专楼呢？”
+
