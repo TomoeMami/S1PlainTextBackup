@@ -9313,3 +9313,11 @@ gemini这两天怎么老提示我只是个文字ai，生3.8升傻了吗
 
 等gpt6推送了 着急
 
+
+*****
+
+####  舞以  
+##### 12717#       发表于 2026-9-4 14:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“DeepSeek是大家的老师”
+

@@ -441,3 +441,15 @@ DX和强自跟命运正义在一档，柯西金鸟甚至还低一档，甚至还
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  无念  
+##### 4672#       发表于 2026-9-4 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199593&amp;ptid=2071758" target="_blank">心之光 发表于 2026-9-4 08:39</a>
+想续1000日元的月卡，结果【此版本的应用未配置为通过Google Play结算】，但是商店里面买了个东西测试是正 ...</blockquote>
+我今天也折腾了一上午，后来群友试出来是play自己版本过期了，你看看你的play商店是多少版本的 最好更新到49或者50
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
