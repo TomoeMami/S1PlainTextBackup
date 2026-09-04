@@ -7076,3 +7076,16 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 优化好神必。78x3d+5080，跑demo和benchmark全最高能有六七十帧，限30帧开4倍帧生成稳稳锁住120帧。正式版同样全最高（可能dlss档位开低了点）锁30帧开4倍帧生成就只有75帧的样子；把帧生成关了锁60帧，实际就58帧，不锁帧能到快90帧，但帧生成时间似乎特别糟糕，好像一直在掉帧，总之不管怎么调体感都是卡爆了。并且gpu占用率也就一半上下，功耗甚至不到200w，完全就没把显卡用起来。
 但steamdeck就好很多，720p全最低fsr质量档在开头大战众弟子时能有50帧，如果锁30帧整机功耗可能也就大概15到18w的水平（单看cpu+gpu大概是5到6w），而且帧生成时间特别平滑，几乎没有掉帧，体感相当流畅。
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 1405#       发表于 2026-9-4 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204582&amp;ptid=2210366" target="_blank">梅斯之围 发表于 2026-9-4 23:35</a>
+
+这游戏的地图探索有意思吗，听说不光是boss战斗爽</blockquote>
+解密和解密场景有股新战神味
+
+探索也只是捡垃圾…………聊胜于无
+
