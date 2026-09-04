@@ -6135,3 +6135,13 @@ Ps5大部分都去买实体盘了吧，前段时间pdd250左右随便买
 
 卡表游戏开起来卡着色器貌似是常规操作了，会不会和引擎也有点关系
 
+
+*****
+
+####  woshenc  
+##### 1304#       发表于 2026-9-4 13:17
+
+看到楼上有讨论最终boss的，想起今天在b站看到一个最终boss视频下的评论
+
+7年了，还是没有能超过一心的人形最终boss战，有没有点道理？<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

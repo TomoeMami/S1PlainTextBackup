@@ -9217,3 +9217,19 @@ OpenAI对5.X Pro模型的口径从"几乎无限"变成了定量的"170个请求/
 
 硅基流动上线高速版 GLM-5.3，调用价格为缓存命中 2 元 / M tokens，输入 8 元 / M tokens，输出 28 元 / M tokens。
 
+
+*****
+
+####  舞以  
+##### 12707#       发表于 2026-9-4 13:16
+
+“缓存命中 2 元 / M tokens”<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这么有钱的富哥还会用glm么
+
+
+*****
+
+####  七氷  
+##### 12708#       发表于 2026-9-4 13:22
+
+谢谢楼友，我注销了，选科研立马就能订阅kimi了
+
