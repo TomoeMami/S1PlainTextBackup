@@ -8187,3 +8187,14 @@ tibo说还没发Astra的延迟一天发一张重置卡
 
 我只能骂奥特曼是个sb了，大家不用claude用codex的原因，不就是因为便宜吗？astra和fable一样贵，这谁用阿？
 
+
+*****
+
+####  舞以  
+##### 12608#       发表于 2026-9-4 08:39
+
+晚这么久，就端出来一个oai版Fable？
+o➗也没活了啊，除非实际上便宜不少
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -1249,3 +1249,32 @@ demo差不多半个小时处的进度，有一种极其强烈的手游教程到�
 
 剧情就是很王道的那种，到处找召唤兽拯救世界。里面有各代ff的融合剧情，像开头的ff6，后面还有ff8电波塔被机器人追
 
+
+*****
+
+####  黑暗之眼  
+##### 122#       发表于 2026-9-4 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199102&amp;ptid=2283081" target="_blank">格林卡罗尔 发表于 2026-9-4 01:42</a>
+我们玩的真的是同一个游戏吗，这剧情好土啊</blockquote>
+土什么土，这叫王道剧情，比花里胡哨不知所云的好太多了
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  z692689995  
+##### 123#       发表于 2026-9-4 08:38
+
+还能打萨菲罗斯就有点怪了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  12481632  
+##### 124#       发表于 2026-9-4 08:43
+
+只能说第一部剧情确实挺平的，稍微有些转折的也就老爹和魔人菲娜的部分，看看后面整部的演出能不能保持现在的水准吧。
+
+希望卖得好的话还能有第二部。
+

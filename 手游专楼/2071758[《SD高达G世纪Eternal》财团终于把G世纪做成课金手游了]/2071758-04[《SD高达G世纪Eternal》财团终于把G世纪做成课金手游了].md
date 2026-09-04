@@ -403,3 +403,11 @@ g世纪原创角色应该出点ssr啊。
 
 F91原来也是T1，当初运气还不错给满破了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，掉毛可惜一直没船配合
 
+
+*****
+
+####  心之光  
+##### 4668#       发表于 2026-9-4 08:39
+
+想续1000日元的月卡，结果【此版本的应用未配置为通过Google Play结算】，但是商店里面买了个东西测试是正常的，这是哪里出了问题<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
