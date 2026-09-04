@@ -664,3 +664,19 @@ konami这厮多少年都没怎么做游戏了，它也配代表jrpg。
 konami这厮多少年都没怎么做游戏了，它也配代表jrpg。</blockquote>
 真正完蛋的原因不是因为konami端出来的这些玩意都能算发布会主推jrpg了么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 80#       发表于 2026-9-4 10:29
+
+<img src="https://img.stage1st.com/forum/202609/04/102926gh3rvr44trrtvvto.jpg" referrerpolicy="no-referrer">
+
+<strong>1000854288.jpg</strong> (241.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 10:29 上传
+
+人设图比建模好一点，适合出现在音游和软件娘化封面上
+

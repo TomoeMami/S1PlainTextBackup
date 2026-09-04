@@ -8713,3 +8713,15 @@ arena.ai的fable不知道是不是真的，用起来确实比agentrouter的opus5
 又做梦了，梦里大肥鱼又登上了sota宝座<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 大灰肥鱼，快来吧
 
+
+*****
+
+####  舞以  
+##### 12659#       发表于 2026-9-4 10:30
+
+别擅自期待了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+但是最近ds确实在模型上好活不太多，flash-0731的冲击也被涨价削弱了不少
+
+按理说ds还是挺有活的，不知道最近在搞毛。
+
