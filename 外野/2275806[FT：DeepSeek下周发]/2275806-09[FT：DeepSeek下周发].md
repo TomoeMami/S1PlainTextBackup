@@ -9167,3 +9167,14 @@ fable5.1 和 gpt-astra 看外国友人评价是基本相当。 <blockquote>They 
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是不是因为我的手机号早就注册了月之暗面的api账户，给杨圣送了钱，所以直接给我放行了？
 
+
+*****
+
+####  kylezy123  
+##### 12702#       发表于 2026-9-4 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201019&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-9-4 12:07</a>
+
+只蹬3.8flash周限额大概是1.2-1.5B 点只看该作者看我回帖记录</blockquote>
+那还是很值吧
+
