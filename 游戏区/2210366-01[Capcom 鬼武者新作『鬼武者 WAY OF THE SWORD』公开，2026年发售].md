@@ -6995,3 +6995,11 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 路上遇到一个路人小女孩 npc 求起事件，结束后怼脸吓哭了，真的一股伪人感，天山童姥似的
 
+
+*****
+
+####  银色天空  
+##### 1396#       发表于 2026-9-4 22:43
+
+一路直奔主线当线性act玩，砍爽了，我已原谅卡普空，还是好玩的。
+
