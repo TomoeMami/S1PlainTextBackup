@@ -9717,3 +9717,29 @@ Chat Completion API &lt;400&gt; InternalError.Algo.DataInspectionFailed: Input t
 0731之后，人人都做flash了？</blockquote>
 不然为什么叫斩杀线呢
 
+
+*****
+
+####  小木曾雪菜  
+##### 12758#       发表于 2026-9-4 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201811&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-4 14:46</a>
+怎么还能开倒车的，500k上下文   
+
+k3竟然免费了，不过trae实在不好用 Re:Source</blockquote>
+小红书是官方没看到免费两个字
+
+—— 来自 OnePlus PLK110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  tonyunreal  
+##### 12759#       发表于 2026-9-4 18:04
+
+插件删光还折腾了一下才把新版dsh弄好
+
+第一次是依赖库有问题无法启动，问了网页版deepseek说清npm缓存，清完好了
+
+第二次是局域网其他电脑打不开web ui，问了网页版deepseek说除了复制服务器上吐的那串地址做验证没有别的办法
+

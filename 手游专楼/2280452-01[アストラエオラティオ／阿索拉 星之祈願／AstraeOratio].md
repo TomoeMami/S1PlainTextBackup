@@ -60,3 +60,12 @@
 
 — from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  长谷川红叶  
+##### 45#       发表于 2026-9-4 17:57
+
+<img src="https://p.sda1.dev/34/a4ab3461e58c969ab47cb2f11f1470b6/image.jpg" referrerpolicy="no-referrer">
+刚想说怎么还有狼人新选组，仔细一想这游戏背景好像正好是19世纪后期....那就不奇怪了，不奇怪了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6639,3 +6639,36 @@ https://www.bilibili.com/video/BV1oPtv6eE21
 
 说他系统无敌长板够长值得高分没问题，虎头蛇尾也确实是很多厂商都有的问题，但这些问题搁其他厂商都是明确的扣分项放卡普空身上媒体就无视了，更不用说龙信2和近几作怪猎这种发售时根本没做完的游戏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  汪达  
+##### 1357#       发表于 2026-9-4 18:01
+
+黑猴那种体量没几个游戏能比的
+
+其实鬼武者可以跟sifu比，sifu半价游戏，5关（而且最后一关很短），5个BOSS，杂兵有几种忘记了，好像不超过10种，要是难度简单点通关也就三四个小时而已
+
+鬼武者这套动作系统很明显是烧钱的，价格X2，内容量肯定超过两倍了，虽然确实体量小，但要说很离谱也不至于
+
+
+*****
+
+####  Gigax  
+##### 1358#       发表于 2026-9-4 18:04
+
+ 本帖最后由 Gigax 于 2026-9-4 18:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202765&amp;ptid=2210366" target="_blank">大喇叭花田 发表于 2026-9-4 17:53</a>
+
+我收回前几天我“你们是来打游戏还是来看脸”的说法，这游戏女角色确实丑到影响观感了。 ...</blockquote>
+讲道理卡普空生化怪猎还有年初小萝莉都不是这么捏人的，就连世界的艾波也不至于看脸犯恶心的，一到本土题材的鬼武者捏脸捏成这样我不好说了，对比起来仁王3照着土屋太凤捏的脸都是天仙了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwhaha  
+##### 1359#       发表于 2026-9-4 18:06
+
+女性角色真的太丑了，卡婊辱日无疑<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
