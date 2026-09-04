@@ -9838,3 +9838,19 @@ K3写文不知道留白，不中
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 12769#       发表于 2026-9-4 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202990&amp;ptid=2275806" target="_blank">浪费喝咖啡 发表于 2026-9-4 18:38</a>
+何意味?我看跑分和x的一些反馈，astra水平和fable5.1差不多</blockquote>
+不是，其实是openai会营销
+
+说实话我觉得astra硬实力进步不大，但是openai这波宣传直接绑定agi，而且还刻意把arc-agi-3这个benchmark分刷高，明显是想换战场了
+
+Gemini pro后的这一波coding浪潮实际上是a\带起来的，现在openai宣传是不玩这个了
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

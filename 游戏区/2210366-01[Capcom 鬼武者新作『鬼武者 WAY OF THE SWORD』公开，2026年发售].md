@@ -6750,3 +6750,27 @@ IGN 10这么快就陨落了吗？
 
 中期开始节奏好不少，因为敌人和boss难度提升了，就**打打怪感觉还不错，怒伐天和弁庆打得很爽
 
+
+*****
+
+####  nagitoY  
+##### 1370#       发表于 2026-9-4 18:48
+
+【【熊人族/终末地】羽毛聊鬼武者，“如果要是把注水的部分都删掉，只保留主线，那他是个非常不错的重启的佳作；可能有些人喜欢，会觉得我能玩更多内容”】 [https://www.bilibili.com/video/B ... a9524880cae8ef31f5b](https://www.bilibili.com/video/BV1oPtv6eE21/?share_source=copy_web&amp;vd_source=f992a0ea6967da9524880cae8ef31f5b)
+
+羽毛说自己是鬼武者系列粉丝，所以还是把马桶全通了，算是给鬼武者系列尽孝<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  放大镜  
+##### 1371#       发表于 2026-9-4 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202982&amp;ptid=2210366" target="_blank">bixinhaner 发表于 2026-9-4 18:37</a>
+
+IGN 10这么快就陨落了吗？
+
+之前没玩过，看了下最新预告片，感觉男女人设都很差到劝退的地步啊。我记得ps2时 ...</blockquote>
+鬼武者初代人脸是真人石膏倒模，出来的效果很差，包括CG里，基本只能算挂了金城武的名，真帅起来已经是鬼武者3了
+
+鬼武者初代称得上好看的只有女忍，毕竟还算出过一些本子
+
