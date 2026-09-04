@@ -9854,3 +9854,25 @@ Gemini pro后的这一波coding浪潮实际上是a\带起来的，现在openai�
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12770#       发表于 2026-9-4 18:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+因为程序员识货啊
+你说现在模型是什么东西 那我只能说是经过一些人工育种的莎士比亚🐒 
+今天试了fable我的评价是不看模型名不知道更新了
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 12771#       发表于 2026-9-4 18:59
+
+问题是除了coding其他领域的变现能力到底如何也没人知道啊
+
+如果撑不起业绩那还是一上市就连环爆
+
