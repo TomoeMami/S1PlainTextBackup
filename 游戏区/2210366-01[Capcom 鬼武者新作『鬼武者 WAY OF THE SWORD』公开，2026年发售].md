@@ -7034,3 +7034,11 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 这游戏的地图探索有意思吗，听说不光是boss战斗爽
 
+
+*****
+
+####  Fuero  
+##### 1401#       发表于 2026-9-4 23:37
+
+我砍的好爽啊，只靠化劲就值回票价了
+

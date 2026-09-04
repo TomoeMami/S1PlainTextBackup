@@ -10367,3 +10367,28 @@ k3做规划，luna/terra打工看起来是目前的甜点<img src="https://stati
 
 就看Astra啥成色了
 
+
+*****
+
+####  真田源次郎信繁  
+##### 12817#       发表于 2026-9-4 23:39
+
+Zcode用着还行，到20号为止晚上免费用glm5.3-flash
+
+虽然模型不聪明，但使劲蹬总能搞出来点什么，直接让它工作到明天9点为止<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 12818#       发表于 2026-9-4 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204602&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-9-4 23:39</a>
+
+Zcode用着还行，到20号为止晚上免费用glm5.3-flash
+
+虽然模型不聪明，但使劲蹬总能搞出来点什么，直接让它工 ...</blockquote>
+智普多了十万卡算力是真有底气啊
+
+梁子你呢<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
