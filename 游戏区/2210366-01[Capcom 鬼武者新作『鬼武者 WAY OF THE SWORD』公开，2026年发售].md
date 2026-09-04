@@ -6333,3 +6333,43 @@ Ps5大部分都去买实体盘了吧，前段时间pdd250左右随便买
 
 “表演全一闪我靠，你是说我全程1000只小怪，再加50只百秽，再加30只什么天，再加每个boss打2、3遍，每只都要完美一闪？那可太享受了”
 
+
+*****
+
+####  scp073  
+##### 1325#       发表于 2026-9-4 15:57
+
+不是说一闪成功率和帧数有关嘛，所以已经玩上的朋友们都是设置的多少帧
+
+*****
+
+####  桥洞底下盖小被  
+##### 1326#       发表于 2026-9-4 15:57
+
+这前期是真你嘛墨迹，这也是强行拖游戏流程时长的策略吗，动作天尊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JOJO42  
+##### 1327#       发表于 2026-9-4 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202174&amp;ptid=2210366" target="_blank">wasian 发表于 2026-9-4 15:44</a>
+
+https://www.bilibili.com/video/BV1oPtv6eE21
+
+巨魔羽毛锐评，实在太搞笑了，省流版字幕放下面
+
+“武器要升 ...</blockquote>
+他这视频最好笑的还是在后面说别出去传他的话，搞的他是小众哥一样——结果这几天他这品评到处流传<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wasian  
+##### 1328#       发表于 2026-9-4 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202249&amp;ptid=2210366" target="_blank">JOJO42 发表于 2026-9-4 15:59</a>
+
+他这视频最好笑的还是在后面说别出去传他的话，搞的他是小众哥一样——结果这几天他这品评到处流传 ...</blockquote>
+所以说是老巨魔，手法娴熟<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1343,3 +1343,15 @@ demo差不多半个小时处的进度，有一种极其强烈的手游教程到�
 
 感觉战斗和探索做的很微妙，其它的还能接受，因为我很吃这套2d FF所以还是美美开冲<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  行政裁定书  
+##### 132#       发表于 2026-9-4 15:56
+
+这个是原来的ffbe再利用吗？
+
+剧情和ffbe一模一样吗？
+
+后面几季剧情挺那啥的
+

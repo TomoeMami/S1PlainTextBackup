@@ -453,3 +453,16 @@ DX和强自跟命运正义在一档，柯西金鸟甚至还低一档，甚至还
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  心之光  
+##### 4673#       发表于 2026-9-4 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201670&amp;ptid=2071758" target="_blank">无念 发表于 2026-9-4 14:20</a>
+
+我今天也折腾了一上午，后来群友试出来是play自己版本过期了，你看看你的play商店是多少版本的 最好更新 ...</blockquote>
+是的，我也是更新了版本好了，同折腾一上午。
+
+最后上IQOO应用商店搜谷歌play，显示有更新，日常的应用更新提醒没有的，搜了点进去才有，藏起来了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
