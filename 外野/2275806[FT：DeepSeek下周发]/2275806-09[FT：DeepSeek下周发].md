@@ -10189,3 +10189,41 @@ cc内部自己调用subagent时候会自己切模型么？这一周就给梁子�
 这边有痕迹未发的已经有 Kimi 3.1（大概率），GLM-6，DSv5，Qwen 4，说不定这个月就全出来了 ...</blockquote>
 Glm6这个真没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 12799#       发表于 2026-9-4 21:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">dsh的GitHub仓库已经提交了0.1.3-alpha.1
+
+飞速更新啊
+
+
+*****
+
+####  qwased  
+##### 12800#       发表于 2026-9-4 21:32
+
+command code的dsv4flash好像量化有点狠，群友测体素建模能力烂完了，就比基元律动那个彻底失败无法运行的好点
+
+
+*****
+
+####  Promeus  
+##### 12801#       发表于 2026-9-4 21:33
+
+彭博说华子给梁子弄了16万张950dt<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">准备在内蒙用上
+
+
+*****
+
+####  木水风铃  
+##### 12802#       发表于 2026-9-4 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203689&amp;ptid=2275806" target="_blank">中二骚年 发表于 2026-9-4 20:59</a>
+很多这么干的</blockquote>
+Codex可以吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
