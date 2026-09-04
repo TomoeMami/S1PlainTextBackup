@@ -543,3 +543,14 @@ TLOU2吹上天的脱衣服居然也被这游戏实现了，illusion恐怖如斯<
 
 — from samsung SM-F966U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ds2324ds2  
+##### 49#       发表于 2026-9-4 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199266&amp;ptid=2288266" target="_blank">aritionkb 发表于 2026-9-4 04:34</a>
+
+建模和动作都还不错，但是麻将部分实在是太屎了。要么就是奶奶牌光速立直，要么就是断幺九战士。里面那个不 ...</blockquote>
+这就是古臭味吧，那个时候的街机脱衣麻将游戏都这样。
+

@@ -9267,3 +9267,13 @@ OpenAI对5.X Pro模型的口径从"几乎无限"变成了定量的"170个请求/
 
 gemini越来越傻了，充pro都救不了，默认prompt前缀可能有问题，比ai-studio里差多了，现在都直接进ai-studio，下个月不续费了。
 
+
+*****
+
+####  tonyunreal  
+##### 12712#       发表于 2026-9-4 13:58
+
+opencode go上了新模型omen-alpha，100刀额度
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
