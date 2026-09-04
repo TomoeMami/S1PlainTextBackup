@@ -9024,3 +9024,52 @@ v4p那纯粹就是意义不明的玩意。
 
 我前两天刚搞完
 
+
+*****
+
+####  tonyunreal  
+##### 12689#       发表于 2026-9-4 11:36
+
+<img src="https://p.sda1.dev/34/e0c1f4b1033ed59689143a3f476b48f1/1000049042.jpg" referrerpolicy="no-referrer">
+
+astra的额度规则
+红迪老哥：别给我astra了，每天给我重置卡就行
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 12690#       发表于 2026-9-4 11:37
+
+Astra的额度消耗（按token计）大概是sol的2.5倍<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+就看值不值这个价了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 12691#       发表于 2026-9-4 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200802&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-4 11:34</a>
+你把号注销，重新注册，注册过程中的使用目的这一环选科研就可以订阅了
+
+我前两天刚搞完</blockquote>
+还真是，我选的研究和收集资料之类的，预约完就能买订阅了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  startraveller  
+##### 12692#       发表于 2026-9-4 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200819&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-4 11:36</a>
+
+astra的额度规则
+
+红迪老哥：别给我astra了，每天给我重置卡就行</blockquote>
+这个是chat模式吧
+
