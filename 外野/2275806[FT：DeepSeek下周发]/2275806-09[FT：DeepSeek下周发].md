@@ -8418,3 +8418,40 @@ computer use在日常生活工作中是很有用的，不是每个人都只用�
 
 烧api的素质没话说。
 
+
+*****
+
+####  舞以  
+##### 12630#       发表于 2026-9-4 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199855&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-4 09:22</a>
+
+那可能就是订阅降智了。
+
+烧api的素质没话说。</blockquote>
+我也烧过api，感觉没啥区别吧<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+可能是我和llm有时候讨论的问题太开放，太难了
+
+反正当前几个模型给我的感觉更像是文风和表达差异
+
+不过我没用过fable，不知道有没有明显差距，反正上一次让我觉得模型明显变聪明还是gpt到5，ds更新到v4那个时候。
+
+后面的更新基本就是针对agent特化了。
+
+*****
+
+####  startraveller  
+##### 12631#       发表于 2026-9-4 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199786&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-4 09:13</a>
+所谓的conputer use是视觉操作电脑，对于AI来说是个无意义的低效手段，你要是搞具身智能还行…… ...</blockquote>
+computer use 在不少任务都挺有用的，比如让它搞游戏，它会自己试玩自己调试自己改。
+
+*****
+
+####  舞以  
+##### 12632#       发表于 2026-9-4 09:28
+
+不过k3相比dsv4pro在物理数学方面有明显的提升，不知道是参数量优势还是后训练做了加强。
+

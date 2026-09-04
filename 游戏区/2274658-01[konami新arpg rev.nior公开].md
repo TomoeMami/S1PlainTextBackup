@@ -644,3 +644,23 @@ konami还挺有进取心，两部arpg都不是老套的单人精防信号灯魂�
 
 挺想玩的，战斗系统有点想法，剧情大纲土归土也是我心目中JRPG就该有的那种剧情
 
+
+*****
+
+####  dqjsss  
+##### 78#       发表于 2026-9-4 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69184380&amp;ptid=2274658" target="_blank">Philister 发表于 2026-2-13 17:58</a>
+
+老倭的jrpg是真完蛋了</blockquote>
+konami这厮多少年都没怎么做游戏了，它也配代表jrpg。
+
+*****
+
+####  红魔馆的糖  
+##### 79#       发表于 2026-9-4 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199912&amp;ptid=2274658" target="_blank">dqjsss 发表于 2026-9-4 09:30</a>
+konami这厮多少年都没怎么做游戏了，它也配代表jrpg。</blockquote>
+真正完蛋的原因不是因为konami端出来的这些玩意都能算发布会主推jrpg了么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
