@@ -9125,3 +9125,45 @@ fable5.1有定论了吗？是超级长考版5.0还是智商进一步提升了？
 话说阿里百练的最低价格39的那个订阅套餐，性价比怎么样？</blockquote>
 只蹬3.8flash周限额大概是1.2-1.5B 点只看该作者看我回帖记录
 
+
+*****
+
+####  心头小鹿撞  
+##### 12698#       发表于 2026-9-4 12:18
+
+fable5.1 和 gpt-astra 看外国友人评价是基本相当。 <blockquote>They are models of equivalent capability, but different 'shapes', so it depends more on the 'shape' of the model that you prefer.</blockquote>
+
+出处 [https://x.com/petergostev/status/2095662365882651032](https://x.com/petergostev/status/2095662365882651032)
+
+*****
+
+####  jinuzuktII  
+##### 12699#       发表于 2026-9-4 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200985&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-9-4 11:59</a>
+
+我已经是注销后选科研了，只能说我不配
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+要不换个手机号试试
+
+*****
+
+####  CCauchy  
+##### 12700#       发表于 2026-9-4 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200254&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-4 10:19</a>
+今天就指望不了ds了吧，完全一点风声都没有，全是我的臆想
+
+话说dsh现在走webui ，如果后面想跟进computer  ...</blockquote>
+我觉得不会，甚至有优势，可以专门开发一个电脑控制软件，然后跟dsh通信，解耦出来一次控制多个电脑
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 12701#       发表于 2026-9-4 12:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是不是因为我的手机号早就注册了月之暗面的api账户，给杨圣送了钱，所以直接给我放行了？
+
