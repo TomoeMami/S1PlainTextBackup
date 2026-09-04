@@ -10053,3 +10053,35 @@ kimi本来就是硬实力国模最强
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  serj005  
+##### 12787#       发表于 2026-9-4 20:40
+
+zcode无订阅的直接进就行，今天就能领，明天生效
+
+<img src="https://img.stage1st.com/forum/202609/04/203851wagrffcvalz48cio.png" referrerpolicy="no-referrer">
+
+<strong>3293a73593c633d7360b15b5a20d5dcd.png</strong> (37.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 20:38 上传
+
+*****
+
+####  舞以  
+##### 12788#       发表于 2026-9-4 20:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">opus4.6时代，猫老板可是认为国模在agent领域落后一年的
+
+*****
+
+####  赤星ビスコ  
+##### 12789#       发表于 2026-9-4 20:42
+
+等60分钟拿95分和等5分钟拿70分，实际上后者体验还更好一点
+
+大概过了及格线后，如果不能100%的做到一件事情，反而是越快得到结果有反馈，通过人来调整更加顺畅。
+
