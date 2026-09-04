@@ -7217,3 +7217,11 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  火红之眼  
+##### 1419#       发表于 2026-9-5 00:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">风雷双boss战打爽了，两个AI联动出招，各种大技见招拆招高风险高回报，没有一般那种双boss不讲理的粪感
+
