@@ -3790,3 +3790,13 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 
 罗马人就是有很多神吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  trow233  
+##### 3315#       发表于 2026-9-4 17:54
+
+这一部好看的黑皮不少啊
+
+人设和三房是同一个吗？感觉有些不同
+

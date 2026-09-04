@@ -9698,3 +9698,22 @@ Chat Completion API &lt;400&gt; InternalError.Algo.DataInspectionFailed: Input t
 
 这个新的alpha模型已经卡的不能用了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Fuero  
+##### 12756#       发表于 2026-9-4 17:48
+
+收到一次重置，Astra还是晚几天上吧…
+
+
+*****
+
+####  秦南心  
+##### 12757#       发表于 2026-9-4 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201950&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-4 15:09</a>
+
+0731之后，人人都做flash了？</blockquote>
+不然为什么叫斩杀线呢
+
