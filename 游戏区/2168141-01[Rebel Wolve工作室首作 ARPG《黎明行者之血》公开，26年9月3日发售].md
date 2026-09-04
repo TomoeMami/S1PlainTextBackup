@@ -914,3 +914,11 @@ https://www.neogafimages.com/105958/qbhmt44usy1d5z8o.gif
 
 这30帧的过场不改，真不想玩了
 
+
+*****
+
+####  Schwarzess  
+##### 84#       发表于 2026-9-4 10:44
+
+每次关闭菜单都会疯狂掉帧。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

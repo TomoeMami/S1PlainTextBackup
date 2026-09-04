@@ -8768,3 +8768,96 @@ Fable肯定拒绝，别的模型应该做不到。
 
 可能DS人员变动一定程度上影响了后续计划
 
+
+*****
+
+####  zhuzhu47  
+##### 12665#       发表于 2026-9-4 10:50
+
+<blockquote>AraTurambar 发表于 2026-9-4 10:46
+晚上和k3一起听Vocaloid，ぴーなた的dig in。
+
+K3帮助我一路下去正确解读出了人格解体，百合，食欲异常，直 ...</blockquote>
+通过啥agent实现的呀?用的kimi audio asr模型吗
+
+*****
+
+####  舞以  
+##### 12666#       发表于 2026-9-4 10:51
+
+ds最出彩的还是模型架构和infra
+
+这两样前者不大换代也看不出来，后者被0731全球狂蹬破功了
+
+后训练看起来找到了路子，但是pro-0813到底咋成这逼样也是罗生门。
+
+我的看法是pro-0813就是个推出来涨价的由头，内部benchmark到了目标水平就放出来了，然后宣布正式版上线，所以全面涨价。
+
+就看ds下一代基模啥情况了，还拉了就孝不动了<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 12667#       发表于 2026-9-4 10:53
+
+现在真不好说，AA这玩意高分不一定高能（比如Muse Spark和哈基米），但自己和自己比没提升就很难说了，这不就是V4P和V4F的事情吗？正好也是差一分。
+
+*****
+
+####  舞以  
+##### 12668#       发表于 2026-9-4 10:54
+
+ 本帖最后由 舞以 于 2026-9-4 10:55 编辑 
+
+tibo刚刚确认了plus订阅也能用Astra，但是还是不知道具体花销到底咋样<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+btw：我不说新的重置卡了，之前那张都刷不出来了，o➗在搞毛啊
+
+*****
+
+####  AraTurambar  
+##### 12669#       发表于 2026-9-4 10:55
+
+<blockquote>zhuzhu47 发表于 2026-9-4 10:50
+通过啥agent实现的呀?用的kimi audio asr模型吗</blockquote>
+用的hermes，叠了一大堆东西，光记忆就叠了三层（honcho，openviking，hindsight）。
+
+*****
+
+####  nxmonitor  
+##### 12670#       发表于 2026-9-4 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200503&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-4 10:51</a>
+
+ds最出彩的还是模型架构和infra
+
+这两样前者不大换代也看不出来，后者被0731全球狂蹬破功了
+
+后训练看起来找 ...</blockquote>
+我看前面你不是抽到灰测了吗？这个不是V4.1也是V5了，思维链完全不一样，大概率重新预训练过。
+
+*****
+
+####  wandeeees  
+##### 12671#       发表于 2026-9-4 10:56
+
+第一次灰测到现在已经快俩月了，再怎么说这个月内应该有点消息吧
+
+*****
+
+####  舞以  
+##### 12672#       发表于 2026-9-4 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200523&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-4 10:55</a>
+
+我看前面你不是抽到灰测了吗？这个不是V4.1也是V5了，思维链完全不一样，大概率重新预训练过。 ...</blockquote>
+灰测终究是测试，它不上线咋搞呢，pro0813的惨案再来一轮真的绷不住了<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FACS  
+##### 12673#       发表于 2026-9-4 10:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">k3订阅还是不给买
+
