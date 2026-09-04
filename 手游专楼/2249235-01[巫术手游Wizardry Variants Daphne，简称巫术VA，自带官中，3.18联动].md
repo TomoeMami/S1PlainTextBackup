@@ -57,3 +57,13 @@
 那还说啥了，抄起钓竿去湖畔南了</blockquote>
 问题来了，钓鱼任务怎么做
 
+
+*****
+
+####  orz100  
+##### 894#       发表于 2026-9-4 13:13
+
+之前这钓鱼任务二周目折磨了我两个小时都没吊起来几条。现在还加了一种出率超高的新品种垃圾鱼进去进一步污染鱼塘。我真是要吐了。什么傻逼策划，自己钓过没有<img src="https://static.stage1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
