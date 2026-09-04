@@ -1432,3 +1432,24 @@ PS5也没有，感觉这游戏可能压根没有震动功能。
 好经典的FF味，最近正好刚打完FF2像素复刻。上来小怪就是变异鼠真亲切。话说这个大招演出真的好FGO啊，虽然 ...</blockquote>
 这游戏只能算素材复用，剧情有改动，系统也是新的
 
+
+*****
+
+####  我王  
+##### 141#       发表于 2026-9-4 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204050&amp;ptid=2283081" target="_blank">空洞骑士 发表于 2026-9-4 22:01</a>
+好经典的FF味，最近正好刚打完FF2像素复刻。上来小怪就是变异鼠真亲切。话说这个大招演出真的好FGO啊，虽然 ...</blockquote>
+和fgo没啥关系，但fgo那堆宝具动画不少机战梗
+
+*****
+
+####  requiem116  
+##### 142#       发表于 2026-9-4 22:31
+
+感觉一股老肥肥味但是这就是我想要的
+
+我甚至怀疑会比ff7第三部好玩<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过我看前几个幻兵只有tina有伤害突破，那岂不是输出手都必须练攻击型才行了
+
