@@ -10580,3 +10580,11 @@ K3后审查太厉害
 
 —— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lubo  
+##### 12835#       发表于 2026-9-5 03:12
+
+为什么能用Astra了？别啊，我要重置卡<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
