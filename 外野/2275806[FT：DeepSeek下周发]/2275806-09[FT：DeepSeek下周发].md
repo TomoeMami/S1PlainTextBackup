@@ -10466,3 +10466,52 @@ k3做规划，luna/terra打工看起来是目前的甜点，都用订阅额度�
 
 现在哪个国内的ai最适合用来进行深度的讨论，比如探讨某个哲学思想，某种社会现象？一直用的网页版d4p，k3在这方面会更强一点吗？
 
+
+*****
+
+####  lactone  
+##### 12826#       发表于 2026-9-5 01:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204941&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-9-5 01:57</a>
+现在哪个国内的ai最适合用来进行深度的讨论，比如探讨某个哲学思想，某种社会现象？一直用的网页版d4p，k3 ...</blockquote>
+k3比较强
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  舞以  
+##### 12827#       发表于 2026-9-5 01:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204941&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-9-5 01:57</a>
+
+现在哪个国内的ai最适合用来进行深度的讨论，比如探讨某个哲学思想，某种社会现象？一直用的网页版d4p，k3 ...</blockquote>
+我用下来感觉差不多，kimi的强项是他们第一方做了很多skill和插件，搜集信息的能力感觉还是比较强的。
+
+而且kimi贵不少😄，我用k3做一个深度研究，再修改一下，最后导出成pdf，烧了199订阅的月额度的8%左右。
+
+*****
+
+####  御坂MKII  
+##### 12828#       发表于 2026-9-5 02:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203891&amp;ptid=2275806" target="_blank">木水风铃 发表于 2026-9-4 21:35</a>
+
+Codex可以吗？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+codex 可以，codex 也可以写 sub agent 的预设
+
+做一个稳定的 workflow 是能行的
+
+*****
+
+####  杀人鲸  
+##### 12829#       发表于 2026-9-5 02:03
+
+话说各位，我突然是真的感觉有点儿不对呀。最近 DeepSeek 客户端更新的频率真的非常高。
+3 个小时前，我发现手机上的系统商城又弹出可以更新了，更新到 245 了。
+在上个月到这个月内，起码更新了 5 次以上。所以，大的真的要来了吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
