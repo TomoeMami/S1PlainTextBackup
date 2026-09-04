@@ -7134,3 +7134,49 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 他这个拼刀到底是怎么判定的，我按的已经飞快了还是输
 
+
+*****
+
+####  灰色的狐狸  
+##### 1411#       发表于 2026-9-5 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204780&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-4 10:25</a>
+他这个拼刀到底是怎么判定的，我按的已经飞快了还是输</blockquote>
+看那条光
+横的重攻击
+纵的轻攻击
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  红魔馆的糖  
+##### 1412#       发表于 2026-9-5 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204792&amp;ptid=2210366" target="_blank">灰色的狐狸 发表于 2026-9-5 00:30</a>
+看那条光
+横的重攻击
+纵的轻攻击</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mai6696  
+##### 1413#       发表于 2026-9-5 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204780&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-5 00:25</a>
+
+他这个拼刀到底是怎么判定的，我按的已经飞快了还是输</blockquote>
+僵持是需要你连打。
+
+连续拼刀是需要你换一个键了。
+
+*****
+
+####  医生狼多  
+##### 1414#       发表于 2026-9-5 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204780&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-5 00:25</a>
+他这个拼刀到底是怎么判定的，我按的已经飞快了还是输</blockquote>
+你说的角力还是相杀啊，角力连按 相杀的话你用单手攻击则按双手，用双手则按单手
+

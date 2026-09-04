@@ -10410,3 +10410,13 @@ Zcode用着还行，到20号为止晚上免费用glm5.3-flash
 
 随便想了个我评判agi或者说computer  use是否好用的场景，就是能完全自主的做一个游戏道具测评视频，比如法环骨灰测评带完整的录屏演示，不知道astra能不能做到 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  startraveller  
+##### 12821#       发表于 2026-9-5 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204349&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-4 22:46</a>
+唐老师说的是明年啊</blockquote>
+那就祝他GLM5.5顺利吧
+
