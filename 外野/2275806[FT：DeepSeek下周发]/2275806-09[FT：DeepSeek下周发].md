@@ -8527,3 +8527,52 @@ k3 特别是复杂系统设计、大项目规划方面确实目前还是国产�
 flash模型搞这个还有点意思，旗舰模型没人舍得用那么贵的token来进行电脑日常操作吧 ...</blockquote>
 订阅的话 GPT 的 token 单价很低的，消耗还好
 
+
+*****
+
+####  Promeus  
+##### 12640#       发表于 2026-9-4 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199954&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-4 09:37</a>
+我看有消息说ds团队算国内模型厂最重视数学的，但是和oa两家比资源还是受限不少。
+
+论坛助手,iPhone ...</blockquote>
+会特意做数学模型就足以说明重视了，另外我说错了不是terminus是Speciale<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 12641#       发表于 2026-9-4 09:52
+
+果然开始炒arc-agi-3这个benchmark 了
+
+然而前几天老黄就把这个bench刷到100%了没人提<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  AraTurambar  
+##### 12642#       发表于 2026-9-4 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200067&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-4 09:52</a>
+
+果然开始炒arc-agi-3这个benchmark 了
+
+然而前几天老黄就把这个bench刷到100%了没人提</blockquote>
+老黄那几个模型到底是个什么说法？
+
+*****
+
+####  omnitoken  
+##### 12643#       发表于 2026-9-4 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200074&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-4 09:53</a>
+老黄那几个模型到底是个什么说法？</blockquote>
+用的特调harness吧
+
+类比成人类把攻略心得记笔记本上不停试
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
