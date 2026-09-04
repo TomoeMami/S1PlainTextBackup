@@ -10227,3 +10227,48 @@ Codex可以吗？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  舞以  
+##### 12803#       发表于 2026-9-4 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203876&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-4 21:33</a>
+彭博说华子给梁子弄了16万张950dt准备在内蒙用上</blockquote>
+梁子的黑屁被听到了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  phorcys02  
+##### 12804#       发表于 2026-9-4 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203871&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-4 21:32</a>
+
+command code的dsv4flash好像量化有点狠，群友测体素建模能力烂完了，就比基元律动那个彻底失败无法运行的 ...</blockquote>
+command code 的 v4f 本周2-3还是哪天切了流口水的量化版本
+
+之前的时候300token/s 稍微量化的版本还凑合。现在不行了
+
+*****
+
+####  jojog  
+##### 12805#       发表于 2026-9-4 21:41
+
+<blockquote>宏. 发表于 2026-9-4 19:53
+</blockquote>
+不是波多野结衣了？
+
+
+*****
+
+####  tonyunreal  
+##### 12806#       发表于 2026-9-4 21:47
+
+<img src="https://p.sda1.dev/34/8619346f35c67949a9cfa71942ca25d5/1000049055.jpg" referrerpolicy="no-referrer">
+
+B开头媒体又在造谣，我不信<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

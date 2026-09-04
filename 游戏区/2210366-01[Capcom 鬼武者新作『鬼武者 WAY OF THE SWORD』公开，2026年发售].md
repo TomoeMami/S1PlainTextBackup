@@ -6934,3 +6934,14 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  哈罗  
+##### 1389#       发表于 2026-9-4 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203584&amp;ptid=2210366" target="_blank">舌怪 发表于 2026-9-4 20:40</a>
+
+我选的日语配音，怎么感觉人物口型对不上啊？其他语言也这样吗？</blockquote>
+用的是循环blabla口型，压根没做匹配
+

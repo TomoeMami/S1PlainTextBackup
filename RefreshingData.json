@@ -671,7 +671,7 @@
     "newtitle": "[「风都侦探」2022年8月  动画制作：STUDIO KAI]",
     "lastedit": 1788270125,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1999308": {
@@ -2520,10 +2520,10 @@
     "update": false
   },
   "2071223": {
-    "totalreply": 4650,
+    "totalreply": 4652,
     "title": "[富坚义博 开设官推『全职猎人 ／ HUNTER×HUNTER』10月24日复刊！]",
     "newtitle": "[富坚义博 开设官推『全职猎人 ／ HUNTER×HUNTER』421话起休刊]",
-    "lastedit": 1788528246,
+    "lastedit": 1788529565,
     "category": "漫区",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 46462,
+    "totalreply": 46464,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》8.20 万念证心 一剑清平]",
-    "lastedit": 1788528845,
+    "lastedit": 1788529687,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 44513,
+    "totalreply": 44514,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1788529086,
+    "lastedit": 1788529447,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12078,10 +12078,10 @@
     "update": false
   },
   "2148902": {
-    "totalreply": 723,
+    "totalreply": 724,
     "title": "[网易二次元开放世界新游《无限大》，交流群 793355681]",
     "newtitle": "[网易二次元开放世界新游《无限大》，交流群 793355681]",
-    "lastedit": 1788511325,
+    "lastedit": 1788529687,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 20023,
+    "totalreply": 20024,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼7月]",
-    "lastedit": 1788523086,
+    "lastedit": 1788529687,
     "category": "外野",
     "active": true,
     "update": false
@@ -12609,10 +12609,10 @@
     "update": false
   },
   "2271540": {
-    "totalreply": 5453,
+    "totalreply": 5454,
     "title": "[黄金又又回四位数了，真是跌宕起伏啊]",
     "newtitle": "[黄金又又回四位数了，真是跌宕起伏啊——更新，899了，兄弟们，躺下！]",
-    "lastedit": 1788527766,
+    "lastedit": 1788529687,
     "category": "外野",
     "active": true,
     "update": false
@@ -12735,10 +12735,10 @@
     "update": false
   },
   "2273722": {
-    "totalreply": 1606,
+    "totalreply": 1607,
     "title": "[《红色沙漠》15分钟实机演示，全中文配音，类上古卷轴龙信的韩国代餐]",
     "newtitle": "[《红色沙漠：增强版》公布，全中文配音，韩国西幻RPG大作，全新DLC10月上市]",
-    "lastedit": 1788527166,
+    "lastedit": 1788529207,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 12802,
+    "totalreply": 12806,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[Gemini 3.8 flash、Claude Fable 5.1已上线，静待Astra ｜ 大模型讨论专楼]",
-    "lastedit": 1788529087,
+    "lastedit": 1788529687,
     "category": "外野",
     "active": true,
     "update": false
@@ -13149,10 +13149,10 @@
     "update": false
   },
   "2210366": {
-    "totalreply": 1388,
+    "totalreply": 1389,
     "title": "[Capcom 鬼武者新作『鬼武者 WAY OF THE SWORD』公开，2026年发售]",
     "newtitle": "[Capcom 鬼武者新作『鬼武者 WAY OF THE SWORD』公开，2026年9月4日发售]",
-    "lastedit": 1788528366,
+    "lastedit": 1788529207,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13401,10 +13401,10 @@
     "update": false
   },
   "2273774": {
-    "totalreply": 493,
+    "totalreply": 494,
     "title": "[尼古喵喵 TV动画化 2026年7月]",
     "newtitle": "[尼古喵喵 TV动画化 2026年7月]",
-    "lastedit": 1788525012,
+    "lastedit": 1788529565,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14350,15 +14350,6 @@
     "title": "[有没有哪些游戏开发了一种玩法以后，可以无脑过最高难度。]",
     "newtitle": "[有没有哪些游戏开发了一种玩法以后，可以无脑过最高难度。]",
     "lastedit": 1787355846,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2274413": {
-    "totalreply": 64,
-    "title": "[英雄联盟格斗游戏《2XKO》宣布缩减团队规模]",
-    "newtitle": "[英雄联盟格斗游戏《2XKO》宣布缩减团队规模]",
-    "lastedit": 1787319606,
     "category": "游戏区",
     "active": false,
     "update": false
@@ -16659,10 +16650,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 5343,
+    "totalreply": 5354,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1788528845,
+    "lastedit": 1788529447,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17352,10 +17343,10 @@
     "update": false
   },
   "2288933": {
-    "totalreply": 122,
+    "totalreply": 124,
     "title": "[俄乌9月楼]",
     "newtitle": "[俄乌9月楼]",
-    "lastedit": 1788528125,
+    "lastedit": 1788529447,
     "category": "外野",
     "active": true,
     "update": false
@@ -17622,10 +17613,10 @@
     "update": false
   },
   "2289082": {
-    "totalreply": 156,
+    "totalreply": 157,
     "title": "[赛力斯8月销量同比大跌]",
     "newtitle": "[赛力斯8月销量同比大跌]",
-    "lastedit": 1788521287,
+    "lastedit": 1788529448,
     "category": "外野",
     "active": true,
     "update": false
@@ -17937,10 +17928,10 @@
     "update": false
   },
   "2283081": {
-    "totalreply": 136,
+    "totalreply": 137,
     "title": "[FINAL FANTASY RESONANCE公开，hd2d风格，10.23发售]",
     "newtitle": "[FINAL FANTASY RESONANCE公开，hd2d风格，10.23发售]",
-    "lastedit": 1788525969,
+    "lastedit": 1788529206,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -18000,10 +17991,10 @@
     "update": false
   },
   "2289184": {
-    "totalreply": 108,
+    "totalreply": 109,
     "title": "[轮到我了，胡姓女孩起名]",
     "newtitle": "[轮到我了，胡姓女孩起名]",
-    "lastedit": 1788528728,
+    "lastedit": 1788529447,
     "category": "外野",
     "active": true,
     "update": false
@@ -18099,10 +18090,10 @@
     "update": false
   },
   "2289222": {
-    "totalreply": 92,
+    "totalreply": 96,
     "title": "[对面的大统领这是又出了什么大事？]",
     "newtitle": "[对面的大统领这是又出了什么大事？]",
-    "lastedit": 1788529087,
+    "lastedit": 1788529687,
     "category": "外野",
     "active": true,
     "update": false
