@@ -406,3 +406,15 @@ yuno：我不想有过家家的友情，但是我已经被天意的大手按着�
 
 无厘头神作，最适合配电棍音的作品
 
+
+*****
+
+####  雷攻姛人  
+##### 429#       发表于 2026-9-4 08:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199221&amp;ptid=2283962" target="_blank">是谁的书画 发表于 2026-9-4 03:08</a>
+这剧情真不是乱编，后藤绿和制作组们是有构思的。
+
+要明白的一点就是这个mewtype是一个神人团，这个团的目的 ...</blockquote>
+编剧：我没想那么多<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

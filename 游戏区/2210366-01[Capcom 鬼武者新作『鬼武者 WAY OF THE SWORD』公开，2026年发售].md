@@ -5718,3 +5718,22 @@ ps5pro帧率模式下，开启光追有多少影响，刚打个开头感觉也�
 
 —— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Jabeck  
+##### 1258#       发表于 2026-9-4 08:00
+
+ 本帖最后由 Jabeck 于 2026-9-4 08:02 编辑 
+
+把最高难度放出来还有救，直播效果也会好很多。卡婊是犯了什么SB，低难度扩展受众，高难度也要藏着掖着，分段式更新更傻了吧。
+
+*****
+
+####  conanoysq  
+##### 1259#       发表于 2026-9-4 08:02
+
+打完枭兽为止的流程，战斗部分都和demo正常流程没啥乐趣的，太缺少压力，包括boss，招式可读性太强，化劲弹刀的判定太长，只要以快速削精为目的，慢刀以外的所有招式都弹刀，不贪刀，boss打起来都是一个模式。但愿后面的boss真的能像媒体说的“越来越难”吧<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
