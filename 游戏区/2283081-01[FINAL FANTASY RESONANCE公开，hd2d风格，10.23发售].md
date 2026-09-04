@@ -1411,3 +1411,24 @@ demo差不多半个小时处的进度，有一种极其强烈的手游教程到�
 
 好经典的FF味，最近正好刚打完FF2像素复刻。上来小怪就是变异鼠真亲切。话说这个大招演出真的好FGO啊，虽然理论上讲FGO应该也是学的别的游戏的演出，但是纸片人这一点真的太有既视感了。话说这个游戏的手游原来有过国服吗，那岂不是很多人都玩过了一点惊喜都没有了。
 
+
+*****
+
+####  suzakushi  
+##### 139#       发表于 2026-9-4 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203895&amp;ptid=2283081" target="_blank">thez 发表于 2026-9-4 21:37</a>
+
+玩NS2完全没震动，PS5也没有吗</blockquote>
+PS5也没有，感觉这游戏可能压根没有震动功能。
+
+
+*****
+
+####  wwmmddqqbbpp  
+##### 140#       发表于 2026-9-4 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204050&amp;ptid=2283081" target="_blank">空洞骑士 发表于 2026-9-4 22:01</a>
+好经典的FF味，最近正好刚打完FF2像素复刻。上来小怪就是变异鼠真亲切。话说这个大招演出真的好FGO啊，虽然 ...</blockquote>
+这游戏只能算素材复用，剧情有改动，系统也是新的
+
