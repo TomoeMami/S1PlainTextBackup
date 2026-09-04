@@ -8576,3 +8576,53 @@ flash模型搞这个还有点意思，旗舰模型没人舍得用那么贵的tok
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  AraTurambar  
+##### 12644#       发表于 2026-9-4 09:59
+
+我现在感觉groq和cerebras这几个厂是不是走歪了。
+
+fireworks用gpu加特制cuda跑顶级模型都这么快，他们还是只有gpt-oss。
+
+*****
+
+####  lactone  
+##### 12645#       发表于 2026-9-4 10:01
+
+怎么开始灭鳖了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+又忘了当时fable时怎么灭的吗
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  AraTurambar  
+##### 12646#       发表于 2026-9-4 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200124&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-4 10:01</a>
+
+怎么开始灭鳖了
+
+又忘了当时fable时怎么灭的吗</blockquote>
+fable没有zdr，谁用啊。这次astra也是一样吗？
+
+*****
+
+####  heemoon  
+##### 12647#       发表于 2026-9-4 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199777&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-9-4 09:11</a>
+k3目前是国产模型用得最舒服的，有些方面比gpt-5.6表现好，做ppt更是没有对手，就是慢了点，贵了点。 ...</blockquote>
+这个确实，国外模型没试过，国内几个里k3的审美最好，做ppt比大肥鱼好看太多了，就是太贵。我有时会让k3先做个几页，然后剩下的用ds4f模仿着做，也算差强人意<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 12648#       发表于 2026-9-4 10:06
+
+又像fable看齐了，以后还会有gpt6 sol啥的
+
