@@ -8861,3 +8861,61 @@ ds最出彩的还是模型架构和infra
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">k3订阅还是不给买
 
+
+*****
+
+####  舞以  
+##### 12674#       发表于 2026-9-4 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200548&amp;ptid=2275806" target="_blank">FACS 发表于 2026-9-4 10:57</a>
+
+k3订阅还是不给买</blockquote>
+不是预约点一下就直接开放了么<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 12675#       发表于 2026-9-4 10:59
+
+我就抽到过一次，这模型感觉就是很自信的往前推，V4现在就是不停but wait左右互搏，风格都不一样，光靠后训练很难达到。现在就好奇架构到底是什么，毕竟V4FV的灰测出现了流式的I'm doing，转写可能性大幅降低了。
+
+*****
+
+####  舞以  
+##### 12676#       发表于 2026-9-4 11:00
+
+<img src="https://img.stage1st.com/forum/202609/04/110016gypxambaynbsxsym.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (162.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 11:00 上传
+
+难绷，严肃的国际大厂的发布也能这么整蛊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AraTurambar  
+##### 12677#       发表于 2026-9-4 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200560&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-4 10:59</a>
+
+我就抽到过一次，这模型感觉就是很自信的往前推，V4现在就是不停but wait左右互搏，风格都不一样，光靠后训 ...</blockquote>
+V4F反正便宜也无所谓吧。
+
+我反正就kimi用得心痛，v4f那都是“kimi你生几个subagent随便搞”。
+
+v4p那纯粹就是意义不明的玩意。
+
+*****
+
+####  xiaohanne  
+##### 12678#       发表于 2026-9-4 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200523&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-4 10:55</a>
+
+我看前面你不是抽到灰测了吗？这个不是V4.1也是V5了，思维链完全不一样，大概率重新预训练过。 ...</blockquote>
+频繁灰测只会让工作流变得不可靠，我个人其实觉得这个做法是有点问题的。
+
