@@ -10300,3 +10300,30 @@ command code 的 v4f 本周2-3还是哪天切了流口水的量化版本
 之前的时候300token/s 稍微量化的版本还凑合 ...</blockquote>
 干活还得api，最好fireworks这样的第三方可审计的，指望各种打包计价的白送的打折的plan真不行，说降智就降智。
 
+
+*****
+
+####  cscbzcbz  
+##### 12810#       发表于 2026-9-4 21:58
+
+内蒙这个得27年了吧，远水解不了近 渴<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 12811#       发表于 2026-9-4 21:59
+
+16万张950dt，做推理估计够用了，看能不能降价了
+
+训练可能还得靠梁子的超时空算力中心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thq  
+##### 12812#       发表于 2026-9-4 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203871&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-4 21:32</a>
+
+command code的dsv4flash好像量化有点狠，群友测体素建模能力烂完了，就比基元律动那个彻底失败无法运行的 ...</blockquote>
+他家往提示词里塞了很多怪东西， 经常“这轮额度快用完了， 我要尽快向用户提交结论”。我用deepseek官方的从来没见过这种。然后dsv4f-fast 到了一百多快两百k 的context就经常出现各种断片一样的工具调用失败还有 DO IT NOW！之类的输出。 体现下来勉强能干活， 但远没有ds官方的那么顺畅。
+

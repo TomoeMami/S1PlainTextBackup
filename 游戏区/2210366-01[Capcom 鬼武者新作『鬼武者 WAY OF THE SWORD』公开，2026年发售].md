@@ -6960,3 +6960,13 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 这鵺兽打了的人有谁能绷住啊，纯纯牙龙种集大成，铁公鸡卡表甚至没一招是新动作，我真服了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  断翼  
+##### 1392#       发表于 2026-9-4 22:01
+
+<blockquote>asikies 发表于 2026-9-4 19:29
+我觉得阿国挺好的，很真实的未成年脸，看入迷了。</blockquote>
+设计思路感觉和新鬼的柳生十兵卫茜一模一样，结尾也和茜差不多
+
