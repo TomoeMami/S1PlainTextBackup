@@ -6945,3 +6945,18 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 我选的日语配音，怎么感觉人物口型对不上啊？其他语言也这样吗？</blockquote>
 用的是循环blabla口型，压根没做匹配
 
+
+*****
+
+####  weile10000  
+##### 1390#       发表于 2026-9-4 21:54
+
+卡普空偷工减料，敷衍到连起码的打磨游戏品质的能力和诚意都没有了，是虎头蛇尾成本控制以小博大上瘾了？把游戏制作纯当商品也起码保持下质量吧，有钱买宣发和通稿没钱多做游戏内设计？发售前还有人串什么最佳承伤游戏，什么现代游戏短流程不是缺点，看看这辣鸡的套皮小怪和不如育碧的马桶支线，我都想串真不如明末一根<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RinC  
+##### 1391#       发表于 2026-9-4 21:56
+
+这鵺兽打了的人有谁能绷住啊，纯纯牙龙种集大成，铁公鸡卡表甚至没一招是新动作，我真服了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

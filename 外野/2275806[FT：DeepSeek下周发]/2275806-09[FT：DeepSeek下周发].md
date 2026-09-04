@@ -10272,3 +10272,31 @@ B开头媒体又在造谣，我不信<img src="https://static.stage1st.com/image
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 12807#       发表于 2026-9-4 21:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“取决于华为的产能”
+
+是不是梁子放风出去给菊花施压<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 12808#       发表于 2026-9-4 21:56
+
+16W算个什么，一个超节点9000+卡，十个就没了
+
+*****
+
+####  AraTurambar  
+##### 12809#       发表于 2026-9-4 21:57
+
+<blockquote>phorcys02 发表于 2026-9-4 21:40
+command code 的 v4f 本周2-3还是哪天切了流口水的量化版本
+
+之前的时候300token/s 稍微量化的版本还凑合 ...</blockquote>
+干活还得api，最好fireworks这样的第三方可审计的，指望各种打包计价的白送的打折的plan真不行，说降智就降智。
+
