@@ -3848,3 +3848,11 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 
 巴罗尔的信徒和索雷尔的神官可以谈恋爱吗。<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 3320#       发表于 2026-9-4 21:12
+
+崇拜大反派有点意思。
+

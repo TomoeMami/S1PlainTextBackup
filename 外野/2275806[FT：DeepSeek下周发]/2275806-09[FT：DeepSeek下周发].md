@@ -10170,3 +10170,22 @@ qwen的问题估计就是内部不像其他几家有鲜明的“好模型该咋�
 
 注意你的主要任务是分析、编排和验证，具体任务尽可能交给 subagent（Opus 或 Sonnet）去执行。自己只做需求澄清、方案拆解、任务分发和结果验收，实现类工作（读大量代码、写代码、跑测试、批量修改）一律用 Agent 工具派给 subagent 执行。</blockquote>
 
+
+*****
+
+####  苇原雪道  
+##### 12797#       发表于 2026-9-4 21:05
+
+cc内部自己调用subagent时候会自己切模型么？这一周就给梁子送了几百块，好肉疼
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 12798#       发表于 2026-9-4 21:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203625&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-9-4 20:48</a>
+这边有痕迹未发的已经有 Kimi 3.1（大概率），GLM-6，DSv5，Qwen 4，说不定这个月就全出来了 ...</blockquote>
+Glm6这个真没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
