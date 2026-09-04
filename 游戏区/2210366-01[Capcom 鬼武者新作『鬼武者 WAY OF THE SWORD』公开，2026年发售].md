@@ -7110,3 +7110,27 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  慕兰  
+##### 1408#       发表于 2026-9-5 00:21
+
+二条城残酷物语这段可以给满分，关卡设计氛围营造过场演出，再到结局揭晓和大战，以及最后的演出，整个流程情绪太到位了。
+
+*****
+
+####  桥洞底下盖小被  
+##### 1409#       发表于 2026-9-5 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204582&amp;ptid=2210366" target="_blank">梅斯之围 发表于 2026-9-4 23:35</a>
+这游戏的地图探索有意思吗，听说不光是boss战斗爽</blockquote>
+这游戏不能叫探索，只能叫跑图
+
+*****
+
+####  红魔馆的糖  
+##### 1410#       发表于 2026-9-5 00:25
+
+他这个拼刀到底是怎么判定的，我按的已经飞快了还是输
+
