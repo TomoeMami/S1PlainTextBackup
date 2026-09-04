@@ -7233,3 +7233,23 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 二条城的场景美术和氛围是不错，但仍有注水跑路的成分，而且太多开门很烦躁
 
+
+*****
+
+####  zqqwe  
+##### 1421#       发表于 2026-9-5 01:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这关卡流程太像狒狒16了，除了boss战和过场能打起点精神，跑图和杂兵战全是屎，锁定吸附和调得很恶心
+
+
+*****
+
+####  红魔馆的糖  
+##### 1422#       发表于 2026-9-5 01:33
+
+ 本帖最后由 红魔馆的糖 于 2026-9-5 01:36 编辑 
+
+这个跑图真的困死人了，剧情也无聊的透顶还有丑瞎眼女人，除了打boss没有一丁点正反馈，不行了明天再打<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+这个女人是真的严重影响体验了，我第一次打这种游戏连火鸡场都不想回，回去就是阿国怼脸，每隔一段剧情还有笼手女大脸特写，比boss还吓人<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
