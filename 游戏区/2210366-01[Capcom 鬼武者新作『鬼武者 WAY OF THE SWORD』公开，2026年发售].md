@@ -5928,3 +5928,38 @@ ps5普通版性能模式能稳定60F么，能的话就等个老猎人争取20块
 
 为啥不能一周目就开个高点的难度，demo里那个剑戟难度真有点简单了，隐藏boss难度还不错，就是对于初见来说有点高了，那我打完demo的隐藏boss练出技术以后再玩标准难度一周目可能会觉得太简单吧
 
+
+*****
+
+####  草莓冰激凌  
+##### 1282#       发表于 2026-9-4 11:27
+
+还好当初291买的淘宝高级豪华版礼物，亏不到我头上
+
+
+*****
+
+####  kemyes  
+##### 1283#       发表于 2026-9-4 11:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按这么说是不是PSN港服首发数字版的最亏，518HK换人民币也要440左右
+
+*****
+
+####  zqqwe  
+##### 1284#       发表于 2026-9-4 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200787&amp;ptid=2210366" target="_blank">kemyes 发表于 2026-9-4 11:32</a>
+按这么说是不是PSN港服首发数字版的最亏，518HK换人民币也要440左右</blockquote>
+淘宝点卡有75算的，不到400拿下，少亏点
+
+*****
+
+####  kemyes  
+##### 1285#       发表于 2026-9-4 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200807&amp;ptid=2210366" target="_blank">zqqwe 发表于 2026-9-4 11:35</a>
+
+淘宝点卡有75算的，不到400拿下，少亏点</blockquote>
+对比其它的价格还是很亏啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
