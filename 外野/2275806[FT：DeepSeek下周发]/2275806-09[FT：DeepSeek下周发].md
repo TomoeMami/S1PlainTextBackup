@@ -9639,3 +9639,23 @@ Chat Completion API &lt;400&gt; InternalError.Algo.DataInspectionFailed: Input t
 这个新模型上下文太短了 刚才还死档了一次速度不算慢但是感觉水平没有很明显的提升啊？不会是glm5.3flash高 ...</blockquote>
 有可能是glm5.3 air这样100B级别的模型，主打本地部署的那种吧
 
+
+*****
+
+####  来都来了  
+##### 12750#       发表于 2026-9-4 16:56
+
+【中美AI一哥，屎山巅峰对决｜D组第一轮-哔哩哔哩】 https://b23.tv/xAVHRFB
+
+肥波还是厉害，就是价格用不起
+
+
+*****
+
+####  bad_alloc  
+##### 12751#       发表于 2026-9-4 17:00
+
+现在用v4flash比较便宜的方法是啥呀，opencode go吗，用量不大，只是个人环境写点demo啥的（工作只能用公司内网的垃圾agent）
+
+用api还是有点肉痛，一下子就干出去几十块
+

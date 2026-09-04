@@ -6500,3 +6500,56 @@ https://www.bilibili.com/video/BV1oPtv6eE21
 
 卡普空怎么现在做什么游戏都有股老游戏重置的感觉，这内容架构真就和20年前的老游戏差不多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skgaminger1988  
+##### 1343#       发表于 2026-9-4 16:54
+
+ 本帖最后由 skgaminger1988 于 2026-9-4 16:57 编辑 
+
+大众早搞清楚卡表成本控制的特色了，也就孝子会奇怪为啥预购的人少，果不其然又是经典多投入一毛钱就会死的卡表二线大作<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2458A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  suzakushi  
+##### 1344#       发表于 2026-9-4 16:56
+
+我一直觉得内容多少都好说，体验好就行，但强行通马桶注水拉长游戏时间就太恶心了。还好预载好后还没打开，先进行一个退款了。
+
+
+*****
+
+####  asikies  
+##### 1345#       发表于 2026-9-4 17:00
+
+虽然没量，但也不算精品啊，一个boss来来回回就那几招，还没有变招。
+
+*****
+
+####  theworld  
+##### 1346#       发表于 2026-9-4 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202391&amp;ptid=2210366" target="_blank">桥洞底下盖小被 发表于 2026-9-4 16:28</a>
+
+有一说一，这作中配确实不错，比生化都好一些</blockquote>
+都是一个团队吧，刘北辰夫妻俩那个
+
+*****
+
+####  asikies  
+##### 1347#       发表于 2026-9-4 17:02
+
+说句感觉不如浪人崛起会被打吗？
+
+*****
+
+####  放大镜  
+##### 1348#       发表于 2026-9-4 17:03
+
+旧作也短，而且还是在真有可能死半道的情况下，去除难度影响只会更短
+
+降难度是对的，但难度封顶之后要怎么把实耗时长补回来目前好像也没什么太好的办法，堆料除外
+
