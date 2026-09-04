@@ -3840,3 +3840,11 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 
 没面纹的话算数一数二的帅哥了
 
+
+*****
+
+####  cox  
+##### 3319#       发表于 2026-9-4 20:53
+
+巴罗尔的信徒和索雷尔的神官可以谈恋爱吗。<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

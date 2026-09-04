@@ -461,3 +461,11 @@ NS2版居然不是钥匙卡？
 
 不支持鼠标操作很不舒服。
 
+
+*****
+
+####  林无德  
+##### 48#       发表于 2026-9-4 20:44
+
+我去这键盘键位的设置真是太牛逼了，手柄坏了的人就必须锻炼左手吗<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

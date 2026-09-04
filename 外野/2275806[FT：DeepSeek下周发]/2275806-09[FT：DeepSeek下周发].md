@@ -10085,3 +10085,66 @@ zcode无订阅的直接进就行，今天就能领，明天生效
 
 大概过了及格线后，如果不能100%的做到一件事情，反而是越快得到结果有反馈，通过人来调整更加顺畅。
 
+
+*****
+
+####  startraveller  
+##### 12790#       发表于 2026-9-4 20:48
+
+这边有痕迹未发的已经有 Kimi 3.1（大概率），GLM-6，DSv5，Qwen 4，说不定这个月就全出来了
+
+*****
+
+####  AraTurambar  
+##### 12791#       发表于 2026-9-4 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203625&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-9-4 20:48</a>
+
+这边有痕迹未发的已经有 Kimi 3.1（大概率），GLM-6，DSv5，Qwen 4，说不定这个月就全出来了 ...</blockquote>
+怎么中美回合制了。
+
+
+*****
+
+####  airshit  
+##### 12792#       发表于 2026-9-4 20:52
+
+大参数搭配小参数，大参数规划并指挥小参数，又好又快又省干完活。这样做有可能吗？
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  AraTurambar  
+##### 12793#       发表于 2026-9-4 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203644&amp;ptid=2275806" target="_blank">airshit 发表于 2026-9-4 20:52</a>
+
+大参数搭配小参数，大参数规划并指挥小参数，又好又快又省干完活。这样做有可能吗？
+
+—— 来自 HUAWEI HOP ...</blockquote>
+有啊，大家都是这么干的。
+
+需要耐心调教agent不然会被大模型api烧破产。
+
+*****
+
+####  舞以  
+##### 12794#       发表于 2026-9-4 20:53
+
+等Astra上线蹬两张重置卡的用量，看看到底啥水平，拉了的话下个月就把100刀的订阅钱送给杨圣算了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+k3在coding上我觉得比sol是强的，速度么都半斤八两。
+
+*****
+
+####  舞以  
+##### 12795#       发表于 2026-9-4 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203234&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-9-4 19:33</a>
+
+大部分公开benchmark 其实是垃圾，真的好的benchmark估计都在模型厂内部    Re:Source ...</blockquote>
+qwen的问题估计就是内部不像其他几家有鲜明的“好模型该咋样”的认知
+
+表现出来就是狂刷公开benchmark
+
