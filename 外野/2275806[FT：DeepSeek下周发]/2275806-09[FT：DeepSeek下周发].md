@@ -10730,3 +10730,133 @@ Astra实装了，听说前端代码能力不错啊
 
 token效率高可能和那个loop transformer得技术有关？
 
+
+*****
+
+####  御坂MKII  
+##### 12849#       发表于 2026-9-5 03:27
+
+gpt 更新的怎么这么快，那我 reset 去哪儿领
+
+*****
+
+####  舞以  
+##### 12850#       发表于 2026-9-5 03:27
+
+<img src="https://img.stage1st.com/forum/202609/05/032714vg88xap303oet21t.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (22.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-5 03:27 上传
+
+<img src="https://img.stage1st.com/forum/202609/05/032721vwdu7mv6wmz3tpb1.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (24.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-5 03:27 上传
+
+如果不想用重置卡的话，感觉要天才程序员陨落了喵<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 12851#       发表于 2026-9-5 03:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 12852#       发表于 2026-9-5 03:50
+
+ 本帖最后由 tonyunreal 于 2026-9-5 04:21 编辑 
+
+Astra实装了，听说前端代码能力不错啊
+
+更新：有人被ip检测然后风控变成这样：
+
+<img src="https://p.sda1.dev/34/9782dca85b059d38352d7fe285fc751e/astra-bicycle.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  御坂MKII  
+##### 12853#       发表于 2026-9-5 04:03
+
+ 本帖最后由 御坂MKII 于 2026-9-5 04:05 编辑 
+
+拿了个只有 5.6 可以过的 case 试了试。token efficiency 确实还可以。
+
+可能如果是查 bug 写设计方案这种情况确实反而会省钱？
+
+astra low 这方面的可用性确实比 sol 还高了很多
+
+*****
+
+####  RookieTnT  
+##### 12854#       发表于 2026-9-5 04:15
+
+fable5.1 被 astra 当减速带过了 这 astra 实战效果比基准测试还夸张有没有懂得
+
+3D建模太强了
+
+一句话建模中世纪城堡，已眩晕瘫坐
+
+*****
+
+####  RookieTnT  
+##### 12855#       发表于 2026-9-5 04:15
+
+A\ 吓得偷偷reset了. 
+
+*****
+
+####  RookieTnT  
+##### 12856#       发表于 2026-9-5 04:16
+
+gpt6 这速度好快.. 比傻逼A\的fable5.1快多了.
+
+*****
+
+####  御坂MKII  
+##### 12857#       发表于 2026-9-5 04:57
+
+跑了点儿 case，astra high 比 sol xhigh 从价格上更省。token efficiency 确实不低
+
+国模也该提升这个了
+
+*****
+
+####  RookieTnT  
+##### 12858#       发表于 2026-9-5 04:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205031&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-5 03:50</a>
+Astra实装了，听说前端代码能力不错啊
+
+更新：有人被ip检测然后风控变成这样：</blockquote>
+和 ip 没啥关系 
+只和账号多人分发滥用有关系 
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 12859#       发表于 2026-9-5 05:07
+
+token效率高可能和那个loop transformer得技术有关？
+
+*****
+
+####  木谷高明  
+##### 12860#       发表于 2026-9-5 05:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203644&amp;ptid=2275806" target="_blank">airshit 发表于 2026-9-4 20:52</a>
+大参数搭配小参数，大参数规划并指挥小参数，又好又快又省干完活。这样做有可能吗？
+
+—— 来自 HUAWEI HOP ...</blockquote>
+之前就有GPT最高档带着ds v4 flash小弟干活的，效果不错<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
