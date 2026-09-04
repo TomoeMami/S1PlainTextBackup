@@ -9374,3 +9374,65 @@ gemini这两天怎么老提示我只是个文字ai，生3.8升傻了吗
 怎么还能开倒车的，500k上下文    Re:Source</blockquote>
 参数太大了，只能降低上下文来省成本？
 
+
+*****
+
+####  舞以  
+##### 12723#       发表于 2026-9-4 14:48
+
+智谱的下一代模型？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 12724#       发表于 2026-9-4 14:50
+
+牢梁能不能也来个匿名测试啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  GGB  
+##### 12725#       发表于 2026-9-4 14:50
+
+minimax m3.1?
+
+—— 来自 vivo V2337A, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  tonyunreal  
+##### 12726#       发表于 2026-9-4 14:51
+
+看主播测试omen alpha要笑死了
+300tok/s狂奔，代码一波生成不测试
+
+不是小米那也是和小米卧龙凤雏级别的高手 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  RookieTnT  
+##### 12727#       发表于 2026-9-4 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201811&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-4 14:46</a>
+
+怎么还能开倒车的，500k上下文   
+
+k3竟然免费了，不过trae实在不好用 Re:Source</blockquote>
+不知道是air还是新基座. 
+
+
+*****
+
+####  nxmonitor  
+##### 12728#       发表于 2026-9-4 14:54
+
+ 本帖最后由 nxmonitor 于 2026-9-4 14:57 编辑 
+
+看输出速度，可能GLM5.5，500K这是注意力练炸了
+
