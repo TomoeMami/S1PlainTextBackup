@@ -9476,3 +9476,57 @@ k3竟然免费了，不过trae实在不好用 Re:Source</blockquote>
 
 每次瞟见它就下意识无视这一行标题了，然后还上下划拉着找帖子“咦，大模型专楼呢？”
 
+
+*****
+
+####  御坂MKII  
+##### 12733#       发表于 2026-9-4 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200254&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-4 10:19</a>
+
+今天就指望不了ds了吧，完全一点风声都没有，全是我的臆想
+
+话说dsh现在走webui ，如果后面想跟进computer  ...</blockquote>
+要正经操纵电脑就需要 gui app，web ui 的 app 本质就是一个 terminal app 加一个 http server，这样是没法动 gui 的东西的
+
+*****
+
+####  lactone  
+##### 12734#       发表于 2026-9-4 15:31
+
+这半年国模压力会特别大<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  未知伤亡  
+##### 12735#       发表于 2026-9-4 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201988&amp;ptid=2275806" target="_blank">orca 发表于 2026-9-4 15:15</a>
+
+标题里的哈基米能不能去掉了？已经好几次害我错过这个帖子了
+
+每次瞟见它就下意识无视这一行标题了，然后还 ...</blockquote>
+人类竟然也有脏token<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 12736#       发表于 2026-9-4 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202100&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-9-4 15:31</a>
+要正经操纵电脑就需要 gui app，web ui 的 app 本质就是一个 terminal app 加一个 http server，这样是没 ...</blockquote>
+没这么麻烦，dsh现在用node后端能做的事多了去了，只是控制电脑那方法很多，我是很奇怪上面为什么会觉得webui做computer use会有限制
+
+*****
+
+####  御坂MKII  
+##### 12737#       发表于 2026-9-4 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202125&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-4 15:35</a>
+
+没这么麻烦，dsh现在用node后端能做的事多了去了，只是控制电脑那方法很多，我是很奇怪上面为什么会觉得w ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 反正就是需要有一个 gui 的壳应用才行，在桌面环境启动的应用才可以去真的进行各种鼠标操作以及截图之类的
+
