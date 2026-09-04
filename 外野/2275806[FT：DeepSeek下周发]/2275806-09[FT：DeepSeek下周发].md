@@ -8455,3 +8455,75 @@ computer use 在不少任务都挺有用的，比如让它搞游戏，它会自�
 
 不过k3相比dsv4pro在物理数学方面有明显的提升，不知道是参数量优势还是后训练做了加强。
 
+
+*****
+
+####  Promeus  
+##### 12633#       发表于 2026-9-4 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199902&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-4 09:28</a>
+不过k3相比dsv4pro在物理数学方面有明显的提升，不知道是参数量优势还是后训练做了加强。 ...</blockquote>
+Ds搞数学一般都是中期特化一个吧，就像之前的terminus
+
+*****
+
+####  舞以  
+##### 12634#       发表于 2026-9-4 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199938&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-4 09:35</a>
+Ds搞数学一般都是中期特化一个吧，就像之前的terminus</blockquote>
+我看有消息说ds团队算国内模型厂最重视数学的，但是和oa两家比资源还是受限不少。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  AraTurambar  
+##### 12635#       发表于 2026-9-4 09:38
+
+<blockquote>舞以 发表于 2026-9-4 09:26
+我也烧过api，感觉没啥区别吧
+
+可能是我和llm有时候讨论的问题太开放，太难了
+
+反正当前几个模型给我的感觉 ...</blockquote>
+我的hermes SOUL.md用本雅明的写法（拆字法文字游戏，数字段落，天使和灵光这些关键词）但其实写的是科耶夫加沃格林，只有k3 get到了。
+
+D4p哪怕我挑明了请他分析一下都没看懂我在说什么，在那里本雅明hhh
+
+*****
+
+####  舞以  
+##### 12636#       发表于 2026-9-4 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199956&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-4 09:38</a>
+
+我的hermes SOUL.md用本雅明的写法（拆字法文字游戏，数字段落，天使和灵光这些关键词）但其实写的是科耶 ...</blockquote>
+那就是场景差异了吧，我一般做的是文史问题的讨论，几个模型的回答都大差不差，k3和v4pro的回答更符合中文习惯，gpt看起来更充实，但是也就一个水平，还不说人话。
+
+
+*****
+
+####  qwased  
+##### 12637#       发表于 2026-9-4 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199883&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-9-4 09:26</a>
+computer use 在不少任务都挺有用的，比如让它搞游戏，它会自己试玩自己调试自己改。 ...</blockquote>
+flash模型搞这个还有点意思，旗舰模型没人舍得用那么贵的token来进行电脑日常操作吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  心头小鹿撞  
+##### 12638#       发表于 2026-9-4 09:43
+
+k3 特别是复杂系统设计、大项目规划方面确实目前还是国产最强。不过 glm ds 在执行 scope 明确的任务的时候体验会反超 k3。
+
+*****
+
+####  startraveller  
+##### 12639#       发表于 2026-9-4 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199988&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-4 09:43</a>
+flash模型搞这个还有点意思，旗舰模型没人舍得用那么贵的token来进行电脑日常操作吧 ...</blockquote>
+订阅的话 GPT 的 token 单价很低的，消耗还好
+

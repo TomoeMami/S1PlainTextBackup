@@ -411,3 +411,11 @@ F91原来也是T1，当初运气还不错给满破了<img src="https://static.st
 
 想续1000日元的月卡，结果【此版本的应用未配置为通过Google Play结算】，但是商店里面买了个东西测试是正常的，这是哪里出了问题<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 4669#       发表于 2026-9-4 09:37
+
+DX和强自跟命运正义在一档，柯西金鸟甚至还低一档，甚至还强调是PVE的...这榜没有参考价值啊
+

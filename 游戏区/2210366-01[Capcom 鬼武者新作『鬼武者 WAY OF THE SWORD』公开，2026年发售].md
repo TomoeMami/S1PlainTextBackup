@@ -5757,3 +5757,20 @@ ps5pro帧率模式下，开启光追有多少影响，刚打个开头感觉也�
 
 —— 来自 HUAWEI LMR-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  乔迪奥  
+##### 1262#       发表于 2026-9-4 09:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">反派是不是原本打算找北野武当脸摸，后来预算不够了
+
+*****
+
+####  zqqwe  
+##### 1263#       发表于 2026-9-4 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199986&amp;ptid=2210366" target="_blank">乔迪奥 发表于 2026-9-4 09:43</a>
+反派是不是原本打算找北野武当脸摸，后来预算不够了</blockquote>
+都觉得像北野武，不过我觉得三木这声线太年轻了和角色表情很不搭，伪人感很强
+
