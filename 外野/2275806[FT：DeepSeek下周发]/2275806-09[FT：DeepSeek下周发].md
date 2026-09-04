@@ -10347,3 +10347,13 @@ command code的dsv4flash好像量化有点狠，群友测体素建模能力烂�
 Glm6这个真没有</blockquote>
 我也不知道，不过唐老师财报会吹了半天
 
+
+*****
+
+####  Promeus  
+##### 12815#       发表于 2026-9-4 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204202&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-9-4 22:25</a>
+我也不知道，不过唐老师财报会吹了半天</blockquote>
+唐老师说的是明年啊<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

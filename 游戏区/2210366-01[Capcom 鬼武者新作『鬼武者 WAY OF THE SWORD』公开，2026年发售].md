@@ -7003,3 +7003,11 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 一路直奔主线当线性act玩，砍爽了，我已原谅卡普空，还是好玩的。
 
+
+*****
+
+####  Gigax  
+##### 1397#       发表于 2026-9-4 22:56
+
+真的觉得把探索部分全部去掉就做一个十小时流程的游戏还更好，通关解锁boss rush战斗爽<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

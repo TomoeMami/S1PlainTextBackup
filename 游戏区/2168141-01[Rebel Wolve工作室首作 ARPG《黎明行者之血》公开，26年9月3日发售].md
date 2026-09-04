@@ -1059,3 +1059,27 @@ N网有解锁过场30帧的补丁了，但是好像过场的人物动作和面�
 
 地形卡脚死好几次了
 
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 98#       发表于 2026-9-4 22:47
+
+DLSS5对比
+
+<img src="https://img.stage1st.com/forum/202609/04/224711kpgspxsvhsoh3qlp.png" referrerpolicy="no-referrer">
+
+<strong>The Blood of Dawnwalker Screenshot 2026.09.04 - 22.33.54.69.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 22:47 上传
+
+<img src="https://img.stage1st.com/forum/202609/04/224711m5sza1117rz4k1rx.png" referrerpolicy="no-referrer">
+
+<strong>The Blood of Dawnwalker Screenshot 2026.09.04 - 22.39.27.76.png</strong> (1014.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 22:47 上传
+
