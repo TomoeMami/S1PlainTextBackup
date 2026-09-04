@@ -9321,3 +9321,56 @@ gemini这两天怎么老提示我只是个文字ai，生3.8升傻了吗
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“DeepSeek是大家的老师”
 
+
+*****
+
+####  RookieTnT  
+##### 12718#       发表于 2026-9-4 14:42
+
+疑似智谱的新匿名模型Omen Alpha上线OpenCode 和竞技场
+
+脏token命中
+
+多模态
+
+500k上下文
+
+*****
+
+####  xiaohanne  
+##### 12719#       发表于 2026-9-4 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201621&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-4 14:14</a>
+
+发现腾讯的codebuddy cli把dsh的四个模式原封不动抄过去了，名字都一样</blockquote>
+那毕竟是藤子
+
+*****
+
+####  王兰花秀丽  
+##### 12720#       发表于 2026-9-4 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201791&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-4 14:42</a>
+疑似智谱的新匿名模型Omen Alpha上线OpenCode 和竞技场
+
+脏token命中</blockquote>
+怎么还能开倒车的，500k上下文    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  七氷  
+##### 12721#       发表于 2026-9-4 14:47
+
+触发了企鹅祖传艺能<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zy450  
+##### 12722#       发表于 2026-9-4 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201811&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-4 14:46</a>
+
+怎么还能开倒车的，500k上下文    Re:Source</blockquote>
+参数太大了，只能降低上下文来省成本？
+
