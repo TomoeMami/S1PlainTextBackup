@@ -9620,3 +9620,11 @@ Chat Completion API &lt;400&gt; InternalError.Algo.DataInspectionFailed: Input t
 
 桌面应用挂着一个内置浏览器+html的前端，跟调用浏览器打开的纯web应用，这是两回事吧，虽然可能都可以叫webui但本质完全不同
 
+
+*****
+
+####  M乔梦  
+##### 12748#       发表于 2026-9-4 16:40
+
+我超，大号终于活了。不敢在泥潭聊破限破甲了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
