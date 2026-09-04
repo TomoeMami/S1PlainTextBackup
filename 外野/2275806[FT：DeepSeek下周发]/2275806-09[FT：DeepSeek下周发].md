@@ -9073,3 +9073,13 @@ astra的额度规则
 红迪老哥：别给我astra了，每天给我重置卡就行</blockquote>
 这个是chat模式吧
 
+
+*****
+
+####  舞以  
+##### 12693#       发表于 2026-9-4 11:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Fable5.1降了缓存价格，但是claude的订阅只有一半的额度能拿来跑Fable，Astra目前公布的缓存价格贵不少，但是好像没有类似的规定。
+
+就看到时候具体啥疗效了
+

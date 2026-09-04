@@ -930,3 +930,13 @@ https://www.neogafimages.com/105958/qbhmt44usy1d5z8o.gif
 
 这游戏开DLSS5不开DLAA的话画面会不稳定有闪动，DLAA+DLSS5我70ti大概是二十二三帧，开帧生成四十多，不能选倍数，换到2K后能到70帧
 
+
+*****
+
+####  ybh971365  
+##### 86#       发表于 2026-9-4 11:53
+
+N网有解锁过场30帧的补丁了，但是好像过场的人物动作和面部是依照30帧来做的，即使解锁了看着也会有些卡顿
+
+[https://www.nexusmods.com/thebloodofdawnwalker/mods/22?tab=posts](https://www.nexusmods.com/thebloodofdawnwalker/mods/22?tab=posts)
+
