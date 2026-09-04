@@ -6784,3 +6784,13 @@ IGN 10这么快就陨落了吗？
 中期开始节奏好不少，因为敌人和boss难度提升了，就**打打怪感觉还不错，怒伐天和弁庆打得很爽 ...</blockquote>
 当你知道怒伐天只是精英怪以后
 
+
+*****
+
+####  银色天空  
+##### 1373#       发表于 2026-9-4 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203098&amp;ptid=2210366" target="_blank">winder0707 发表于 2026-9-4 19:01</a>
+当你知道怒伐天只是精英怪以后</blockquote>
+我知道，所以还有点惊讶，招式比百秽多不少
+

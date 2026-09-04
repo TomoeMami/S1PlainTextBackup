@@ -9876,3 +9876,20 @@ Gemini pro后的这一波coding浪潮实际上是a\带起来的，现在openai�
 
 如果撑不起业绩那还是一上市就连环爆
 
+
+*****
+
+####  jinuzuktII  
+##### 12772#       发表于 2026-9-4 19:06
+
+很同意某个随机刷到的观点
+
+模型评测的手段太匮乏了，又乱又主观
+
+*****
+
+####  haiuhfuwah  
+##### 12773#       发表于 2026-9-4 19:09
+
+付费能力强的用户需要的能力才是模型需要并且应该优先解决的能力。像oneshot做游戏 有什么意义吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
