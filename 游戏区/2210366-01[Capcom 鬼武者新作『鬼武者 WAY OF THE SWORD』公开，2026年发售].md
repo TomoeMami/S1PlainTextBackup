@@ -5792,3 +5792,24 @@ ps5pro帧率模式下，开启光追有多少影响，刚打个开头感觉也�
 
 可动作这块，架招弹返安全可靠太多了，这一闪就好像后来添加的一样，连特效都基本全无，整体也不见得动作有多精妙
 
+
+*****
+
+####  草莓冰激凌  
+##### 1266#       发表于 2026-9-4 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200154&amp;ptid=2210366" target="_blank">winder0707 发表于 2026-9-4 10:06</a>
+
+地图设计，小怪配置，角色成长之类全面拉胯，各位卡婊粉丝也只能不停说这是act游戏，不是rpg，只要动作就行 ...</blockquote>
+特效做到刀装里了啊
+
+
+*****
+
+####  zqqwe  
+##### 1267#       发表于 2026-9-4 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200154&amp;ptid=2210366" target="_blank">winder0707 发表于 2026-9-4 10:06</a>
+地图设计，小怪配置，角色成长之类全面拉胯，各位卡婊粉丝也只能不停说这是act游戏，不是rpg，只要动作就行 ...</blockquote>
+这次为了搞精细切割演出把一闪变成单体判定导致连闪也变得拖沓了，判定可以宽但演出时间真没必要这么长，后期有缩地加速才缓解一点
+

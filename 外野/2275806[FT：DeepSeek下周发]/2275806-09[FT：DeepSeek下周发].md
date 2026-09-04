@@ -8626,3 +8626,53 @@ k3目前是国产模型用得最舒服的，有些方面比gpt-5.6表现好，�
 
 又像fable看齐了，以后还会有gpt6 sol啥的
 
+
+*****
+
+####  nxmonitor  
+##### 12649#       发表于 2026-9-4 10:11
+
+给DeepSeek塞满卡，灰测不降智拿出来就行了，看了一下和Fable5.1的比较的例子，前端除了绿皮建模，还有时候会偏色以外，物理逻辑依然更强。
+
+*****
+
+####  CCauchy  
+##### 12650#       发表于 2026-9-4 10:11
+
+arena.ai的fable不知道是不是真的，用起来确实比agentrouter的opus5强，但不多，我指的是文学
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 12651#       发表于 2026-9-4 10:11
+
+ 本帖最后由 nxmonitor 于 2026-9-4 10:13 编辑 
+
+还有如果视觉部分是按照那篇视觉原语做，本质上是根据坐标理解图片的话，这什么Arc-AGI根本不会有难度，但我还是那个看法，这个东西给具身智用能还差不多，吹computer use真是没意思。
+
+*****
+
+####  jojog  
+##### 12652#       发表于 2026-9-4 10:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">tibo说一般人用到astra之前一天给一个重置
+
+啥玩意
+
+
+*****
+
+####  七氷  
+##### 12653#       发表于 2026-9-4 10:15
+
+我说怎么有一次重置次数了
+
+*****
+
+####  舞以  
+##### 12654#       发表于 2026-9-4 10:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">梁子有活么，怎么说也该到换代的时候了，v4这代还是很坎坷的
+
