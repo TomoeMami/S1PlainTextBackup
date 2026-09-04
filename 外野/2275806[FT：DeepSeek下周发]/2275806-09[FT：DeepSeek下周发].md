@@ -9628,3 +9628,14 @@ Chat Completion API &lt;400&gt; InternalError.Algo.DataInspectionFailed: Input t
 
 我超，大号终于活了。不敢在泥潭聊破限破甲了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ttmaxwell  
+##### 12749#       发表于 2026-9-4 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202304&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-9-4 16:11</a>
+
+这个新模型上下文太短了 刚才还死档了一次速度不算慢但是感觉水平没有很明显的提升啊？不会是glm5.3flash高 ...</blockquote>
+有可能是glm5.3 air这样100B级别的模型，主打本地部署的那种吧
+
