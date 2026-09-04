@@ -8676,3 +8676,40 @@ arena.ai的fable不知道是不是真的，用起来确实比agentrouter的opus5
 
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">梁子有活么，怎么说也该到换代的时候了，v4这代还是很坎坷的
 
+
+*****
+
+####  nxmonitor  
+##### 12655#       发表于 2026-9-4 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200223&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-4 10:15</a>
+
+梁子有活么，怎么说也该到换代的时候了，v4这代还是很坎坷的</blockquote>
+哪天API连续几天性能下降就有了，现在肯定没有
+
+*****
+
+####  王兰花秀丽  
+##### 12656#       发表于 2026-9-4 10:19
+
+今天就指望不了ds了吧，完全一点风声都没有，全是我的臆想
+
+话说dsh现在走webui ，如果后面想跟进computer  use会有什么劣势吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  不让用大写  
+##### 12657#       发表于 2026-9-4 10:25
+
+这两天gpt的生图拉完了
+
+各种糊逼破碎，丢参考图
+
+*****
+
+####  cscbzcbz  
+##### 12658#       发表于 2026-9-4 10:25
+
+又做梦了，梦里大肥鱼又登上了sota宝座<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+大灰肥鱼，快来吧
+
