@@ -9893,3 +9893,41 @@ Gemini pro后的这一波coding浪潮实际上是a\带起来的，现在openai�
 
 付费能力强的用户需要的能力才是模型需要并且应该优先解决的能力。像oneshot做游戏 有什么意义吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 12774#       发表于 2026-9-4 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203128&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-4 19:06</a>
+
+很同意某个随机刷到的观点
+
+模型评测的手段太匮乏了，又乱又主观</blockquote>
+LLM现在依然是纯黑盒，大伙测起来自然也就盲人摸象了
+
+反正能解决问题就行<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiaohanne  
+##### 12775#       发表于 2026-9-4 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203135&amp;ptid=2275806" target="_blank">haiuhfuwah 发表于 2026-9-4 19:09</a>
+
+付费能力强的用户需要的能力才是模型需要并且应该优先解决的能力。像oneshot做游戏 有什么意义吗 ...</blockquote>
+那鹈鹕骑自行车又有什么意义……说到底，受到配置、环境、ip纯净度、任务复杂度、用户指引详细程度等等等等制约的情况下， 个体的使用经验很难转化为群体共识，最后也无非就是看跑分。
+
+*****
+
+####  lactone  
+##### 12776#       发表于 2026-9-4 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203135&amp;ptid=2275806" target="_blank">haiuhfuwah 发表于 2026-9-4 19:09</a>
+
+付费能力强的用户需要的能力才是模型需要并且应该优先解决的能力。像oneshot做游戏 有什么意义吗 ...</blockquote>
+openai要上市，肯定要整这些
+
+过两天astra上线了，肯定满世界oneshot做游戏的视频
+
