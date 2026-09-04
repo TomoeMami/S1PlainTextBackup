@@ -9954,3 +9954,50 @@ llm原理上还是不黑盒的吧，本质上字典压缩解压算法，你真�
 
 大模型公司都哪里不行宣传哪里，o以前前端视觉不行，这次拼命宣传，A以前数学不行，现在就天天宣传数学
 
+
+*****
+
+####  jinuzuktII  
+##### 12780#       发表于 2026-9-4 19:51
+
+补一个过期资讯
+
+未被推送ASTRA的订阅账户每天一个重置卡
+
+<img src="https://img.stage1st.com/forum/202609/04/195037ghafpohdt0hhwfth.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (106.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 19:50 上传
+
+
+*****
+
+####  宏.  
+##### 12781#       发表于 2026-9-4 19:53
+
+<img src="https://img.stage1st.com/forum/202609/04/195300bidhgm7b7mi7pidz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260904_195149.jpg</strong> (563.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 19:53 上传
+
+<img src="https://img.stage1st.com/forum/202609/04/195300mcw6tt0izd055xwu.jpg" referrerpolicy="no-referrer">
+
+<strong>Camera_1040g3k0324mnujs7726g5o91r86g88pn9tn6j8o.jpg</strong> (549.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 19:53 上传
+
+*****
+
+####  Rowen233  
+##### 12782#       发表于 2026-9-4 19:56
+
+怎么又是Astra又是Omen<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
