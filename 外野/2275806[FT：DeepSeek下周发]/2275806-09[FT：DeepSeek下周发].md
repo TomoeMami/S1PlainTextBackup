@@ -8198,3 +8198,32 @@ o➗也没活了啊，除非实际上便宜不少
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  drodchang  
+##### 12609#       发表于 2026-9-4 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199592&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-4 08:39</a>
+
+晚这么久，就端出来一个oai版Fable？
+
+o➗也没活了啊，除非实际上便宜不少</blockquote>
+就是一点不便宜啊
+
+*****
+
+####  cscbzcbz  
+##### 12610#       发表于 2026-9-4 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199569&amp;ptid=2275806" target="_blank">zy450 发表于 2026-9-4 08:35</a>
+那么今天大肥鱼有活吗</blockquote>
+早上让大肥鱼自己预测了一下，今天大概率没活
+
+*****
+
+####  startraveller  
+##### 12611#       发表于 2026-9-4 08:51
+
+但是除了 Coding ，Astra 其他跑分都爆表了。现在还用不到，等 rollout 了试试。
+

@@ -5745,3 +5745,15 @@ ps5pro帧率模式下，开启光追有多少影响，刚打个开头感觉也�
 
 新游戏+好像就有新难度，所以老手直接一周目速通去体验新难度更好
 
+
+*****
+
+####  zaozaoxx  
+##### 1261#       发表于 2026-9-4 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196786&amp;ptid=2210366" target="_blank">断翼 发表于 2026-9-3 19:56</a>
+是fsr式通马桶，收集回想  全城撸狗收集  清理城里幻魔(和fsr换皮怪一模一样，鬼武者这边也是换皮幻魔杂 ...</blockquote>
+打到现在真的基本就是战斗系统好很多，武藏不是娘们的FSR<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LMR-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
