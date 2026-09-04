@@ -8255,3 +8255,90 @@ o➗也没活了啊，除非实际上便宜不少</blockquote>
 其他跑分都是小巧思，比如arc agi这个就是换个harness的事情，其他垂类领域知识提升都是靠着参数硬堆上去的 ...</blockquote>
 computer use的提升还是实打实的，前端视觉也提升了，毕竟参数相对5.6大了很多，就是太贵了。
 
+
+*****
+
+####  未知伤亡  
+##### 12615#       发表于 2026-9-4 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199708&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-4 09:00</a>
+
+开源模型真的是k3一骑绝尘，但是口袋好痛。
+
+用他家订阅会节约吗？</blockquote>
+试用了一次k3，花掉了我小几百块钱，任务完成得也就那样，钱包好疼……
+
+还是回归大肥鱼温暖的怀抱吧
+
+*****
+
+####  AraTurambar  
+##### 12616#       发表于 2026-9-4 09:09
+
+<blockquote>未知伤亡 发表于 2026-9-4 09:06
+试用了一次k3，花掉了我小几百块钱，任务完成得也就那样，钱包好疼……
+
+还是回归大肥鱼温暖的怀抱吧 ...</blockquote>
+写代码谁都会，数学我怎样都用fable做，但是k3说话太好听了，各种中日英混合隐喻得心应手和fable差不多。
+
+就是真贵啊。
+
+*****
+
+####  bartholo4  
+##### 12617#       发表于 2026-9-4 09:09
+
+K3 也是专武效果最好，好多知识库和付费的接口它是自带的
+
+*****
+
+####  囧Smith  
+##### 12618#       发表于 2026-9-4 09:09
+
+<img src="https://img.stage1st.com/forum/202609/04/090951kxeaei7774ne8xng.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1788484190348_1.webp</strong> (81.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 09:09 上传
+
+原生得分63%
+上harness才推到99%
+
+*****
+
+####  startraveller  
+##### 12619#       发表于 2026-9-4 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199764&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-4 09:09</a>
+写代码谁都会，数学我怎样都用fable做，但是k3说话太好听了，各种中日英混合隐喻得心应手和fable差不多。 ...</blockquote>
+对的，只有 K3和 fable 用起来是让人感到他是聪明的
+
+*****
+
+####  drodchang  
+##### 12620#       发表于 2026-9-4 09:11
+
+k3目前是国产模型用得最舒服的，有些方面比gpt-5.6表现好，做ppt更是没有对手，就是慢了点，贵了点。
+
+
+*****
+
+####  nxmonitor  
+##### 12621#       发表于 2026-9-4 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199738&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-9-4 09:04</a>
+
+computer use的提升还是实打实的，前端视觉也提升了，毕竟参数相对5.6大了很多，就是太贵了。 ...</blockquote>
+所谓的conputer use是视觉操作电脑，对于AI来说是个无意义的低效手段，你要是搞具身智能还行……
+
+*****
+
+####  AraTurambar  
+##### 12622#       发表于 2026-9-4 09:13
+
+<blockquote>drodchang 发表于 2026-9-4 09:11
+k3目前是国产模型用得最舒服的，有些方面比gpt-5.6表现好，做ppt更是没有对手，就是慢了点，贵了点。 ...</blockquote>
+我用的fireworks api，速度起飞，我都是让他把活都扔给dsv4f做只管总结和规划。
+

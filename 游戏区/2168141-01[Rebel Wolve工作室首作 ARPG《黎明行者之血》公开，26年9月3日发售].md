@@ -890,3 +890,11 @@ https://www.neogafimages.com/105958/qbhmt44usy1d5z8o.gif
 外网看给这游戏开DLSS5的效果很惊人啊</blockquote>
 卧槽，这不就是当年巫师3的诈骗预告片质感吗
 
+
+*****
+
+####  Mephisto  
+##### 81#       发表于 2026-9-4 09:07
+
+看到主角总是幻视到抖森
+
