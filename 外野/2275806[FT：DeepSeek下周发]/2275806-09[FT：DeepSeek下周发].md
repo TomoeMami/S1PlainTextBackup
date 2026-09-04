@@ -10357,3 +10357,13 @@ Glm6这个真没有</blockquote>
 我也不知道，不过唐老师财报会吹了半天</blockquote>
 唐老师说的是明年啊<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 12816#       发表于 2026-9-4 23:31
+
+k3做规划，luna/terra打工看起来是目前的甜点<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，都用订阅额度，不用直接面对账单。
+
+就看Astra啥成色了
+

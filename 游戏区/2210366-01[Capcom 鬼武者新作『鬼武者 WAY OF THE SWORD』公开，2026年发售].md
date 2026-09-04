@@ -7019,3 +7019,18 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 这游戏的光照怎么能做得这么烂啊，明明过场还可以但一到实机感觉就是那种高清复刻的游戏，之前生化危机感觉也没这么差啊，而且生化危机都是美女怎么到了这部都是丑八怪<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 1399#       发表于 2026-9-4 23:34
+
+这开局一个多小时的播片给我播力竭了，女人也给我看力竭了，女人一出现就尽力把眼睛瞟到字幕上<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 1400#       发表于 2026-9-4 23:35
+
+这游戏的地图探索有意思吗，听说不光是boss战斗爽
+
