@@ -9588,3 +9588,35 @@ k3竟然免费了，不过trae实在不好用 Re:Source</blockquote>
 不用啊，cli tui gui和桌面控制没关系的啊，只要是个跑在本地的进程就行，node现在都有一堆自动化操作包 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是啊，纯 headless 的 terminal 就是无法操作桌面的啊。桌面环境的 terminal 会继承桌面环境的信息所以可以操纵桌面，这个时候仍然是因为从桌面启动的才可以操作桌面
 
+
+*****
+
+####  Baccano  
+##### 12744#       发表于 2026-9-4 16:11
+
+Chat Completion API &lt;400&gt; InternalError.Algo.DataInspectionFailed: Input text data may contain inappropriate content.复制代码
+
+白嫖了一周的tokenrhythm，今天不给玩酒馆了<img src="https://static.stage1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋黄酱Release  
+##### 12745#       发表于 2026-9-4 16:11
+
+这个新模型上下文太短了 刚才还死档了一次<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">速度不算慢但是感觉水平没有很明显的提升啊？不会是glm5.3flash高速版吧
+
+*****
+
+####  crow_wine  
+##### 12746#       发表于 2026-9-4 16:11
+
+你这个是Linux或者ssh远程吧，window下没有这种约束
+
+
+*****
+
+####  未知伤亡  
+##### 12747#       发表于 2026-9-4 16:16
+
+桌面应用挂着一个内置浏览器+html的前端，跟调用浏览器打开的纯web应用，这是两回事吧，虽然可能都可以叫webui但本质完全不同
+
