@@ -7317,3 +7317,15 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">给新能力了旧图还要回去摸下材料，然后附近还没传送必须脚跑，服了
 
+
+*****
+
+####  姬茧墨  
+##### 1430#       发表于 2026-9-5 02:50
+
+ 本帖最后由 姬茧墨 于 2026-9-5 02:51 编辑 
+
+这二条城做得很好啊，虽然在路线设计上是单向的线性关卡，但场景美术，环境叙事带来的心理压迫和悬疑氛围都很优秀
+
+我看卡表这做战国生化又做爽了，回归初心了属于是
+
