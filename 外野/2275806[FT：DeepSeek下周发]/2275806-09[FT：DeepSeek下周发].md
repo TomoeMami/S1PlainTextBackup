@@ -9436,3 +9436,13 @@ k3竟然免费了，不过trae实在不好用 Re:Source</blockquote>
 
 看输出速度，可能GLM5.5，500K这是注意力练炸了
 
+
+*****
+
+####  浪费喝咖啡  
+##### 12729#       发表于 2026-9-4 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201873&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-4 14:54</a>
+看输出速度，可能GLM5.5，500K这是注意力练炸了</blockquote>
+5.5规模应该不小吧，这个吐字速度像小模
+
