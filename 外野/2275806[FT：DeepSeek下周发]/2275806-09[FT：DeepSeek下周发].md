@@ -8919,3 +8919,47 @@ v4p那纯粹就是意义不明的玩意。
 我看前面你不是抽到灰测了吗？这个不是V4.1也是V5了，思维链完全不一样，大概率重新预训练过。 ...</blockquote>
 频繁灰测只会让工作流变得不可靠，我个人其实觉得这个做法是有点问题的。
 
+
+*****
+
+####  love4aids  
+##### 12679#       发表于 2026-9-4 11:08
+
+草，我的重置次数怎么没收到
+
+*****
+
+####  nianiania  
+##### 12680#       发表于 2026-9-4 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200553&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-4 10:58</a>
+
+不是预约点一下就直接开放了么</blockquote>
+预约快两个星期了，现在还是不能买，算球，直接第三个gpt plus走起<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiaohanne  
+##### 12681#       发表于 2026-9-4 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200627&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-9-4 11:08</a>
+
+草，我的重置次数怎么没收到</blockquote>
+我怀疑还在草台，我这边显示的是无法加载用量重置次数。
+
+*****
+
+####  舞以  
+##### 12682#       发表于 2026-9-4 11:13
+
+<img src="https://img.stage1st.com/forum/202609/04/111316s64r76h10lj6d4d1.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (57.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 11:13 上传
+
+给我看笑了，发重置卡都能爆炸
+
