@@ -10021,3 +10021,35 @@ zcode是不是又在送token了
 
 泥潭也有是苏剑林而非杨植麟人迷的朋友吗🤣
 
+
+*****
+
+####  M乔梦  
+##### 12785#       发表于 2026-9-4 20:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203407&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-4 20:11</a>
+
+zcode是不是又在送token了
+
+没订阅的能领吗</blockquote>
+应该是可以的
+
+<img src="https://img.stage1st.com/forum/202609/04/203234e6p7qxrpe9i7u2zy.png" referrerpolicy="no-referrer">
+
+<strong>7d654f9b15051b1de21cbb5cdd5b2e70.png</strong> (859.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 20:32 上传
+
+*****
+
+####  lactone  
+##### 12786#       发表于 2026-9-4 20:32
+
+kimi本来就是硬实力国模最强
+
+除了慢没毛病
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
