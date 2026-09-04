@@ -9530,3 +9530,61 @@ k3竟然免费了，不过trae实在不好用 Re:Source</blockquote>
 没这么麻烦，dsh现在用node后端能做的事多了去了，只是控制电脑那方法很多，我是很奇怪上面为什么会觉得w ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 反正就是需要有一个 gui 的壳应用才行，在桌面环境启动的应用才可以去真的进行各种鼠标操作以及截图之类的
 
+
+*****
+
+####  muermaru  
+##### 12738#       发表于 2026-9-4 15:48
+
+kimi的甲好破吗，我看有人评价现在k3是写文最好的
+
+*****
+
+####  野蛮人之夜  
+##### 12739#       发表于 2026-9-4 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202134&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-9-4 15:37</a>
+反正就是需要有一个 gui 的壳应用才行，在桌面环境启动的应用才可以去真的进行各种鼠标操作以及截图之类 ...</blockquote>
+不需要啊，只要它有权限调用系统api或脚本来模拟键盘鼠标及截图功能就好了
+
+*****
+
+####  startraveller  
+##### 12740#       发表于 2026-9-4 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201811&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-4 14:46</a>
+怎么还能开倒车的，500k上下文   
+
+k3竟然免费了，不过trae实在不好用 Re:Source</blockquote>
+看来3.1快了
+
+*****
+
+####  serj005  
+##### 12741#       发表于 2026-9-4 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202134&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-9-4 15:37</a>
+反正就是需要有一个 gui 的壳应用才行，在桌面环境启动的应用才可以去真的进行各种鼠标操作以及截图之类 ...</blockquote>
+不用啊，cli tui gui和桌面控制没关系的啊，只要是个跑在本地的进程就行，node现在都有一堆自动化操作包，键鼠操作和截图用dsh无头模式都能搞
+
+*****
+
+####  紧那罗  
+##### 12742#       发表于 2026-9-4 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202134&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-9-4 15:37</a>
+
+反正就是需要有一个 gui 的壳应用才行，在桌面环境启动的应用才可以去真的进行各种鼠标操作以及截图之类 ...</blockquote>
+没那么麻烦，遇事不决转ahk脚本
+
+
+*****
+
+####  御坂MKII  
+##### 12743#       发表于 2026-9-4 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202206&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-4 15:51</a>
+
+不用啊，cli tui gui和桌面控制没关系的啊，只要是个跑在本地的进程就行，node现在都有一堆自动化操作包 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是啊，纯 headless 的 terminal 就是无法操作桌面的啊。桌面环境的 terminal 会继承桌面环境的信息所以可以操纵桌面，这个时候仍然是因为从桌面启动的才可以操作桌面
+
