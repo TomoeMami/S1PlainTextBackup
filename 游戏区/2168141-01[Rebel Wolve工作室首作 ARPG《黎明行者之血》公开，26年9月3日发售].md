@@ -964,3 +964,14 @@ N网有解锁过场30帧的补丁了，但是好像过场的人物动作和面�
 
 序章找安嘉之前没舔完的任务后面还能做么？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  寂长无星夜  
+##### 89#       发表于 2026-9-4 13:31
+
+ 本帖最后由 寂长无星夜 于 2026-9-4 13:32 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70197840&amp;ptid=2168141" target="_blank">古凌锋 发表于 2026-9-3 22:15</a>
+玩了开头剧情到弥撒那里感觉是吸血鬼老爷不比之前的贵族老爷好了无数倍，主角有点不知好歹了…… ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是不知好歹，健康的牲口养着放血，病弱的牲口宰杀掉，主角不反抗，老妈就死定了。
+

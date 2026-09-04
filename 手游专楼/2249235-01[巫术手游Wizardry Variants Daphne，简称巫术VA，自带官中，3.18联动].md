@@ -67,3 +67,11 @@
 
 —— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  茄子自走炮  
+##### 895#       发表于 2026-9-4 13:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">手动普通鲇鱼钓了20个饵没有 终身服役了要
+

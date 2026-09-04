@@ -6145,3 +6145,11 @@ Ps5大部分都去买实体盘了吧，前段时间pdd250左右随便买
 
 7年了，还是没有能超过一心的人形最终boss战，有没有点道理？<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 1305#       发表于 2026-9-4 13:32
+
+我是把pc版退了等ns2版了。本来想pc版打完了试试ns2版，现在看我估计应该和识质存在一样，打完一遍就不想再原价买一份打第二遍了。
+
