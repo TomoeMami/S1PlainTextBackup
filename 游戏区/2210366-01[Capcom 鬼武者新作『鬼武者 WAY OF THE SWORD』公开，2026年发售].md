@@ -6924,3 +6924,13 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 这一目笠给我狠狠代入彼岸岛了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">阿明也是个玩刀的
 
+
+*****
+
+####  wwhaha  
+##### 1388#       发表于 2026-9-4 21:22
+
+又玩了一个多小时，真就序章后就通马桶大全<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
