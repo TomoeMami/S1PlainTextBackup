@@ -10698,3 +10698,27 @@ A\ 吓得偷偷reset了.
 
 gpt6 这速度好快.. 比傻逼A\的fable5.1快多了.
 
+
+*****
+
+####  御坂MKII  
+##### 12846#       发表于 2026-9-5 04:57
+
+跑了点儿 case，astra high 比 sol xhigh 从价格上更省。token efficiency 确实不低
+
+国模也该提升这个了
+
+*****
+
+####  RookieTnT  
+##### 12847#       发表于 2026-9-5 04:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205031&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-5 03:50</a>
+Astra实装了，听说前端代码能力不错啊
+
+更新：有人被ip检测然后风控变成这样：</blockquote>
+和 ip 没啥关系 
+只和账号多人分发滥用有关系 
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
