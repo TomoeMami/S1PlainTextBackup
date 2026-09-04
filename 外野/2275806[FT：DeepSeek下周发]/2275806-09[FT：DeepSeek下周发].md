@@ -10515,3 +10515,20 @@ codex 可以，codex 也可以写 sub agent 的预设
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  CCauchy  
+##### 12830#       发表于 2026-9-5 02:05
+
+可能只是在训练，暂时没活，有活也要等这一轮训完<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qwased  
+##### 12831#       发表于 2026-9-5 02:07
+
+前端工程师：不多干点kpi要被ai斩杀了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
