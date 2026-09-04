@@ -7378,3 +7378,15 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 我需要立刻马上得到金城武帅脸MOD再玩<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  姬茧墨  
+##### 1436#       发表于 2026-9-5 06:48
+
+这怒伐天的无伤简直给我练爽了，真正的爽怪啊，感觉光打他的无伤就能打2小时
+
+就是这怪一闪窗口太怪了，唯一能稳定抓一闪的招只有龙车，但气焰模式又有很有迷惑性的后撤三连剑气，容易原计划一闪龙车却被剑气蹭掉无伤
+
+贴脸的剑气和下劈也经常看不准一闪的时机，这怪本来就高速交互，还有大量变式连段，高压状态下很容易失误
+
