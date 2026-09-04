@@ -3703,3 +3703,20 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 
 之前在媒体视频里看着觉得很素，还以为是什么店员NPC
 
+
+*****
+
+####  墨染白泉  
+##### 3304#       发表于 2026-9-4 10:39
+
+<blockquote>cox 发表于 2026-9-4 10:28
+唯一让我没啥感觉的是女王，倒不是因为黑，而是南姐的声线太苍老了。</blockquote>
+女王直接出戏到柯南<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 3305#       发表于 2026-9-4 10:41
+
+现在压不住的柯南味太出戏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

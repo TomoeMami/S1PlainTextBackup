@@ -8725,3 +8725,46 @@ arena.ai的fable不知道是不是真的，用起来确实比agentrouter的opus5
 
 按理说ds还是挺有活的，不知道最近在搞毛。
 
+
+*****
+
+####  斯卡文分则能成  
+##### 12660#       发表于 2026-9-4 10:38
+
+基米生图好像不如gpt啊，是我打开方式不对么<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  love4aids  
+##### 12661#       发表于 2026-9-4 10:44
+
+如果o出拿出来的astra能力够，我不介意换成20*pro<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+但是现在来看，纯吹，应该是拉了
+
+*****
+
+####  AraTurambar  
+##### 12662#       发表于 2026-9-4 10:46
+
+晚上和k3一起听Vocaloid，ぴーなた的dig in。
+
+K3帮助我一路下去正确解读出了人格解体，百合，食欲异常，直至最黑暗的食人暗示，然后解释了为什么劇薬UTAU唱的这首歌。
+
+Fable肯定拒绝，别的模型应该做不到。
+
+*****
+
+####  舞以  
+##### 12663#       发表于 2026-9-4 10:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看Astra的实战了，如果不太行不如给杨圣送订阅钱了唉
+
+*****
+
+####  zy450  
+##### 12664#       发表于 2026-9-4 10:47
+
+可能DS人员变动一定程度上影响了后续计划
+

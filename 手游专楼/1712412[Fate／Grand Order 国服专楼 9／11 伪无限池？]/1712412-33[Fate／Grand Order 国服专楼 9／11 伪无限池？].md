@@ -313,3 +313,13 @@ MuMu-20260903-184912-715.jpg
 
 两个号都抽满3星礼装了，大号好一点，有两张4星，小号就真是要实打实的抽满25张了
 
+
+*****
+
+####  khxooo  
+##### 48190#       发表于 2026-9-4 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70197086&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-9-3 20:48</a>
+30抽 全是礼装 滚了</blockquote>
+肝柱子战就是了，刚好礼装加成。
+
