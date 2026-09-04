@@ -9786,3 +9786,55 @@ K3写文不知道留白，不中
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cscbzcbz  
+##### 12764#       发表于 2026-9-4 18:37
+
+两天半的梁文谷，爽蹬开始
+
+*****
+
+####  浪费喝咖啡  
+##### 12765#       发表于 2026-9-4 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202932&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-4 18:26</a>
+感觉大模型几个里程碑是gpt4-dsr1-gemini pro-opus4.6-fable，然后是astra
+
+国模现在压力山大</blockquote>
+何意味?我看跑分和x的一些反馈，astra水平和fable5.1差不多
+
+*****
+
+####  squallx  
+##### 12766#       发表于 2026-9-4 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202932&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-4 18:26</a>
+
+感觉大模型几个里程碑是gpt4-dsr1-gemini pro-opus4.6-fable，然后是astra
+
+国模现在压力山大</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">笑死 什么时候LUNA价格能随便蹬SOL了再来咩吧
+
+
+*****
+
+####  星花  
+##### 12767#       发表于 2026-9-4 18:42
+
+莫名其妙。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12768#       发表于 2026-9-4 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202932&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-4 18:26</a>
+感觉大模型几个里程碑是gpt4-dsr1-gemini pro-opus4.6-fable，然后是astra
+
+国模现在压力山大</blockquote>
+开玩笑，压力再大能比今年三四月份大？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
