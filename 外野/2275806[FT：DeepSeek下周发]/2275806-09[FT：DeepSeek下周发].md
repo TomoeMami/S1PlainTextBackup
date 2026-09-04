@@ -9178,3 +9178,26 @@ fable5.1 和 gpt-astra 看外国友人评价是基本相当。 <blockquote>They 
 只蹬3.8flash周限额大概是1.2-1.5B 点只看该作者看我回帖记录</blockquote>
 那还是很值吧
 
+
+*****
+
+####  drodchang  
+##### 12703#       发表于 2026-9-4 12:39
+
+openai以前的前端和视觉都是远远落后与A/的，这次能追上就是很大进步，而openai自己擅长的领域（数学推理）一直都很强。
+
+*****
+
+####  舞以  
+##### 12704#       发表于 2026-9-4 12:42
+
+<img src="https://img.stage1st.com/forum/202609/04/124238rots8cbzq4d4dbqc.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (72.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-4 12:42 上传
+
+tibo，奥特曼，我tm重置卡呢😡<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">。
+
