@@ -7253,3 +7253,51 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 这个女人是真的严重影响体验了，我第一次打这种游戏连火鸡场都不想回，回去就是阿国怼脸，每隔一段剧情还有笼手女大脸特写，比boss还吓人<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  手铐君  
+##### 1423#       发表于 2026-9-5 01:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204898&amp;ptid=2210366" target="_blank">zqqwe 发表于 2026-9-5 01:27</a>
+这关卡流程太像狒狒16了，除了boss战和过场能打起点精神，跑图和杂兵战全是屎，锁定吸附和调得很恶心 ...</blockquote>
+是的，明明锁定了但是却疯狂容易挥空，一直以为是我没锁<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还有个别boss投技我明明闪开了，硬是吸过去
+
+*****
+
+####  zwqcm  
+##### 1424#       发表于 2026-9-5 01:37
+
+还有个问题是墙边/墙角的视角调度问题，角色一旦被逼到墙边或者障碍物边就啥动作都看不清了。demo打百秽和大嘴就有点感觉到了。
+
+*****
+
+####  zqqwe  
+##### 1425#       发表于 2026-9-5 01:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204907&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-5 01:33</a>
+
+这个跑图真的困死人了，剧情也无聊的透顶还有丑瞎眼女人，除了打boss没有一丁点正反馈，不行了明天再打
+
+这 ...</blockquote>
+只要不是正经演出过场，那种脚本对话的我已经全跳过了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 1426#       发表于 2026-9-5 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204916&amp;ptid=2210366" target="_blank">zqqwe 发表于 2026-9-5 01:40</a>
+只要不是正经演出过场，那种脚本对话的我已经全跳过了</blockquote>
+我已经认命了，只要出来怼脸我就直接跳，没必要为了这些白开水剧情折磨自己
+
+*****
+
+####  reficul  
+##### 1427#       发表于 2026-9-5 01:44
+
+洛东的地图跑起来真大啊，关键是没有什么分区，瘴气消除后我压根不知道这个地方自己搜刮过没有，像无头苍蝇一样乱转
+
+问一下打到后期的潭友，强化素材缺吗？我现在逛地图就是为了在箱子里摸多两块布和铁，后面要是素材不缺的话我就先安心推任务和主线了
+
