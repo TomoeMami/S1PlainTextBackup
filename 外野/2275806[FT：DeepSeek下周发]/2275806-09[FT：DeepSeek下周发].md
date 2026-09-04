@@ -8342,3 +8342,79 @@ computer use的提升还是实打实的，前端视觉也提升了，毕竟参�
 k3目前是国产模型用得最舒服的，有些方面比gpt-5.6表现好，做ppt更是没有对手，就是慢了点，贵了点。 ...</blockquote>
 我用的fireworks api，速度起飞，我都是让他把活都扔给dsv4f做只管总结和规划。
 
+
+*****
+
+####  AraTurambar  
+##### 12623#       发表于 2026-9-4 09:17
+
+<blockquote>nxmonitor 发表于 2026-9-4 09:13
+所谓的conputer use是视觉操作电脑，对于AI来说是个无意义的低效手段，你要是搞具身智能还行…… ...</blockquote>
+所以马斯克给我推销grok bot我理都不理，我买你x premium+只是为了抓你推特流的，谁要你bot。
+
+*****
+
+####  drodchang  
+##### 12624#       发表于 2026-9-4 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199786&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-4 09:13</a>
+
+所谓的conputer use是视觉操作电脑，对于AI来说是个无意义的低效手段，你要是搞具身智能还行…… ...</blockquote>
+computer use在日常生活工作中是很有用的，不是每个人都只用大模型来编程。
+
+*****
+
+####  王兰花秀丽  
+##### 12625#       发表于 2026-9-4 09:18
+
+应该codex会有一次大更新吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 12626#       发表于 2026-9-4 09:20
+
+ 本帖最后由 舞以 于 2026-9-4 09:21 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道我用的订阅k3是不是假的
+
+如果不涉及到他们的官方skill和插件包，问题讨论和意图理解都一般般，没感觉和dsv4pro有跨代差距。
+
+反而coding还可以。
+
+也可能是我问的问题对于llm来说太难了？反正没有哪个模型让我觉得哇好聪明的感觉。
+
+*****
+
+####  nxmonitor  
+##### 12627#       发表于 2026-9-4 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199819&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-9-4 09:18</a>
+
+computer use在日常生活工作中是很有用的，不是每个人都只用大模型来编程。 ...</blockquote>
+和马斯克搞视觉方案有区别吗？有雷达不用用可见光，就是这个感觉……
+
+
+*****
+
+####  drodchang  
+##### 12628#       发表于 2026-9-4 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199841&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-4 09:20</a>
+
+和马斯克搞视觉方案有区别吗？有雷达不用用可见光，就是这个感觉……</blockquote>
+有总比没有好，以后会有越来越多的公司加入的。
+
+*****
+
+####  AraTurambar  
+##### 12629#       发表于 2026-9-4 09:22
+
+<blockquote>舞以 发表于 2026-9-4 09:20
+不知道我用的订阅k3是不是假的
+
+如果不涉及到他们的官方skill和插件包，问题讨论和意图理解都一般般，没感觉 ...</blockquote>
+那可能就是订阅降智了。
+
+烧api的素质没话说。
+
