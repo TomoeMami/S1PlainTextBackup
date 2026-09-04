@@ -10611,3 +10611,42 @@ K3后审查太厉害
 不是，爬虫你自己限制爬的范围和速度啊，咋还要给专门API的，有抓历史数据的需求直接GitHub上找备份还更快点
 来都来了，给狗叔打点钱吧
 
+
+*****
+
+####  御坂MKII  
+##### 12838#       发表于 2026-9-5 03:27
+
+gpt 更新的怎么这么快，那我 reset 去哪儿领
+
+*****
+
+####  舞以  
+##### 12839#       发表于 2026-9-5 03:27
+
+<img src="https://img.stage1st.com/forum/202609/05/032714vg88xap303oet21t.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (22.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-5 03:27 上传
+
+<img src="https://img.stage1st.com/forum/202609/05/032721vwdu7mv6wmz3tpb1.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (24.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-5 03:27 上传
+
+如果不想用重置卡的话，感觉要天才程序员陨落了喵<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 12840#       发表于 2026-9-5 03:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
