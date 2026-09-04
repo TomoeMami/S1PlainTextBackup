@@ -865,3 +865,17 @@ Vampyr试一哈？
 
 發現開個箱子也要花一格時間...好吧,MOD啟動!
 
+
+*****
+
+####  SergeGlenn  
+##### 79#       发表于 2026-9-4 08:19
+
+外网看给这游戏开DLSS5的效果很惊人啊
+
+https://www.neogafimages.com/105958/MbLtnkkGPKvBLbF1.gif
+
+https://www.neogafimages.com/105958/qmHlXVNaEYBRS2T8.gif
+
+https://www.neogafimages.com/105958/qbhmt44usy1d5z8o.gif
+
