@@ -9259,3 +9259,11 @@ OpenAI对5.X Pro模型的口径从"几乎无限"变成了定量的"170个请求/
 
 发了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝泽玲  
+##### 12711#       发表于 2026-9-4 13:55
+
+gemini越来越傻了，充pro都救不了，默认prompt前缀可能有问题，比ai-studio里差多了，现在都直接进ai-studio，下个月不续费了。
+
