@@ -10420,3 +10420,49 @@ Zcode用着还行，到20号为止晚上免费用glm5.3-flash
 唐老师说的是明年啊</blockquote>
 那就祝他GLM5.5顺利吧
 
+
+*****
+
+####  pyjq  
+##### 12822#       发表于 2026-9-5 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204563&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-4 23:31</a>
+k3做规划，luna/terra打工看起来是目前的甜点，都用订阅额度，不用直接面对账单。
+
+就看Astra啥成色了 ...</blockquote>
+规划和执行用不同的模型具体是怎么做的，能教教吗<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cankao  
+##### 12823#       发表于 2026-9-5 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203689&amp;ptid=2275806" target="_blank">中二骚年 发表于 2026-9-4 20:59</a>
+
+很多这么干的</blockquote>
+很有意思的样子<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">我用的是WorkBuddy 也能这样玩吗
+
+*****
+
+####  舞以  
+##### 12824#       发表于 2026-9-5 01:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204927&amp;ptid=2275806" target="_blank">pyjq 发表于 2026-9-5 01:48</a>
+
+规划和执行用不同的模型具体是怎么做的，能教教吗
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, 鹅球 v3.5 ...</blockquote>
+我用的dsh0.1.2-rc.1，设置里面配置好子代理的模型选项，然后提示词里直接写那些普通工作，代码读写之类的让它用luna/terra做，独立审查之类的工作复用主代理的模型。
+
+主代理（对话框）就选k3
+
+
+*****
+
+####  蛋黄酱Release  
+##### 12825#       发表于 2026-9-5 01:57
+
+现在哪个国内的ai最适合用来进行深度的讨论，比如探讨某个哲学思想，某种社会现象？一直用的网页版d4p，k3在这方面会更强一点吗？
+
