@@ -9690,3 +9690,11 @@ Chat Completion API &lt;400&gt; InternalError.Algo.DataInspectionFailed: Input t
 
 今天runinfra的dsv4f的tps暴跌到80不到，感觉小供应商确实抗不住稍微大一点的流量
 
+
+*****
+
+####  蛋黄酱Release  
+##### 12755#       发表于 2026-9-4 17:28
+
+这个新的alpha模型已经卡的不能用了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

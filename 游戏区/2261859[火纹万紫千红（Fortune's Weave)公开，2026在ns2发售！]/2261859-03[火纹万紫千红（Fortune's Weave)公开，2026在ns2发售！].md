@@ -3782,3 +3782,11 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 
 数字版开售没有
 
+
+*****
+
+####  57042711  
+##### 3314#       发表于 2026-9-4 17:33
+
+罗马人就是有很多神吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

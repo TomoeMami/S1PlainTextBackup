@@ -6578,3 +6578,21 @@ https://www.bilibili.com/video/BV1oPtv6eE21
 
 说来之前demo打肥仔前经过那个洞把我狗眼给闪瞎了，活生生硬控我几分钟去调hdr发现不是我的问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  horacio  
+##### 1352#       发表于 2026-9-4 17:31
+
+以后中配就按这个标准来,佐佐木岩流的声音好好听<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zqqwe  
+##### 1353#       发表于 2026-9-4 17:33
+
+说到注水，2代送礼就开始了，排除来回刷好感的时间主线不比初代长多少。1和3代的即死解谜不看攻略也很可能初见杀读档重打，变相注水<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">即使这样初代初见也很难超过5小时，重打随随便便3小时内。
+新鬼开始堆料的地图探索给各种武器，人设也美型，但100层最强武器每个角色要连打两个小时就很折磨了。
+对比隔壁剑星的支线和汽水罐同样是通马桶，角色美型真的可以显著降低反感
+这次角色对话镜头怼丑脸都把我气笑了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有很多还不能快进
+
