@@ -9083,3 +9083,45 @@ astra的额度规则
 
 就看到时候具体啥疗效了
 
+
+*****
+
+####  tonyunreal  
+##### 12694#       发表于 2026-9-4 11:58
+
+27个Astra的demo演示串烧：
+[https://www.bilibili.com/video/BV1zytv6TEQp/](https://www.bilibili.com/video/BV1zytv6TEQp/)
+
+加长版：
+[https://www.bilibili.com/video/BV1wZte66EnL/](https://www.bilibili.com/video/BV1wZte66EnL/)
+
+*****
+
+####  nianiania  
+##### 12695#       发表于 2026-9-4 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200802&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-4 11:34</a>
+你把号注销，重新注册，注册过程中的使用目的这一环选科研就可以订阅了
+
+我前两天刚搞完</blockquote>
+我已经是注销后选科研了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，只能说我不配
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  蛋黄酱Release  
+##### 12696#       发表于 2026-9-4 12:01
+
+fable5.1有定论了吗？是超级长考版5.0还是智商进一步提升了？
+
+
+*****
+
+####  唠叨  
+##### 12697#       发表于 2026-9-4 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70200792&amp;ptid=2275806" target="_blank">kylezy123 发表于 2026-9-4 11:32</a>
+话说阿里百练的最低价格39的那个订阅套餐，性价比怎么样？</blockquote>
+只蹬3.8flash周限额大概是1.2-1.5B 点只看该作者看我回帖记录
+
