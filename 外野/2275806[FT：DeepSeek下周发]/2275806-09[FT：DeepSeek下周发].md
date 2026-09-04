@@ -8227,3 +8227,31 @@ o➗也没活了啊，除非实际上便宜不少</blockquote>
 
 但是除了 Coding ，Astra 其他跑分都爆表了。现在还用不到，等 rollout 了试试。
 
+
+*****
+
+####  nxmonitor  
+##### 12612#       发表于 2026-9-4 08:58
+
+其他跑分都是小巧思，比如arc agi这个就是换个harness的事情，其他垂类领域知识提升都是靠着参数硬堆上去的
+
+*****
+
+####  AraTurambar  
+##### 12613#       发表于 2026-9-4 09:00
+
+开源模型真的是k3一骑绝尘，但是口袋好痛。
+
+用他家订阅会节约吗？
+
+
+*****
+
+####  drodchang  
+##### 12614#       发表于 2026-9-4 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199694&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-4 08:58</a>
+
+其他跑分都是小巧思，比如arc agi这个就是换个harness的事情，其他垂类领域知识提升都是靠着参数硬堆上去的 ...</blockquote>
+computer use的提升还是实打实的，前端视觉也提升了，毕竟参数相对5.6大了很多，就是太贵了。
+

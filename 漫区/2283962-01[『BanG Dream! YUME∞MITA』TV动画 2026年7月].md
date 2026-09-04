@@ -426,3 +426,11 @@ yuno：我不想有过家家的友情，但是我已经被天意的大手按着�
 
 所以梦限大阐释了一句话，傻逼也有傻逼的救世主是吧（笑）
 
+
+*****
+
+####  Lawliet.L  
+##### 431#       发表于 2026-9-4 09:04
+
+后藤绿是个外行<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
