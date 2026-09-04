@@ -485,3 +485,29 @@ https://www.procyon-studio.com/blog/?p=18673</blockquote>
 
 三百人规模不小了，但是预算肯定不多，估计成本比p系列都要低不少，p估计阿特拉斯给的是无限预算毕竟吸金能力强 还是招牌。
 
+
+*****
+
+####  狸狸狐  
+##### 2094#       发表于 2026-9-4 14:26
+
+<img src="https://img.stage1st.com/forum/202609/04/142623o9oa6uht8cchhszf.png" referrerpolicy="no-referrer">
+
+<strong>IMG_7424.png</strong> (128.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-4 14:26 上传
+
+<img src="https://img.stage1st.com/forum/202609/04/142623ca1kb8g78226x21h.png" referrerpolicy="no-referrer">
+
+<strong>IMG_7425.png</strong> (86.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-4 14:26 上传
+
+momo社员工相对任本社员工应该会玩更多游戏吧
+
