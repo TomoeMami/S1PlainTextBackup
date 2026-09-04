@@ -10722,3 +10722,11 @@ Astra实装了，听说前端代码能力不错啊
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cscbzcbz  
+##### 12848#       发表于 2026-9-5 05:07
+
+token效率高可能和那个loop transformer得技术有关？
+
