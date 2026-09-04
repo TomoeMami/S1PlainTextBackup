@@ -7225,3 +7225,11 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 <img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">风雷双boss战打爽了，两个AI联动出招，各种大技见招拆招高风险高回报，没有一般那种双boss不讲理的粪感
 
+
+*****
+
+####  wwhaha  
+##### 1420#       发表于 2026-9-5 01:06
+
+二条城的场景美术和氛围是不错，但仍有注水跑路的成分，而且太多开门很烦躁
+
