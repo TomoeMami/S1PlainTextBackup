@@ -6553,3 +6553,28 @@ https://www.bilibili.com/video/BV1oPtv6eE21
 
 降难度是对的，但难度封顶之后要怎么把实耗时长补回来目前好像也没什么太好的办法，堆料除外
 
+
+*****
+
+####  卡拉德利姆  
+##### 1349#       发表于 2026-9-4 17:04
+
+升了一级涨2%攻击给我看笑了
+
+不想做rpg系统可以不做<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woshenc  
+##### 1350#       发表于 2026-9-4 17:08
+
+是不是可以得出除去画面外不如仁王3的结论了？<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我王  
+##### 1351#       发表于 2026-9-4 17:11
+
+说来之前demo打肥仔前经过那个洞把我狗眼给闪瞎了，活生生硬控我几分钟去调hdr发现不是我的问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

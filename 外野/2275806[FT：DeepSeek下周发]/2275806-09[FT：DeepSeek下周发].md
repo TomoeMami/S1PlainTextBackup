@@ -9659,3 +9659,26 @@ Chat Completion API &lt;400&gt; InternalError.Algo.DataInspectionFailed: Input t
 
 用api还是有点肉痛，一下子就干出去几十块
 
+
+*****
+
+####  来都来了  
+##### 12752#       发表于 2026-9-4 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202520&amp;ptid=2275806" target="_blank">bad_alloc 发表于 2026-9-4 17:00</a>
+现在用v4flash比较便宜的方法是啥呀，opencode go吗，用量不大，只是个人环境写点demo啥的（工作只能用公司 ...</blockquote>
+你到底是外网还是内网？到底用量大不大啊？你说用量不大，但一下干出去几十块，我一个月才干这么多<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bad_alloc  
+##### 12753#       发表于 2026-9-4 17:11
+
+ 本帖最后由 bad_alloc 于 2026-9-4 17:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202565&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-4 17:09</a>
+
+你到底是外网还是内网？到底用量大不大啊？你说用量不大，但一下干出去几十块，我一个月才干这么多 ...</blockquote>
+前几天无聊用agent搭了个裸arch + hyprland环境，干了2亿多token<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+就外网自己电脑用
+
