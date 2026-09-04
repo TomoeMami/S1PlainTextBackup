@@ -7200,3 +7200,20 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 这城逛起来就没意思吧。
 
+
+*****
+
+####  手铐君  
+##### 1417#       发表于 2026-9-5 00:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">地图探索给的大部分还是些消耗品，但是又偶尔有箱子开出装备升级道具。马桶不仅给升级装备的道具还给技能点，又不得不清
+
+*****
+
+####  ——啧  
+##### 1418#       发表于 2026-9-5 00:56
+
+第一次看见动作游戏得新手教程长成这样……看得出来制作组很想扩大受众了……<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
