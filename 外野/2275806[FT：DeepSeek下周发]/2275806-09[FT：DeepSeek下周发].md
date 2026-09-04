@@ -9743,3 +9743,24 @@ k3竟然免费了，不过trae实在不好用 Re:Source</blockquote>
 
 第二次是局域网其他电脑打不开web ui，问了网页版deepseek说除了复制服务器上吐的那串地址做验证没有别的办法
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 12760#       发表于 2026-9-4 18:17
+
+梁文谷时间到！
+
+ds官方的tps就是爽
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12761#       发表于 2026-9-4 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202194&amp;ptid=2275806" target="_blank">muermaru 发表于 2026-9-4 15:48</a>
+
+kimi的甲好破吗，我看有人评价现在k3是写文最好的</blockquote>
+K3写文不知道留白，不中
+
