@@ -469,3 +469,15 @@ NS2版居然不是钥匙卡？
 
 我去这键盘键位的设置真是太牛逼了，手柄坏了的人就必须锻炼左手吗<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  highsky  
+##### 49#       发表于 2026-9-4 23:14
+
+先玩了ns版，糊到姥姥家
+
+不抱期望打开了steam，非常厚道的2d 4k，清晰无比
+
+本来不感兴趣的，现在看起来要重温一下了
+

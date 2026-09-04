@@ -1469,3 +1469,11 @@ PS5也没有，感觉这游戏可能压根没有震动功能。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">领养的基友，失忆的神秘少女，毁灭一切的boss,好经典的jrp 设定
 
+
+*****
+
+####  horacio  
+##### 145#       发表于 2026-9-4 23:14
+
+还有个牛逼的爹呢<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
