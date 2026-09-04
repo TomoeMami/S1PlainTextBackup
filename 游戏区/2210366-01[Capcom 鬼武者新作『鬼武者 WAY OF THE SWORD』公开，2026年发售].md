@@ -7349,3 +7349,13 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 而且武藏这个主角塑造的真挺讨喜的
 
+
+*****
+
+####  adw667  
+##### 1433#       发表于 2026-9-5 05:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205006&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-5 03:05</a>
+才知道一闪的反应时间会因为帧数变化，因为判定帧数固定，60帧的反应时间比30帧低一倍，如果是120帧那就更 ...</blockquote>
+所以我都用的精防，一闪简直是赌命<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
