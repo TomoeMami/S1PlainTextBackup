@@ -10542,3 +10542,41 @@ codex 可以，codex 也可以写 sub agent 的预设
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12833#       发表于 2026-9-5 02:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204942&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-5 01:59</a>
+k3比较强
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+K3后审查太厉害
+我用它小爬了一下游戏区ac6帖子，爬到坦克人平等撞死一切boss这句话，它自己截断了
+生草的是这句话是我自己发的
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 苇原雪道 + 1欢乐多
+
+查看全部评分
+
+*****
+
+####  苇原雪道  
+##### 12834#       发表于 2026-9-5 02:33
+
+我这几天也在用AI爬泥潭帖子。狗叔要不干脆给个api吧，还能主动限制爬速<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
