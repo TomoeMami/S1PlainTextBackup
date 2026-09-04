@@ -10148,3 +10148,25 @@ qwen的问题估计就是内部不像其他几家有鲜明的“好模型该咋�
 
 表现出来就是狂刷公开benchmark
 
+
+*****
+
+####  中二骚年  
+##### 12796#       发表于 2026-9-4 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203644&amp;ptid=2275806" target="_blank">airshit 发表于 2026-9-4 20:52</a>
+
+大参数搭配小参数，大参数规划并指挥小参数，又好又快又省干完活。这样做有可能吗？
+
+—— 来自 HUAWEI HOP ...</blockquote>
+很多这么干的
+ <blockquote>如果你用 Claude Code 的话，可以用 Fable 指挥，让其他模型干活的模式，这样最经济，可以用的时间比较长。
+
+用 Fable 指挥其他 Agent 效果很好是因为它给的指令很详细，基本上不会出什么岔子。
+
+大部分任务你选 Fable + High（或者Medium，千万别Max及以上），然后后面加一句：
+
+--- 提示词开始 ---
+
+注意你的主要任务是分析、编排和验证，具体任务尽可能交给 subagent（Opus 或 Sonnet）去执行。自己只做需求澄清、方案拆解、任务分发和结果验收，实现类工作（读大量代码、写代码、跑测试、批量修改）一律用 Agent 工具派给 subagent 执行。</blockquote>
+

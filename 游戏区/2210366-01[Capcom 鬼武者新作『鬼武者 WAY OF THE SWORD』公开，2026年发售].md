@@ -6916,3 +6916,11 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 抚雷卡了一个小时，血明显比前面的boss厚。后面放弃一闪老老实实防御过了
 
+
+*****
+
+####  ShitOverflow  
+##### 1387#       发表于 2026-9-4 20:55
+
+这一目笠给我狠狠代入彼岸岛了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">阿明也是个玩刀的
+
