@@ -418,3 +418,11 @@ yuno：我不想有过家家的友情，但是我已经被天意的大手按着�
 要明白的一点就是这个mewtype是一个神人团，这个团的目的 ...</blockquote>
 编剧：我没想那么多<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  takerest  
+##### 430#       发表于 2026-9-4 08:08
+
+所以梦限大阐释了一句话，傻逼也有傻逼的救世主是吧（笑）
+
