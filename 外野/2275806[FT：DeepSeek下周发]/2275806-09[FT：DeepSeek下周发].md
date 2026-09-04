@@ -9764,3 +9764,25 @@ ds官方的tps就是爽
 kimi的甲好破吗，我看有人评价现在k3是写文最好的</blockquote>
 K3写文不知道留白，不中
 
+
+*****
+
+####  Freewolf  
+##### 12762#       发表于 2026-9-4 18:26
+
+买了个kimi订阅，智商还行，但是老是429，一个活重试了好多次
+
+*****
+
+####  lactone  
+##### 12763#       发表于 2026-9-4 18:26
+
+ 本帖最后由 lactone 于 2026-9-4 18:28 编辑 
+
+感觉大模型几个里程碑是gpt4-dsr1-gemini pro-opus4.6-fable，然后是astra
+
+国模现在压力山大<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+这半年肯定各种咩鳖，搞不好回到ds崛起前的舆论
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
