@@ -879,3 +879,14 @@ https://www.neogafimages.com/105958/qmHlXVNaEYBRS2T8.gif
 
 https://www.neogafimages.com/105958/qbhmt44usy1d5z8o.gif
 
+
+*****
+
+####  缺德猫  
+##### 80#       发表于 2026-9-4 08:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199496&amp;ptid=2168141" target="_blank">SergeGlenn 发表于 2026-9-4 08:19</a>
+
+外网看给这游戏开DLSS5的效果很惊人啊</blockquote>
+卧槽，这不就是当年巫师3的诈骗预告片质感吗
+
