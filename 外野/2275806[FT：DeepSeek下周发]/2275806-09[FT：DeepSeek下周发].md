@@ -9277,3 +9277,39 @@ opencode go上了新模型omen-alpha，100刀额度
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  王兰花秀丽  
+##### 12713#       发表于 2026-9-4 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201540&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-4 13:58</a>
+opencode go上了新模型omen-alpha，100刀额度
+
+—— 来自 Xiaomi 25060RK16C, Android 16, 鹅球 v3.5.99 ...</blockquote>
+这次竟然不免费，应该是个比较大的模型吧？话说现在oc go没有什么首充/拉新优惠了吗，想续一个月    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  故障机器人  
+##### 12714#       发表于 2026-9-4 14:12
+
+gemini这两天怎么老提示我只是个文字ai，生3.8升傻了吗
+
+—— 来自 vivo V2329A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  serj005  
+##### 12715#       发表于 2026-9-4 14:14
+
+发现腾讯的codebuddy cli把dsh的四个模式原封不动抄过去了，名字都一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  畜男不是人  
+##### 12716#       发表于 2026-9-4 14:15
+
+等gpt6推送了 着急
+
