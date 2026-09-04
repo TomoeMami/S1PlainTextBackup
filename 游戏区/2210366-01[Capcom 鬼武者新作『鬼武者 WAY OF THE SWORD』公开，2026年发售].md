@@ -7339,3 +7339,13 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 这re引擎真是魔了
 
+
+*****
+
+####  姬茧墨  
+##### 1432#       发表于 2026-9-5 03:40
+
+感觉二条城这段剧情算是卡表近几年来写得最像人的剧本了
+
+而且武藏这个主角塑造的真挺讨喜的
+
