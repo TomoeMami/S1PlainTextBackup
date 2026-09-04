@@ -9201,3 +9201,11 @@ openai以前的前端和视觉都是远远落后与A/的，这次能追上就是
 
 tibo，奥特曼，我tm重置卡呢😡<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  泰坦失足  
+##### 12705#       发表于 2026-9-4 12:48
+
+OpenAI对5.X Pro模型的口径从"几乎无限"变成了定量的"170个请求/天" 没有周上限, GPT 6 Pro每周200条. 5.6 Pro+6 Pro的上限是200/天. 说实话, 能真正有价值的花掉这些也不容易/ 我把GPT web版拿来Review Github Repo里的代码和让它写测试和提交, 动不动就一个半小时惊天思考. 而且最后还是做不到上线即用. 
+
