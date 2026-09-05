@@ -11371,3 +11371,24 @@ Fable5如果不是超能力者用，根本就一坨屎
 
 用了上午 其实治好了挺多的 防御式 前端 各种各样毛病感觉都有缓解 最重要还是人话 不过估计过两个星期降智后又开始骂娘了
 
+
+*****
+
+####  你谁  
+##### 12907#       发表于 2026-9-5 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205897&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-5 12:01</a>
+
+其实就是把说人话也加入后训练了。</blockquote>
+参数肯定也大了 各种之前问题都解决不少
+
+
+*****
+
+####  CCauchy  
+##### 12908#       发表于 2026-9-5 12:13
+
+我好像陷入了一种每个新模型都要测一遍文学的陷阱<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，导致我现在小说进度都不推进了，该停一停了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

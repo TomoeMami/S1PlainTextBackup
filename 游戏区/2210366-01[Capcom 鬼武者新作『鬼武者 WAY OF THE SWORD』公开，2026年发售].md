@@ -7616,3 +7616,36 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 卡婊真有你的啊...欲罢不能
 
+
+*****
+
+####  cloudys  
+##### 1457#       发表于 2026-9-5 12:08
+
+拿下馆子打比方的话，如果是抱着今天请客吃饭必须来顿好的，顺便拍点照片朋友圈美美分享，建议绕开CAPCOM
+
+CAPCOM现在的情况就像是某些老字号餐饮，食客知道它上进心也就这样了，服务员待客有气无力，厨师拿死工资还得控制原料成本所以每天上灶得过且过，但大家就是好他祖传的那一口别家做不出的味道。
+
+这种馆子就没必要赶着高峰期去凑热闹，但要是去的时候碰见几个食客在那骂得兴起手上筷子却根本停不下来，还请手下留情不要鄙视他们<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a3a4sc  
+##### 1458#       发表于 2026-9-5 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205607&amp;ptid=2210366" target="_blank">zqqwe 发表于 2026-9-5 10:35</a>
+只买了pragmata和鬼武者，不喜欢龙信的拟真设计，猛汉等dlc。
+虽然鬼武者boss战部分算是继只狼之后的又一 ...</blockquote>
+感谢卡普空圆我白金奖杯梦，识质存在是我目前唯一一个PS5白金奖杯。
+我等快递亲自玩了
+
+
+*****
+
+####  怀疑论者  
+##### 1459#       发表于 2026-9-5 12:15
+
+玩游戏就别逼着自己看丑女了，等美化mod吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
