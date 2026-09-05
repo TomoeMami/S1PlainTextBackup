@@ -1723,3 +1723,14 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 玩了一会感觉还行不过也不想接着玩了，正式版应该会玩吧就是不知道什么时候了，这两个月游戏是排满了
 
+
+*****
+
+####  kirito_wst  
+##### 175#       发表于 2026-9-5 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207728&amp;ptid=2283081" target="_blank">noonehere 发表于 2026-9-5 21:07</a>
+
+港口三个感叹号有什么说法吗，有一个提到一个boss我打了但是对话没有变，有一个提到了沙漠里的石头，甚至都 ...</blockquote>
+感觉应该只是一种信息提示，没有上升到支线任务，所以没有差分或者其他后续
+

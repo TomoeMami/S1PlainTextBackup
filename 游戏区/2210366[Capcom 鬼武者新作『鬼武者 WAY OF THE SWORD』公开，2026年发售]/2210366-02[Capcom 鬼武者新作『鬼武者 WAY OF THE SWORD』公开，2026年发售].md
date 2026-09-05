@@ -594,3 +594,34 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 总结就是建议还没买的可以等打折<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我安心等10月29了
 
+
+*****
+
+####  dio999  
+##### 1543#       发表于 2026-9-5 21:18
+
+这卡在着色器了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是要退款了嘛
+
+*****
+
+####  红魔馆的糖  
+##### 1544#       发表于 2026-9-5 21:18
+
+这个大锤是什么数值我草，一锤锤三分之二的韧性条，然后处决吸魂之后又有大锤了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 1545#       发表于 2026-9-5 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207375&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-5 19:38</a>
+笼手女这个随身角色，每次说话我都觉得如果捏的好看一点又是一波互联网老婆。结果现在是阿国笼手紫式部三个 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想啥呢，那可是静御前啊，她和义经属于是日本历史里的国民级cp了
+
+*****
+
+####  asikies  
+##### 1546#       发表于 2026-9-5 21:19
+
+牛逼，酒吞这城堡还是摆设。
+

@@ -12158,3 +12158,11 @@ plus可以用astra了吗？</blockquote>
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  UncleDracula  
+##### 12983#       发表于 2026-9-5 21:16
+
+command的flash有问题，这几天用下来总干蠢事，什么把文档直接覆盖了、删注释把代码一起删了的问题比比皆是，你们也小心点吧
+
