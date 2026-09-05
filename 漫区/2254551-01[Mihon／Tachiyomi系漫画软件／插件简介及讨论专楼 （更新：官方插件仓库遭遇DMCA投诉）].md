@@ -2089,3 +2089,14 @@ j2k又更新了一版，语言问题修复了
 更 ...</blockquote>
 安装方式用shizuku试试，需要你手机里有shizuku
 
+
+*****
+
+####  希鲁夫  
+##### 183#       发表于 2026-9-5 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70199075&amp;ptid=2254551" target="_blank">帝蓝 发表于 2026-9-4 01:32</a>
+
+同这个问题 但是我的问题只在米板5Pro上存在 在手机K90PM上没问题 怀疑是哪个权限的问题 折腾了很久都没 ...</blockquote>
+是的，我手机端装插件就没问题。后来我在自带杀毒里把插件全都点忽略了，貌似就好了。总之挺奇怪的问题。
+
