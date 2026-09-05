@@ -1614,3 +1614,29 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 打了3个半小时了还没打完 有多长啊这试玩
 
+
+*****
+
+####  diectt  
+##### 162#       发表于 2026-9-5 18:18
+
+作为之前的手游玩家看到能以这种形式复活，各方面都挺满意的，就是这个暗雷后面不想打怪时肯定会嫌烦，还有如果真想随意搭配技能的话，这个幻兵熟练度刷起来感觉很恐怖<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thez  
+##### 163#       发表于 2026-9-5 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206985&amp;ptid=2283081" target="_blank">谢皮利男爵 发表于 2026-9-5 17:53</a>
+
+打了3个半小时了还没打完 有多长啊这试玩</blockquote>
+我打了5个多小时打完塞壬一看等级快到15级了就停了，估计也快打完第一章了。
+
+
+*****
+
+####  thez  
+##### 164#       发表于 2026-9-5 18:24
+
+这游戏我现在最大不满是女主大饼脸好丑
+
