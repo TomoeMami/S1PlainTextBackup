@@ -823,3 +823,11 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 我知道，只是轻攻击不小心按多了一下就被反<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 用重攻击压就过了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  deathyue  
+##### 1567#       发表于 2026-9-6 00:26
+
+我们老年人砍的倒是挺爽的，就是不能直接地图指定篝火传送吗，一个任务跑半天，然后还要半天跑回去，给个返回骨片之类的道具也行啊
+

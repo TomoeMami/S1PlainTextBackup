@@ -1153,3 +1153,16 @@ Vampyr试一哈？
 算上加点之类的时间也很充裕吗？
 我感觉据点都得挑着清啊。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  噗呸破屁诚  
+##### 106#       发表于 2026-9-6 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206949&amp;ptid=2168141" target="_blank">Schwarzess 发表于 2026-9-5 17:44</a>
+
+算上加点之类的时间也很充裕吗？
+
+我感觉据点都得挑着清啊。    Re:Source</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我的充裕指的是【完全不做马桶的最低难度过关】的条件下充裕，那些清据点动不动就三四个时间流逝还一点剧情没有纯加恶名，感觉在低难度下实在没什么必要
+
