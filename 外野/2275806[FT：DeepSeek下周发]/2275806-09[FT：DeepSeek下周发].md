@@ -12110,3 +12110,13 @@ work和codex可以，chat不行
 
 主要这个东西，一旦染上，就怕戒不掉啊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 12979#       发表于 2026-9-5 20:53
+
+本来改用Zcode只是为了薅智谱的羊毛，结果好像确实有很大加成？
+
+同样一个问题，codex、opencode和DeepSeek-Harness用各种模型都没什么进展，Zcode+glm-5.3-flash就稍微有点进展
+
