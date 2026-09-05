@@ -11294,3 +11294,25 @@ Fable5如果不是超能力者用，根本就一坨屎
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12899#       发表于 2026-9-5 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205799&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-5 11:32</a>
+啊？我觉得sol才是必须闭环的那个，第一遍我非常不满意，第二遍我给了个开头，它太过遵守了，末尾也抄我 ...</blockquote>
+我让AI去写，一般都是提供精确到每一个镜头节拍的细纲，而且包括的失败模式，也就是如果写出来类似内容就会整段重写。
+在这种情况下，sol写得非常好，基本上达到了我需要的要求，但如果是fable5的话，它写得就特别闭环，而且把失败模式也会写到正文里。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  AraTurambar  
+##### 12900#       发表于 2026-9-5 11:39
+
+现在有了astra我还是订阅，但是具体任务我还是扔给d4flash做，太便宜太有效率了……
+
+订阅还是全都给astra老师用。
+
