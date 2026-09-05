@@ -625,3 +625,29 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 牛逼，酒吞这城堡还是摆设。
 
+
+*****
+
+####  JOJO42  
+##### 1547#       发表于 2026-9-5 21:39
+
+话说回来，佐佐木后面的形态变化，一部分美术是不是参考了咒术回战里甚尔的咒灵丑宝，刚好jjxx还给画了贺图
+
+*****
+
+####  杀仁老登  
+##### 1548#       发表于 2026-9-5 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207852&amp;ptid=2210366" target="_blank">JOJO42 发表于 2026-9-5 21:39</a>
+
+话说回来，佐佐木后面的形态变化，一部分美术是不是参考了咒术回战里甚尔的咒灵丑宝，刚好jjxx还给画了贺图 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是黑衣警探吗
+
+<img src="https://img.stage1st.com/forum/202609/05/214346gc6c198x53l5u3k4.jpg" referrerpolicy="no-referrer">
+
+<strong>sddefault.jpg</strong> (37.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-5 21:43 上传
+

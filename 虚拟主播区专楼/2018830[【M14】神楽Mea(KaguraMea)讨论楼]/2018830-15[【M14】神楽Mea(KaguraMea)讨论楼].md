@@ -190,3 +190,11 @@
 1:06:22-1:10:44 ★ 15. LET'S GO OUT / LET'S GO OUT / AMOYAMO（TV动画《银魂'》OP） 
 1:11:44-1:16:05 ★（非常推荐） 16. Hello,world! / Hello,world! / BUMP OF CHICKEN（TV动画《血界战线》OP）
 
+
+*****
+
+####  sino__unnko3  
+##### 21087#       发表于 2026-9-5 21:37
+
+明天8点新衣装
+
