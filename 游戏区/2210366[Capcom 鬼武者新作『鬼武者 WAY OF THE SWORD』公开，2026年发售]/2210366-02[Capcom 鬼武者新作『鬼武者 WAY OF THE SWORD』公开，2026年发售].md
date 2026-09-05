@@ -321,3 +321,18 @@ boss一般跳劈斜劈下劈一闪都很简单，动作路径一半的时候按�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这个跑图不能随时传送真的有点麻，既然这样好歹东西给好点啊。爬了6，7个楼梯最后就给个破烂，想下来只能继续爬。还有鬼族隐居地那断桥过去跑半天路就给半个技能石
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1513#       发表于 2026-9-5 17:43
+
+每次跑完图给个直接传送回npc的选项我都当你努过力了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 1514#       发表于 2026-9-5 17:45
+
+这游戏的各种评论区已经开始大战了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

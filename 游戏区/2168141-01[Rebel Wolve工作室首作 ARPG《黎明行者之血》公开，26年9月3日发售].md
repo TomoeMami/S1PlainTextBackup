@@ -1144,3 +1144,12 @@ Vampyr试一哈？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">整个游戏时间资源最紧缺的地方就是序章，本来被吓到了刻意玩个最低难度啥加点也不加，结果序章之后时间充裕的有点难以想象，感觉不太禁得起重玩....
 
+
+*****
+
+####  Schwarzess  
+##### 105#       发表于 2026-9-5 17:44
+
+算上加点之类的时间也很充裕吗？
+我感觉据点都得挑着清啊。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
