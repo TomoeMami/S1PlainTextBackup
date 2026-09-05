@@ -209,3 +209,29 @@ boss一般跳劈斜劈下劈一闪都很简单，动作路径一半的时候按�
 
 查看全部评分
 
+
+*****
+
+####  银色天空  
+##### 1501#       发表于 2026-9-5 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206432&amp;ptid=2210366" target="_blank">mai6696 发表于 2026-9-5 15:01</a>
+仁王3都是清据点翻宝箱，走到哪儿清到哪儿。懒得舔图也可以按照地图只去关键点。支线基本也都是顺路的，哪 ...</blockquote>
+反正仁王三后面清图给我玩吐了，知道技能点不够点后更是失去兴趣，也就高手武技有点用
+
+
+*****
+
+####  JOJO42  
+##### 1502#       发表于 2026-9-5 15:14
+
+ 本帖最后由 JOJO42 于 2026-9-5 15:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206447&amp;ptid=2210366" target="_blank">浅醉微风 发表于 2026-9-5 15:04</a>
+
+外语加戏但风评不错
+
+狠狠通马桶然后奖励你一个boss
+
+甚至口型一样对不上</blockquote>
+现在阶段这俩给我体验半斤八两，不过武藏塑造的比牢克好太多了，应该说比这几年卡婊他自家别的角色都要有意思，因为他我愿意给鬼武者加一分
+

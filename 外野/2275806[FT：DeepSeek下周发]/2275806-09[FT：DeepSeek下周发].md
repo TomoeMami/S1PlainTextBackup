@@ -11549,3 +11549,23 @@ low就把我之前sol max堆翻车的屎山解决了 速度还快的多
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  acropolis  
+##### 12923#       发表于 2026-9-5 15:12
+
+性价比把fable按在地上草了
+
+*****
+
+####  lly778  
+##### 12924#       发表于 2026-9-5 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206444&amp;ptid=2275806" target="_blank">squallx 发表于 2026-9-5 15:03</a>
+
+low就把我之前sol max堆翻车的屎山解决了 速度还快的多
+
+—— 来自 OnePlus PJZ110, Android 16, 鹅球 v3 ...</blockquote>
+额度耗得和原来比咋样
+
