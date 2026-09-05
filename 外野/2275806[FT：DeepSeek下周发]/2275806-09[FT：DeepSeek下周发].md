@@ -12177,3 +12177,22 @@ command的flash有问题，这几天用下来总干蠢事，什么把文档直�
 不要试图理解ai之间的黑话，验收成果就行了。</blockquote>
 gpt这种自创黑话在sol就已经会溢出思维链跑到思考结果里了，vibe出来的软件很多更新日志的都是人看不懂的胡言乱语，开始影响到结果验证了
 
+
+*****
+
+####  李少卿  
+##### 12985#       发表于 2026-9-5 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207870&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-5 21:45</a>
+gpt这种自创黑话在sol就已经会溢出思维链跑到思考结果里了，vibe出来的软件很多更新日志的都是人看不懂的 ...</blockquote>
+想到了一些超人进化科学题材，到后面对话都是普通人看不懂字符和语法。
+
+—— 来自 OnePlus CPH2581, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  jinuzuktII  
+##### 12986#       发表于 2026-9-5 21:57
+
+bro to bro, set Astra to medium
+
