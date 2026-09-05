@@ -728,3 +728,21 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 弁庆打起来好舒服，我发现用锤子敲他能敲出超多的蓝魂，吸了直接接近满，如果吃点增加蓝魂的道具我怀疑能用 ...</blockquote>
 这个怪物我觉得最爽的是他的下落攻击非常好一闪，几乎是百分百<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SENKON  
+##### 1557#       发表于 2026-9-5 22:47
+
+这静御前怎么看着有点像小猫影视里的雾华啊
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 1558#       发表于 2026-9-5 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208062&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-5 22:38</a>
+这个怪物我觉得最爽的是他的下落攻击非常好一闪，几乎是百分百</blockquote>
+这游戏所有怪的下落和下劈几乎都是送的一闪
+
