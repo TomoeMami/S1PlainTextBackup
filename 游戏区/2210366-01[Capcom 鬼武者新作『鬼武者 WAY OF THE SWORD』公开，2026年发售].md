@@ -7498,3 +7498,11 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 过场的动作设计也太棒了吧，梦回鬼泣3了
 
+
+*****
+
+####  a3a4sc  
+##### 1445#       发表于 2026-9-5 10:22
+
+有没有通关的说说这部在今年卡普空四部新作里面排第几。我快递昨天刚发货，看到漫天的批评有点懵了
+

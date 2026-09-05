@@ -11018,3 +11018,42 @@ PS: If you create the account or upgrade before 8pm PT you will get it too. Stil
 实测Astra反应和处理能力比5.6 Sol 快非常多，消耗也快非常多都是用的“高”档位 ...</blockquote>
 体感low和medium比较甜点
 
+
+*****
+
+####  jojog  
+##### 12876#       发表于 2026-9-5 10:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">感觉消耗的有点快 medium一个小时不到就周20%没了
+
+那堆去吹blender建模的怕不是一周也出不了几个吧
+
+*****
+
+####  drodchang  
+##### 12877#       发表于 2026-9-5 10:20
+
+现在大家基本认为astra和fable5是差不多大的，看来规模还是很重要的。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12878#       发表于 2026-9-5 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205444&amp;ptid=2275806" target="_blank">Anarkia 发表于 2026-9-5 09:49</a>
+我觉得Astra对写黄抵触高了很多啊</blockquote>
+那是必然的……
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12879#       发表于 2026-9-5 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205485&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-5 09:58</a>
+确实，赢一大截，没什么可说的。</blockquote>
+我觉得最难能可贵的是依然保留了5.6sol的留白的能力。没有因为强化了coding和agent能力让写文也变得更闭环。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
