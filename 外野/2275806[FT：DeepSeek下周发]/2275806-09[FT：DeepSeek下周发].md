@@ -12255,3 +12255,29 @@ k3的新检查点好像上arena了
 
 K3 感觉今天变快了，是卡到位了吗？
 
+
+*****
+
+####  M乔梦  
+##### 12993#       发表于 2026-9-5 23:19
+
+看这个视频，效果很不错啊。
+[https://www.bilibili.com/video/BV1hHt26QEwK/](https://www.bilibili.com/video/BV1hHt26QEwK/)
+
+
+*****
+
+####  CCauchy  
+##### 12994#       发表于 2026-9-5 23:24
+
+我去，arena.ai的肥波5.1应该是真的，聊到超限都保持清醒，还能注意到我都没注意到的细节
+
+*****
+
+####  _47  
+##### 12995#       发表于 2026-9-5 23:26
+
+astra做科研制图可以oneshot基本不用自己后期再改了，5.5跟sol都得自己再手改不少
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
