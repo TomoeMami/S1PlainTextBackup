@@ -12357,3 +12357,47 @@ grok一直是可见思维链.
 烧了200m token，感觉glm5.3flash不怎么行，1慢，2输出很容易被截断，1+2的难受程度被成倍放大
 3常识有点问题，连我这个门外汉都能反复提醒他在胡搞<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 13004#       发表于 2026-9-6 06:05
+
+<img src="https://img.stage1st.com/forum/202609/06/060123jiyw5ryazzz6bnuu.jpg" referrerpolicy="no-referrer">
+
+<strong>A8B5DEE2D246206A0018E212FDA3B9D1.jpg</strong> (334.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 06:01 上传
+
+<img src="https://img.stage1st.com/forum/202609/06/060123w9bawoskswawaskq.jpg" referrerpolicy="no-referrer">
+
+<strong>FB5C0757ADAAC2B99E02585D2AE18863.jpg</strong> (719.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 06:01 上传
+
+这是六千字的来自深渊体素模型提示词，群友用GPT6一发直出
+
+<img src="https://img.stage1st.com/forum/202609/06/060219x8lzrs28irbnsrq6.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-09-06_05-59-57.jpg</strong> (206.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 06:02 上传
+
+<img src="https://img.stage1st.com/forum/202609/06/060219vdszbdhus9mzrrbz.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-09-06_05-59-13.jpg</strong> (178.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 06:02 上传
+
+这是GLM5.3FLash同样提示词，我一直告诉他什么地方有问题反复修，烧了两三亿token做的
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">模型碰到能力上限之后确实不行，不过玩这套东西的时候学会了怎么让DSH的agent拆解工作分派子agent倒是也值回票价了
+
