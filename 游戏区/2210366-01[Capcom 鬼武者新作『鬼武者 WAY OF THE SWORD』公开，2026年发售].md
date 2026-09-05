@@ -7584,3 +7584,35 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 话说开了帧生成之后判定是怎么计算的啊</blockquote>
 缩30开帧生成60，最后判定按30帧算，难度大幅度下降。
 
+
+*****
+
+####  wwhaha  
+##### 1454#       发表于 2026-9-5 12:02
+
+各种丑女大怼脸特写真的力竭了，什么时候有mod<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+10小时打完弁庆，整体评价仍然是又香又臭
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  nage560  
+##### 1455#       发表于 2026-9-5 12:04
+
+原来射箭都能一闪掉，好像目前B站没有看见有人发现这个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MRhythm  
+##### 1456#       发表于 2026-9-5 12:07
+
+雷神我打了半天, 各种尝试一闪
+
+结果发现最好闪的居然是雷神那个当身技之后一闪你你反过来闪回去
+
+话说怒伐天也有类似的设计, 怒伐天闪你的那一刀也是你的一闪窗口
+
+卡婊真有你的啊...欲罢不能
+
