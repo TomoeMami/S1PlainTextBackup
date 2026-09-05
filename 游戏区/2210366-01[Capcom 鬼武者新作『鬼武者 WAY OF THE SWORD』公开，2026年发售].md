@@ -7426,3 +7426,15 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 目前没发现能够稳定一闪大鵺的长窗口, 希望其他人试一下
 
+
+*****
+
+####  zqqwe  
+##### 1438#       发表于 2026-9-5 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205140&amp;ptid=2210366" target="_blank">MRhythm 发表于 2026-9-5 07:14</a>
+死磕了一阵大小鵺兽, 感觉摸到了一点技巧.
+
+小鵺</blockquote>
+小鵺的车也可以用弓箭打坠机倒地
+

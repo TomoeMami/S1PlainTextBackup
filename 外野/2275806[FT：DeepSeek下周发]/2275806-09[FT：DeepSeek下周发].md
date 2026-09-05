@@ -10919,3 +10919,13 @@ codex我现在iOS上能选到，android上还看不到
 
 chat里的Astra本来就只给pro模式
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12867#       发表于 2026-9-5 09:25
+
+Astra写文有点牛逼啊，全面进化的sol，并没有像某些F开头5结尾和K开头3结尾的模型那样变成coding便器
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
