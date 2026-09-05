@@ -7564,3 +7564,13 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 看到你们这评价，看来卡婊的游戏如果不是必要过一年后再入手才是最佳途径。反正单机怎么又不会有什么核心性的更新
 
+
+*****
+
+####  conanoysq  
+##### 1452#       发表于 2026-9-5 11:19
+
+后期小怪强度和数量还是上来了，有些战点如果不用环境道具或者鬼武具的话，还是挺有难度的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
