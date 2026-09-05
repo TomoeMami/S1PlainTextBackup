@@ -7398,10 +7398,10 @@
     "update": false
   },
   "2170738": {
-    "totalreply": 8213,
+    "totalreply": 8215,
     "title": "[《碧蓝航线》五号楼｜新年啦]",
     "newtitle": "[《碧蓝航线》五号楼｜7周年了]",
-    "lastedit": 1788599167,
+    "lastedit": 1788599765,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12474,10 +12474,10 @@
     "update": false
   },
   "2267035": {
-    "totalreply": 1188,
+    "totalreply": 1189,
     "title": "[空之轨迹 the 2nd确认下财年发售！]",
     "newtitle": "[空之轨迹 the 2nd确认9.17发售！]",
-    "lastedit": 1788599286,
+    "lastedit": 1788599645,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12546,10 +12546,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 4899,
+    "totalreply": 4900,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1788594125,
+    "lastedit": 1788599645,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 12938,
+    "totalreply": 12941,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[Gemini 3.8 flash、Claude Fable 5.1已上线，静待Astra ｜ 大模型讨论专楼]",
-    "lastedit": 1788598568,
+    "lastedit": 1788599885,
     "category": "外野",
     "active": true,
     "update": false
@@ -16209,10 +16209,10 @@
     "update": false
   },
   "2288639": {
-    "totalreply": 210,
+    "totalreply": 211,
     "title": "[最近开荒《装甲核心6》]",
     "newtitle": "[最近开荒《装甲核心6》]",
-    "lastedit": 1788591845,
+    "lastedit": 1788599646,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16560,10 +16560,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 5730,
+    "totalreply": 5731,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1788599287,
+    "lastedit": 1788599525,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16754,7 +16754,7 @@
     "newtitle": "[【宝可梦WCS2026】宝可梦世界锦标赛 2027举办地新加坡]",
     "lastedit": 1788340206,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2148154": {
@@ -18266,6 +18266,15 @@
     "newtitle": "[现在ai做视频写小说到什么水平了]",
     "lastedit": 1788599167,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2287710": {
+    "totalreply": 55,
+    "title": "[宝可梦银行2027年2月26日关闭，自宝石时代后第二次物理大断代来了]",
+    "newtitle": "[宝可梦银行2027年2月26日关闭，自宝石时代后第二次物理大断代来了]",
+    "lastedit": 1788599646,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

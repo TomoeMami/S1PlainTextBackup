@@ -11716,3 +11716,30 @@ glm lite套餐里的5.3谷价比gpt plus的sol都贵了，峰价比astra还贵�
 
 GPT急需一个PLUS和PRO之间的订阅档位
 
+
+*****
+
+####  lactone  
+##### 12939#       发表于 2026-9-5 17:08
+
+x上面在传纳维尔斯托克斯方程被claude 解决了，会在claude ipo前公布，因为陶哲轩发了一堆话
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  fanisy  
+##### 12940#       发表于 2026-9-5 17:15
+
+让大参数模型指挥flash模型干活具体怎么做的？ 是和他讨论形成方案，然后在话框里切换到flash模型要求按照方案干活？ 
+
+*****
+
+####  唠叨  
+##### 12941#       发表于 2026-9-5 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206845&amp;ptid=2275806" target="_blank">fanisy 发表于 2026-9-5 17:15</a>
+让大参数模型指挥flash模型干活具体怎么做的？ 是和他讨论形成方案，然后在话框里切换到flash模型要求按照 ...</blockquote>
+让他开子代理 
+
