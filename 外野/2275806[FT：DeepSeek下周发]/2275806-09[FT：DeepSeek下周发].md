@@ -12337,3 +12337,14 @@ zcode送的glm5.3f免费额度蹬了一半，感觉在flash里面的能力是不
 
 arena的grok4.6为什么是可见思维链
 
+
+*****
+
+####  RookieTnT  
+##### 13002#       发表于 2026-9-6 02:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208498&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-6 00:53</a>
+
+arena的grok4.6为什么是可见思维链</blockquote>
+grok一直是可见思维链.
+
