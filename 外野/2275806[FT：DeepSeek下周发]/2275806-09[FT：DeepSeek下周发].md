@@ -10892,3 +10892,30 @@ token效率高可能和那个loop transformer得技术有关？
 
 噩耗，没sol那么肯写黄了
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 12864#       发表于 2026-9-5 08:59
+
+ 本帖最后由 Lorraine_Kinney 于 2026-9-5 09:02 编辑 
+
+对比了一下pro，现在chat都是以“最新”形式出来，显示的不是astra
+
+*****
+
+####  紧那罗  
+##### 12865#       发表于 2026-9-5 09:02
+
+我大概摸索出来是现在chat里的pro档（只有pro能开）换成astra了 ，这个不分平台都能用。
+codex我现在iOS上能选到，android上还看不到
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 12866#       发表于 2026-9-5 09:02
+
+chat里的Astra本来就只给pro模式
+
