@@ -11913,3 +11913,11 @@ dsh接API版本glm 5.3 flash每天都在用，没发现截断的问题
 大概啥时候开始会有“国模在数学上落后北美X年”的说法？</blockquote>
 已经有了，但数学能力只是锦上添花的东西，国模都资源有限，没工夫专门搞这个。
 
+
+*****
+
+####  nxmonitor  
+##### 12960#       发表于 2026-9-5 18:34
+
+你得先说服搞数学的信任国模然后塞语料进去……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
