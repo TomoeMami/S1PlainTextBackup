@@ -7574,3 +7574,13 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  大喇叭花田  
+##### 1453#       发表于 2026-9-5 11:56
+
+<blockquote>舌怪 发表于 2026-9-5 09:29
+话说开了帧生成之后判定是怎么计算的啊</blockquote>
+缩30开帧生成60，最后判定按30帧算，难度大幅度下降。
+
