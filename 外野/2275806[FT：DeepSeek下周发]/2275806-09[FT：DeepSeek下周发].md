@@ -11674,3 +11674,45 @@ glm5.3flash怎么老是思考到截断，必须要给他分解任务到最小单
 glm lite套餐里的5.3谷价比gpt plus的sol都贵了，峰价比astra还贵，晚上flash免费不是纯噱头吗，谁11点后 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">有一种生物叫时差党
 
+
+*****
+
+####  squallx  
+##### 12936#       发表于 2026-9-5 16:46
+
+目前无法读取这张图：你提供的路径 \2026-03-12\_00070\_.png 不存在或当前不可访问。  这路径里多个\到底是模型幻觉还是codex的问题 sol也遇到过几次
+
+有，最明显的问题在手部和手臂的连接，腿部则主要是遮挡导致难以判断。 以下左右均按画面方向说：
+
+- 脸部右下方疑似出现了第三只手。 下巴附近有一只横向的手，脸颊旁有一组蜷曲手指，最右侧枕头上又有一组伸出的手指。三组形状难以合理归属于两只手，是最明显的结构疑点。
+
+- 手腕与前臂的对应关系混乱。 右侧两条袖子和手部重叠，无法清楚追踪“上臂—肘—前臂—手腕”的连续连接；靠脸的弯曲手指尤其像是独立长出来的。
+
+- 手指局部有粘连、关节含混。 下巴前方的手，指根与掌面界限不清；枕头上的手指也有叠成薄片的感觉。当前画面不足以准确判定各只手分别有几根手指。
+
+- 腿部没有明确的多腿证据。 两腿折叠、交叠的姿势基本可以成立，但左下方脚踝和脚被裁切、尾巴遮挡，无法完整核查。膝部轮廓偏软，属于结构表达不充分，不宜直接判为反折。
+
+- 头、颈、腰胯未见同等级的明显硬伤。 身体比例有动漫化夸张，不能仅凭这个认定解剖错误。
+
+修图优先处理脸旁的整组手臂与手：先明确只有两只手，再理顺各自的手腕、前臂和肘部连接。 只改手指数量，可能仍会留下连接错误。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这张测试图目前只有ASTRA和V4FV通过   其他从O5 到K3 QWEN3.8都咩
+
+
+*****
+
+####  xiaohanne  
+##### 12937#       发表于 2026-9-5 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206687&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-9-5 16:30</a>
+
+glm lite套餐里的5.3谷价比gpt plus的sol都贵了，峰价比astra还贵，晚上flash免费不是纯噱头吗，谁11点后 ...</blockquote>
+那就真没了，现在哪家的订阅价格都差不多，码农不错峰100肯定都不够用<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jinuzuktII  
+##### 12938#       发表于 2026-9-5 16:53
+
+GPT急需一个PLUS和PRO之间的订阅档位
+
