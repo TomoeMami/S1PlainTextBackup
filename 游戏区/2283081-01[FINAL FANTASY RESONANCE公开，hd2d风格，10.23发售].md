@@ -1598,3 +1598,11 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">沙漠中间挡路的蚁狮也可以打，20级
 
+
+*****
+
+####  ルティナ  
+##### 160#       发表于 2026-9-5 14:34
+
+呃啊 各方面都还不错 就是这UI和UI的声音可以改改吗 好土啊
+
