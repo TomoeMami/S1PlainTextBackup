@@ -975,3 +975,20 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 主线看到第三只厚血条怒伐天的时候我已经释怀了，主线搞这种到底有什么意义<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">能不能别水了让我打下一个boss
 
+
+*****
+
+####  放大镜  
+##### 1583#       发表于 2026-9-6 03:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208748&amp;ptid=2210366" target="_blank">大喇叭花田 发表于 2026-9-6 02:42</a>
+
+我玩的时候已经脑补了无数个节奏了，如果这是国产游戏，首先侮辱英雄人物历史虚无主义的帽子就先扣上。
+
+ ...</blockquote>
+我建议您二位先停一下
+
+如果一定要把源义经的生平跟形象平移到国内，那从项羽到高长恭都可以沾一点边，但绝不可能跟诸葛亮汉武帝扯上关系
+
+要不是怕跑题我是真想请你们分享一下该怎么从一个兵败武夫联想到卧龙汉武
+
