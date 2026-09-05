@@ -10973,3 +10973,30 @@ plus 的 chat 模式没有 astra 啊，只有 work 和 codex 才有
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  AraTurambar  
+##### 12872#       发表于 2026-9-5 09:58
+
+<blockquote>半江瑟瑟半江红 发表于 2026-9-5 09:25
+Astra写文有点牛逼啊，全面进化的sol，并没有像某些F开头5结尾和K开头3结尾的模型那样变成coding便器
+
+—— ...</blockquote>
+确实，赢一大截，没什么可说的。
+
+
+*****
+
+####  Fuero  
+##### 12873#       发表于 2026-9-5 10:04
+
+ 本帖最后由 Fuero 于 2026-9-5 10:06 编辑 
+
+仔细一看是又要送重置次数了，做得好啊！
+ <blockquote>Because we are beyond happy to have Astra rolled out today ahead of schedule and you have been super patient with us (not really, but it’s ok!)… we will do the full banked reset today too for all Plus, Pro and Business users. Lands end of day.
+
+Happy Astra day and enjoy a phenomenal weekend. 
+
+PS: If you create the account or upgrade before 8pm PT you will get it too. Still time!</blockquote>
+

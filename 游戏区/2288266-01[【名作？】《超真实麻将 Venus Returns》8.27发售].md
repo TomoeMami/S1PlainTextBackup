@@ -564,3 +564,16 @@ TLOU2吹上天的脱衣服居然也被这游戏实现了，illusion恐怖如斯<
 
 想买的不想动主号的也很简单，steam开个港区小号即可，港区和国区可以直接组家庭，港区也能直接用支付宝，毫无难度
 
+
+*****
+
+####  aritionkb  
+##### 51#       发表于 2026-9-5 10:00
+
+搓了两个mod，一个是修改初始点数，一个是去掉中间万字，和三麻一样。
+mod loader: [https://github.com/arition/SRM-VR-BepInEx-Patcher](https://github.com/arition/SRM-VR-BepInEx-Patcher)
+修改初始点数: [https://github.com/arition/SRM-VR-initial-score-mod](https://github.com/arition/SRM-VR-initial-score-mod)
+去掉中间万字: [https://github.com/arition/SRM-VR-no-middle-manzu-mod](https://github.com/arition/SRM-VR-no-middle-manzu-mod)
+
+— from samsung SM-F966U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
