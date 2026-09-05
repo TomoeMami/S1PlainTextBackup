@@ -481,3 +481,36 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">技能树那边道具感觉真的是随便填的，缩短开门这种意义不明的东西要技能石，加速跑要技能石，但是一些战斗相关的效果却只要红魂。而且是有的红魂有的技能石
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1532#       发表于 2026-9-5 19:49
+
+这大江山这么大个地，就这点怪物密度真把我玩笑了，而且还是那些老熟人，就多个黑衣怪也没啥啥记忆点
+
+*****
+
+####  FACS  
+##### 1533#       发表于 2026-9-5 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207376&amp;ptid=2210366" target="_blank">舌怪 发表于 2026-9-5 19:38</a>
+居然还有随机任务的吗……</blockquote>
+随机任务就是几个一日笠追着一个人砍，你把他救下来给你点小垃圾<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwhaha  
+##### 1534#       发表于 2026-9-5 19:50
+
+然后力石鬼石不去通马桶不够用，红魂多到用不出<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  horacio  
+##### 1535#       发表于 2026-9-5 19:54
+
+我感觉我玩的是刺客信条，跟着金光跑到处拆据点，玩的可爽了。毕竟我是奥德赛玩了150小时还
+
+没全通的
+

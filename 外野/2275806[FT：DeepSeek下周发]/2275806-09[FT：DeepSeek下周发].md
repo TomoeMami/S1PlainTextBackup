@@ -12045,3 +12045,23 @@ astral 比 sol 快好多，但消耗也快好多，两个 plus 号顶不住，�
 这个人是数 ...</blockquote>
 elliot glazer这个人的X 一点开就看到“ I'm guessing this is true”“I have little inside knowledge”，<strong>guessing</strong><img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浪子龙飞z  
+##### 12973#       发表于 2026-9-5 19:53
+
+<blockquote>drodchang 发表于 2026-9-5 17:25
+不过这真是这样的话，陶哲轩应该很破防了，这是他最关心的问题之一。</blockquote>
+这有啥破防的，陶一直就跟 openai 合作开着，他对 ai 的定义是工具，工具超进化进化了得到好的结果陶有啥好破防的
+
+*****
+
+####  grantdong  
+##### 12974#       发表于 2026-9-5 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207106&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-5 18:28</a>
+
+大概啥时候开始会有“国模在数学上落后北美X年”的说法？</blockquote>
+知乎上周已经有了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
