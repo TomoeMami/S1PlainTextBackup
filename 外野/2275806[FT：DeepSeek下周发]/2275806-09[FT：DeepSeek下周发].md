@@ -11520,3 +11520,13 @@ Astra 做各种小游戏能碾压 Fable5了. 这3D理解能力太强了.
 
 这个灰测的都看过太多了，甚至我觉得Oneshot的结果都平平无奇，物理逻辑还没比过……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  squallx  
+##### 12920#       发表于 2026-9-5 14:52
+
+有测astra模型绑定能力的了吗 建模反正早有一堆专用模型了
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
