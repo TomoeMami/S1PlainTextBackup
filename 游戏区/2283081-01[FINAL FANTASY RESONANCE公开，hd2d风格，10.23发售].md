@@ -1662,3 +1662,18 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 玩起来画面表现不错，战斗系统都很好上手，准备预定个实体版
 
+
+*****
+
+####  YukariK  
+##### 168#       发表于 2026-9-5 19:26
+
+豪华版里的魔导装甲之钥是陆行鸟皮肤，精通指环大概是蚊子腿提升mrp获取的饰品，魔人秘籍是啥<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  TheOccuria  
+##### 169#       发表于 2026-9-5 19:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩了开头太典了，扔愿望单打折再说
+

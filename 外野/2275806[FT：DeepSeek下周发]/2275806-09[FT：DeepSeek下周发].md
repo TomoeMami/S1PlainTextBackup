@@ -11986,3 +11986,49 @@ astral 比 sol 快好多，但消耗也快好多，两个 plus 号顶不住，�
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  狭义文具爱好者  
+##### 12968#       发表于 2026-9-5 19:27
+
+<blockquote>半江瑟瑟半江红 发表于 2026-9-5 18:44
+现在也就closeai在卷数学吧，A畜也进场了？</blockquote>
+今年出的不少数学生仿佛看到原子弹的消息都是claude做的
+
+*****
+
+####  lactone  
+##### 12969#       发表于 2026-9-5 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207106&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-5 18:28</a>
+大概啥时候开始会有“国模在数学上落后北美X年”的说法？</blockquote>
+如果真的ns方程被爆破了，那咩鳖能灭到明年
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lactone  
+##### 12970#       发表于 2026-9-5 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207333&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-9-5 19:27</a>
+今年出的不少数学生仿佛看到原子弹的消息都是claude做的</blockquote>
+那整体来看还是openai成果更多，claude成果少一些
+
+不过国模也在搞啊，之前hy3都解决了一个问题
+
+不过国内学术界喜欢自己整模型，不喜欢和厂商合作，不知道为啥
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  airshit  
+##### 12971#       发表于 2026-9-5 19:34
+
+总觉得跟模型厂合作都是吃断头饭<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
