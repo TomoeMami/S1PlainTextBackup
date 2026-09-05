@@ -455,3 +455,29 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 但缺点能不能接受真的很看人的作品，这墨迹程度已经超过很多人的阈值了。
 
+
+*****
+
+####  红魔馆的糖  
+##### 1529#       发表于 2026-9-5 19:38
+
+笼手女这个随身角色，每次说话我都觉得如果捏的好看一点又是一波互联网老婆。结果现在是阿国笼手紫式部三个妖怪伺候主角一个人，跳都跳不过来了<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舌怪  
+##### 1530#       发表于 2026-9-5 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207060&amp;ptid=2210366" target="_blank">就是剑鞘 发表于 2026-9-5 18:13</a>
+
+做个主线一去一回的路上能立刻在同样的地方刷出同样的随机救人任务啊...nb ...</blockquote>
+居然还有随机任务的吗……
+
+
+*****
+
+####  手铐君  
+##### 1531#       发表于 2026-9-5 19:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">技能树那边道具感觉真的是随便填的，缩短开门这种意义不明的东西要技能石，加速跑要技能石，但是一些战斗相关的效果却只要红魂。而且是有的红魂有的技能石
+

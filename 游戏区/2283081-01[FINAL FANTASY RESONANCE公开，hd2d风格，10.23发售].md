@@ -1677,3 +1677,14 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩了开头太典了，扔愿望单打折再说
 
+
+*****
+
+####  kirito_wst  
+##### 170#       发表于 2026-9-5 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207329&amp;ptid=2283081" target="_blank">YukariK 发表于 2026-9-5 19:26</a>
+
+豪华版里的魔导装甲之钥是陆行鸟皮肤，精通指环大概是蚊子腿提升mrp获取的饰品，魔人秘籍是啥 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉是让女主多学一个大招
+

@@ -12032,3 +12032,16 @@ astral 比 sol 快好多，但消耗也快好多，两个 plus 号顶不住，�
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  cscbzcbz  
+##### 12972#       发表于 2026-9-5 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207254&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-5 19:06</a>
+
+主要是另一个人elliot glazer在红迪说他有内部消息说claude “very likely” to defute n-s
+
+这个人是数 ...</blockquote>
+elliot glazer这个人的X 一点开就看到“ I'm guessing this is true”“I have little inside knowledge”，<strong>guessing</strong><img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
