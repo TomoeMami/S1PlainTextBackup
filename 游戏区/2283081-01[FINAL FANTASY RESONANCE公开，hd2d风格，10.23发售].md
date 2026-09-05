@@ -1567,3 +1567,18 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 塞壬塔里那个要以太的黄瓮打完啥都没有的？另外我打到现在敌人身上的道具一个都没掉落，这是为啥？
 
+
+*****
+
+####  kirito_wst  
+##### 157#       发表于 2026-9-5 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206075&amp;ptid=2283081" target="_blank">thez 发表于 2026-9-5 13:00</a>
+
+塞壬塔里那个要以太的黄瓮打完啥都没有的？另外我打到现在敌人身上的道具一个都没掉落，这是为啥？ ...</blockquote>
+扔以太给它之后就走了，判定胜利，然后给大量背后灵经验
+
+基本上都是掉落消耗品吧，目前看到带装备的好像就港口右边沙漠里面的奇美拉，但是需要偷，不会掉落（目前没偷窃技能
+
+顺便问一下大家，石板碎片第一章是不是只有12块，是的话就不玩等正式版了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

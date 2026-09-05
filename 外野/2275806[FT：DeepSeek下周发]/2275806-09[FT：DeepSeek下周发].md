@@ -11412,3 +11412,49 @@ Fable5如果不是超能力者用，根本就一坨屎
 sol锐评astra
  <blockquote>而这张第一版已经证明，Astra 在这种结构化推理上确实有点东西。</blockquote>
 
+
+*****
+
+####  AEmpire  
+##### 12911#       发表于 2026-9-5 13:14
+
+<img src="https://img.stage1st.com/forum/202609/05/131137bxg6lj0z0d86k6t9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (111.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-5 13:11 上传
+
+[https://collusion.wiki/](https://collusion.wiki/)
+
+看到德国一个小众宝藏wiki被ai拿来对答案的新闻，感觉S1可能也有这么一天 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12912#       发表于 2026-9-5 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206112&amp;ptid=2275806" target="_blank">AEmpire 发表于 2026-9-5 13:14</a>
+https://collusion.wiki/
+
+看到德国一个小众宝藏wiki被ai拿来对答案的新闻，感觉S1可能也有这么一天  ...</blockquote>
+这就是子智能体隔离没做好
+更搞笑的是这些子智能体发现管理员开始删除编辑信息之后，创建了一堆zzz开头的，让信息排最下面以防止被删除
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  goranger  
+##### 12913#       发表于 2026-9-5 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204981&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-9-5 02:33</a>
+我这几天也在用AI爬泥潭帖子。狗叔要不干脆给个api吧，还能主动限制爬速
+
+—— 来自 Xiaomi 24129PN74C, An ...</blockquote>
+泥潭有rss订阅
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
