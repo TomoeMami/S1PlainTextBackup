@@ -12348,3 +12348,12 @@ arena的grok4.6为什么是可见思维链
 arena的grok4.6为什么是可见思维链</blockquote>
 grok一直是可见思维链.
 
+
+*****
+
+####  qwased  
+##### 13003#       发表于 2026-9-6 05:24
+
+烧了200m token，感觉glm5.3flash不怎么行，1慢，2输出很容易被截断，1+2的难受程度被成倍放大
+3常识有点问题，连我这个门外汉都能反复提醒他在胡搞<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
