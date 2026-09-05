@@ -11626,3 +11626,22 @@ low就把我之前sol max堆翻车的屎山解决了 速度还快的多
 
 现在一个月100多人民币的订阅会员有推荐的吗，gpt这个plus完全没法用啊<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">5h额度，一会就没了
 
+
+*****
+
+####  xiaohanne  
+##### 12931#       发表于 2026-9-5 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206636&amp;ptid=2275806" target="_blank">onezer0618 发表于 2026-9-5 16:16</a>
+
+现在一个月100多人民币的订阅会员有推荐的吗，gpt这个plus完全没法用啊5h额度，一会就没了 ...</blockquote>
+智谱咯，用zcode晚上glm5.3flash免费
+
+
+*****
+
+####  lactone  
+##### 12932#       发表于 2026-9-5 16:27
+
+我感觉网页版kimi的K3好像变了
+
