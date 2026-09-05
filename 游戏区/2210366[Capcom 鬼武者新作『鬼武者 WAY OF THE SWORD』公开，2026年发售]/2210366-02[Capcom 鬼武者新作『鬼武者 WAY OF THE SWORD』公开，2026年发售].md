@@ -146,3 +146,66 @@
 —— 来自 S1Fun</blockquote>
 简中加戏
 
+
+*****
+
+####  银色天空  
+##### 1496#       发表于 2026-9-5 14:58
+
+终章前洛东兴趣点全开的样子有点像仁王三<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真没人对这些马桶感兴趣，全砍了填充到后面的一 本 道关卡，评分还能上个两三分。
+
+*****
+
+####  卡拉德利姆  
+##### 1497#       发表于 2026-9-5 14:59
+
+打boss就没什么必要一闪了，收益虽大风险更大，最好的打法就是boss乱舞的时候连弹，判定很宽松，几下就能把boss弹气绝
+
+*****
+
+####  mai6696  
+##### 1498#       发表于 2026-9-5 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206426&amp;ptid=2210366" target="_blank">银色天空 发表于 2026-9-5 14:58</a>
+
+终章前洛东兴趣点全开的样子有点像仁王三真没人对这些马桶感兴趣，全砍了填充到后面的一 本 道关卡，评分还 ...</blockquote>
+仁王3都是清据点翻宝箱，走到哪儿清到哪儿。懒得舔图也可以按照地图只去关键点。支线基本也都是顺路的，哪里有遛狗般的通马桶。
+
+洛东给我玩出一种如龙感。
+
+*****
+
+####  桥洞底下盖小被  
+##### 1499#       发表于 2026-9-5 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206428&amp;ptid=2210366" target="_blank">卡拉德利姆 发表于 2026-9-5 14:59</a>
+打boss就没什么必要一闪了，收益虽大风险更大，最好的打法就是boss乱舞的时候连弹，判定很宽松，几下就能把 ...</blockquote>
+boss一般跳劈斜劈下劈一闪都很简单，动作路径一半的时候按就行，很宽松，收益还是高的
+
+
+*****
+
+####  浅醉微风  
+##### 1500#       发表于 2026-9-5 15:04
+
+外语加戏但风评不错
+
+狠狠通马桶然后奖励你一个boss
+
+甚至口型一样对不上
+
+这不我ff16吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 桥洞底下盖小被 + 1还真是
+
+查看全部评分
+

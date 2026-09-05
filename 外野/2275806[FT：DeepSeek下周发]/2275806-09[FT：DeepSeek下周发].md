@@ -11530,3 +11530,22 @@ Astra 做各种小游戏能碾压 Fable5了. 这3D理解能力太强了.
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lly778  
+##### 12921#       发表于 2026-9-5 15:03
+
+astra轻度能平替5.6high或测xhigh了么
+
+*****
+
+####  squallx  
+##### 12922#       发表于 2026-9-5 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206440&amp;ptid=2275806" target="_blank">lly778 发表于 2026-9-5 15:03</a>
+astra轻度能平替5.6high或测xhigh了么</blockquote>
+low就把我之前sol max堆翻车的屎山解决了 速度还快的多
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
