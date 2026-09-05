@@ -795,3 +795,31 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 这佐佐木的反击架势是什么鬼。。近距离直接出，然后只要不小心多按了一下就要被反击<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好像也不能挡或者闪
 
+
+*****
+
+####  reficul  
+##### 1564#       发表于 2026-9-6 00:09
+
+火鸟可以直接打出硬直，三只火鸟就是三次硬直，我宣布火鸟就是MVP
+
+*****
+
+####  FBC档案部专员  
+##### 1565#       发表于 2026-9-6 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208319&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-6 00:02</a>
+
+这佐佐木的反击架势是什么鬼。。近距离直接出，然后只要不小心多按了一下就要被反击好像也不能挡或者闪 ...</blockquote>
+开场不是有教学么，跟破盾一样用拳头重击
+
+*****
+
+####  红魔馆的糖  
+##### 1566#       发表于 2026-9-6 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208343&amp;ptid=2210366" target="_blank">FBC档案部专员 发表于 2026-9-6 00:10</a>
+开场不是有教学么，跟破盾一样用拳头重击</blockquote>
+我知道，只是轻攻击不小心按多了一下就被反<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+用重攻击压就过了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
