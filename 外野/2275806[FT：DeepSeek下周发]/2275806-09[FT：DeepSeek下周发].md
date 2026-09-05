@@ -11921,3 +11921,46 @@ dsh接API版本glm 5.3 flash每天都在用，没发现截断的问题
 
 你得先说服搞数学的信任国模然后塞语料进去……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12961#       发表于 2026-9-5 18:44
+
+现在也就closeai在卷数学吧，A畜也进场了？
+
+*****
+
+####  cscbzcbz  
+##### 12962#       发表于 2026-9-5 18:44
+
+去看了一下本周四陶哲轩的发言，人家只是拿自己研究方向举了一个例子：即使AI碰巧找到了解析解，但是如果没有思路和过程，对数学的发展毫无意义。而且也没有现实意义，因为CFD（计算流体力学）在解决类似问题上已经很成熟了。不知道咋传的，传成claude解决ns方程了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nianiania  
+##### 12963#       发表于 2026-9-5 18:47
+
+astral 比 sol 快好多，但消耗也快好多，两个 plus 号顶不住，给奥特曼又上供了一个 pro， 趁着首发的第一个月不太会降智猛猛蹬了
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  舞以  
+##### 12964#       发表于 2026-9-5 18:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的pro5x已经跑完了，周一恢复额度加上三张重置卡猛蹬了
+
+
+*****
+
+####  qwased  
+##### 12965#       发表于 2026-9-5 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207138&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-5 18:34</a>
+
+你得先说服搞数学的信任国模然后塞语料进去……</blockquote>
+我在b站刷到过几个搞数学的说给某国模收费搞了几次数据标注，后面就不想干了，国模数学进步太快感觉太受打击<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
