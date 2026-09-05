@@ -651,3 +651,11 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 2026-9-5 21:43 上传
 
+
+*****
+
+####  Jabeck  
+##### 1549#       发表于 2026-9-5 22:02
+
+想了想要是国内做个游戏把古代的英雄人物比如诸葛亮或者汉武帝做成毫无人性的最终BOSS估计制作组家人都没了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
