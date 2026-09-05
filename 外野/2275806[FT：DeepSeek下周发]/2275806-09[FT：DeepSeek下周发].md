@@ -11895,3 +11895,21 @@ dsh接API版本glm 5.3 flash每天都在用，没发现截断的问题
 嗨，原来数学上研究的NS方程还是不可压缩性的简化版本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 那感觉好接受一些，虽然也很难就是了
 
+
+*****
+
+####  舞以  
+##### 12958#       发表于 2026-9-5 18:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概啥时候开始会有“国模在数学上落后北美X年”的说法？
+
+*****
+
+####  drodchang  
+##### 12959#       发表于 2026-9-5 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207106&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-5 18:28</a>
+
+大概啥时候开始会有“国模在数学上落后北美X年”的说法？</blockquote>
+已经有了，但数学能力只是锦上添花的东西，国模都资源有限，没工夫专门搞这个。
+
