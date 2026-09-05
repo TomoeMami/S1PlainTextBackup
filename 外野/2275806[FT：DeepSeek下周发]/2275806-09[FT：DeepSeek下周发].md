@@ -11577,3 +11577,20 @@ low就把我之前sol max堆翻车的屎山解决了 速度还快的多
 
 额度消耗2倍左右？中转站价格15对25，还没2倍
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 12926#       发表于 2026-9-5 15:38
+
+如果保持astra medium指挥，dsv4f干活的话，感觉5x额度可能也撑得住。但总感觉两个ai之间说的话掺了越来越多读不懂的黑话，好多不明所以的代号
+
+*****
+
+####  startraveller  
+##### 12927#       发表于 2026-9-5 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206465&amp;ptid=2275806" target="_blank">lly778 发表于 2026-9-5 15:12</a>
+额度耗得和原来比咋样</blockquote>
+感觉和5.6的额度消耗速度差不多，可能因为token效率提升了吧
+
