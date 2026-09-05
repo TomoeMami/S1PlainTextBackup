@@ -359,3 +359,55 @@ boss一般跳劈斜劈下劈一闪都很简单，动作路径一半的时候按�
 
 紫式部有个任务要在清水寺上下跑三遍才算完！<img src="https://static.stage1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ylssb10438  
+##### 1518#       发表于 2026-9-5 18:08
+
+看来可以等一波优化补丁再开玩了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  泥潭办证先锋  
+##### 1519#       发表于 2026-9-5 18:08
+
+怒伐天好爽啊，学到的任何招数几乎都可以应对，反馈也给的很足。
+
+BOSS 也够强且不粪，舍不得杀被他残血反杀几次，越来越上头，完全没有那种打不过的红温。最后练到不吃药随便过了。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 1520#       发表于 2026-9-5 18:12
+
+还有那个缩短开门时间的技能是用何种大脑设计出来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tm这玩意还要2个魔石
+
+
+*****
+
+####  就是剑鞘  
+##### 1521#       发表于 2026-9-5 18:13
+
+做个主线一去一回的路上能立刻在同样的地方刷出同样的随机救人任务啊...nb
+
+*****
+
+####  我王  
+##### 1522#       发表于 2026-9-5 18:13
+
+FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送回NPC身边的功能，你鬼也有18月发售计划吗
+
+
+*****
+
+####  ナルバレック  
+##### 1523#       发表于 2026-9-5 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206641&amp;ptid=2210366" target="_blank">乔迪奥 发表于 2026-9-5 16:18</a>
+
+卡普空多年服务洋人，已经不太记得自己是日本人了。
+
+光荣就是正好反过来，以为全世界都喜欢小日本那点狗屁 ...</blockquote>
+对，浪人崛起日本人特喜欢，现在都有很多直播的，出了日本销量褒姒到逆天，外国人没人对幕末有兴趣
+

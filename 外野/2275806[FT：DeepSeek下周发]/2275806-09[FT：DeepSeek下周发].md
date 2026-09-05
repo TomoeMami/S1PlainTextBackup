@@ -11886,3 +11886,12 @@ glm5.3flash怎么老是思考到截断，必须要给他分解任务到最小单
 
 dsh接API版本glm 5.3 flash每天都在用，没发现截断的问题
 
+
+*****
+
+####  cscbzcbz  
+##### 12957#       发表于 2026-9-5 18:08
+
+嗨，原来数学上研究的NS方程还是不可压缩性的简化版本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那感觉好接受一些，虽然也很难就是了
+
