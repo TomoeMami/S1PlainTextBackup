@@ -11964,3 +11964,11 @@ astral 比 sol 快好多，但消耗也快好多，两个 plus 号顶不住，�
 你得先说服搞数学的信任国模然后塞语料进去……</blockquote>
 我在b站刷到过几个搞数学的说给某国模收费搞了几次数据标注，后面就不想干了，国模数学进步太快感觉太受打击<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 12966#       发表于 2026-9-5 18:58
+
+这种肯定得靠frontier lab自己招人做数学的
+
