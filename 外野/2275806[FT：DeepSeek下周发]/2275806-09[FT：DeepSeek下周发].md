@@ -12065,3 +12065,13 @@ elliot glazer这个人的X 一点开就看到“ I'm guessing this is true”“
 大概啥时候开始会有“国模在数学上落后北美X年”的说法？</blockquote>
 知乎上周已经有了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 12975#       发表于 2026-9-5 20:02
+
+<blockquote>拯救节操希灵宅 发表于 2026-9-5 15:38
+如果保持astra medium指挥，dsv4f干活的话，感觉5x额度可能也撑得住。但总感觉两个ai之间说的话掺了越来越 ...</blockquote>
+不要试图理解ai之间的黑话，验收成果就行了。
+
