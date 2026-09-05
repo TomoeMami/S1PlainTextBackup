@@ -12227,3 +12227,31 @@ dsh这个子agent模式对于不稳定的供应商来说完全不可用，子或
 dsh这个子agent模式对于不稳定的供应商来说完全不可用，子或者父agent卡了都容易导致工作白搞 ...</blockquote>
 怎么会呢，dsh的子agent不是可以随时继续对话还可以自由输入内容吗，相反我觉得这个agent系统真的是最好用的了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qwased  
+##### 12990#       发表于 2026-9-5 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208129&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-5 23:02</a>
+怎么会呢，dsh的子agent不是可以随时继续对话还可以自由输入内容吗，相反我觉得这个agent系统真的是最好 ...</blockquote>
+父agent插入的提示是用户不可见的，供应商不稳定导致停机的时候父agent有时候会说尽快交付已有成果什么的，但是用户又看不见这个提示，子agent的成果就变成半吊子了
+停机提示还会在两个agent之间来回响应，很怪
+
+
+*****
+
+####  lactone  
+##### 12991#       发表于 2026-9-5 23:11
+
+k3的新检查点好像上arena了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  HazukiShion  
+##### 12992#       发表于 2026-9-5 23:16
+
+K3 感觉今天变快了，是卡到位了吗？
+
