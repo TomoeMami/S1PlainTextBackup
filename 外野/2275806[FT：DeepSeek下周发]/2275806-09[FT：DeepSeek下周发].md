@@ -12144,3 +12144,17 @@ plus可以用astra了吗？</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12982#       发表于 2026-9-5 21:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207619&amp;ptid=2275806" target="_blank">@weakb0y 发表于 2026-9-5 20:42</a>
+用了一天，还是用的astra-medium，实在是有些费，在我实际的godot项目中，plus5小时，只能2个问题，
+
+还是只 ...</blockquote>
+一开始只是试试……没打算真的陷进去……
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

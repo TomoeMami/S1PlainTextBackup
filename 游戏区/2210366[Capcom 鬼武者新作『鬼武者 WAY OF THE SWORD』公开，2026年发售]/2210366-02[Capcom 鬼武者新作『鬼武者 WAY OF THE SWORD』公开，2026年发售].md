@@ -572,3 +572,25 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zqqwe  
+##### 1542#       发表于 2026-9-5 21:11
+
+一周目通关，没做任何支线和收集，升级靠主线奖励，最终boss居然5次以内就过了，你就说这数值平不平衡吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+优点：
+
+1.化劲弹刀和一闪的动态丰富度和音效震动反馈细腻程度恐怕很久之后都难有竞品；
+
+2.打戏过场极帅，一扫当年DMC5没有能看的打戏过场的遗憾。
+
+缺点：
+
+1.即使没通马桶，这主线道中已经不想跑第二遍了<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">百秽，然后是怒伐天，然后是百秽<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">二周目还是算了吧，只能成为boss rush启动器；
+
+2.文戏没眼看，丑人加丑表情导致某段R18G要素都色不起来<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">只听声音的话还是挺有味道的，尤其是大原配的女鬼。
+
+总结就是建议还没买的可以等打折<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我安心等10月29了
+
