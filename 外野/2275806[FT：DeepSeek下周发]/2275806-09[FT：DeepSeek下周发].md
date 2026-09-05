@@ -12094,3 +12094,19 @@ plus可以用astra了吗？
 plus可以用astra了吗？</blockquote>
 work和codex可以，chat不行
 
+
+*****
+
+####  @weakb0y  
+##### 12978#       发表于 2026-9-5 20:42
+
+ 本帖最后由 @weakb0y 于 2026-9-5 20:43 编辑 
+
+用了一天，还是用的astra-medium，实在是有些费，在我实际的godot项目中，plus5小时，只能2个问题，
+
+还是只做规划+检查，让周末送的glm5.3flash来实际做的
+
+相比之下，曾经觉得跑飞快的5.6 sol xhigh都显得有性价比了，只能再升pro了吗...
+
+主要这个东西，一旦染上，就怕戒不掉啊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
