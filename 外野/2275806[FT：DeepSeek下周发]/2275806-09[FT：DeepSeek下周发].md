@@ -11605,3 +11605,24 @@ low就把我之前sol max堆翻车的屎山解决了 速度还快的多
 额度耗得和原来比咋样</blockquote>
 他完成项目的请求次数远低于其他模型。swe step才29次，fable5 68。
 
+
+*****
+
+####  xiaohanne  
+##### 12929#       发表于 2026-9-5 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206465&amp;ptid=2275806" target="_blank">lly778 发表于 2026-9-5 15:12</a>
+
+额度耗得和原来比咋样</blockquote>
+开了ultra会比原来多很多，迅速爆炸。plus订阅原来偶尔还能开一下ultra玩玩，现在绝对不行，5h limit完全顶不住。
+
+但如果不开ultra，即使开到xhigh感觉也和原来差不多。
+
+
+*****
+
+####  onezer0618  
+##### 12930#       发表于 2026-9-5 16:16
+
+现在一个月100多人民币的订阅会员有推荐的吗，gpt这个plus完全没法用啊<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">5h额度，一会就没了
+
