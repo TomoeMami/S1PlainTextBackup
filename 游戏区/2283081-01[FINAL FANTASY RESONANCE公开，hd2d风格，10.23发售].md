@@ -1742,3 +1742,14 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 音乐超级棒啊。
 
+
+*****
+
+####  noonehere  
+##### 177#       发表于 2026-9-6 02:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207782&amp;ptid=2283081" target="_blank">kirito_wst 发表于 2026-9-5 21:19</a>
+
+感觉应该只是一种信息提示，没有上升到支线任务，所以没有差分或者其他后续 ...</blockquote>
+确实，如果是正儿八经的支线任务的话图标也不一样，昨天看攻略还漏了个蚁狮，在陆行鸟那个村子出来左下角有个圆形坑，下陆行鸟据说能遇到
+
