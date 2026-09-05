@@ -10929,3 +10929,47 @@ Astra写文有点牛逼啊，全面进化的sol，并没有像某些F开头5结�
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Anarkia  
+##### 12868#       发表于 2026-9-5 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205366&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-9-5 09:25</a>
+
+Astra写文有点牛逼啊，全面进化的sol，并没有像某些F开头5结尾和K开头3结尾的模型那样变成coding便器
+
+—— ...</blockquote>
+我觉得Astra对写黄抵触高了很多啊
+
+
+*****
+
+####  xiaohanne  
+##### 12869#       发表于 2026-9-5 09:53
+
+<blockquote>紧那罗 发表于 2026-9-5 08:36
+有人试过Astra怎么样了吗
+
+论坛助手,iPhone</blockquote>
+
+正常模式下，和5.6sol消耗差不多，但手感确实很好。
+
+但不知道是不是我的错觉，思考模式开到 Ultra 拉起 Subagent 以后，消耗比5.6Sol要多得多得多。
+
+*****
+
+####  jinuzuktII  
+##### 12870#       发表于 2026-9-5 09:54
+
+plus 的 chat 模式没有 astra 啊，只有 work 和 codex 才有
+
+*****
+
+####  紧那罗  
+##### 12871#       发表于 2026-9-5 09:55
+
+刚想拿昨天的需求试试Astra，奇怪，Codex里又看不到astra了，难道是我早上睡迷糊了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

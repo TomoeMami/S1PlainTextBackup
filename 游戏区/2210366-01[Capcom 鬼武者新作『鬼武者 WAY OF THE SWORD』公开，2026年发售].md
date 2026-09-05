@@ -7454,3 +7454,39 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 地下研究所这段流程有初代的战国生化味了，科学家初登场放分裂触手怪也是完全致敬
 
+
+*****
+
+####  魂淡放我出去  
+##### 1441#       发表于 2026-9-5 09:48
+
+还没打开，情况不对就退预购
+
+另外蹲一个剑戟难度全支线的存档，FF16通吐了，不想通马桶了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  wzh5555  
+##### 1442#       发表于 2026-9-5 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205140&amp;ptid=2210366" target="_blank">MRhythm 发表于 2026-9-5 07:14</a>
+
+死磕了一阵大小鵺兽, 感觉摸到了一点技巧.
+
+小鵺</blockquote>
+桃色我记得文字说明就写的，不能一闪吧
+
+*****
+
+####  医生狼多  
+##### 1443#       发表于 2026-9-5 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205140&amp;ptid=2210366" target="_blank">MRhythm 发表于 2026-9-5 07:14</a>
+死磕了一阵大小鵺兽, 感觉摸到了一点技巧.
+
+小鵺</blockquote>
+桃色攻击教程说了，没法一闪和闪避
+
