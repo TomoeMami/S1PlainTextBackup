@@ -11212,3 +11212,43 @@ Astra写的确实比另外两个强
 
 然而 GPT 5.5、5.6 都只给了同一份翻译中等偏上的评价。这次 6.0 直接给了 8 分，虽然还有相当部分的翻译取舍都没有看出来，我得给它逐句解说，最后它才认同翻译很优秀<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 12892#       发表于 2026-9-5 10:59
+
+国模现在的目标是搞出来廉价fable
+
+但是我真觉得ds之前的灰测水平很高，和astra没有代差
+
+不过按顺序应该是K3.1了，如果能干掉Fable，那还是可以的
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12893#       发表于 2026-9-5 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205675&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-5 10:59</a>
+国模现在的目标是搞出来廉价fable
+
+但是我真觉得ds之前的灰测水平很高，和astra没有代差</blockquote>
+Fable5如果不是超能力者用，根本就一坨屎
+我拿它写文，每一句话它都要闭环，根本没有任何留白和剧情回味，非常弱智，而且达不到细纲要求它就会把细纲明令禁止的失败模式写上去，然后补上自己没有这么写
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  杀人鲸  
+##### 12894#       发表于 2026-9-5 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205156&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-5 07:32</a>
+apk版本和模型动向从来都没有任何联系，随机测出点小bug修了刷版本号在移动应用是日常，ds的app近期就没 ...</blockquote>
+的确是这样的。那种真有什么大功能的更新，是要强制更新到最新版，并跳出弹窗提醒的。
+
+而不是这种你得去系统商城里找，才会发现的更新。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
