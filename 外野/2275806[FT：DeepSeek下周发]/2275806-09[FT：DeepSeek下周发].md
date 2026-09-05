@@ -12209,3 +12209,21 @@ bro to bro, set Astra to medium
 
 因为对于现在的顶级模型真搞出一个n-s方程的blow-up解也不算是完全意外的情况，在加上有其他舅舅党乱七八糟的消息才开始疯传的
 
+
+*****
+
+####  qwased  
+##### 12988#       发表于 2026-9-5 22:57
+
+dsh这个子agent模式对于不稳定的供应商来说完全不可用，子或者父agent卡了都容易导致工作白搞
+
+
+*****
+
+####  王兰花秀丽  
+##### 12989#       发表于 2026-9-5 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208119&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-5 22:57</a>
+dsh这个子agent模式对于不稳定的供应商来说完全不可用，子或者父agent卡了都容易导致工作白搞 ...</blockquote>
+怎么会呢，dsh的子agent不是可以随时继续对话还可以自由输入内容吗，相反我觉得这个agent系统真的是最好用的了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
