@@ -12083,3 +12083,14 @@ elliot glazer这个人的X 一点开就看到“ I'm guessing this is true”“
 
 plus可以用astra了吗？
 
+
+*****
+
+####  jinuzuktII  
+##### 12977#       发表于 2026-9-5 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207480&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-9-5 20:12</a>
+
+plus可以用astra了吗？</blockquote>
+work和codex可以，chat不行
+
