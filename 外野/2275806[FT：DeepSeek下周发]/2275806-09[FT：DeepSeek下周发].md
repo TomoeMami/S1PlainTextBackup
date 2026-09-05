@@ -11765,3 +11765,42 @@ x上面在传纳维尔斯托克斯方程被claude 解决了，会在claude ipo�
 x上面在传纳维尔斯托克斯方程被claude 解决了，会在claude ipo前公布，因为陶哲轩发了一堆话</blockquote>
 不过这真是这样的话，陶哲轩应该很破防了，这是他最关心的问题之一。
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 12944#       发表于 2026-9-5 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206845&amp;ptid=2275806" target="_blank">fanisy 发表于 2026-9-5 17:15</a>
+ 让大参数模型指挥flash模型干活具体怎么做的？ 是和他讨论形成方案，然后在话框里切换到flash模型要求按照 ...</blockquote>
+有些cli支持外部调用他的协议，比如agy
+我刚充了20刀的a畜pro，用opus带一群哈基米干活，体感20刀套餐都用不完<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lowezack  
+##### 12945#       发表于 2026-9-5 17:32
+
+Astra好强，同样的提示词，sol会把任务派给子agent自己在那傻等。astra会告诉子agent他会做什么，子agent要完成什么。同时并行，父agent干完后立马通知子agent，协作效率好高。这就是新模型出来没降智的效果吗？<img src="https://static.stage1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 12946#       发表于 2026-9-5 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206878&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-9-5 17:25</a>
+不过这真是这样的话，陶哲轩应该很破防了，这是他最关心的问题之一。</blockquote>
+我看tao的语气还没解决，是假设语气，但是翻译成中文假设语气没了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  RookieTnT  
+##### 12947#       发表于 2026-9-5 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206845&amp;ptid=2275806" target="_blank">fanisy 发表于 2026-9-5 17:15</a>
+
+让大参数模型指挥flash模型干活具体怎么做的？ 是和他讨论形成方案，然后在话框里切换到flash模型要求按照 ...</blockquote>
+用herdr 
+
