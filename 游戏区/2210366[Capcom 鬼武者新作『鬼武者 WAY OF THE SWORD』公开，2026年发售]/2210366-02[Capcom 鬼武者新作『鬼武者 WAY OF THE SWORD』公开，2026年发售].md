@@ -525,3 +525,13 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 笼手女这个随身角色，每次说话我都觉得如果捏的好看一点又是一波互联网老婆。结果现在是阿国笼手紫式部三个 ...</blockquote>
 别想了，她跟最终BOSS是夫妻关系，真做漂亮了多少人破防还不知道呢。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 1537#       发表于 2026-9-5 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207545&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-9-5 20:26</a>
+别想了，她跟最终BOSS是夫妻关系，真做漂亮了多少人破防还不知道呢。</blockquote>
+那也比看到就跳过或者看到就玩手机好<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
