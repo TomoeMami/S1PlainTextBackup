@@ -1002,3 +1002,15 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 不能用关灯结尾宁愿重开<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 1585#       发表于 2026-9-6 04:38
+
+ 本帖最后由 红魔馆的糖 于 2026-9-6 04:40 编辑 
+
+酒吞童子打的确实爽啊，就是那个喷火不提醒用弓箭有点难崩<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这是我犯困跑图应得的奖励<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+打完发现又要去封印狱窗，睡觉！
+
