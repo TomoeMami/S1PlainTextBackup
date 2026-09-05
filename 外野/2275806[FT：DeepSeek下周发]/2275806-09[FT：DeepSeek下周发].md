@@ -12319,3 +12319,13 @@ zcode送的glm5.3f免费额度蹬了一半，感觉在flash里面的能力是不
 
 比较让我惊讶的是它能比较清醒的考虑到用户测试的操作错误，比如我在测p3色域图片解码的时候发现色彩偏淡，它能自信的知道自己之前的代码质量没有问题，会优先设想是不是我提供的图片本身有问题或者上一个版本的错误解码图片缓存导致（最后结果是两者都猜对了，是个复合bug）
 
+
+*****
+
+####  qwased  
+##### 13000#       发表于 2026-9-6 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208294&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-5 23:55</a>
+zcode送的glm5.3f免费额度蹬了一半，感觉在flash里面的能力是不错的了，用来给自制的图片查看器改解码器和 ...</blockquote>
+你不会因为输出过长被截断吗，这毛病搞得恶心死了，长时间思考-写入文件到一半就截断导致失败-吞掉回复重新思考，无限循环了一晚上一点进度都没有<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -831,3 +831,40 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 我们老年人砍的倒是挺爽的，就是不能直接地图指定篝火传送吗，一个任务跑半天，然后还要半天跑回去，给个返回骨片之类的道具也行啊
 
+
+*****
+
+####  pzk  
+##### 1568#       发表于 2026-9-6 00:33
+
+有什么御守是推荐拿的吗，或者有什么支线是剧情比较好推荐做的？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 1569#       发表于 2026-9-6 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208412&amp;ptid=2210366" target="_blank">deathyue 发表于 2026-9-6 00:26</a>
+我们老年人砍的倒是挺爽的，就是不能直接地图指定篝火传送吗，一个任务跑半天，然后还要半天跑回去，给个返 ...</blockquote>
+故意这么设计的，这游戏就是各种设计拖游戏时间<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mai6696  
+##### 1570#       发表于 2026-9-6 00:35
+
+<blockquote>卡拉德利姆 发表于 2026-9-5 23:04
+大狗所有的攻击都是体术判定，用看破攒连斩好打
+
+最后的超大狗伸爪子就是兵器判定了 ...</blockquote>
+
+说起这个我才想起来我看破那一栏根本没加点。
+
+我现在看破都不攒槽的。
+
+本来二条城之前凑到两个力石，犹豫半天加在疾跑上了。
+
+疾跑也抢资源真是看不懂。
+
+这种功能性的东西用红魂换不好吗？（我之前是不是已经发过一遍这个了）
+
