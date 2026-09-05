@@ -7490,3 +7490,11 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 小鵺</blockquote>
 桃色攻击教程说了，没法一闪和闪避
 
+
+*****
+
+####  SergeGlenn  
+##### 1444#       发表于 2026-9-5 10:07
+
+过场的动作设计也太棒了吧，梦回鬼泣3了
+

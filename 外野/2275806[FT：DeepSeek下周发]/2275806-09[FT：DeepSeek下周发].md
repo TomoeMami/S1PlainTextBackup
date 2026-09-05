@@ -11000,3 +11000,21 @@ Happy Astra day and enjoy a phenomenal weekend.
 
 PS: If you create the account or upgrade before 8pm PT you will get it too. Still time!</blockquote>
 
+
+*****
+
+####  神必迷你龙  
+##### 12874#       发表于 2026-9-5 10:06
+
+实测Astra反应和处理能力比5.6 Sol 快非常多，消耗也快非常多<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都是用的“高”档位
+
+*****
+
+####  Fuero  
+##### 12875#       发表于 2026-9-5 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205513&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-9-5 10:06</a>
+
+实测Astra反应和处理能力比5.6 Sol 快非常多，消耗也快非常多都是用的“高”档位 ...</blockquote>
+体感low和medium比较甜点
+
