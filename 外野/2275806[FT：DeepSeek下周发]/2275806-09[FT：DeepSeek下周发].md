@@ -11392,3 +11392,23 @@ Fable5如果不是超能力者用，根本就一坨屎
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jojog  
+##### 12909#       发表于 2026-9-5 12:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">Astra测了下NSFW日语
+
+它可以写个给我blowjob的，但是我说你生成个插图不用NSFW就行它突然就啥都不给干了
+
+这点和opus怎么一个毛病
+
+*****
+
+####  jinuzuktII  
+##### 12910#       发表于 2026-9-5 12:19
+
+sol锐评astra
+ <blockquote>而这张第一版已经证明，Astra 在这种结构化推理上确实有点东西。</blockquote>
+

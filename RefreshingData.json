@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 44530,
+    "totalreply": 44531,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1788581166,
+    "lastedit": 1788582007,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12546,10 +12546,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 4885,
+    "totalreply": 4888,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1788581645,
+    "lastedit": 1788582007,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2271276": {
-    "totalreply": 9342,
+    "totalreply": 9345,
     "title": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
     "newtitle": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
-    "lastedit": 1788570247,
+    "lastedit": 1788582007,
     "category": "外野",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 12908,
+    "totalreply": 12910,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[Gemini 3.8 flash、Claude Fable 5.1已上线，静待Astra ｜ 大模型讨论专楼]",
-    "lastedit": 1788581765,
+    "lastedit": 1788582007,
     "category": "外野",
     "active": true,
     "update": false
@@ -13149,10 +13149,10 @@
     "update": false
   },
   "2210366": {
-    "totalreply": 1459,
+    "totalreply": 1461,
     "title": "[Capcom 鬼武者新作『鬼武者 WAY OF THE SWORD』公开，2026年发售]",
     "newtitle": "[Capcom 鬼武者新作『鬼武者 WAY OF THE SWORD』公开，2026年9月4日发售]",
-    "lastedit": 1788581885,
+    "lastedit": 1788582486,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13275,12 +13275,12 @@
     "update": false
   },
   "2252073": {
-    "totalreply": 258,
+    "totalreply": 266,
     "title": "[2026年奥特曼系列60周年 新奥「ULTRAMAN TEO」]",
     "newtitle": "[2026年奥特曼系列60周年 新奥「ULTRAMAN TEO」]",
-    "lastedit": 1787550967,
+    "lastedit": 1788582245,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2283740": {
@@ -16569,10 +16569,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 5671,
+    "totalreply": 5676,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1788581645,
+    "lastedit": 1788582246,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -18248,6 +18248,15 @@
     "newtitle": "[乌龙派出所（こち亀）连载终了]",
     "lastedit": 1788581046,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2289276": {
+    "totalreply": 42,
+    "title": "[联合国通过决议，鼓励使用“平等地球”及其他等面积地图投影法，美国唯一反对]",
+    "newtitle": "[联合国通过决议，鼓励使用“平等地球”及其他等面积地图投影法，美国唯一反对]",
+    "lastedit": 1788582364,
+    "category": "外野",
     "active": true,
     "update": false
   }
