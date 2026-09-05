@@ -7525,3 +7525,11 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 妈的这紫式部，做完一个支线任务就要看这大妈脸扶眼镜撅嘴唇特写，我真的绷不住啊<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水边井  
+##### 1448#       发表于 2026-9-5 10:42
+
+看来我对卡婊的预判还是对的，连生9这种头牌ip都能干出后期流程缩水的事，体量更小的鬼武者重启作真不能期待<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

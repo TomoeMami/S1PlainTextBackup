@@ -11091,3 +11091,85 @@ PS: If you create the account or upgrade before 8pm PT you will get it too. Stil
 
 2026-9-5 10:27 上传
 
+
+*****
+
+####  squallx  
+##### 12882#       发表于 2026-9-5 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205476&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-9-5 09:55</a>
+
+刚想拿昨天的需求试试Astra，奇怪，Codex里又看不到astra了，难道是我早上睡迷糊了
+
+论坛助手,iPhone ...</blockquote>
+更新客户端
+
+*****
+
+####  AraTurambar  
+##### 12883#       发表于 2026-9-5 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205560&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-9-5 10:21</a>
+
+我觉得最难能可贵的是依然保留了5.6sol的留白的能力。没有因为强化了coding和agent能力让写文也变得更闭 ...</blockquote>
+我们生活在神话般的时代。
+
+大模型加后训练是绝对可以走通的，看国产御三家什么时候跟上了。
+
+*****
+
+####  lactone  
+##### 12884#       发表于 2026-9-5 10:39
+
+我倒是觉得这波GPT6最大的后果就是把整个业界从卷coding变成卷视觉和建模<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 12885#       发表于 2026-9-5 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205625&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-5 10:39</a>
+
+我倒是觉得这波GPT6最大的后果就是把整个业界从卷coding变成卷视觉和建模</blockquote>
+写文章也是神。
+
+我用来测K3和fable的那段SOUL.md，他一眼就说是科耶夫套了本雅明的皮写的。
+
+别的都做不到。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12886#       发表于 2026-9-5 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205618&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-5 10:36</a>
+我们生活在神话般的时代。
+
+大模型加后训练是绝对可以走通的，看国产御三家什么时候跟上了。 ...</blockquote>
+国模现在有个问题就是过于强调针对agent和coding的后训练，干啥都得立刻闭环，写出来的故事不知道留白都没法看
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  wandeeees  
+##### 12887#       发表于 2026-9-5 10:42
+
+国内还是太缺算力了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12888#       发表于 2026-9-5 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205628&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-5 10:41</a>
+写文章也是神。
+
+我用来测K3和fable的那段SOUL.md，他一眼就说是科耶夫套了本雅明的皮写的。</blockquote>
+我觉得这个对它来说都有点太简单了，完全靠靠后世界知识就能应付得了的。
+我是用超级大黄蜂座舱航电构建了一个架空飞机的座舱设定，同时用北约战斗机无线电术语做约束，又grill了细纲，让sol astra k3根据这个座舱航电去按照细纲模仿战斗妖精雪风的风格写一段空战戏，要求技术细节和无线电通讯不能穿帮
+Astra写的确实比另外两个强
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
