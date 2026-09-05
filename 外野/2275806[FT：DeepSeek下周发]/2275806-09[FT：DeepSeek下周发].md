@@ -10860,3 +10860,35 @@ token效率高可能和那个loop transformer得技术有关？
 —— 来自 HUAWEI HOP ...</blockquote>
 之前就有GPT最高档带着ds v4 flash小弟干活的，效果不错<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rowen233  
+##### 12861#       发表于 2026-9-5 08:44
+
+<blockquote>紧那罗 发表于 2026-9-5 06:12
+听你们说astra有了开app一看没找到 换手机再找发现有了
+
+同账号iOS有安卓没有 这什么歧视
+</blockquote>
+只有pro推送了 plus还没有
+
+*****
+
+####  紧那罗  
+##### 12862#       发表于 2026-9-5 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205245&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-9-5 08:44</a>
+只有pro推送了 plus还没有</blockquote>
+我是同账号pro订阅，iOS手机上能看到，安卓平板上看不到。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Anarkia  
+##### 12863#       发表于 2026-9-5 08:51
+
+噩耗，没sol那么肯写黄了
+
