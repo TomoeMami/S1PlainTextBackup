@@ -11972,3 +11972,17 @@ astral 比 sol 快好多，但消耗也快好多，两个 plus 号顶不住，�
 
 这种肯定得靠frontier lab自己招人做数学的
 
+
+*****
+
+####  lactone  
+##### 12967#       发表于 2026-9-5 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207178&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-5 18:44</a>
+去看了一下本周四陶哲轩的发言，人家只是拿自己研究方向举了一个例子：即使AI碰巧找到了解析解，但是如果没 ...</blockquote>
+主要是另一个人elliot glazer在红迪说他有内部消息说claude “very likely” to defute n-s
+
+这个人是数学家，但是也有不太诚实的前科，不好说他的信源准不准
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
