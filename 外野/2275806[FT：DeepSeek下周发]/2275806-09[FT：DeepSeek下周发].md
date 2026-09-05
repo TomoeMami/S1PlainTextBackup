@@ -11743,3 +11743,25 @@ x上面在传纳维尔斯托克斯方程被claude 解决了，会在claude ipo�
 让大参数模型指挥flash模型干活具体怎么做的？ 是和他讨论形成方案，然后在话框里切换到flash模型要求按照 ...</blockquote>
 让他开子代理 
 
+
+*****
+
+####  drodchang  
+##### 12942#       发表于 2026-9-5 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206830&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-5 17:08</a>
+
+x上面在传纳维尔斯托克斯方程被claude 解决了，会在claude ipo前公布，因为陶哲轩发了一堆话</blockquote>
+这个很有可能，现在模型抽奖完全有可能。
+
+
+*****
+
+####  drodchang  
+##### 12943#       发表于 2026-9-5 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206830&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-5 17:08</a>
+
+x上面在传纳维尔斯托克斯方程被claude 解决了，会在claude ipo前公布，因为陶哲轩发了一堆话</blockquote>
+不过这真是这样的话，陶哲轩应该很破防了，这是他最关心的问题之一。
+
