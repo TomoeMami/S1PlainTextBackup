@@ -11480,3 +11480,12 @@ ASTRA 在 MEDIUM  下已经不错了.
 
 随便让他更新一下AGENTS.md 
 
+
+*****
+
+####  tonyunreal  
+##### 12916#       发表于 2026-9-5 13:50
+
+使用GPT-6 Astra手绘初音！
+[https://www.bilibili.com/video/BV1ySt16CErJ/](https://www.bilibili.com/video/BV1ySt16CErJ/)
+

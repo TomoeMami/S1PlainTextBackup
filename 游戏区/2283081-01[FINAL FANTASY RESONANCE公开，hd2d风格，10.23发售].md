@@ -1590,3 +1590,11 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 15级盗贼boss打完等正式版，沙漠中间那个召唤兽现在也还拿不了吧，另外吉尔伽美什应该也是固定剧情打不死
 
+
+*****
+
+####  kirito_wst  
+##### 159#       发表于 2026-9-5 13:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">沙漠中间挡路的蚁狮也可以打，20级
+
