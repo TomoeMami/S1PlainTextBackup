@@ -11512,3 +11512,11 @@ Astra 做各种小游戏能碾压 Fable5了. 这3D理解能力太强了.
 
 提示词：新建一个项目，复刻我的世界，越还原越好，做到你能做到最还原的程度
 
+
+*****
+
+####  nxmonitor  
+##### 12919#       发表于 2026-9-5 14:25
+
+这个灰测的都看过太多了，甚至我觉得Oneshot的结果都平平无奇，物理逻辑还没比过……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
