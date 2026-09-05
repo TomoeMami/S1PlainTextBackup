@@ -336,3 +336,11 @@ boss一般跳劈斜劈下劈一闪都很简单，动作路径一半的时候按�
 
 这游戏的各种评论区已经开始大战了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  霸王向小受  
+##### 1515#       发表于 2026-9-5 17:53
+
+这些婆娘都好他妈的丑啊
+

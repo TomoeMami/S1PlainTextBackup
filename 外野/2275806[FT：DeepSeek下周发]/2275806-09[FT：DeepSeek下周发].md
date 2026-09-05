@@ -11819,3 +11819,46 @@ Astra好强，同样的提示词，sol会把任务派给子agent自己在那傻�
 
 Astra作为许愿机的水平更近一步了，不会像Sol一样，复杂一点就掉进无限思考、构建、检验、打回的循环中了。
 
+
+*****
+
+####  舞以  
+##### 12950#       发表于 2026-9-5 17:48
+
+<img src="https://img.stage1st.com/forum/202609/05/174830uvpp0vzsbfvhi13z.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_7118.jpeg</strong> (215.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-5 17:48 上传
+
+我还在隐忍，漏油都开始玩了么<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 12951#       发表于 2026-9-5 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206830&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-5 17:08</a>
+x上面在传纳维尔斯托克斯方程被claude 解决了，会在claude ipo前公布，因为陶哲轩发了一堆话</blockquote>
+啥，NS方程这玩意真能有解析解吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能找到真是革命性的了
+
+*****
+
+####  CCauchy  
+##### 12952#       发表于 2026-9-5 17:49
+
+目前多模态模型理解图像是通过非常详细的文字语义来理解还是有某种特殊的内部语言？
+
+*****
+
+####  舞以  
+##### 12953#       发表于 2026-9-5 17:53
+
+数学估计是下一轮叙事中心了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
