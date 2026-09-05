@@ -11173,3 +11173,42 @@ Astra写的确实比另外两个强
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  吴怀在  
+##### 12889#       发表于 2026-9-5 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205632&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-9-5 10:42</a>
+
+国内还是太缺算力了</blockquote>
+我真觉得美国对国芯片行业出手的时间真是恰到好处，时间节点卡的是正好。
+
+*****
+
+####  紧那罗  
+##### 12890#       发表于 2026-9-5 10:47
+
+<img src="https://img.stage1st.com/forum/202609/05/104706kuacrfcg1ffgfg41.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_3838.jpeg</strong> (579.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-5 10:47 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">很真实，5.6 sol给我就是这个感觉
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  吴怀在  
+##### 12891#       发表于 2026-9-5 10:49
+
+ 本帖最后由 吴怀在 于 2026-9-5 10:51 编辑 
+
+中文语感确实变得好多了。我有几篇精心打磨的歌词翻译，直接扔给去年的 Gemini 和 Deepseek 都给了大好评，而且我翻译时候的巧思、做的取舍，祂俩基本上都能看出来八九成。
+
+然而 GPT 5.5、5.6 都只给了同一份翻译中等偏上的评价。这次 6.0 直接给了 8 分，虽然还有相当部分的翻译取舍都没有看出来，我得给它逐句解说，最后它才认同翻译很优秀<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
