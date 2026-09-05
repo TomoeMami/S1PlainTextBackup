@@ -951,3 +951,11 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 幸好是日本游戏。
 
+
+*****
+
+####  红魔馆的糖  
+##### 1580#       发表于 2026-9-6 02:58
+
+这个乌鸦小怪在附近有另一个小怪的时候居然有特殊闪避蓝光演出<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
