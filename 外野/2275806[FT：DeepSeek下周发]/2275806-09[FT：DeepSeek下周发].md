@@ -11645,3 +11645,13 @@ low就把我之前sol max堆翻车的屎山解决了 速度还快的多
 
 我感觉网页版kimi的K3好像变了
 
+
+*****
+
+####  很久就在那边l  
+##### 12933#       发表于 2026-9-5 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206640&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-9-5 16:18</a>
+智谱咯，用zcode晚上glm5.3flash免费</blockquote>
+glm lite套餐里的5.3谷价比gpt plus的sol都贵了，峰价比astra还贵，晚上flash免费不是纯噱头吗，谁11点后上班啊，用便宜模型的话gpt的luna也是几乎用不完的
+
