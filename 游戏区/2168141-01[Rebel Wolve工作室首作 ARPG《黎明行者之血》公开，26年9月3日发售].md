@@ -1107,3 +1107,16 @@ DLSS5对比
 
 多清点问号就知道吸血鬼当然不是什么好人啊
 
+
+*****
+
+####  awy002  
+##### 101#       发表于 2026-9-5 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196715&amp;ptid=2168141" target="_blank">半江瑟瑟半江红 发表于 2026-9-3 19:41</a>
+
+Vampyr试一哈？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0</blockquote>
+那肯定玩过了，想等个更潮的。
+
