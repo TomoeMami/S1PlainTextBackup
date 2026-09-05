@@ -7506,3 +7506,22 @@ Pour célébrer la sortie d’#Onimusha: Way of the Sword, nous avons fait appel
 
 有没有通关的说说这部在今年卡普空四部新作里面排第几。我快递昨天刚发货，看到漫天的批评有点懵了
 
+
+*****
+
+####  zqqwe  
+##### 1446#       发表于 2026-9-5 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70205561&amp;ptid=2210366" target="_blank">a3a4sc 发表于 2026-9-5 10:22</a>
+有没有通关的说说这部在今年卡普空四部新作里面排第几。我快递昨天刚发货，看到漫天的批评有点懵了 ...</blockquote>
+只买了pragmata和鬼武者，不喜欢龙信的拟真设计，猛汉等dlc。
+虽然鬼武者boss战部分算是继只狼之后的又一个里程碑（但删了对boss的连闪还是有点不爽），不过论整体观感舒适和流程紧凑度还是pragmata更胜一筹。
+我玩游戏是追求超越现实的美感体验，暴力美学也是一部分，但如果角色美术丑到让你根本不想深入了解这个世界，支线和环境探索也就失去了动力。前者起码能让从来不追求奖杯的我玩着玩着就白金了，后者支线都不想多看一眼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  scp073  
+##### 1447#       发表于 2026-9-5 10:37
+
+妈的这紫式部，做完一个支线任务就要看这大妈脸扶眼镜撅嘴唇特写，我真的绷不住啊<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

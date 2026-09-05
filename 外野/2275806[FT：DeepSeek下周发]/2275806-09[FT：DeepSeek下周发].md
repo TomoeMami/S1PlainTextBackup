@@ -11057,3 +11057,37 @@ PS: If you create the account or upgrade before 8pm PT you will get it too. Stil
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  吴怀在  
+##### 12880#       发表于 2026-9-5 10:26
+
+就是不能建涩涩模型。
+
+
+*****
+
+####  吴怀在  
+##### 12881#       发表于 2026-9-5 10:28
+
+我总是断线，是梯子的问题，还是因为登的人太多了？
+
+或者因为我四开被限流了吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/05/102730my7xz5g8ky0avr2g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-5 10:27 上传
+
+<img src="https://img.stage1st.com/forum/202609/05/102735hw976wyc76se4x7h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-5 10:27 上传
+
