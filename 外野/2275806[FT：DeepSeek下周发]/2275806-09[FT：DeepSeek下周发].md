@@ -12075,3 +12075,11 @@ elliot glazer这个人的X 一点开就看到“ I'm guessing this is true”“
 如果保持astra medium指挥，dsv4f干活的话，感觉5x额度可能也撑得住。但总感觉两个ai之间说的话掺了越来越 ...</blockquote>
 不要试图理解ai之间的黑话，验收成果就行了。
 
+
+*****
+
+####  龙骑士尹志平  
+##### 12976#       发表于 2026-9-5 20:12
+
+plus可以用astra了吗？
+

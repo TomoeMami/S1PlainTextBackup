@@ -426,3 +426,13 @@ MuMu-20260903-184912-715.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">随便打了两把就懒得刷了
 
+
+*****
+
+####  shimotsuki14  
+##### 48202#       发表于 2026-9-5 20:07
+
+吃惊了，送了点石头凑了四十多石，又抽了一把诺亚结果就出了
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
