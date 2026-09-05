@@ -7829,3 +7829,27 @@ CAPCOM现在的情况就像是某些老字号餐饮，食客知道它上进心�
 
 想了想好像有点道理？<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">原来奸商才是最好的评测？
 
+
+*****
+
+####  红魔馆的糖  
+##### 1477#       发表于 2026-9-5 14:04
+
+打了好几个boss了，最后发现自己死的原因几乎都是一闪<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+什么豪鬼瞬狱杀
+
+*****
+
+####  simonroam  
+##### 1478#       发表于 2026-9-5 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206229&amp;ptid=2210366" target="_blank">汪达 发表于 2026-9-5 13:53</a>
+
+国产有这个技术力未必会被喷烂，不说别的就拿国内口碑非常好的SIFU来说，难道内容很足吗
+
+当然它不是全价游 ...</blockquote>
+你这么说不是更那啥了吗，师父有通马桶吗，流程很精炼啊，失败了加寿命也刺激了多周目游玩
+
+卡普空这不相比之下整体设计太保守了吗
+

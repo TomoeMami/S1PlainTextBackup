@@ -11489,3 +11489,26 @@ ASTRA 在 MEDIUM  下已经不错了.
 使用GPT-6 Astra手绘初音！
 [https://www.bilibili.com/video/BV1ySt16CErJ/](https://www.bilibili.com/video/BV1ySt16CErJ/)
 
+
+*****
+
+####  RookieTnT  
+##### 12917#       发表于 2026-9-5 14:04
+
+Astra 做各种小游戏能碾压 Fable5了. 这3D理解能力太强了.
+
+*****
+
+####  RookieTnT  
+##### 12918#       发表于 2026-9-5 14:06
+
+<img src="https://img.stage1st.com/forum/202609/05/140637oj2dbfnyj1dwf75w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (86.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-5 14:06 上传
+
+提示词：新建一个项目，复刻我的世界，越还原越好，做到你能做到最还原的程度
+
