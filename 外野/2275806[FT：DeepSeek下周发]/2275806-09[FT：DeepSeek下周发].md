@@ -11655,3 +11655,22 @@ low就把我之前sol max堆翻车的屎山解决了 速度还快的多
 智谱咯，用zcode晚上glm5.3flash免费</blockquote>
 glm lite套餐里的5.3谷价比gpt plus的sol都贵了，峰价比astra还贵，晚上flash免费不是纯噱头吗，谁11点后上班啊，用便宜模型的话gpt的luna也是几乎用不完的
 
+
+*****
+
+####  qwased  
+##### 12934#       发表于 2026-9-5 16:35
+
+glm5.3flash怎么老是思考到截断，必须要给他分解任务到最小单元再逐步实现的提示才行
+
+
+*****
+
+####  squallx  
+##### 12935#       发表于 2026-9-5 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206687&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-9-5 16:30</a>
+
+glm lite套餐里的5.3谷价比gpt plus的sol都贵了，峰价比astra还贵，晚上flash免费不是纯噱头吗，谁11点后 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">有一种生物叫时差党
+
