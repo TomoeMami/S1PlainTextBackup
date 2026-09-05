@@ -12329,3 +12329,11 @@ zcode送的glm5.3f免费额度蹬了一半，感觉在flash里面的能力是不
 zcode送的glm5.3f免费额度蹬了一半，感觉在flash里面的能力是不错的了，用来给自制的图片查看器改解码器和 ...</blockquote>
 你不会因为输出过长被截断吗，这毛病搞得恶心死了，长时间思考-写入文件到一半就截断导致失败-吞掉回复重新思考，无限循环了一晚上一点进度都没有<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CCauchy  
+##### 13001#       发表于 2026-9-6 00:53
+
+arena的grok4.6为什么是可见思维链
+
