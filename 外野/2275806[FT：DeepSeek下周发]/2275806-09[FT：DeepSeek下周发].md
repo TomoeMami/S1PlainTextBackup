@@ -11594,3 +11594,14 @@ low就把我之前sol max堆翻车的屎山解决了 速度还快的多
 额度耗得和原来比咋样</blockquote>
 感觉和5.6的额度消耗速度差不多，可能因为token效率提升了吧
 
+
+*****
+
+####  RookieTnT  
+##### 12928#       发表于 2026-9-5 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206465&amp;ptid=2275806" target="_blank">lly778 发表于 2026-9-5 15:12</a>
+
+额度耗得和原来比咋样</blockquote>
+他完成项目的请求次数远低于其他模型。swe step才29次，fable5 68。
+
