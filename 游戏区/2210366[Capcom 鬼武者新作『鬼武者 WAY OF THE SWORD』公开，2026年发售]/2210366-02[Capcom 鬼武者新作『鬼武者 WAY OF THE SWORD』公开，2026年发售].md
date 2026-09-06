@@ -1111,3 +1111,33 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如恋姬革命百花王的曹操
 
+
+*****
+
+####  mai6696  
+##### 1597#       发表于 2026-9-6 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208711&amp;ptid=2210366" target="_blank">hkguty 发表于 2026-9-6 02:20</a>
+
+静御前的饰品说的加强特殊攻击，什么是特殊攻击？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/06/095559gsbb2debsccbtbfa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 09:55 上传
+
+会不会是这些？
+
+*****
+
+####  火红之眼  
+##### 1598#       发表于 2026-9-6 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209154&amp;ptid=2210366" target="_blank">Yugao 发表于 2026-9-6 09:03</a>
+
+我还没打完一周目，不知道鬼杀难度是不是以前一闪难度，反正这一代我是大部分时候都在按住防御X和看破，一 ...</blockquote>
+就只是数值高一点的难度，禁了按键提示功能，别的没太大不同
+

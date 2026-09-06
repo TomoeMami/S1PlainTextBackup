@@ -1793,3 +1793,25 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 对了，那个有立绘的王国骑士夏洛特老是一副欲言又止的样子，加上幻兵界面里有个小人和她是一样的，感觉这妹子后面大概率要凉<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kirito_wst  
+##### 182#       发表于 2026-9-6 10:02
+
+换pc了，开始整活<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+偷看了一下源氏护手，的确牛批，还和云片的某些特性有配合
+利用石板碎片奖励给的一套魔石觉醒满背后灵的部分招式动画也藏了，比如蒂娜的究极和核融魔法只能看到跳伤害数字
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  huyangxinhn  
+##### 183#       发表于 2026-9-6 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209059&amp;ptid=2283081" target="_blank">godless2020 发表于 2026-9-6 08:30</a>
+
+人物职业和幻兵职业有什么隐藏加成吗，比如男主是防御者配了光战，两者都是防御属性，是不是比其他人跟适合 ...</blockquote>
+目前来看随意配，幻兵的等级是随角色的，幻兵换个角色，等级会回到一级，也就是角色带幻兵，升级后解锁的是技能，类似于八方旅人的职业系统。理论上，一个角色可以带所有幻兵，升级获得全部技能，然后选择最合适的，装在下面的技能槽里。中后期刷刷刷的要素还是很足的。
+
