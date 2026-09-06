@@ -12652,3 +12652,14 @@ astra用之前记得测试一下是否降智，之前5.6降智只是针对模型
 论坛助手,iPhone ...</blockquote>
 这个怎么确认啊
 
+
+*****
+
+####  taxiom  
+##### 13029#       发表于 2026-9-6 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208846&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-6 06:05</a>
+
+这是六千字的来自深渊体素模型提示词，群友用GPT6一发直出</blockquote>
+好哥哥PM个群号，最近在玩私有化部署，又很喜欢来自深渊，想拿这个当benchmark多试几个模型
+
