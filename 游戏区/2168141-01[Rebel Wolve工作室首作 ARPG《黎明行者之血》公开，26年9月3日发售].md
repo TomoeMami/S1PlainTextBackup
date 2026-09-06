@@ -1200,3 +1200,11 @@ Vampyr试一哈？
 
 这游戏有点意思啊，意外的沉浸感十足，而且英配非常棒
 
+
+*****
+
+####  Schwarzess  
+##### 110#       发表于 2026-9-6 17:55
+
+有些任务时间消耗像是脚填的，什么叫我到房子附近的河边采点草要两小时，回家熬药还要额外一小时。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

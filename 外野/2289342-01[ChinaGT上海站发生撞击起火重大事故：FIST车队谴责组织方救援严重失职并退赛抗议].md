@@ -543,3 +543,24 @@ IT之家附 FIST_Auto 车队官方微博声明原文如下：
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  发呆的龙虾  
+##### 49#       发表于 2026-9-6 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211081&amp;ptid=2289342" target="_blank">StrangerJ 发表于 2026-9-6 17:45</a>
+上赛场不是还要办f1的吗，怎么这么拉胯，这也太离谱了
+
+—— 来自 OPPO PKU110, Android 16, 鹅球 v3.5.9 ...</blockquote>
+主办方的问题，和赛场无关。问了下豆包，整体的安保/医疗配置本身就比F1上海站差了一大截。
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  BTmanMk2  
+##### 50#       发表于 2026-9-6 17:59
+
+上赛只管场地，剩下的都归赛事主办方管    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

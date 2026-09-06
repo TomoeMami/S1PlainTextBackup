@@ -2010,3 +2010,14 @@ NS掌机只有500多P
 画面稳定30fps、也没有动作操作需求， ...</blockquote>
 请教下三个版本的画面帧数感觉怎么样呀，纠结买哪个版本<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  elven119  
+##### 201#       发表于 2026-9-6 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210923&amp;ptid=2283081" target="_blank">宛若青空 发表于 2026-9-6 17:06</a>
+
+请教下三个版本的画面帧数感觉怎么样呀，纠结买哪个版本</blockquote>
+我自己试玩NS2和PC没区别
+
