@@ -2154,3 +2154,14 @@ NS掌机只有500多P
 
 友方角色都能放大招的不让操作有点怪
 
+
+*****
+
+####  elven119  
+##### 212#       发表于 2026-9-7 07:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211446&amp;ptid=2283081" target="_blank">12481632 发表于 2026-9-6 19:12</a>
+
+不知道后面主角团还有哪几个是会正式入队可操控的，手游的时候什么人都能抽到反而没这个问题 ...</blockquote>
+官网有，还有4个可操控角色，2男2女
+

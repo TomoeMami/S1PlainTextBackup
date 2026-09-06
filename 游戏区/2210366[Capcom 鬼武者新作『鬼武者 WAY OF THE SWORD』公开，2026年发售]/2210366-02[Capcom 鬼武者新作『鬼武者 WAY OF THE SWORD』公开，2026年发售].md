@@ -2422,3 +2422,14 @@ FF16很难翻啊
 
 无论是boss死后的尬演，生硬的情感转折，还是之后给紫式部那张无论如何都很一般的脸连打两分钟的超近距离特写连击。
 
+
+*****
+
+####  Ai_shuang  
+##### 1721#       发表于 2026-9-7 07:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213267&amp;ptid=2210366" target="_blank">哈之分舍瓦 发表于 2026-9-7 02:01</a>
+
+这静御前真不如学天然气精纯声演就好，长啥样自有网友来二创</blockquote>
+致敬最后一部鬼泣的电话亭就好了
+
