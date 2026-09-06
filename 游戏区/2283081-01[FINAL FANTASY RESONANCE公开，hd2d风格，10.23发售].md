@@ -2047,3 +2047,18 @@ NS掌机只有500多P
 
 不知道后面主角团还有哪几个是会正式入队可操控的，手游的时候什么人都能抽到反而没这个问题
 
+
+*****
+
+####  finalstar099  
+##### 205#       发表于 2026-9-6 20:04
+
+<blockquote>[宛若青空](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210923&amp;ptid=2283081) 发表于 09-06 17:06
+请教下三个版本的画面帧数感觉怎么样呀，纠结买哪个版本</blockquote>
+
+综合各方面，我建议买ns2版，电视端素质和ps5没区别，手持端也好看。
+
+唯一缺点没有一代ns便携。
+
+——来自 BRA-AL00 上的 [S1er 客户端](https://s1er.pages.dev)
+
