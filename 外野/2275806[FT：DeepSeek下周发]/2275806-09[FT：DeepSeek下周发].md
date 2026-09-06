@@ -13527,3 +13527,58 @@ tui还是Claude好用，直接环境变量换api，不像codex还要写配置要
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  CCauchy  
+##### 13100#       发表于 2026-9-7 01:23
+
+会翻墙不等于能买，能买不等于不会被封号<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，而且，我连翻墙都不花钱，为什么还要花钱买AI
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  唠叨  
+##### 13101#       发表于 2026-9-7 01:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213137&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-9-7 01:13</a>
+会翻墙的现在没有任何理由用国模，性能还是性价比基本都被gpt斩杀了</blockquote>
+每个人需求不一样的  我qwen3.8flash用的非常舒服 因为我基本没什么编程工作 最多写个chrome插件  弄个功能简单的exe之类的
+
+*****
+
+####  CCauchy  
+##### 13102#       发表于 2026-9-7 01:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213120&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-7 01:04</a>
+—— 来自 Xiaomi 25060RK16C, Android 16, 鹅球 v3.5.99</blockquote>
+据说部分人喜欢4o的风格不想让o畜撤掉，这不来了，满足你们<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  CCauchy  
+##### 13103#       发表于 2026-9-7 01:26
+
+怎么感觉glm放Claude里也开始不说人话了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qwased  
+##### 13104#       发表于 2026-9-7 01:28
+
+op软路由的软件出bug了，因为glm5.3f一读到op软路由上面的梯子app就content filter，干脆用本地的qwen3.8 27b来干，只要多插话让他输出目前的状况和接下来要干什么再用pi vcc压缩上下文，他也能干的非常好，比glm5.3f的雷霆思考强多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  很久就在那边l  
+##### 13105#       发表于 2026-9-7 01:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213137&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-9-7 01:13</a>
+会翻墙的现在没有任何理由用国模，性能还是性价比基本都被gpt斩杀了</blockquote>
+真的只是翻墙就好了，还要海外支付并且有可能需要验证海外手机号
+
