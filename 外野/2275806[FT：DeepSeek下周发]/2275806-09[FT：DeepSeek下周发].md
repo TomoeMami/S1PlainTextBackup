@@ -12563,3 +12563,19 @@ pro的话，plus是没有的<img src="https://static.stage1st.com/image/smiley/f
 
 此外gpt的订阅，给的额度在chat和codex里是分开的。
 
+
+*****
+
+####  pure_liquid  
+##### 13021#       发表于 2026-9-6 10:39
+
+<blockquote>舞以 发表于 2026-9-6 10:35
+网页版的pro模式的话，plus订阅是没有的
+
+只有pro订阅（一百刀一个月起）才有
+
+此外gpt的订阅，给的额度在c ...</blockquote>
+我记得5.6 Sol Pro是有的，虽然我没试过
+
+Astra Pro还没看
+
