@@ -13233,3 +13233,38 @@ o➗给plus恢复5h限制就是明牌赶人去pro了啊<img src="https://static.
 
 2026-9-6 22:13 上传
 
+
+*****
+
+####  oswald  
+##### 13076#       发表于 2026-9-6 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212252&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-6 22:13</a></blockquote>
+你这个是chatgpt里面的work，不是chat，对话干活是消耗codex额度的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  冤枉呐  
+##### 13077#       发表于 2026-9-6 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210157&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-6 13:17</a>
+agentrouter想干什么</blockquote>
+这个远不如any
+现在开始限流了
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  hencechen  
+##### 13078#       发表于 2026-9-6 22:26
+
+如果不在意价格，astra太强了，我用了一年的20美刀套餐，这次gpt 6更新两天下来，果断冲了200美刀的20x，飞一样的感觉<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+astra真的太“舒适”了，很难表达这种感觉，类似一种“手感”，你要它coding或者做一点杂货，它都完成的清清爽爽；干净利落，既不会太吵，也不会雷霆大思考，更不会像一些小参数flash模型一样，干一半突然截断……
+
+不管AGI来没来，对我而言，gpt 6已经是可以“登堂入室"级别的工具了，不出意外的话会一直长期订购了。
+
