@@ -13592,3 +13592,13 @@ op软路由的软件出bug了，因为glm5.3f一读到op软路由上面的梯子
 会翻墙的现在没有任何理由用国模，性能还是性价比基本都被gpt斩杀了</blockquote>
 我会翻墙也会海外付款，我就想要个性价比方案，gpt 怎么个性价比法呢
 
+
+*****
+
+####  qwased  
+##### 13107#       发表于 2026-9-7 02:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213250&amp;ptid=2275806" target="_blank">浪子龙飞z 发表于 2026-9-7 01:53</a>
+我会翻墙也会海外付款，我就想要个性价比方案，gpt 怎么个性价比法呢</blockquote>
+gpt性价比里面一个很重要的组成部分就是三天两头重置
+
