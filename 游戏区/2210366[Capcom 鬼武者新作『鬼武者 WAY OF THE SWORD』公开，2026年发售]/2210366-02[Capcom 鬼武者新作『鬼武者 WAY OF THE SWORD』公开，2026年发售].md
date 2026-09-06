@@ -1250,3 +1250,39 @@ CAPCOM对历史人物的编排方向跟暗荣是反过来的
 
 卡婊这波促进了官方模拟器版新鬼武者的销量是真的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞了个重温顺便洗眼，还是喜欢这款人设和搓招啊
 
+
+*****
+
+####  酱稀饭  
+##### 1609#       发表于 2026-9-6 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209632&amp;ptid=2210366" target="_blank">emmerMK2 发表于 2026-9-6 11:06</a>
+
+中配是真不赖</blockquote>
+试玩版除了佐佐木，其他感觉在棒读，正式版改进了吗
+
+*****
+
+####  放大镜  
+##### 1610#       发表于 2026-9-6 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209590&amp;ptid=2210366" target="_blank">杀仁老登 发表于 2026-9-6 10:53</a>
+
+源神毕竟是日本三大悲剧英雄之一，大部分改编还是往悲剧美少年那个方向去塑造的，比如当年鬼武者的竞品的GE ...</blockquote>
+你是指那个，飘洋过海化身成吉思汗，然后被历史老师用比赛剑术揍翻的源神吗
+
+图不好找，凑合看吧
+
+<img src="https://img.stage1st.com/forum/202609/06/115332uddsuk2xdrryivuq.jpg" referrerpolicy="no-referrer">
+
+<strong>王狼tmp.jpg</strong> (127.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 11:53 上传
+
+ <blockquote>《王狼》是1989年白泉社出版图书，作者是武论尊、三浦建太郎。
+该书讲述了日本历史学者京子为寻找爱人，遇到时空隧道回到1212年西夏王城，并与爱人伊波相认，伊波以自己坚韧、顽强的精神，无畏、精湛的剑法冲破防线、斩杀蒙古将军夺回恋人京子</blockquote>
+
+源义经没有那么神圣，而且也并非不可替代
+
