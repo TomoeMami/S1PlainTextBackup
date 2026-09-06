@@ -13019,3 +13019,36 @@ GPT这个20刀→100刀的订阅档位还是步子大了点，需要一个中间
 
 中间加一档其实更高不成低不就了(
 
+
+*****
+
+####  jinuzuktII  
+##### 13060#       发表于 2026-9-6 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210977&amp;ptid=2275806" target="_blank">jojog 发表于 2026-9-6 17:20</a>
+
+100刀就是字面意义的20刀5倍
+
+中间加一档其实更高不成低不就了(</blockquote>
+我用不起
+
+而且不需要五倍
+
+有个二到三倍就好了
+
+
+*****
+
+####  孤灯蓝影  
+##### 13061#       发表于 2026-9-6 17:32
+
+<img src="https://img.stage1st.com/forum/202609/06/173212kn59o7etu5gyruzg.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1788687053271_181.jpg</strong> (164.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 17:32 上传
+
+话说ASTRA现在怎么样了，这几天测评
+

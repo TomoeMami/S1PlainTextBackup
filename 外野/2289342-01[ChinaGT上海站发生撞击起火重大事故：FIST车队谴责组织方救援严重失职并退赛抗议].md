@@ -513,3 +513,11 @@ IT之家附 FIST_Auto 车队官方微博声明原文如下：
 还不如贵州村gt？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我估计都不如广西老表自己搞的电摩比赛。
 
+
+*****
+
+####  黑耀星尘  
+##### 46#       发表于 2026-9-6 17:34
+
+问就是配置都有了，好不好用能不能用你别提<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

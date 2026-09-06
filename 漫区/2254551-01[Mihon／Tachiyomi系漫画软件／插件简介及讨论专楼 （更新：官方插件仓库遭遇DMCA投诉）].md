@@ -2100,3 +2100,15 @@ j2k又更新了一版，语言问题修复了
 同这个问题 但是我的问题只在米板5Pro上存在 在手机K90PM上没问题 怀疑是哪个权限的问题 折腾了很久都没 ...</blockquote>
 是的，我手机端装插件就没问题。后来我在自带杀毒里把插件全都点忽略了，貌似就好了。总之挺奇怪的问题。
 
+
+*****
+
+####  帝蓝  
+##### 184#       发表于 2026-9-6 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70206068&amp;ptid=2254551" target="_blank">希鲁夫 发表于 2026-9-5 12:59</a>
+是的，我手机端装插件就没问题。后来我在自带杀毒里把插件全都点忽略了，貌似就好了。总之挺奇怪的问题。 ...</blockquote>
+我这忽略了还是不行 只能用mihon了
+
+—— 来自 Xiaomi 25102RKBEC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
