@@ -1785,3 +1785,11 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 准备买个ns卡带玩玩。
 
+
+*****
+
+####  diectt  
+##### 181#       发表于 2026-9-6 09:46
+
+对了，那个有立绘的王国骑士夏洛特老是一副欲言又止的样子，加上幻兵界面里有个小人和她是一样的，感觉这妹子后面大概率要凉<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

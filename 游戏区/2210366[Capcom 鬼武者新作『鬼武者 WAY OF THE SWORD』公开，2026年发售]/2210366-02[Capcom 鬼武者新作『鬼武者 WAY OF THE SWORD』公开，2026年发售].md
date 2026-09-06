@@ -1103,3 +1103,11 @@ FF16,何时来的？我记得16是公布DLC2那阵才更新的完成支线传送
 
 曹操传蓝线绕那么大个圈子，最后丞相形象也是正得不行，甚至还有点超人
 
+
+*****
+
+####  Yugao  
+##### 1596#       发表于 2026-9-6 09:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如恋姬革命百花王的曹操
+
