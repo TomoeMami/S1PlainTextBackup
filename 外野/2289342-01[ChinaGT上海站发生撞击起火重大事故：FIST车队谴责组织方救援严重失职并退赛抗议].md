@@ -521,3 +521,15 @@ IT之家附 FIST_Auto 车队官方微博声明原文如下：
 
 问就是配置都有了，好不好用能不能用你别提<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  StrangerJ  
+##### 47#       发表于 2026-9-6 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210289&amp;ptid=2289342" target="_blank">南猫猫猫猫 发表于 2026-9-6 13:46</a>
+救护车15分钟后才到，这很可怕了</blockquote>
+上赛场不是还要办f1的吗，怎么这么拉胯，这也太离谱了
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
