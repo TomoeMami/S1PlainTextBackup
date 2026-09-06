@@ -1774,3 +1774,11 @@ ps商店的官方模拟器版也挺高清了</blockquote>
 
 尾声前要我确认没有未完成事项，看着满地图的马桶，陷入深深的绝望<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  红魔馆的糖  
+##### 1660#       发表于 2026-9-6 19:42
+
+武藏去砍小次郎不是应该划船去么，怎么河边都做出来了却是跑过去的<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

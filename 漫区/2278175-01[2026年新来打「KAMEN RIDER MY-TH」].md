@@ -284,3 +284,11 @@ bad cg是不得不品的一环，不过后续应该就少了，也就刚开始�
 男主好呆，吐槽的气口完全不对，听着好难受，现在和泛式一起送去练漫才还来得及<img src="https://static.stage1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 CG除了大招其他真的梦回露娜
 
+
+*****
+
+####  gzfantasy  
+##### 129#       发表于 2026-9-6 19:35
+
+这卧底教师也太像刘谦了
+
