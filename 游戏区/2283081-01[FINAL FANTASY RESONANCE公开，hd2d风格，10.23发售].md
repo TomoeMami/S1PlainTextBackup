@@ -2039,3 +2039,11 @@ NS掌机只有500多P
 
 这游戏第一章好棒，味好正啊，仿佛来到的jrpg的黄金时代<img src="https://static.stage1st.com/image/smiley/face/134.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  12481632  
+##### 204#       发表于 2026-9-6 19:12
+
+不知道后面主角团还有哪几个是会正式入队可操控的，手游的时候什么人都能抽到反而没这个问题
+

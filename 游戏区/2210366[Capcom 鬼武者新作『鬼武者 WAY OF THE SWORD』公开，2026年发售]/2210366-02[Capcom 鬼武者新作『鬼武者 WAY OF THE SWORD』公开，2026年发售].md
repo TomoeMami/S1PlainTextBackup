@@ -1766,3 +1766,11 @@ ps商店的官方模拟器版也挺高清了</blockquote>
 
 通关下来7分不能再多了，boss血量都好tm厚，光化劲要打半天，收益低得离谱必须一闪和防御格挡，某些boss抓取播片半天就离谱。
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1659#       发表于 2026-9-6 19:13
+
+尾声前要我确认没有未完成事项，看着满地图的马桶，陷入深深的绝望<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 
+

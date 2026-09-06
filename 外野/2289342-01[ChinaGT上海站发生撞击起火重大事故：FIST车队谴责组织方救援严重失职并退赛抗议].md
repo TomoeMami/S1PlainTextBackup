@@ -665,3 +665,24 @@ IT之家附 FIST_Auto 车队官方微博声明原文如下：
 符合国家级赛事配置</blockquote>
 神了，还在闪躲甩锅呢，就不能老老实实承认错误立正挨打吗
 
+
+*****
+
+####  coldhot3  
+##### 61#       发表于 2026-9-6 19:11
+
+<blockquote>水風船 发表于 2026-9-6 16:09
+https://www.bilibili.com/video/BV1zZb76tESA/
+
+救人车手的车载</blockquote>
+看到了，谢谢。
+
+*****
+
+####  coldhot3  
+##### 62#       发表于 2026-9-6 19:11
+
+<blockquote>sdhgak1234 发表于 2026-9-6 18:17
+3楼不就是吗？</blockquote>
+看到了，谢谢。
+
