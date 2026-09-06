@@ -1983,3 +1983,18 @@ se这次还是switch版不能升级switch2版。搞不懂se自家有的游戏可
  ...</blockquote>
 对对，看到你这图我也想起来了，后面有剧情的，应该是没事
 
+
+*****
+
+####  xiaohao123  
+##### 199#       发表于 2026-9-6 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209212&amp;ptid=2283081" target="_blank">finalstar099 发表于 2026-9-6 09:23</a>
+
+周末把ns1、ns2、ps5三个版本都玩了一遍，最后居然在ns1上沉浸了。
+
+画面稳定30fps、也没有动作操作需求， ...</blockquote>
+NS掌机只有500多P
+
+顺带一提这次和八方0一样也是虚幻5
+

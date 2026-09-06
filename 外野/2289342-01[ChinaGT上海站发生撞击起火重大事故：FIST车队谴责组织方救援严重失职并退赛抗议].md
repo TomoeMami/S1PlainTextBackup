@@ -481,3 +481,15 @@ IT之家附 FIST_Auto 车队官方微博声明原文如下：
 
 【ChinaGT冥场面之《一句话，让官号全网下架直播回放》】 [https://www.bilibili.com/video/BV1vEgX6TEZF/](https://www.bilibili.com/video/BV1vEgX6TEZF/)
 
+
+*****
+
+####  qucqee  
+##### 43#       发表于 2026-9-6 16:35
+
+<blockquote>interzhang 发表于 2026-9-6 15:49
+说到这个就想起最近看的甘肃越野超马拉松的事件，也是主办方救援不及时，只能说国内跟风流量办了一堆比赛， ...</blockquote>
+因为目的是挣钱啊，安全当然是最好省钱的地方
+
+参考今年生产事故
+
