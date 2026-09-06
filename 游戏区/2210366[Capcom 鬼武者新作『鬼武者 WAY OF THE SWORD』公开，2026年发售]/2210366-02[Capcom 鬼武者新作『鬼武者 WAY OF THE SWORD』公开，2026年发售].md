@@ -1832,3 +1832,33 @@ ps商店的官方模拟器版也挺高清了</blockquote>
 想给主角全升满的话是不是直接开新难度通马桶就行？
 毕竟强化不继承
 
+
+*****
+
+####  卡拉德利姆  
+##### 1666#       发表于 2026-9-6 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211687&amp;ptid=2210366" target="_blank">scp073 发表于 2026-9-6 20:20</a>
+想给主角全升满的话是不是直接开新难度通马桶就行？
+毕竟强化不继承</blockquote>
+强化不继承那继承啥 这么搞有点不想开二周目了 那么多升级材料啊<img src="https://static.stage1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 1667#       发表于 2026-9-6 20:32
+
+我对打boss以外的流程的评价<img src="https://p.sda1.dev/34/f49ef88e3b1a5c2fd5b34ec1ae810bbb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  大喇叭花田  
+##### 1668#       发表于 2026-9-6 20:35
+
+<blockquote>Arccueid 发表于 2026-9-6 20:01
+卡婊这作按键输入怎么调教得这么好，这么爽的战斗系统希望能多做几代
+
+—— 来自 S1Fun ...</blockquote>
+从剧情上看，肯定是要继续出的。
+
