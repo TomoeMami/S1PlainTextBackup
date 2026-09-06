@@ -728,3 +728,11 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 正常賽車賽事都應該要配置專責消防和救護的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · vivo X300 Ultra 卫星通信版
 
+
+*****
+
+####  eva02eva02  
+##### 67#       发表于 2026-9-6 19:46
+
+赛事的安保费用连一个能用的灭火器都买不来<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
