@@ -13178,3 +13178,23 @@ Codex可以吗？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  lly778  
+##### 13072#       发表于 2026-9-6 21:55
+
+plus用户还是等astra蒸馏出6的luna再用吧
+
+*****
+
+####  lly778  
+##### 13073#       发表于 2026-9-6 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212011&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-9-6 21:25</a>
+
+话说你们开俩账号切换是无缝还是要手机验证的？还是验证一次就可以？
+
+—— 来自 S1Fun ...</blockquote>
+ccswith切换
+
