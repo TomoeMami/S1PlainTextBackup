@@ -12429,3 +12429,24 @@ grok一直是可见思维链.
 
 ds是性价比最高的一档。能满足的话，就不要换。不要创造需求。有实际需求再想
 
+
+*****
+
+####  舞以  
+##### 13008#       发表于 2026-9-6 09:24
+
+Astra pro使用下来的感觉，明显更会说人话了<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  CCauchy  
+##### 13009#       发表于 2026-9-6 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208737&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-6 02:34</a>
+grok一直是可见思维链.</blockquote>
+啊？那官网的不是呢
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

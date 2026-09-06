@@ -2650,3 +2650,14 @@ bd访谈预览
 <img src="https://p.sda1.dev/34/295970acc915c72eae0d4d1dfb4e3ffb/HRdDlrJa0AAfr1J.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/830b9a80c57861977fed980c482d5feb/HRdFvGebEAAEdk1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zing223  
+##### 497#       发表于 2026-9-6 09:36
+
+抓菈菈性格和不安感最好的还是川原担当回数，以及确实能把那种残酷、动荡、有点异质的不适感的潜意识捕捉到。个人觉得这个是很有几原邦彦特征的文本笔触，这集也一下子又提振了个人追这部动画的信心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+以及茉里的刻画很百合，虽然有点版本有点古早<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
