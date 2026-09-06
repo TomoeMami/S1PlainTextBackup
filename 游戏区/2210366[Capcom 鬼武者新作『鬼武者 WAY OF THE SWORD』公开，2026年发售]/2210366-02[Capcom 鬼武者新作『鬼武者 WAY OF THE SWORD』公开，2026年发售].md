@@ -2353,3 +2353,17 @@ boss和敌人种类少了点，这点算是有点可惜了，但还不至于因�
 
 进攻手段贫瘠是不是得怪r1的战技设计得强度太高了，光一个双刀就是快速出手的强制打断。因为强度高了就不能让你太频繁使用，boss一条血顶多用两次。大多数时候是把它当一个大招来兑子而不是加进常态的战斗中。
 
+
+*****
+
+####  红魔馆的糖  
+##### 1715#       发表于 2026-9-7 02:10
+
+打完了捏，给7分吧，七分全部都是动作分，其他内容全部零蛋，确实是近年来最牛逼的打boss游戏<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+看起来还有下一作，希望卖多点给司马卡表多批点预算吧。
+话说这个最终boss其实给我的感觉比较一般，印象深刻的只有那个傻卵判定蓝光投。作为这游戏的收尾我感觉拉了
+
+二周目鬼杀就算了，让我再跑一遍这个流程不如杀了我<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+好了不在专楼水了，我要去走廊发帖串收小红点了，不串对不起我跑图打的这些哈欠<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
