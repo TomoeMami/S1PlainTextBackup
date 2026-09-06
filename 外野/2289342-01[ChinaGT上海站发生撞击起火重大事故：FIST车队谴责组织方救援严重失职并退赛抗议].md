@@ -473,3 +473,11 @@ IT之家附 FIST_Auto 车队官方微博声明原文如下：
 
 救人车手的车载
 
+
+*****
+
+####  Fuero  
+##### 42#       发表于 2026-9-6 16:17
+
+【ChinaGT冥场面之《一句话，让官号全网下架直播回放》】 [https://www.bilibili.com/video/BV1vEgX6TEZF/](https://www.bilibili.com/video/BV1vEgX6TEZF/)
+
