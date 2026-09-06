@@ -12725,3 +12725,24 @@ astra用之前记得测试一下是否降智，之前5.6降智只是针对模型
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zephyrus99  
+##### 13035#       发表于 2026-9-6 12:46
+
+ds的v4pro感觉这几天流口水了啊
+
+思考问题又急又偏
+
+
+*****
+
+####  serj005  
+##### 13036#       发表于 2026-9-6 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209964&amp;ptid=2275806" target="_blank">kylezy123 发表于 2026-9-6 12:25</a>
+
+这智普送的3亿Token两天根本用不完啊 如果能用一周就好了</blockquote>
+昨天一天已经用完60%了，有自己的小项目这3亿花起来还是很快的
+
