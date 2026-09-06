@@ -12746,3 +12746,19 @@ ds的v4pro感觉这几天流口水了啊
 这智普送的3亿Token两天根本用不完啊 如果能用一周就好了</blockquote>
 昨天一天已经用完60%了，有自己的小项目这3亿花起来还是很快的
 
+
+*****
+
+####  CCauchy  
+##### 13037#       发表于 2026-9-6 13:17
+
+<img src="https://img.stage1st.com/forum/202609/06/131703oexd5me6d0fxxo5f.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (8.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 13:17 上传
+
+agentrouter想干什么<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -1360,3 +1360,11 @@ IP空窗太久情怀都忘了，现在看着通马桶就力竭，不如纯线性
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">孔雀王这个复仇鬼义经也很不错啊
 
+
+*****
+
+####  Yugao  
+##### 1616#       发表于 2026-9-6 13:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我一路干到第二次遇见看门大爷才发现，原来其他地图也是有马桶和找狗的，我说怎么缺皮革缺疯了
+
