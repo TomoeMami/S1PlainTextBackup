@@ -12487,3 +12487,11 @@ o➗炒作这么久，感觉还真有活啊<img src="https://static.stage1st.com
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  mitzvah  
+##### 13014#       发表于 2026-9-6 10:16
+
+灰测模型应该是个部署不起成本奇高的教师模型吧，现在的flash与pro都是这个教师模型蒸馏出来的产物。这样flash能力与pro接近就可以接受了，确实flash这个规模的模型更容易蒸馏
+
