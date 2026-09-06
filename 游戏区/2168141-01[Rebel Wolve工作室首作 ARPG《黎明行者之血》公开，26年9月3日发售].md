@@ -1239,3 +1239,27 @@ Vampyr试一哈？
 地图西边的有个离开山谷的门可以开溜，直接一周目结束。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 所以看结局cg续作要变现代故事了吗。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  含恨未了切莫死  
+##### 114#       发表于 2026-9-7 06:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/07/065428llhbwl8jo688pq0z.jpg" referrerpolicy="no-referrer">
+
+<strong>20260907051302_1.jpg</strong> (245.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 06:54 上传
+
+<img src="https://img.stage1st.com/forum/202609/07/065429cmhu8htttii4y3lz.jpg" referrerpolicy="no-referrer">
+
+<strong>20260907051348_1.jpg</strong> (245.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 06:54 上传
+

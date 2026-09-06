@@ -13681,3 +13681,15 @@ context_management.experimental_mode = true</blockquote>
 
 gpt这个能力加上token efficiency当前就是性价比最高的真没人能挑战吧，当然用一个月是一个月，一个月以后a/上市 oai降智再评
 
+
+*****
+
+####  舞以  
+##### 13115#       发表于 2026-9-7 06:43
+
+核心矛盾是算力啊，ds原价卖他们又不亏，主要还是他们没有足够的算力支撑降价所释放的需求<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+kimi的订阅也是抠抠搜搜，最高档次还比199性价比差点。
+智谱常年也是算力耍猴
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -343,3 +343,14 @@ CG除了大招其他真的梦回露娜
 这引入世界观的剧情无聊死了，单纯流水账介绍，现在的观众还能接受10多分 ...</blockquote>
 令和公认开局最好是利维斯，第一阶段为止是真的好看
 
+
+*****
+
+####  pointer243  
+##### 135#       发表于 2026-9-7 06:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211806&amp;ptid=2278175" target="_blank">AAAZZZWWW 发表于 2026-9-6 20:49</a>
+
+男主在此之前已经战斗了很久，但故事从这一刻开始发生的切入，看着很有“假面骑士味”，二骑前期貌似还不会 ...</blockquote>
+开播前官网就说了红猫是好人啊，是个外边看上去坏人实则内心热诚的好人
+
