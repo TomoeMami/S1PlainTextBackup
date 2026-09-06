@@ -1609,3 +1609,13 @@ IP空窗太久情怀都忘了，现在看着通马桶就力竭，不如纯线性
 怎么越看越像ff16那个趋势 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 整个游戏确实很石榴，总体还行但稍有硬伤的战斗，精细打磨的boss战和演出，大把的马桶
 
+
+*****
+
+####  二十二颗牛油果  
+##### 1641#       发表于 2026-9-6 17:22
+
+打了把没怎么出投技就过了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉源义经除了投技全是白给爽招<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

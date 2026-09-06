@@ -12998,3 +12998,24 @@ GPT这个20刀→100刀的订阅档位还是步子大了点，需要一个中间
 目前是我给他描述具体操作步 ...</blockquote>
 说真的，目前为止在写代码领域，就codex是水桶，其它都是歪路。
 
+
+*****
+
+####  来都来了  
+##### 13058#       发表于 2026-9-6 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210186&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-9-6 13:25</a>
+怎么让codex自动跑下去，经常干别的没注意到审批操作。</blockquote>
+这种问题直接问它自己是最方便的。
+
+*****
+
+####  jojog  
+##### 13059#       发表于 2026-9-6 17:20
+
+<blockquote>jinuzuktII 发表于 2026-9-6 14:23
+GPT这个20刀→100刀的订阅档位还是步子大了点，需要一个中间档</blockquote>
+100刀就是字面意义的20刀5倍
+
+中间加一档其实更高不成低不就了(
+
