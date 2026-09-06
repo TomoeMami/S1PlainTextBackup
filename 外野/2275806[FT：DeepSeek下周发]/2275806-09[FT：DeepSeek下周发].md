@@ -12869,3 +12869,21 @@ GPT这个20刀→100刀的订阅档位还是步子大了点，需要一个中间
 
 zcode的周末token是在哪里看用量和余量？我找不到
 
+
+*****
+
+####  requiem116  
+##### 13047#       发表于 2026-9-6 14:55
+
+现在要怎么学习正确许愿的范式？
+
+下了dsh配flash，想让dsh搓一个手游挂机脚本
+
+目前是我给他描述具体操作步骤然后给我把脚本写出来并整合到gui中，但是实际推进过程中并不能很好的完成逻辑的整合
+
+感觉离许愿这个级别还差的太远了，基本上相当于我把伪代码都写出来了转换一下，理想状态不应该是配合多模态模型能够识别图片内容自动测试并推进项目吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+首先是不是把工具从dsh换成pi会好一点之前楼里也问过有坛友这么建议过
+
+ds搓了几十块了还没搓出来，感觉都不如我去买现成脚本了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
