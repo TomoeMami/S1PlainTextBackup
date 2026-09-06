@@ -2211,3 +2211,13 @@ FF16很难翻啊
 SE真就是吃了不懂社管的亏，当时要是多在论坛买点水军，多给主播交点保 ...</blockquote>
 虽然都是通一万个马桶给一个boss奖励，但鬼武者的boss是真的奖励，石榴的召唤兽演出boss实际上还是大便<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 1700#       发表于 2026-9-7 00:14
+
+对了，图鉴里23个幻魔是不是就是这游戏全部敌人了？
+
+我今天刚玩上，只玩了三个小时。要真就23种怪那我正好做一下预期管理。
+
