@@ -1665,3 +1665,47 @@ IP空窗太久情怀都忘了，现在看着通马桶就力竭，不如纯线性
 
 这个中配水平太高了，配音水平挺高，而且文案同样是自由加戏，比卧龙那些莫名其妙的加戏台词也适配非常多，爆粗口也比2077那些为了爆粗而爆粗自然得多，记忆里算是这些年中文本地化做得最好的国外游戏了
 
+
+*****
+
+####  如月尤菲  
+##### 1647#       发表于 2026-9-6 18:25
+
+打的真爽，不知道辉夜姬和佐佐木是续作还是dlc了
+
+*****
+
+####  红魔馆的糖  
+##### 1648#       发表于 2026-9-6 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211227&amp;ptid=2210366" target="_blank">桥洞底下盖小被 发表于 2026-9-6 18:19</a>
+这个中配水平太高了，配音水平挺高，而且文案同样是自由加戏，比卧龙那些莫名其妙的加戏台词也适配非常多， ...</blockquote>
+翻译应该是看过挺多次剧本的，很多日配里顺口提一句的话，翻译直接加上主谓宾
+
+*****
+
+####  八云的式神  
+##### 1649#       发表于 2026-9-6 18:26
+
+卡婊赶紧把新鬼武者高清化一下上来给人洗洗眼睛，这部的女人真是看吐了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zqqwe  
+##### 1650#       发表于 2026-9-6 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211261&amp;ptid=2210366" target="_blank">八云的式神 发表于 2026-9-6 18:26</a>
+卡婊赶紧把新鬼武者高清化一下上来给人洗洗眼睛，这部的女人真是看吐了</blockquote>
+ps商店的官方模拟器版也挺高清了
+
+
+*****
+
+####  八云的式神  
+##### 1651#       发表于 2026-9-6 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211267&amp;ptid=2210366" target="_blank">zqqwe 发表于 2026-9-6 18:28</a>
+
+ps商店的官方模拟器版也挺高清了</blockquote>
+原来还有这种东西，看看去
+

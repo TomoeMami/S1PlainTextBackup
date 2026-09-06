@@ -600,3 +600,28 @@ IT之家附 FIST_Auto 车队官方微博声明原文如下：
 
 刷到这比赛珠海站就被选手直播骂**了
 
+
+*****
+
+####  ArowRocher  
+##### 55#       发表于 2026-9-6 18:31
+
+向Hartog致敬！！！ 真汉子，英雄！ 今天很多车队都在... https://xhslink.cn/o/7lUtKDdnGEL 复制内容，然后进入【小红书】查看相关笔记。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  yikaa  
+##### 56#       发表于 2026-9-6 18:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">扫射转移这一块，疯狂哈气这一块
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  武蔵  
+##### 57#       发表于 2026-9-6 18:34
+
+拍窗户叫不醒救护车司机，真是精致睡眠了，不会是前一天夜班连着当天白班吧
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

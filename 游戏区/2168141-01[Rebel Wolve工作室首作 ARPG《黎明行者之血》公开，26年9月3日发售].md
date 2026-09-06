@@ -1208,3 +1208,11 @@ Vampyr试一哈？
 
 有些任务时间消耗像是脚填的，什么叫我到房子附近的河边采点草要两小时，回家熬药还要额外一小时。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  噗呸破屁诚  
+##### 111#       发表于 2026-9-6 18:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">没绷住，这马桶里面好多和巫师三的猎魔人委托一样的假马桶混在里面，不少都是通一半是有内容或者后续的，服了，真的全不做会丢不少东西
+
