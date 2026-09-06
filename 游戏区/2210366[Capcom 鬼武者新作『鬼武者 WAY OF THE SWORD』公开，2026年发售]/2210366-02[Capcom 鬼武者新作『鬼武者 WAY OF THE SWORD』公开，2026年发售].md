@@ -2055,3 +2055,50 @@ SE真就是吃了不懂社管的亏，当时要是多在论坛买点水军，多
 
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">一句话，boss战上堆料不足的黑猴，但是其他地方有好有坏，至少手女人挺好玩的，虽然确实和群友说的一样有点太豆包了，黑猴几分鬼武者几分
 
+
+*****
+
+####  火红之眼  
+##### 1688#       发表于 2026-9-6 22:46
+
+<img src="https://img.stage1st.com/forum/202609/06/224531iyt29t7hvryndyr7.jpg" referrerpolicy="no-referrer">
+
+<strong>B2C1D541A0A363E68E8433D8273A65E3.jpg</strong> (425.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 22:45 上传
+
+白金了，毗沙门剑还是有点东西，义经一阶全程闪过去，二阶没这勇气老实招架了，锻炼模式没道具还是不敢太莽<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dotiaffy  
+##### 1689#       发表于 2026-9-6 22:47
+
+看这个评价有点不敢买了
+
+*****
+
+####  ティグル  
+##### 1690#       发表于 2026-9-6 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209590&amp;ptid=2210366" target="_blank">杀仁老登 发表于 2026-9-6 10:53</a>
+
+源神毕竟是日本三大悲剧英雄之一，大部分改编还是往悲剧美少年那个方向去塑造的，比如当年鬼武者的竞品的GE ...</blockquote>
+成吉思汗源义经说本来就只是义经北行传说和明治时期的蒙古想象结合出来的奇异搞笑伪史论，没被特高课铁拳砸烂也只是因为这套满蒙日一体叙事对帝日有利
+
+连江上波夫都不认这一套，现在也就只有道民还爱蹭这个热闹了
+
+*****
+
+####  Goumian_33  
+##### 1691#       发表于 2026-9-6 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212405&amp;ptid=2210366" target="_blank">dotiaffy 发表于 2026-9-6 22:47</a>
+
+看这个评价有点不敢买了</blockquote>
+还行吧。
+
+实在不敢判断那就看直播两个小时，如果没想自己上手那就算了
+
