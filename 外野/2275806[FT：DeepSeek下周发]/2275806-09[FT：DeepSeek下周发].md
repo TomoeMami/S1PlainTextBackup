@@ -13408,3 +13408,24 @@ hao以前一直用中转站，现在有几个正经项目想自己充gpt了。�
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  RookieTnT  
+##### 13092#       发表于 2026-9-7 00:44
+
+之前说越狱的那个模型不是现在我们用的gpt6?   
+
+不过gpt6这基模真的很强. 期待后面RL出来的6.1
+
+*****
+
+####  RookieTnT  
+##### 13093#       发表于 2026-9-7 00:47
+
+[features]
+
+context_management.experimental_mode = true
+
+开了这个测试特性后 token用量降低很多了. 可惜只有官号才能用 gpt啥时候把那套上下文检索给开源了啊 
+
