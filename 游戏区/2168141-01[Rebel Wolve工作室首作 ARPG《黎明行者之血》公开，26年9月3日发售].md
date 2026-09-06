@@ -1226,3 +1226,16 @@ Vampyr试一哈？
 
 阵营强相关的马桶还真得打 有不少叙事填充
 
+
+*****
+
+####  Schwarzess  
+##### 113#       发表于 2026-9-6 20:21
+
+ 本帖最后由 Schwarzess 于 2026-9-6 20:22 编辑 
+
+可能有剧透，慎看。
+
+地图西边的有个离开山谷的门可以开溜，直接一周目结束。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+所以看结局cg续作要变现代故事了吗。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
