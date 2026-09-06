@@ -12495,3 +12495,33 @@ o➗炒作这么久，感觉还真有活啊<img src="https://static.stage1st.com
 
 灰测模型应该是个部署不起成本奇高的教师模型吧，现在的flash与pro都是这个教师模型蒸馏出来的产物。这样flash能力与pro接近就可以接受了，确实flash这个规模的模型更容易蒸馏
 
+
+*****
+
+####  serj005  
+##### 13015#       发表于 2026-9-6 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208430&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-6 00:31</a>
+你不会因为输出过长被截断吗，这毛病搞得恶心死了，长时间思考-写入文件到一半就截断导致失败-吞掉回复重 ...</blockquote>
+用zcode没遇到截断问题，可能是我把思考强度刻意开的high，没开max。不知道你这边的工具和思考档位是什么。
+
+
+*****
+
+####  shqingda_  
+##### 13016#       发表于 2026-9-6 10:25
+
+吐槽一下，我一直觉得grok4.6水平其实没比5.6sol差多少，但是这美式中文实在是看着太费劲，这是人话吗真的<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 13017#       发表于 2026-9-6 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209478&amp;ptid=2275806" target="_blank">shqingda_ 发表于 2026-9-6 10:25</a>
+
+吐槽一下，我一直觉得grok4.6水平其实没比5.6sol差多少，但是这美式中文实在是看着太费劲，这是人话吗真的 ...</blockquote>
+sol已经够jb不说人话了😄
+
+Astra我还没开始跑coding，但是网页版的Astra pro明显说人话多了
+
