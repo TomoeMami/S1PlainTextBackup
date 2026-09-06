@@ -1541,3 +1541,51 @@ IP空窗太久情怀都忘了，现在看着通马桶就力竭，不如纯线性
 
 源义经怎么拆投，完全不会，必吃他的投技，完全看不清出手<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  这次是十块钱  
+##### 1635#       发表于 2026-9-6 17:01
+
+准备开玩，4060主机和ps5选哪个体验好点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  asikies  
+##### 1636#       发表于 2026-9-6 17:04
+
+弓箭和秘宝还有紫式部任务链连个收尾任务都没有我是想不到的。
+
+*****
+
+####  monikaca  
+##### 1637#       发表于 2026-9-6 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210791&amp;ptid=2210366" target="_blank">二十二颗牛油果 发表于 2026-9-6 16:31</a>
+
+源义经怎么拆投，完全不会，必吃他的投技，完全看不清出手</blockquote>
+他抬手后会稍微等一会，等手抓下来再拆。
+
+顺便，三连大范围光剑，可以远程一闪。
+
+普通三连斩也可以闪。
+
+跳跃踩人也很好闪。
+
+翻身紫色光剑被投很伤，老老实实化劲。
+
+这个BOSS看起来很恐怖，但是实际上是一闪比稳扎稳打要好打很多，可以说是最体现一闪含金量的boss。
+
+*****
+
+####  monikaca  
+##### 1638#       发表于 2026-9-6 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210714&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-6 16:03</a>
+
+我伐你老木啊，这是第几只怒伐天了</blockquote>
+你要升满武器害的刷这个BOSS或者刷红魂。
+

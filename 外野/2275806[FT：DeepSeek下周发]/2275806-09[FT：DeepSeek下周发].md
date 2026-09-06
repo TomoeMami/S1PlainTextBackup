@@ -12983,3 +12983,18 @@ zcode的周末token是在哪里看用量和余量？我找不到</blockquote>
 GPT这个20刀→100刀的订阅档位还是步子大了点，需要一个中间档</blockquote>
 我之前是两个plus轮流登刚刚好，现在gpt6两个账户不行了
 
+
+*****
+
+####  子虚乌有  
+##### 13057#       发表于 2026-9-6 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210491&amp;ptid=2275806" target="_blank">requiem116 发表于 2026-9-6 14:55</a>
+
+现在要怎么学习正确许愿的范式？
+
+下了dsh配flash，想让dsh搓一个手游挂机脚本
+
+目前是我给他描述具体操作步 ...</blockquote>
+说真的，目前为止在写代码领域，就codex是水桶，其它都是歪路。
+

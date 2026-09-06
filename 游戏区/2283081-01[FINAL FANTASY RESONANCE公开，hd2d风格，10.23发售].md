@@ -1998,3 +1998,15 @@ NS掌机只有500多P
 
 顺带一提这次和八方0一样也是虚幻5
 
+
+*****
+
+####  宛若青空  
+##### 200#       发表于 2026-9-6 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209212&amp;ptid=2283081" target="_blank">finalstar099 发表于 2026-9-6 09:23</a>
+周末把ns1、ns2、ps5三个版本都玩了一遍，最后居然在ns1上沉浸了。
+
+画面稳定30fps、也没有动作操作需求， ...</blockquote>
+请教下三个版本的画面帧数感觉怎么样呀，纠结买哪个版本<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
