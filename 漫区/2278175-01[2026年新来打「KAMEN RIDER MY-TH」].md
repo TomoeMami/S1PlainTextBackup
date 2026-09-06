@@ -275,3 +275,12 @@ bad cg是不得不品的一环，不过后续应该就少了，也就刚开始�
 
 男主像韩国人这点貌似公布人物的时候就有人说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  風卷豹  
+##### 128#       发表于 2026-9-6 17:04
+
+男主好呆，吐槽的气口完全不对，听着好难受，现在和泛式一起送去练漫才还来得及<img src="https://static.stage1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+CG除了大招其他真的梦回露娜
+

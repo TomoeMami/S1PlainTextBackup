@@ -1589,3 +1589,23 @@ IP空窗太久情怀都忘了，现在看着通马桶就力竭，不如纯线性
 我伐你老木啊，这是第几只怒伐天了</blockquote>
 你要升满武器害的刷这个BOSS或者刷红魂。
 
+
+*****
+
+####  asikies  
+##### 1639#       发表于 2026-9-6 17:09
+
+人家通完这么长马桶好歹播个片提供一下情绪价值，这玩意就是明着告诉你我在拖时间。
+
+*****
+
+####  魔法酪饼  
+##### 1640#       发表于 2026-9-6 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209912&amp;ptid=2210366" target="_blank">抹茶瓜 发表于 2026-9-6 12:11</a>
+
+看了一堆游玩报告 加上店铺没发货 还是退了等降价了
+
+怎么越看越像ff16那个趋势 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 整个游戏确实很石榴，总体还行但稍有硬伤的战斗，精细打磨的boss战和演出，大把的马桶
+
