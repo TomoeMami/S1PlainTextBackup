@@ -12525,3 +12525,41 @@ sol已经够jb不说人话了😄
 
 Astra我还没开始跑coding，但是网页版的Astra pro明显说人话多了
 
+
+*****
+
+####  andychen  
+##### 13018#       发表于 2026-9-6 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207539&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-5 20:23</a>
+work和codex可以，chat不行</blockquote>
+chat现在也可以了
+
+
+*****
+
+####  pure_liquid  
+##### 13019#       发表于 2026-9-6 10:34
+
+<blockquote>舞以 发表于 2026-9-6 10:27
+sol已经够jb不说人话了😄
+
+Astra我还没开始跑coding，但是网页版的Astra pro明显说人话多了 ...</blockquote>
+请问网页版的pro烧额度烧的严重吗？
+
+想试一下但是又怕直接把五小时额度烧干了
+
+*****
+
+####  舞以  
+##### 13020#       发表于 2026-9-6 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209510&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-9-6 10:34</a>
+
+请问网页版的pro烧额度烧的严重吗？
+
+想试一下但是又怕直接把五小时额度烧干了 ...</blockquote>
+pro的话，plus是没有的<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+此外gpt的订阅，给的额度在chat和codex里是分开的。
+
