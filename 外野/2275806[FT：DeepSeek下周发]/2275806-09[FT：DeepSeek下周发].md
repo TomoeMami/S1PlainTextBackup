@@ -12762,3 +12762,38 @@ ds的v4pro感觉这几天流口水了啊
 
 agentrouter想干什么<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gmlazy  
+##### 13038#       发表于 2026-9-6 13:25
+
+怎么让codex自动跑下去，经常干别的没注意到审批操作。
+
+
+*****
+
+####  qwased  
+##### 13039#       发表于 2026-9-6 13:34
+
+ 本帖最后由 qwased 于 2026-9-6 13:38 编辑 
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/text.gif" referrerpolicy="no-referrer">
+
+来自深渊-体素.txt
+(15.67 KB, 下载次数: 0)
+
+2026-9-6 13:28 上传
+
+点击文件名下载附件
+
+提示词是这个，GPT6直接塞进去说我要这个就行
+
+GLM5.3F实在太慢了所以我这么写的要求：
+
+阅读来自深渊-体素.txt，制定一个详尽的工作计划，将任务分解为可以并行的、边界明确的最小单元，编排工作流，按照工作进展，分别调用子agent推进工作，你来负责全局统筹、控制、验收，注意每一步推进都要文档落盘，所有文件产物都应该按结构储存在工作区，使用GIT进行版本控制，长文件必须分段写入禁止单次超长输出，同时运行的子agent 不得超过 3 个，优先使用可续用子agent，慎用一次性 agent
+
+中间调整工作纪律交接了几次对话窗口，上下文压力倒是一直很小
+
+还有DSH的子agent不限制并行数量他敢一次给你调用一千个<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+

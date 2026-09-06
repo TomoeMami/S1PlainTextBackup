@@ -3925,3 +3925,26 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 我的意思是貌似没有带dlc带季票的版本买</blockquote>
 我已经预购了，港服确实只有一个版本
 
+
+*****
+
+####  ascomnet  
+##### 3329#       发表于 2026-9-6 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209905&amp;ptid=2261859" target="_blank">su37mkk 发表于 2026-9-6 12:09</a>
+
+我的意思是貌似没有带dlc带季票的版本买</blockquote>
+这游戏还公布dlc呢。现在数字版就只有一个版本，不管是哪个服。
+
+实体有豪华版包括
+
+游戏本体
+
+ Art Book
+
+限定卡片
+
+ns2游戏卡收藏盒
+
+一张海报
+
