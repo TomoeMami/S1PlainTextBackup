@@ -469,3 +469,15 @@ MuMu-20260906-022645-969.jpg
 
 这个活动主要就是把几个黑户拉到9绊，梦火只有20多个恐怕并不能让我随便乱拉11绊
 
+
+*****
+
+####  麻花疼  
+##### 48206#       发表于 2026-9-6 12:41
+
+200根结束，又有钱点技能了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以后准备戴冠的直接刷到10，黑户到9，摸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+森岛学姐也领证了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">准备戴冠，未来就等骑冠和剑心落地了。
+

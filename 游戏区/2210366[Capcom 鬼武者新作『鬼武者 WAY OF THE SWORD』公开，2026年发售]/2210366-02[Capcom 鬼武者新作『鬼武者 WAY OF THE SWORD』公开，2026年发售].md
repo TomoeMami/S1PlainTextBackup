@@ -1313,3 +1313,50 @@ IP空窗太久情怀都忘了，现在看着通马桶就力竭，不如纯线性
 怎么越看越像ff16那个趋势 ...</blockquote>
 确实不值这个价，还容易被通马桶和丑逼娘们惹毛
 
+
+*****
+
+####  银色天空  
+##### 1614#       发表于 2026-9-6 12:44
+
+缺乏进攻手段确实是显而易见的问题，战斗就是轻重击来回按等出招，腕蓄力只能打打小怪，可以预见到时间长了会很单调。打个一周目就够了，封盘等dlc。
+
+*****
+
+####  saber614  
+##### 1615#       发表于 2026-9-6 12:45
+
+<img src="https://img.stage1st.com/forum/202609/06/124413tvwg1kmgv5qm96yv.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260906-123757.png</strong> (2.73 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 12:44 上传
+
+<img src="https://img.stage1st.com/forum/202609/06/124417t6senos93epcqm0q.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260906-124235.png</strong> (2.18 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 12:44 上传
+
+<img src="https://img.stage1st.com/forum/202609/06/124422a93o1w2oizii44tj.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260906-124305.png</strong> (2.02 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 12:44 上传
+
+<img src="https://img.stage1st.com/forum/202609/06/124426ovpbpko2pwndnbd4.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260906-124319.png</strong> (2.03 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 12:44 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">孔雀王这个复仇鬼义经也很不错啊
+
