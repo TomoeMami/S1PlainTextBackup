@@ -13298,3 +13298,36 @@ astra真的太“舒适”了，很难表达这种感觉，类似一种“手感
 现在又传说ASTRA只用了两层looped transformer就达到了这个效果，下一批国模应该很快也要端上桌解决现在超 ...</blockquote>
 所以这东西应该怎么计费呢，难道按时长计费？
 
+
+*****
+
+####  jinuzuktII  
+##### 13082#       发表于 2026-9-6 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212252&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-6 22:13</a></blockquote>
+这不写着work
+
+*****
+
+####  jojog  
+##### 13083#       发表于 2026-9-6 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212310&amp;ptid=2275806" target="_blank">hencechen 发表于 2026-9-6 22:26</a>
+
+如果不在意价格的话，我只能说，astra太强了，我用了一年的20美刀套餐，这次gpt 6更新两天下来，果断冲了20 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我是觉得写原生mcp和接口不错
+
+100刀一天已经用了50%了，如果再写写应该也要200刀了
+
+
+*****
+
+####  吴怀在  
+##### 13084#       发表于 2026-9-6 22:46
+
+我应该是在 GPT 6 发布前一天换的 100 刀美元套餐。这样下去，我也想换 200 刀了。
+
+感觉国模即使能力追上算力也不够，到时候套餐耍猴或者动不动就限流。不会像 GPT 用的这么舒心的。
+
+可能唯一的风险就是，等 OpenAI 上完市，就可以把中国人用户也踢出去了。所以最近这段时间抓紧蹬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

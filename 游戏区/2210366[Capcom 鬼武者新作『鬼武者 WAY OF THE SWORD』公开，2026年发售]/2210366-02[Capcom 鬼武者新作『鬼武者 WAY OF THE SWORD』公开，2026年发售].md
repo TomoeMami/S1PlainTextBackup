@@ -2034,3 +2034,24 @@ SE真就是吃了不懂社管的亏，当时要是多在论坛买点水军，多
 
 这意思是不是要出DLC了？
 
+
+*****
+
+####  魔法酪饼  
+##### 1686#       发表于 2026-9-6 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212291&amp;ptid=2210366" target="_blank">xiaoboost 发表于 2026-9-6 22:22</a>
+
+美术场景动画很上乘吗…………
+
+感觉是10年前的水平…………</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 开场那一段经典武士片怎么看都是超一流的吧，然后就没了
+
+
+*****
+
+####  Goumian_33  
+##### 1687#       发表于 2026-9-6 22:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">一句话，boss战上堆料不足的黑猴，但是其他地方有好有坏，至少手女人挺好玩的，虽然确实和群友说的一样有点太豆包了，黑猴几分鬼武者几分
+
