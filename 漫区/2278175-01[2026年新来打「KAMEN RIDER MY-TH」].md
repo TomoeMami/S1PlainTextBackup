@@ -250,3 +250,13 @@ bad cg是不得不品的一环，不过后续应该就少了，也就刚开始�
 
 第一集最难绷的就是池沼cg，其他都还过得去
 
+
+*****
+
+####  blue321  
+##### 125#       发表于 2026-9-6 15:44
+
+第一集标准展开还可以
+
+就是男主怎么感觉演技特呆滞，还有变身POSE比初见抹嘴唇还难蹦<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
