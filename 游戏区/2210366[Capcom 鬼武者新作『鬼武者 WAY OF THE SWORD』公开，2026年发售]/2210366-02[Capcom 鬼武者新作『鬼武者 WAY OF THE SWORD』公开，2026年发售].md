@@ -1449,3 +1449,24 @@ E7ujpUjWEAMqIjp.jpg
 试玩版除了佐佐木，其他感觉在棒读，正式版改进了吗</blockquote>
 女角色中规中矩，除了静御前，不过我猜原版说话就是那种日式棒棒的。男角色非常出彩，翻译也接地气，我一次觉得一个外国游戏，b站上的相关视频中配是压倒其他的，比生化9还多。
 
+
+*****
+
+####  monikaca  
+##### 1625#       发表于 2026-9-6 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201899&amp;ptid=2210366" target="_blank">月光下的静寂 发表于 2026-9-4 14:59</a>
+
+预告片里第一次出现女角色特写镜头的时候差点没把我吓死，什么jumpscare，和主角是一个画风么。。还有那 ...</blockquote>
+打通关之后你会发现这个阿国要怼脸很长一段时间，貌似她是续作主角之一...
+
+*****
+
+####  monikaca  
+##### 1626#       发表于 2026-9-6 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210626&amp;ptid=2210366" target="_blank">leia_rolando 发表于 2026-9-6 15:35</a>
+
+女角色中规中矩，除了静御前，不过我猜原版说话就是那种日式棒棒的。男角色非常出彩，翻译也接地气，我一 ...</blockquote>
+男主和最终BOSS的表情动作演出都太神了，硬是靠演出把屎一样的故事剧情抬高了一大截，好演员啊。
+
