@@ -1383,3 +1383,11 @@ IP空窗太久情怀都忘了，现在看着通马桶就力竭，不如纯线性
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最近啊B给我推了很多源氏全流程和评测视频，你们有什么头绪吗
 
+
+*****
+
+####  银色天空  
+##### 1619#       发表于 2026-9-6 14:16
+
+大部队通关了吧，而且现在这游戏社区热度有点高，各路人马在相关视频底下战作一团<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

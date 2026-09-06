@@ -12805,3 +12805,40 @@ GLM5.3F实在太慢了所以我这么写的要求：
 
 有活干的话蹬token还不容易，我在茶馆坐了一上午就干掉1.4亿，没有任何重度开发任务，平时没有什么事情周额度用不掉50%也是常有的事
 
+
+*****
+
+####  love4aids  
+##### 13041#       发表于 2026-9-6 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210186&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-9-6 13:25</a>
+
+怎么让codex自动跑下去，经常干别的没注意到审批操作。</blockquote>
+/goal，设定目标
+
+*****
+
+####  jinuzuktII  
+##### 13042#       发表于 2026-9-6 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209896&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-6 12:08</a>
+
+转贴《GPT 100% 检测是否降智（实测5.6sol 6 Astra都被路由到了神秘模型，疑似4o）》
+
+使用提示词：创建一 ...</blockquote>
+对额度负担有点大
+
+astra来了以后一举一动消耗超级快
+
+我都考虑要不要多整几个PLUS接力了
+
+看L站还有人发水杯游戏测试（答案是8那个），感觉能省点
+
+
+*****
+
+####  Saikou  
+##### 13043#       发表于 2026-9-6 14:17
+
+astra的消耗速度感觉比sol快了4-5倍，太夸张了
+
