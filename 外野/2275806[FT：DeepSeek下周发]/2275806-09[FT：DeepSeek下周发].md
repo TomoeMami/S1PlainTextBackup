@@ -13651,3 +13651,25 @@ gpt性价比里面一个很重要的组成部分就是三天两头重置
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  真红之闪电  
+##### 13112#       发表于 2026-9-7 06:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213053&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-7 00:47</a>
+[features]
+
+context_management.experimental_mode = true</blockquote>
+这是啥？能详细说下吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cscbzcbz  
+##### 13113#       发表于 2026-9-7 06:05
+
+只要灰测模型发出来，一切都会好起来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+如果GPT真的又好又便宜，梁子会降价的吧<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
