@@ -625,3 +625,32 @@ IT之家附 FIST_Auto 车队官方微博声明原文如下：
 拍窗户叫不醒救护车司机，真是精致睡眠了，不会是前一天夜班连着当天白班吧
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zeroboss4  
+##### 58#       发表于 2026-9-6 18:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210716&amp;ptid=2289342" target="_blank">狭义文具爱好者 发表于 2026-9-6 16:03</a>
+中超又是高额安保费又是绝大多数领导保守不开全部场馆座位的（只有大连敢全开梭鱼湾并且能坐满），怎么别的 ...</blockquote>
+哪能跟中超比
+
+那是啥级别安保很多人心里都没数
+
+这么说吧 中超的球场里球迷入场超过3w人以上后 球场安保费用直线飙升 可以干到球队卖票赚不到钱的程度
+
+这种安保才能保证这么多年没大事。。
+
+—— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zeroboss4  
+##### 59#       发表于 2026-9-6 18:40
+
+国内省超和苏超之类 大部分安保本质是白嫖公务员警力。。。所以叫文旅项目
+
+真按实打实的安保费用来 那钱要上天
+
+—— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

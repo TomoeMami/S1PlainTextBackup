@@ -1709,3 +1709,11 @@ ps商店的官方模拟器版也挺高清了
 ps商店的官方模拟器版也挺高清了</blockquote>
 原来还有这种东西，看看去
 
+
+*****
+
+####  姬茧墨  
+##### 1652#       发表于 2026-9-6 18:36
+
+抚雷这个空降的一闪点到底在哪，虽然弹开可以很轻松的应对，但总感觉不一闪落雷就哪里输掉了<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
