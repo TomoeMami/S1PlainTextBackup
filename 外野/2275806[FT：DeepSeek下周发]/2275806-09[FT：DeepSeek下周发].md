@@ -13629,3 +13629,15 @@ gpt性价比里面一个很重要的组成部分就是三天两头重置
 我在微博上看到的...@宝玉xp WorkBuddy还没用过</blockquote>
 刚试了 WorkBuddy可以用子代理 还非常简单<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小津江  
+##### 13110#       发表于 2026-9-7 05:21
+
+<blockquote>CCauchy 发表于 2026-9-7 01:25
+据说部分人喜欢4o的风格不想让o畜撤掉，这不来了，满足你们
+
+论坛助手,iPhone ...</blockquote>
+4o是我唯一破限后可以涩涩，可以反推色图，甚至给我推荐黄网的版本，也是那会奥特曼说要开放nsfw，现在6反馈这么好，nsfw遥遥无期了
+
