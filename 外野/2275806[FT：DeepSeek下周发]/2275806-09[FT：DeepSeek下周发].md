@@ -13350,3 +13350,16 @@ astra真的太“舒适”了，很难表达这种感觉，类似一种“手感
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  CCauchy  
+##### 13087#       发表于 2026-9-6 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212277&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-9-6 22:19</a>
+
+这个远不如any
+
+现在开始限流了</blockquote>
+没有啊，我前几天一直用opus5和sol到没额度，到今天才卡，换了glm
+
