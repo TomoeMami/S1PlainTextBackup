@@ -292,3 +292,15 @@ CG除了大招其他真的梦回露娜
 
 这卧底教师也太像刘谦了
 
+
+*****
+
+####  AAAZZZWWW  
+##### 130#       发表于 2026-9-6 20:49
+
+男主在此之前已经战斗了很久，但故事从这一刻开始发生的切入，看着很有“假面骑士味”，二骑前期貌似还不会变身入场，其他十二同盟在此之前剧情定位应该算二骑平替吧，一话登场一个十二同盟的皮套跟男主发生故事
+
+红猫没准是真好人，第一话各种伟光正发言也许是真想世界和平，前代鼠鼠才是坏比<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+叙事上没有故弄玄虚真是太好了……已经不想再看到十二同盟の闇这种展开了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

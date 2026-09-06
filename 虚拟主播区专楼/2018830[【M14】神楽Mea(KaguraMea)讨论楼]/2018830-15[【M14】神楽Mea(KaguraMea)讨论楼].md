@@ -240,3 +240,17 @@
 
 应该就是那种比较千篇一律的机能？赛博？电竞？风的套装
 
+
+*****
+
+####  术士q  
+##### 21090#       发表于 2026-9-6 20:45
+
+ 本帖最后由 术士q 于 2026-9-6 20:47 编辑 
+
+电竞用<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+本体帽子也回归了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+发型都很好看啊，特别是后几个
+
