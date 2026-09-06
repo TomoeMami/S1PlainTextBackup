@@ -1490,3 +1490,38 @@ IP空窗太久情怀都忘了，现在看着通马桶就力竭，不如纯线性
 
 我伐你老木啊，这是第几只怒伐天了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FACS  
+##### 1629#       发表于 2026-9-6 16:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这道狂何意味啊，发配到MMO得了别搁这恶心人
+
+*****
+
+####  司马千晶  
+##### 1630#       发表于 2026-9-6 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210714&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-6 16:03</a>
+我伐你老木啊，这是第几只怒伐天了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">猪猪 怒怒 百百 
+
+*****
+
+####  zqqwe  
+##### 1631#       发表于 2026-9-6 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210734&amp;ptid=2210366" target="_blank">FACS 发表于 2026-9-6 16:08</a>
+这道狂何意味啊，发配到MMO得了别搁这恶心人</blockquote>
+黄道陨石尤其难绷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FACS  
+##### 1632#       发表于 2026-9-6 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210714&amp;ptid=2210366" target="_blank">红魔馆的糖 发表于 2026-9-6 16:03</a>
+我伐你老木啊，这是第几只怒伐天了</blockquote>
+升级材料要从怒小弟和百小弟身上拿呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

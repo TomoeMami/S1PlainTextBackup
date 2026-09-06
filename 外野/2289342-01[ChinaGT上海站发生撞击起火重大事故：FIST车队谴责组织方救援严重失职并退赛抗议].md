@@ -1,0 +1,475 @@
+﻿
+*****
+
+####  lymm2003  
+##### 1#       楼主       发表于 2026-9-6 12:52
+
+.cronclosethread_getbox{border: 1px dashed #FF9A9A;padding:6px 8px;line-height: 24px;margin: 10px 0;font-size: 12px;overflow:hidden;color: #CA4312;}
+
+此帖将于2026-10-06 12:42自动关闭
+
+ 本帖最后由 lymm2003 于 2026-9-6 13:02 编辑 
+
+IT之家 9 月 6 日消息，在 9 月 5 日举行的 China GT 中国超级跑车锦标赛第四站上海站比赛中，FIST_Auto 车队 91 号车手发生了重大赛道事故：赛车剧烈撞击后迅速起火，随后魅影车队 79 号车手 Loek Hartog 不顾自身安危，从起火赛车中救出了 FIST 车手。
+
+<img src="https://img.stage1st.com/forum/202609/06/130132zhtheijiaqat55ql.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2618.jpeg</strong> (243.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 13:01 上传
+
+【CHINA GT上海站出现重大事故，事故车燃起熊熊大火，79号车手烈火救人-哔哩哔哩】 [https://b23.tv/HrWiJty](https://b23.tv/HrWiJty)
+
+FIST_Auto 车队官方微博昨晚发布严正声明，谴责赛事组织方在现场应急处置、安全救援保障上存在严重失职，救援响应存在明显漏洞，险些酿成惨剧。据车队披露，赛事直播期间，赛会工作人员未核实现场情况，草率播报车手自行离开赛车。
+
+<img src="https://img.stage1st.com/forum/202609/06/130151kdbt0vjitesuzbx3.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2617.jpeg</strong> (329.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 13:01 上传
+
+该车队还宣布，为表达强烈抗议，即日起退出今后所有 China GT 系列赛事。直至赛事组委会就本次事故中的救援失职等全部问题，完成完整、独立、公开的调查，并向 FIST_Auto 车队方给出正式答复为止。
+
+IT之家附 FIST_Auto 车队官方微博声明原文如下：
+
+我方车手在 China GT 第四站上海站比赛中发生重大赛道事故，赛车剧烈撞击后迅速起火，现场情况危急。赛事组织方在现场应急处置、安全救援保障上存在严重失职，救援响应存在明显漏洞，险些酿成惨剧。
+
+尤为令人愤慨的是，赛事直播期间，赛会工作人员未核实现场情况，草率播报车手自行离开赛车。真实情况为：我方 91 号车手，由魅影车队 79 号车手 Loek Hartog 不顾自身安危，从起火赛车中救出。我们向 Loek Hartog 先生舍己救人的英勇行为致以最崇高的敬意。
+
+事故发生后，赛事方未能第一时间调配充足医疗资源开展救治，且至今未就暴露的重大疏漏向车队及当事人作出任何官方致歉。
+
+车手生命安全是赛车运动不可逾越的底线。赛事方漠视生命风险、放任直播信息失实、淡化事故严重性的一系列行为极不负责任，践踏行业准则，重创了车队、车手家属及广大赛车从业者的信任，我方对此予以最严厉的谴责。
+
+为表达强烈抗议，即日起我方车队退出今后所有 China GT 系列赛事。直至赛事组委会就本次事故中的救援失职等全部问题，完成完整、独立、公开的调查，并向我方给出正式答复为止。
+
+我们郑重要求 China GT 赛事组委会：
+
+1. 立即启动全面调查，完整公开事故经过，厘清赛道安全、直播播报、官方信息发布各环节的问题与责任；
+
+2. 对救援不力，向涉事车队、车手及其家属正式致歉；
+
+3. 系统性整改赛道安全、应急救援、直播审核、官方信息发布的全套流程，出台可落地、可核验的安全升级方案，保障全体参赛者生命安全。
+
+我方将持续关注车手恢复进展，保留通过一切合法途径维权、追责的全部权利。
+
+衷心祈愿车手渡过难关，早日平安康复
+
+<img src="https://img.stage1st.com/forum/202609/06/124401ono03ipicuaz8uup.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2613.jpeg</strong> (174.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 12:44 上传
+
+*****
+
+####  里奥哟西  
+##### 2#       发表于 2026-9-6 13:18
+
+主办方心思搞流量去了
+
+*****
+
+####  Ferrari  
+##### 3#       发表于 2026-9-6 13:21
+
+【热门赛道事故救援分析-哔哩哔哩】 https://b23.tv/gIurJpG
+
+别独自退出了，是车队看到这种救援都会心里一凉
+
+恭喜ChinaGT完蛋
+
+*****
+
+####  ArowRocher  
+##### 4#       发表于 2026-9-6 13:27
+
+目前看到两个车队退出了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  凉良  
+##### 5#       发表于 2026-9-6 13:36
+
+怎么没具体内容
+车手说现场救援人员害怕丢下灭火器跑了，救护车人员在驾驶室里睡觉狂拍窗子都没叫醒。
+
+*****
+
+####  洛克萨斯  
+##### 6#       发表于 2026-9-6 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210174&amp;ptid=2289342" target="_blank">Ferrari 发表于 2026-9-6 13:21</a>
+
+【热门赛道事故救援分析-哔哩哔哩】 https://b23.tv/gIurJpG
+
+别独自退出了，是车队看到这种救援都会心里一 ...</blockquote>
+实在是太业余了，哎
+
+*****
+
+####  洛克萨斯  
+##### 7#       发表于 2026-9-6 13:43
+
+目前中国境内应该办赛经验最丰富还是澳门，上海还是要提升一下，太变态了，还好这次没死人
+
+*****
+
+####  南猫猫猫猫  
+##### 8#       发表于 2026-9-6 13:46
+
+救护车15分钟后才到，这很可怕了
+
+<img src="https://img.stage1st.com/forum/202609/06/134537y7mb0aav1q9filmj.jpg" referrerpolicy="no-referrer">
+
+<strong>axs7Q9-7h81K2bT1kSg6-dz.jpg</strong> (85.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 13:45 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 洛克萨斯 + 1离大谱
+
+查看全部评分
+
+*****
+
+####  今天不守尸  
+##### 9#       发表于 2026-9-6 13:51
+
+专业赛事一定要专业
+
+不用想，这个赛事组织方肯定是靠关系拿的举办权<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名居守  
+##### 10#       发表于 2026-9-6 13:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如贵州村gt？
+
+*****
+
+####  pointer243  
+##### 11#       发表于 2026-9-6 13:56
+
+ 本帖最后由 pointer243 于 2026-9-6 14:03 编辑 
+
+救援人员放下灭火器就跑路，然后第二个捣鼓半天连灭火器怎么用都用不明白。等到救援车来到第三个人下来人都救出来了。这个主办应该庆幸车没有爆炸，不然的话可以等着上刑事法庭了
+
+*****
+
+####  洛克萨斯  
+##### 12#       发表于 2026-9-6 14:00
+
+<img src="https://img.stage1st.com/forum/202609/06/135925os7680lm0yy6u0n3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (203.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 13:59 上传
+
+*****
+
+####  cybernetics31  
+##### 13#       发表于 2026-9-6 14:25
+
+ 本帖最后由 cybernetics31 于 2026-9-6 14:26 编辑 
+
+王一博心真大 这种救援组织水平还敢参加
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得救援车和医疗车都是小米的吧
+
+*****
+
+####  ninini212  
+##### 14#       发表于 2026-9-6 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210404&amp;ptid=2289342" target="_blank">cybernetics31 发表于 2026-9-6 14:25</a>
+
+王一博心真大 这种救援组织水平还敢参加
+
+我记得救援车和医疗车都是小米的吧
+
+ ...</blockquote>
+海狗警告
+
+*****
+
+####  下九流3  
+##### 15#       发表于 2026-9-6 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210404&amp;ptid=2289342" target="_blank">cybernetics31 发表于 2026-9-6 14:25</a>
+
+王一博心真大 这种救援组织水平还敢参加
+
+我记得救援车和医疗车都是小米的吧
+
+ ...</blockquote>
+我说8楼的帖文怎么有:小米中国GT锦标赛.话说这前后词组真TM怪,外国人都这么说话的吗,还是翻译的锅.
+
+*****
+
+####  ninini212  
+##### 16#       发表于 2026-9-6 14:35
+
+2026小米·中国超级跑车锦标赛
+
+2026年小米赞助的中国超级跑车锦标赛
+
+嗯，冠名赞助
+
+*****
+
+####  超级韭菜人  
+##### 17#       发表于 2026-9-6 14:38
+
+<blockquote>凉良 发表于 2026-9-6 13:36
+怎么没具体内容
+
+车手说现场救援人员害怕丢下灭火器跑了，救护车人员在驾驶室里睡觉狂拍窗子都没叫醒。 ...</blockquote>
+这也太离谱了吧
+
+*****
+
+####  13.  
+##### 18#       发表于 2026-9-6 14:41
+
+指望外包老头拼命有点不切实际了
+
+*****
+
+####  冰风血羽  
+##### 19#       发表于 2026-9-6 14:52
+
+看完视频，颤颤巍巍的老头连怎么用那个灭火器都被没培训过<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  娃哈哈123  
+##### 20#       发表于 2026-9-6 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210459&amp;ptid=2289342" target="_blank">13. 发表于 2026-9-6 14:41</a>
+
+指望外包老头拼命有点不切实际了</blockquote>
+赛车运动出事故是很正常的，连救援保证不了，你有什么资格来办大型赛事
+
+*****
+
+####  FurryBall  
+##### 21#       发表于 2026-9-6 14:54
+
+这就是国内最高级别的gt赛事吗？真是够草台班子的
+
+*****
+
+####  saberutopia  
+##### 22#       发表于 2026-9-6 14:55
+
+大家都是草台，有什么好大惊小怪的
+
+<img src="https://img.stage1st.com/forum/202609/06/145519t0vlvzs7ugg6z8p7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (293.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 14:55 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ WA2ST + 1欢乐多
+
+查看全部评分
+
+*****
+
+####  13.  
+##### 23#       发表于 2026-9-6 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210488&amp;ptid=2289342" target="_blank">娃哈哈123 发表于 2026-9-6 14:52</a>
+
+赛车运动出事故是很正常的，连救援保证不了，你有什么资格来办大型赛事 ...</blockquote>
+本来就没人看没人在意，上去3个组人人有台子的比赛。又不可能有志愿者+正式工的，这种结果不是很正常
+
+*****
+
+####  ROT  
+##### 24#       发表于 2026-9-6 15:12
+
+小米最近也是倒霉，连续两个赛事出问题了而且传播还挺广，一个业余跑山比赛小米车上墙，一个这个。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  娃哈哈123  
+##### 25#       发表于 2026-9-6 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210513&amp;ptid=2289342" target="_blank">13. 发表于 2026-9-6 14:58</a>
+
+本来就没人看没人在意，上去3个组人人有台子的比赛。又不可能有志愿者+正式工的，这种结果不是很正常 ...</blockquote>
+不管有没有人在意，只要组织比赛了，配套就得做好，特别涉及安全，自己为省钱偷懒了，出事了就别指望甩锅
+
+*****
+
+####  ninini212  
+##### 26#       发表于 2026-9-6 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210513&amp;ptid=2289342" target="_blank">13. 发表于 2026-9-6 14:58</a>
+本来就没人看没人在意，上去3个组人人有台子的比赛。又不可能有志愿者+正式工的，这种结果不是很正常 ...</blockquote>
+国外我不知道，国内这种公众活动你主办方敢省钱那就做好出事以后被清算的准备。
+
+最出名的不就是前几年越野跑死了一堆人那次
+
+*****
+
+####  coldhot3  
+##### 27#       发表于 2026-9-6 15:21
+
+<blockquote>pointer243 发表于 2026-9-6 13:56
+救援人员放下灭火器就跑路，然后第二个捣鼓半天连灭火器怎么用都用不明白。等到救援车来到第三个人下来人都 ...</blockquote>
+这段视频哪里有啊
+
+*****
+
+####  malisa  
+##### 28#       发表于 2026-9-6 15:23
+
+即使是野鸡赛事，涉及人命也不能忽视安全吧
+要么就不办，或者换成碰碰车
+这次还好没死人，不然事情就大了
+
+*****
+
+####  cnwind042  
+##### 29#       发表于 2026-9-6 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210586&amp;ptid=2289342" target="_blank">coldhot3 发表于 2026-9-6 15:21</a>
+
+这段视频哪里有啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">3楼那个，看着感觉就是兼职大爷吧，这能救就有鬼了
+
+*****
+
+####  Evelynn  
+##### 30#       发表于 2026-9-6 15:39
+
+性价比赛事，性价比工作人员，自然是性价比救援了（不是cue小米，毕竟也不是组织方）
+
+*****
+
+####  interzhang  
+##### 31#       发表于 2026-9-6 15:49
+
+说到这个就想起最近看的甘肃越野超马拉松的事件，也是主办方救援不及时，只能说国内跟风流量办了一堆比赛，但是办比赛最基本的各项应急措施预案却完全没有跟上
+
+*****
+
+####  chaoliu  
+##### 32#       发表于 2026-9-6 15:50
+
+好事啊，主办方省钱找性价比工 那性价比工自然拿多少钱出多少力咯，就是资本主义啊<img src="https://static.stage1st.com/image/smiley/face/78.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  haemori  
+##### 33#       发表于 2026-9-6 15:54
+
+出事故的弯还是上赛道速度最快事故最多的路段，连在那里的马修都是撑门面的临时工的话，代表着整个赛道上可能就没有一个正经的专业赛道人员了吧
+
+*****
+
+####  jjcctxz  
+##### 34#       发表于 2026-9-6 15:55
+
+没钱玩赛车，招笑
+
+*****
+
+####  Totokei  
+##### 35#       发表于 2026-9-6 15:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是主办省钱，参加的老板们没少扔钱，撞的这三台车加起来售价已经两千多万了
+
+*****
+
+####  平贺才人  
+##### 36#       发表于 2026-9-6 15:59
+
+<img src="https://img.stage1st.com/forum/202609/06/155859nmyg1br4m6roskqb.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1788681537602_1.webp</strong> (130.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 15:58 上传
+
+符合国家级赛事配置<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吴怀在  
+##### 37#       发表于 2026-9-6 16:01
+
+一眼看成 ChatGPT 上海站发生起火重大事故，还想着咋了？
+
+*****
+
+####  Fuero  
+##### 38#       发表于 2026-9-6 16:02
+
+分享一个去年的case<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+【China GT的赛会的不作为险些引起重大事故】 [https://www.bilibili.com/video/BV1e9WczBETb/](https://www.bilibili.com/video/BV1e9WczBETb/)
+
+*****
+
+####  狭义文具爱好者  
+##### 39#       发表于 2026-9-6 16:03
+
+中超又是高额安保费又是绝大多数领导保守不开全部场馆座位的（只有大连敢全开梭鱼湾并且能坐满），怎么别的项目比赛啥都敢上啊
+
+当然这天气即使是有现场aed的情况下也有球迷去世
+
+*****
+
+####  ninini212  
+##### 40#       发表于 2026-9-6 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210716&amp;ptid=2289342" target="_blank">狭义文具爱好者 发表于 2026-9-6 16:03</a>
+中超又是高额安保费又是绝大多数领导保守不开全部场馆座位的（只有大连敢全开梭鱼湾并且能坐满），怎么别的 ...</blockquote>
+因为中超出事真的有一串人负责
+
+
+*****
+
+####  水風船  
+##### 41#       发表于 2026-9-6 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210586&amp;ptid=2289342" target="_blank">coldhot3 发表于 2026-9-6 15:21</a>
+
+这段视频哪里有啊</blockquote>
+[https://www.bilibili.com/video/BV1zZb76tESA/](https://www.bilibili.com/video/BV1zZb76tESA/)
+
+救人车手的车载
+
