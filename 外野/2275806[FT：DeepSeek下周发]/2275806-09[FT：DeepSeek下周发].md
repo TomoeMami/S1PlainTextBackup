@@ -13070,3 +13070,30 @@ GPT这个20刀→100刀的订阅档位还是步子大了点，需要一个中间
 
 大烧货这都出来多久了，怎么会话管理还是这个卵样子？会话的唯一选项就是归档，不能删除。归档后，这个会话就进了异空间，没有办法再次查看这个会话，也不能删除或恢复。这种花半个小时vibe一个插件都能解决的东西，都多久了还完全不改。
 
+
+*****
+
+####  RookieTnT  
+##### 13064#       发表于 2026-9-6 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209222&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-6 09:27</a>
+
+啊？那官网的不是呢
+
+论坛助手,iPhone</blockquote>
+官网的web只是隐藏了. 实际上一直都是可见的. 你用grok build 就知道了
+
+*****
+
+####  RookieTnT  
+##### 13065#       发表于 2026-9-6 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211009&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-6 17:27</a>
+
+我用不起
+
+而且不需要五倍</blockquote>
+菲律宾可以填免税州地址,8919菲律宾比索，不到150刀
+
+找个熟人拼车可以10x 75刀左右
+
