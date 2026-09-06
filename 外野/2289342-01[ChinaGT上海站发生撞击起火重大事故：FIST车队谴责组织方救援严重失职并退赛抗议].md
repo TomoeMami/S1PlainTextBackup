@@ -699,3 +699,14 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 上赛就出个场地吧，各方面配置看主办方的。f1是久事牵头办背后还有城市宣传作用，各方面都是做到位的，还要符合fia要求
 这比赛看着就野鸡比赛        [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  我是大鲨鱼1453  
+##### 64#       发表于 2026-9-6 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211407&amp;ptid=2289342" target="_blank">佛剑分说 发表于 2026-9-6 19:03</a>
+
+神了，还在闪躲甩锅呢，就不能老老实实承认错误立正挨打吗</blockquote>
+写个书面声明能写出一大堆语病和口语词汇来，还能指望啥……
+
