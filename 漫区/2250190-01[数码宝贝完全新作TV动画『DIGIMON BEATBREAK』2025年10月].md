@@ -16,3 +16,18 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">别的不说，黑白斗篷设计也挺烂的，两个黑白换色就很敷衍，好拉的一代主角兽究极体。斗篷全盖着是不是因为动画作画方便，天羽羽手太多太难画所以赶紧下线？
 
+
+*****
+
+####  西人  
+##### 771#       发表于 2026-9-5 09:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">别的不说，黑白斗篷设计也挺烂的，两个黑白换色就很敷衍，好拉的一代主角兽究极体。斗篷全盖着是不是因为动画作画方便，天羽羽手太多太难画所以赶紧下线？
+
+*****
+
+####  新HGCG  
+##### 772#       发表于 2026-9-6 08:08
+
+哦哦哦好久不见了没落双马尾大小姐
+
