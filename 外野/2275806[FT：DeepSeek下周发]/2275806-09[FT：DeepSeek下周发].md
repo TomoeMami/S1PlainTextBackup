@@ -12850,3 +12850,14 @@ astra的消耗速度感觉比sol快了4-5倍，太夸张了
 
 GPT这个20刀→100刀的订阅档位还是步子大了点，需要一个中间档
 
+
+*****
+
+####  spaceblue  
+##### 13045#       发表于 2026-9-6 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210399&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-6 14:23</a>
+
+GPT这个20刀→100刀的订阅档位还是步子大了点，需要一个中间档</blockquote>
+不是有100刀么
+
