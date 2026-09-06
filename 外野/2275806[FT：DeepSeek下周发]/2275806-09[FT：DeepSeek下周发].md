@@ -12579,3 +12579,22 @@ pro的话，plus是没有的<img src="https://static.stage1st.com/image/smiley/f
 
 Astra Pro还没看
 
+
+*****
+
+####  mp5  
+##### 13022#       发表于 2026-9-6 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208846&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-6 06:05</a>
+这是六千字的来自深渊体素模型提示词，群友用GPT6一发直出</blockquote>
+求提示词或者群号，我也想拿来试试    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  noneoneone  
+##### 13023#       发表于 2026-9-6 10:47
+
+我是dsh里用火山方舟的glm5.3flash，high和max都用过，没遇到有截断问题。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+

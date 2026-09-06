@@ -1828,3 +1828,13 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  kirito_wst  
+##### 185#       发表于 2026-9-6 10:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就算学完了，ap和技能槽也是有限的。
+
+不过属性提升是实打实的，要不是锁5级精通，不然我就准备十里坡剑神了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
