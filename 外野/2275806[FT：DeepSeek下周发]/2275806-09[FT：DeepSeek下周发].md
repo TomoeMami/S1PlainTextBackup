@@ -13618,3 +13618,14 @@ gpt性价比里面一个很重要的组成部分就是三天两头重置
 
 测试了一天，还没做完，基本靠网页路由到的不知名快速模型指挥Astra，没有使用MCP和Skill，感觉3D建模也不需要学了
 
+
+*****
+
+####  cankao  
+##### 13109#       发表于 2026-9-7 04:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211466&amp;ptid=2275806" target="_blank">中二骚年 发表于 2026-9-6 19:18</a>
+
+我在微博上看到的...@宝玉xp WorkBuddy还没用过</blockquote>
+刚试了 WorkBuddy可以用子代理 还非常简单<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
