@@ -1862,3 +1862,20 @@ ps商店的官方模拟器版也挺高清了</blockquote>
 —— 来自 S1Fun ...</blockquote>
 从剧情上看，肯定是要继续出的。
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1669#       发表于 2026-9-6 20:37
+
+风雷双打也就一般线往上吧，有你们说得这么夸张吗
+
+*****
+
+####  红魔馆的糖  
+##### 1670#       发表于 2026-9-6 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211764&amp;ptid=2210366" target="_blank">桥洞底下盖小被 发表于 2026-9-6 20:37</a>
+风雷双打也就一般线往上吧，有你们说得这么夸张吗</blockquote>
+因为这辈子打过的好的双boss设计一只手都没有，确实是设计上的范本<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
