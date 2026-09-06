@@ -13602,3 +13602,19 @@ op软路由的软件出bug了，因为glm5.3f一读到op软路由上面的梯子
 我会翻墙也会海外付款，我就想要个性价比方案，gpt 怎么个性价比法呢</blockquote>
 gpt性价比里面一个很重要的组成部分就是三天两头重置
 
+
+*****
+
+####  lubo  
+##### 13108#       发表于 2026-9-7 02:48
+
+<img src="https://img.stage1st.com/forum/202609/07/024801w8itg82h9eu19tvg.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>temari1.jpeg</strong> (575.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 02:48 上传
+
+测试了一天，还没做完，基本靠网页路由到的不知名快速模型指挥Astra，没有使用MCP和Skill，感觉3D建模也不需要学了
+
