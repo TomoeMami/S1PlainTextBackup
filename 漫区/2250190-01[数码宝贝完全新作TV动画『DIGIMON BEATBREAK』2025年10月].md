@@ -75,3 +75,33 @@
 
 反派瞬移是什么黑科技
 
+
+*****
+
+####  TOYSTORY  
+##### 778#       发表于 2026-9-7 01:14
+
+ 本帖最后由 TOYSTORY 于 2026-9-7 01:16 编辑 
+
+看着像是会被人骗去买保健品的老头LOW点也是没办法了，说不定下一话就被金星这个手下背刺了
+
+倒是这个（之前假扮护士）的粉毛的台词，她不会真是猪八戒兽吧，跟金星、岸和田都是西游那几只兽变成的人类。话说**也太大了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+1788692468218.jpg
+(363.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 01:15 上传
+
+<img src="https://img.stage1st.com/forum/202609/07/011523dpjpxjx2yo2vcvmv.jpg" referrerpolicy="no-referrer">
+
+1788691899505.jpg
+(80.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 01:15 上传
+
+<img src="https://img.stage1st.com/forum/202609/07/011524b00jujyobh7bhunj.jpg" referrerpolicy="no-referrer">
+

@@ -13462,3 +13462,29 @@ tui还是Claude好用，直接环境变量换api，不像codex还要写配置要
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Freewolf  
+##### 13097#       发表于 2026-9-7 01:09
+
+发现ai对玩业余无线电的也很有用，以前只能折腾各种模拟信号，这几天在ai帮助下用电视棒把u段数字信号挨个解了一遍
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 13098#       发表于 2026-9-7 01:13
+
+会翻墙的现在没有任何理由用国模，性能还是性价比基本都被gpt斩杀了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  phorcys02  
+##### 13099#       发表于 2026-9-7 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213137&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-9-7 01:13</a>
+
+会翻墙的现在没有任何理由用国模，性能还是性价比基本都被gpt斩杀了</blockquote>
+您好，嘉豪，您来啦
+
