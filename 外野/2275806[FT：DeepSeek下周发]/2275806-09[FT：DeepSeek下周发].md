@@ -13693,3 +13693,15 @@ kimi的订阅也是抠抠搜搜，最高档次还比199性价比差点。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lactone  
+##### 13116#       发表于 2026-9-7 07:03
+
+差距最大的是gemini pro时期，现在不算啥
+
+而且说实话灰测和astra并没有代差
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
