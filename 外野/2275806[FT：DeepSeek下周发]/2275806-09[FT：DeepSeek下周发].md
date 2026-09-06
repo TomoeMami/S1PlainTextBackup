@@ -12887,3 +12887,36 @@ zcode的周末token是在哪里看用量和余量？我找不到
 
 ds搓了几十块了还没搓出来，感觉都不如我去买现成脚本了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 13048#       发表于 2026-9-6 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209896&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-6 12:08</a>
+ 转贴《GPT 100% 检测是否降智（实测5.6sol 6 Astra都被路由到了神秘模型，疑似4o）》  使用提示词：创建一 ...</blockquote>
+之前5.6pro如果ip脏了路由的就是5.5mini，也不是同代，甚至是个降智专供模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这种都是玄学，最保险的还是f12抓包扔ai分析，会发现请求模型名是pro，服务器返回结果是5.5mini这样子
+codex的话就难很多，不过模型干活变弱智应该很容易发现，4o那时候简单程序都写不明白
+
+*****
+
+####  UmarIbnLaAhad  
+##### 13049#       发表于 2026-9-6 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210475&amp;ptid=2275806" target="_blank">刘不害 发表于 2026-9-6 14:45</a>
+ zcode的周末token是在哪里看用量和余量？我找不到</blockquote>
+任务的上下文小圆圈会显示总额度
+设置-个人资料还是哪，切换成免费套餐就能看见
+
+
+*****
+
+####  kylezy123  
+##### 13050#       发表于 2026-9-6 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210475&amp;ptid=2275806" target="_blank">刘不害 发表于 2026-9-6 14:45</a>
+
+zcode的周末token是在哪里看用量和余量？我找不到</blockquote>
+设置 模型哪里就能看到了
+

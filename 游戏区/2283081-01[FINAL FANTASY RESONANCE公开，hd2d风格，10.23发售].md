@@ -1902,3 +1902,43 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">太对味了，发售后必玩
 
+
+*****
+
+####  白夜凛音  
+##### 192#       发表于 2026-9-6 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70208677&amp;ptid=2283081" target="_blank">huyangxinhn 发表于 2026-9-6 01:55</a>
+
+音乐超级棒啊。</blockquote>
+音乐大多沿用的手游版的，手游版里的音乐质量本来就不错，你回头可以看看手游版的陆行鸟之歌，相当的有味。
+
+
+*****
+
+####  白夜凛音  
+##### 193#       发表于 2026-9-6 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209379&amp;ptid=2283081" target="_blank">huyangxinhn 发表于 2026-9-6 10:03</a>
+
+目前来看随意配，幻兵的等级是随角色的，幻兵换个角色，等级会回到一级，也就是角色带幻兵，升级后解锁的 ...</blockquote>
+这个系统更接近最后的克劳迪娅的技能系统，主要还是刷刷刷。
+
+*****
+
+####  白夜凛音  
+##### 194#       发表于 2026-9-6 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209304&amp;ptid=2283081" target="_blank">diectt 发表于 2026-9-6 09:46</a>
+
+对了，那个有立绘的王国骑士夏洛特老是一副欲言又止的样子，加上幻兵界面里有个小人和她是一样的，感觉这妹 ...</blockquote>
+印象里是没事，因为后面几部也有她的戏份，那个幻兵小人是她后来的纪念版本
+
+<img src="https://img.stage1st.com/forum/202609/06/151736b00qzjlzqmccdv6f.jpg" referrerpolicy="no-referrer">
+
+<strong>91bca04e9258d1096403eaf3c658ccbf6e814dfc.jpg</strong> (169.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 15:17 上传
+
