@@ -12920,3 +12920,16 @@ codex的话就难很多，不过模型干活变弱智应该很容易发现，4o�
 zcode的周末token是在哪里看用量和余量？我找不到</blockquote>
 设置 模型哪里就能看到了
 
+
+*****
+
+####  lubo  
+##### 13051#       发表于 2026-9-6 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210534&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-9-6 15:06</a>
+
+之前5.6pro如果ip脏了路由的就是5.5mini，也不是同代，甚至是个降智专供模型
+
+这种都是玄学，最保险的还是 ...</blockquote>
+让ai调查了下，一个正在对话中的6pro被路由到了5.4thinking，另一个还是6pro
+
