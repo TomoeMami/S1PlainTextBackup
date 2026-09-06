@@ -2090,3 +2090,11 @@ NS掌机只有500多P
 
 下午刚玩 开场剧情纯粹是幻水2啊 NS NS2 PS5版都试了一下，绝定买ns2版了 不过352重制和火纹新作发售，感觉没啥时间玩啊
 
+
+*****
+
+####  chris1987  
+##### 209#       发表于 2026-9-6 22:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">六小时了，第一章还没过，刚打完塞壬，这王道剧情还是对我这种老年人胃口，激情预订了先
+

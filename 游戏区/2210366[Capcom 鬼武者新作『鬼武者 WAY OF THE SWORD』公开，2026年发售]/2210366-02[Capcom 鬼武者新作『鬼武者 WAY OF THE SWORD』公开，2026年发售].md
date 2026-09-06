@@ -2102,3 +2102,15 @@ SE真就是吃了不懂社管的亏，当时要是多在论坛买点水军，多
 
 实在不敢判断那就看直播两个小时，如果没想自己上手那就算了
 
+
+*****
+
+####  红魔馆的糖  
+##### 1692#       发表于 2026-9-6 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212429&amp;ptid=2210366" target="_blank">Goumian_33 发表于 2026-9-6 22:49</a>
+还行吧。
+
+实在不敢判断那就看直播两个小时，如果没想自己上手那就算了</blockquote>
+这游戏看直播两个小时怕不是更不敢买<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">战斗体验都是自己玩才能感觉到，看直播估计就是无尽的马桶和跑图
+
