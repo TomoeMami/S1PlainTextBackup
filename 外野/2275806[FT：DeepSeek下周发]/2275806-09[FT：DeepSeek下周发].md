@@ -12797,3 +12797,11 @@ GLM5.3F实在太慢了所以我这么写的要求：
 
 还有DSH的子agent不限制并行数量他敢一次给你调用一千个<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 13040#       发表于 2026-9-6 14:04
+
+有活干的话蹬token还不容易，我在茶馆坐了一上午就干掉1.4亿，没有任何重度开发任务，平时没有什么事情周额度用不掉50%也是常有的事
+
