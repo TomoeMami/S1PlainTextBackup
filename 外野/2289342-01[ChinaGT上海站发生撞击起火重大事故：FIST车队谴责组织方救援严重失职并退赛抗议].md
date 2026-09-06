@@ -686,3 +686,16 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 3楼不就是吗？</blockquote>
 看到了，谢谢。
 
+
+*****
+
+####  谢云流  
+##### 63#       发表于 2026-9-6 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211081&amp;ptid=2289342" target="_blank">StrangerJ 发表于 2026-9-6 17:45</a>
+上赛场不是还要办f1的吗，怎么这么拉胯，这也太离谱了
+
+—— 来自 OPPO PKU110, Android 16, 鹅球 v3.5.9 ...</blockquote>
+上赛就出个场地吧，各方面配置看主办方的。f1是久事牵头办背后还有城市宣传作用，各方面都是做到位的，还要符合fia要求
+这比赛看着就野鸡比赛        [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

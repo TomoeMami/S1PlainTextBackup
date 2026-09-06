@@ -13097,3 +13097,40 @@ GPT这个20刀→100刀的订阅档位还是步子大了点，需要一个中间
 
 找个熟人拼车可以10x 75刀左右
 
+
+*****
+
+####  中二骚年  
+##### 13066#       发表于 2026-9-6 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70204928&amp;ptid=2275806" target="_blank">cankao 发表于 2026-9-5 01:48</a>
+
+很有意思的样子我用的是WorkBuddy 也能这样玩吗</blockquote>
+我在微博上看到的...@宝玉xp WorkBuddy还没用过
+
+
+*****
+
+####  中二骚年  
+##### 13067#       发表于 2026-9-6 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203891&amp;ptid=2275806" target="_blank">木水风铃 发表于 2026-9-4 21:35</a>
+
+Codex可以吗？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+微博上看到的 @宝玉xp Codex我只有自己接的api，没实践过 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中二骚年  
+##### 13067#       发表于 2026-9-6 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70203891&amp;ptid=2275806" target="_blank">木水风铃 发表于 2026-9-4 21:35</a>
+
+Codex可以吗？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+微博上看到的 @宝玉xp Codex我只有自己接的api，没实践过 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
