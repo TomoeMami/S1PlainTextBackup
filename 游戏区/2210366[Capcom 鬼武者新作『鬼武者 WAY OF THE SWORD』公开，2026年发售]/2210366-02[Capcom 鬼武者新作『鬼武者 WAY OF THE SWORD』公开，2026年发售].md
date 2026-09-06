@@ -1197,3 +1197,21 @@ CAPCOM对历史人物的编排方向跟暗荣是反过来的
 
 当然除了历史学界、历史爱好者不满以外，也就编排大谷吉继的时候被麻风病学会提过意见，没有真正法律意义层面的投诉
 
+
+*****
+
+####  emmerMK2  
+##### 1603#       发表于 2026-9-6 11:06
+
+中配是真不赖
+
+*****
+
+####  zqqwe  
+##### 1604#       发表于 2026-9-6 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209590&amp;ptid=2210366" target="_blank">杀仁老登 发表于 2026-9-6 10:53</a>
+源神毕竟是日本三大悲剧英雄之一，大部分改编还是往悲剧美少年那个方向去塑造的，比如当年鬼武者的竞品的GE ...</blockquote>
+但不得不说三木把这个形象演得真好，尤其是后期几段从容与癫狂语气剧烈转换，例如最终boss战一阶段粉光打投语速突然变高那段，佐佐木的疯和他站一起就是个纯良小孩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+中配质量也很高，可惜是普通老人声线就少一点老脸+青年声音的诡异感。
+

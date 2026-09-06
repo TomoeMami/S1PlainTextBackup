@@ -12598,3 +12598,17 @@ Astra Pro还没看
 
 ——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  紧那罗  
+##### 13024#       发表于 2026-9-6 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209528&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-9-6 10:39</a>
+我记得5.6 Sol Pro是有的，虽然我没试过
+
+Astra Pro还没看</blockquote>
+没有的，因为网页上对话是不消耗额度的。（后台也有限额，但是纯对话基本用不完）
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -3896,3 +3896,14 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 
 港服数字版499hkd.没有其他版本能买吗？
 
+
+*****
+
+####  ascomnet  
+##### 3326#       发表于 2026-9-6 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209624&amp;ptid=2261859" target="_blank">su37mkk 发表于 2026-9-6 11:04</a>
+
+港服数字版499hkd.没有其他版本能买吗？</blockquote>
+选便宜区服的就行，第一方游戏是全区游戏，在哪买都一样，dlc也是通用
+
