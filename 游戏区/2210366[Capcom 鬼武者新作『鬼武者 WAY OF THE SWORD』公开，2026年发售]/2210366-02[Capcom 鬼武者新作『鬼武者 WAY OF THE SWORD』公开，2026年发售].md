@@ -1215,3 +1215,11 @@ CAPCOM对历史人物的编排方向跟暗荣是反过来的
 但不得不说三木把这个形象演得真好，尤其是后期几段从容与癫狂语气剧烈转换，例如最终boss战一阶段粉光打投语速突然变高那段，佐佐木的疯和他站一起就是个纯良小孩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 中配质量也很高，可惜是普通老人声线就少一点老脸+青年声音的诡异感。
 
+
+*****
+
+####  Yugao  
+##### 1605#       发表于 2026-9-6 11:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相比之下，仁王的源神2代还能和斋藤义秀过过招，三代反而被赖朝当狗踹，是武家最初的栋梁太牛逼还是被二代主角打废了，抑或是他真的纯菜我不好说了
+

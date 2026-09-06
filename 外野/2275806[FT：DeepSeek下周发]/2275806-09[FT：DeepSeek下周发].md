@@ -12612,3 +12612,11 @@ Astra Pro还没看</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  AraTurambar  
+##### 13025#       发表于 2026-9-6 11:24
+
+这个什么gpt-5.3-codex-spark完全不经用啊，比astra用得还快。
+
