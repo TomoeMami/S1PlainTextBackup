@@ -521,3 +521,19 @@ MuMu-20260906-152851-803.jpg
 
 100个跑路，刷不动了
 
+
+*****
+
+####  TohsakaR  
+##### 48210#       发表于 2026-9-6 16:36
+
+<img src="https://img.stage1st.com/forum/202609/06/163503c6t10q08x00aehlz.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-09-06_163221_911.png</strong> (151.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 16:35 上传
+
+友情池硬抽满4张满破三星 无条件的100羁绊加成还是爽 零零散散把没上场机会的5星全羁绊十了
+

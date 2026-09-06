@@ -493,3 +493,23 @@ IT之家附 FIST_Auto 车队官方微博声明原文如下：
 
 参考今年生产事故
 
+
+*****
+
+####  loushifang  
+##### 44#       发表于 2026-9-6 16:45
+
+<blockquote>狭义文具爱好者 发表于 2026-9-6 16:03
+中超又是高额安保费又是绝大多数领导保守不开全部场馆座位的（只有大连敢全开梭鱼湾并且能坐满），怎么别的 ...</blockquote>
+中超要从甲A算起，这都多少年了，每年那么多场比赛，每场都是现场直播，现场都有警卫和医护，这要出点意外，像这种草台处置方式，多少人要卷铺盖滚蛋
+
+*****
+
+####  dddty  
+##### 45#       发表于 2026-9-6 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210309&amp;ptid=2289342" target="_blank">名居守 发表于 2026-9-6 13:52</a>
+
+还不如贵州村gt？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我估计都不如广西老表自己搞的电摩比赛。
+
