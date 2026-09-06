@@ -13382,3 +13382,29 @@ astra真的太“舒适”了，很难表达这种感觉，类似一种“手感
 
 想和ai互动但是不想让他把我家看光了，最后装了个红外摄像头233
 
+
+*****
+
+####  雪地白狼  
+##### 13090#       发表于 2026-9-7 00:15
+
+hao以前一直用中转站，现在有几个正经项目想自己充gpt了。想问几个问题。
+
+充值一般用什么方法？手上现在没可用外币卡了，好像国内办的招行MASTERCARD也能充值，但是需要走google play。
+
+感觉100刀可能有点多，不知道用CCSWITCH配合几个20刀套餐的账号来回切换行不行？
+
+现在gpt存不存在封号风险？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">一直使用自己的谷歌账号登录的感觉没什么幺蛾子，但是多账号的话可能还得多注册几个号。
+
+
+*****
+
+####  冤枉呐  
+##### 13091#       发表于 2026-9-7 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212640&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-6 23:31</a>
+没有啊，我前几天一直用opus5和sol到没额度，到今天才卡，换了glm</blockquote>
+他公告说是限流了啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
