@@ -2397,3 +2397,28 @@ boss和敌人种类少了点，这点算是有点可惜了，但还不至于因�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  wzh5555  
+##### 1719#       发表于 2026-9-7 07:30
+
+鬼杀难度就应该一周目开放，现在这么搞还要马桶二度，更减分了
+
+
+*****
+
+####  魔法酪饼  
+##### 1720#       发表于 2026-9-7 07:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212753&amp;ptid=2210366" target="_blank">qiyu1234 发表于 2026-9-6 23:50</a>
+
+FF16很难翻啊
+
+剧情这些见仁见智
+
+战斗方面16的硬伤其实很多，无论是常态战斗还是变身后的显化者战，玩的部 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer"> 剧情的话，二条城结尾那段槽点是在是太多了。。。
+
+无论是boss死后的尬演，生硬的情感转折，还是之后给紫式部那张无论如何都很一般的脸连打两分钟的超近距离特写连击。
+
