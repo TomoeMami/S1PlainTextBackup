@@ -2031,3 +2031,11 @@ NS掌机只有500多P
 我自己试玩NS2和PC没区别</blockquote>
 谢谢<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">那就NS2版了！
 
+
+*****
+
+####  tonberry  
+##### 203#       发表于 2026-9-6 18:48
+
+这游戏第一章好棒，味好正啊，仿佛来到的jrpg的黄金时代<img src="https://static.stage1st.com/image/smiley/face/134.gif" referrerpolicy="no-referrer">
+

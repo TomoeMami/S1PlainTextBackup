@@ -1717,3 +1717,36 @@ ps商店的官方模拟器版也挺高清了</blockquote>
 
 抚雷这个空降的一闪点到底在哪，虽然弹开可以很轻松的应对，但总感觉不一闪落雷就哪里输掉了<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1653#       发表于 2026-9-6 18:48
+
+道狂这boss什么弱智设计<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你不会觉得设计个这种狗屎玩意很有意思很有交互感吧
+
+*****
+
+####  突发性哮喘病患  
+##### 1654#       发表于 2026-9-6 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211354&amp;ptid=2210366" target="_blank">桥洞底下盖小被 发表于 2026-9-6 18:48</a>
+
+道狂这boss什么弱智设计你不会觉得设计个这种狗屎玩意很有意思很有交互感吧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">纯粹的回合制
+
+
+*****
+
+####  火红之眼  
+##### 1655#       发表于 2026-9-6 18:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">鬼杀难度通了，送的毗沙门剑外观加一闪判定帧，体感上加的没变身多.....
+
+*****
+
+####  卡拉德利姆  
+##### 1656#       发表于 2026-9-6 18:53
+
+什么时候能更新幻魔空间 我现在之乡纯粹的战斗爽
+
