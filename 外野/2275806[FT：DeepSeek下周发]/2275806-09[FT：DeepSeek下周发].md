@@ -13363,3 +13363,14 @@ astra真的太“舒适”了，很难表达这种感觉，类似一种“手感
 现在开始限流了</blockquote>
 没有啊，我前几天一直用opus5和sol到没额度，到今天才卡，换了glm
 
+
+*****
+
+####  omnitoken  
+##### 13088#       发表于 2026-9-6 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212351&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-6 22:35</a>
+
+所以这东西应该怎么计费呢，难道按时长计费？</blockquote>
+思维链短了很多不代表没有啊, 价格贵一些咯
+

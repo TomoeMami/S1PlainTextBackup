@@ -2144,3 +2144,18 @@ SE真就是吃了不懂社管的亏，当时要是多在论坛买点水军，多
 这怪物数量比寂静岭F多点有限
 回头再开二周目
 
+
+*****
+
+####  Errrr  
+##### 1696#       发表于 2026-9-6 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70202982&amp;ptid=2210366" target="_blank">bixinhaner 发表于 2026-9-4 18:37</a>
+
+IGN 10这么快就陨落了吗？
+
+之前没玩过，看了下最新预告片，感觉男女人设都很差到劝退的地步啊。我记得ps2时 ...</blockquote>
+当时金城武在国内很有人气。但是时代限制没反应到销量上。
+
+实际盗版玩过的人蛮多的。特别是13.
+
