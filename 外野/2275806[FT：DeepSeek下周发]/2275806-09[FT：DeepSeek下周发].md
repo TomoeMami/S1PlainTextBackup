@@ -13208,3 +13208,28 @@ o➗给plus恢复5h限制就是明牌赶人去pro了啊<img src="https://static.
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  andychen  
+##### 13075#       发表于 2026-9-6 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209751&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-6 11:33</a>
+没吧，PLUS的chat没有astra模型，PRO有</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/06/221310m8m2jos853sykjia.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1788703988835_4.webp</strong> (39.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 22:13 上传
+
+<img src="https://img.stage1st.com/forum/202609/06/221310clopz1dssdlpvz3i.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1788703989109_5.webp</strong> (30.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 22:13 上传
+
