@@ -12620,3 +12620,14 @@ Astra Pro还没看</blockquote>
 
 这个什么gpt-5.3-codex-spark完全不经用啊，比astra用得还快。
 
+
+*****
+
+####  jinuzuktII  
+##### 13026#       发表于 2026-9-6 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209487&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-6 10:28</a>
+
+chat现在也可以了</blockquote>
+没吧，PLUS的chat没有astra模型，PRO有
+
