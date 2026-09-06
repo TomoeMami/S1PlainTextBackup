@@ -1470,3 +1470,23 @@ E7ujpUjWEAMqIjp.jpg
 女角色中规中矩，除了静御前，不过我猜原版说话就是那种日式棒棒的。男角色非常出彩，翻译也接地气，我一 ...</blockquote>
 男主和最终BOSS的表情动作演出都太神了，硬是靠演出把屎一样的故事剧情抬高了一大截，好演员啊。
 
+
+*****
+
+####  monikaca  
+##### 1627#       发表于 2026-9-6 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209943&amp;ptid=2210366" target="_blank">taxiom 发表于 2026-9-6 12:20</a>
+
+IP空窗太久情怀都忘了，现在看着通马桶就力竭，不如纯线性**。如果只打主线会不会缺少什么重要玩法，玩羊蹄 ...</blockquote>
+只打主线的话，最后几个boss会很考验技术。
+
+因为大部分关键技能都要靠通马桶给的奖励来升级。
+
+*****
+
+####  红魔馆的糖  
+##### 1628#       发表于 2026-9-6 16:03
+
+我伐你老木啊，这是第几只怒伐天了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
