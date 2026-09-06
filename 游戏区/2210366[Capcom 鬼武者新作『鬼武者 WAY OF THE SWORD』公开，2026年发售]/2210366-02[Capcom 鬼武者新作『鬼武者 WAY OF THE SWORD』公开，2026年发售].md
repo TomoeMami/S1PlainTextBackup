@@ -1286,3 +1286,12 @@ CAPCOM对历史人物的编排方向跟暗荣是反过来的
 
 源义经没有那么神圣，而且也并非不可替代
 
+
+*****
+
+####  抹茶瓜  
+##### 1611#       发表于 2026-9-6 12:11
+
+看了一堆游玩报告 加上店铺没发货 还是退了等降价了
+怎么越看越像ff16那个趋势<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
