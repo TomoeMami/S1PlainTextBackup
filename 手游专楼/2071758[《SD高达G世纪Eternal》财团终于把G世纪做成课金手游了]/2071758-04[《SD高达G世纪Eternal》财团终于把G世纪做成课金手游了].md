@@ -466,3 +466,13 @@ DX和强自跟命运正义在一档，柯西金鸟甚至还低一档，甚至还
 
 最后上IQOO应用商店搜谷歌play，显示有更新，日常的应用更新提醒没有的，搜了点进去才有，藏起来了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acg_gyanc  
+##### 4674#       发表于 2026-9-7 03:02
+
+现在打塔真是乱杀了，20层忘记提前卡最后的gnflag的位置了，但顶着100%的加防照样强杀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
