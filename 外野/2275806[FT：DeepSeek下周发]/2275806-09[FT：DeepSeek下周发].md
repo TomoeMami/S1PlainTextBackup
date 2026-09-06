@@ -12450,3 +12450,23 @@ grok一直是可见思维链.</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  舞以  
+##### 13010#       发表于 2026-9-6 09:36
+
+o➗炒作这么久，感觉还真有活啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  jojog  
+##### 13011#       发表于 2026-9-6 09:42
+
+感觉是视觉方面提升了不少，画图和做3D都强了一截
+
+至于吹的什么能画图了这个感觉不如说是把看图的token上下文拉高了所以会描图了
+
