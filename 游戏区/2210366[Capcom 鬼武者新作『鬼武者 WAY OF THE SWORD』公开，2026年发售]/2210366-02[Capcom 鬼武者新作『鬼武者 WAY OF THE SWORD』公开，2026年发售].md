@@ -1368,3 +1368,18 @@ IP空窗太久情怀都忘了，现在看着通马桶就力竭，不如纯线性
 
 <img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我一路干到第二次遇见看门大爷才发现，原来其他地图也是有马桶和找狗的，我说怎么缺皮革缺疯了
 
+
+*****
+
+####  缺德猫  
+##### 1617#       发表于 2026-9-6 13:52
+
+打完风雷兄弟了，真帅啊，这种BOSS打完的时候确实上头，会让人忍不住给好评
+
+*****
+
+####  螺旋的小夜曲  
+##### 1618#       发表于 2026-9-6 13:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最近啊B给我推了很多源氏全流程和评测视频，你们有什么头绪吗
+
