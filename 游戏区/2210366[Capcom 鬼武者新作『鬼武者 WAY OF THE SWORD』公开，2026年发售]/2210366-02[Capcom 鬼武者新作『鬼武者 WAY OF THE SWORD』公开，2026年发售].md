@@ -1939,3 +1939,18 @@ ps商店的官方模拟器版也挺高清了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">今天做饭发现左手中指根部有点酸痛，才想起是这游戏的锅，吸魂这种高频长按操作放扳机多少有点大病了
 
+
+*****
+
+####  手铐君  
+##### 1677#       发表于 2026-9-6 21:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来小怪也会风雷的合体攻击....
+
+*****
+
+####  红魔馆的糖  
+##### 1678#       发表于 2026-9-6 21:12
+
+这**道狂，我居然用上了在生化危机里学到的暂停瞄准<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
