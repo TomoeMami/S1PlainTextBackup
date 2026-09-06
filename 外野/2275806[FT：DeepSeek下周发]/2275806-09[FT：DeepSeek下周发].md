@@ -12705,3 +12705,23 @@ astra用之前记得测试一下是否降智，之前5.6降智只是针对模型
 
 [https://linux.do/t/topic/2858863](https://linux.do/t/topic/2858863)
 
+
+*****
+
+####  kylezy123  
+##### 13033#       发表于 2026-9-6 12:25
+
+这智普送的3亿Token两天根本用不完啊 如果能用一周就好了
+
+
+*****
+
+####  真红之闪电  
+##### 13034#       发表于 2026-9-6 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209964&amp;ptid=2275806" target="_blank">kylezy123 发表于 2026-9-6 12:25</a>
+这智普送的3亿Token两天根本用不完啊 如果能用一周就好了</blockquote>
+反正免费的，用了就是赚了，用不完就用不完呗…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

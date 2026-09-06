@@ -1852,3 +1852,14 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 被动数量最高8个……略少<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YukariK  
+##### 187#       发表于 2026-9-6 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70207381&amp;ptid=2283081" target="_blank">kirito_wst 发表于 2026-9-5 19:40</a>
+
+感觉是让女主多学一个大招</blockquote>
+找到相关宣传了，说是能让队友学会一个极限技，看起来不只限定女主。
+

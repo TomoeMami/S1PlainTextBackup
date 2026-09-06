@@ -138,3 +138,13 @@ My-th第一话还行吧
 
 这丝滑的文戏....在令和都算真高开了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 113#       发表于 2026-9-6 12:27
+
+尾巴居然不只是装饰品
+
+—— 来自 LENOVO TB322FC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
