@@ -2383,3 +2383,17 @@ boss和敌人种类少了点，这点算是有点可惜了，但还不至于因�
 
 我说实话道中都做成这样了，小怪的一闪不如放宽松一些<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有几个精英怪的动作比boss难一闪多了，经常被怪围了一直启动不了连锁一闪
 
+
+*****
+
+####  conanoysq  
+##### 1718#       发表于 2026-9-7 07:21
+
+ 本帖最后由 conanoysq 于 2026-9-7 07:22 编辑 
+
+鬼杀难度，杂兵的攻击欲望强很多，对于想凹一闪的来说方便太多了，你攻击一下就收手，杂兵必定反击，有些时候还会直接在你连续平a的时候闪避反击你。洛东大地图上，不少原本是一目笠的地方都换成了脓包一目笠，虽然只是换皮，但玩过的都知道上了脓包，战斗力完全不一样。再加上敌人高数值，这种马桶通起来，对我来说就完全没有剑戟难度的无聊感了，也都尽量凹连锁一闪来玩了，毕竟鬼武者核心就是玩这个嘛<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+目前进度打完弁庆，发现除了大锤拉，所有boss都有了新的招式，小体型的一战岩流和罗缘掌会一闪，大体型的抚风多了一招上天旋转喷气（剑戟难度我真没见过，不确定是否新增），弁庆的连招多了一些。所以估计鬼杀难度boss都加了动作。
+如果鬼杀难度一周目就放出来，或者剑戟难度是现在的鬼杀难度，杂兵战变得和boss战一样惊险有刺激了，剑之道绝对会在我神作之列，可惜啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
