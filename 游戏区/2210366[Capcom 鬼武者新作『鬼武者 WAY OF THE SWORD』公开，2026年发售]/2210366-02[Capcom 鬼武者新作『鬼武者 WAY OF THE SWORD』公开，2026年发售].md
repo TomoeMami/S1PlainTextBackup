@@ -2114,3 +2114,13 @@ SE真就是吃了不懂社管的亏，当时要是多在论坛买点水军，多
 实在不敢判断那就看直播两个小时，如果没想自己上手那就算了</blockquote>
 这游戏看直播两个小时怕不是更不敢买<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">战斗体验都是自己玩才能感觉到，看直播估计就是无尽的马桶和跑图
 
+
+*****
+
+####  wwhaha  
+##### 1693#       发表于 2026-9-6 23:11
+
+第一天挑战义井失败，最多打到第二条血剩1/3<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">歇了歇了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
