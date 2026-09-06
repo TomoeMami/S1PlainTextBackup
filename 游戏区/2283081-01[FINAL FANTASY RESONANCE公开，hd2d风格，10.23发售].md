@@ -2062,3 +2062,23 @@ NS掌机只有500多P
 
 ——来自 BRA-AL00 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  宛若青空  
+##### 206#       发表于 2026-9-6 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211629&amp;ptid=2283081" target="_blank">finalstar099 发表于 2026-9-6 20:04</a>
+综合各方面，我建议买ns2版，电视端素质和ps5没区别，手持端也好看。
+
+唯一缺点没有一代ns便携。</blockquote>
+谢谢建议，决定买NS2版了！可惜傻逼SE没NS1免费升级NS2<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  アーリィ  
+##### 207#       发表于 2026-9-6 20:14
+
+巨人boss过了只给个魔石碎片，再去试试奇美拉
+
