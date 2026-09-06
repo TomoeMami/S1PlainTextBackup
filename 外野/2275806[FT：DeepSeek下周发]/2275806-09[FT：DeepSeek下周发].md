@@ -12401,3 +12401,15 @@ grok一直是可见思维链.
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">模型碰到能力上限之后确实不行，不过玩这套东西的时候学会了怎么让DSH的agent拆解工作分派子agent倒是也值回票价了
 
+
+*****
+
+####  AraTurambar  
+##### 13005#       发表于 2026-9-6 07:45
+
+ 本帖最后由 AraTurambar 于 2026-9-6 07:47 编辑 
+
+这么强的3D，玩具身智能啊！
+
+我这个长周末在家给Astra搭摄像头和机械手不亦乐乎。
+
