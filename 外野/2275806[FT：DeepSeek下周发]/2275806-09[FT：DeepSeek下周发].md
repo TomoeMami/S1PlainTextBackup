@@ -12949,3 +12949,37 @@ zcode的周末token是在哪里看用量和余量？我找不到</blockquote>
 
 现在想要许愿式编程基本就gpt6可以，fable5.1都差了点
 
+
+*****
+
+####  厍无春  
+##### 13054#       发表于 2026-9-6 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209447&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-6 10:16</a>
+灰测模型应该是个部署不起成本奇高的教师模型吧，现在的flash与pro都是这个教师模型蒸馏出来的产物。这样fl ...</blockquote>
+灰测可能是改进了架构、加了 engram 的 v4小迭代，可能是4.1，大概率不是 v5。
+
+从目前的线索来看，猜测是重新预训练过；而且看这几次灰测的效果，是正在进行后训练，灰测效果一次比一次强。
+
+教师模型就太扯淡了，拿个教师模型出来测有什么意义？
+
+关于灰测思维链，也有对应的猜测：估计是用了和 Astra 差不多的隐性推理，推理过程不明文解码，维持在向量层。思维链里的 I'm doing 句式就是隐性推理的体现，是推理过程阶段性的软探针，要求摘要总结目前在干什么。这种思维链的作用就是展示给人看，不参与编解码推理。
+
+
+*****
+
+####  cscbzcbz  
+##### 13055#       发表于 2026-9-6 16:52
+
+灰测快端上来吧
+
+*****
+
+####  子虚乌有  
+##### 13056#       发表于 2026-9-6 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210399&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-6 14:23</a>
+
+GPT这个20刀→100刀的订阅档位还是步子大了点，需要一个中间档</blockquote>
+我之前是两个plus轮流登刚刚好，现在gpt6两个账户不行了
+

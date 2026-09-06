@@ -260,3 +260,18 @@ bad cg是不得不品的一环，不过后续应该就少了，也就刚开始�
 
 就是男主怎么感觉演技特呆滞，还有变身POSE比初见抹嘴唇还难蹦<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸波白野  
+##### 126#       发表于 2026-9-6 16:44
+
+这男主定妆造型好棒子风啊，以至于演技看着多少还算能处理这种机敏角色但因为这棒子造型还是显得太憨了，op听着也很kpop
+
+*****
+
+####  挺好的  
+##### 127#       发表于 2026-9-6 16:47
+
+男主像韩国人这点貌似公布人物的时候就有人说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
