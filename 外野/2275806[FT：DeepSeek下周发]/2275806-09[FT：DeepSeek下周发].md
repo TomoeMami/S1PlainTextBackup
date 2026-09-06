@@ -13429,3 +13429,36 @@ context_management.experimental_mode = true
 
 开了这个测试特性后 token用量降低很多了. 可惜只有官号才能用 gpt啥时候把那套上下文检索给开源了啊 
 
+
+*****
+
+####  CCauchy  
+##### 13094#       发表于 2026-9-7 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212947&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-9-7 00:22</a>
+他公告说是限流了啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+早晚7那个？那个分用户组的，core不限<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  CCauchy  
+##### 13095#       发表于 2026-9-7 01:03
+
+tui还是Claude好用，直接环境变量换api，不像codex还要写配置要不就cc switch，就是没有删除会话的功能
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  tonyunreal  
+##### 13096#       发表于 2026-9-7 01:04
+
+<img src="https://p.sda1.dev/34/ae446d7b7500801e23acf561dd4d1cc4/1000049142.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
