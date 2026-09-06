@@ -12631,3 +12631,24 @@ Astra Pro还没看</blockquote>
 chat现在也可以了</blockquote>
 没吧，PLUS的chat没有astra模型，PRO有
 
+
+*****
+
+####  yyhnt  
+##### 13027#       发表于 2026-9-6 11:42
+
+astra用之前记得测试一下是否降智，之前5.6降智只是针对模型降智，astra直接路由到gpt4o
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  子虚乌有  
+##### 13028#       发表于 2026-9-6 11:44
+
+<blockquote>yyhnt 发表于 2026-9-6 11:42
+astra用之前记得测试一下是否降智，之前5.6降智只是针对模型降智，astra直接路由到gpt4o
+
+论坛助手,iPhone ...</blockquote>
+这个怎么确认啊
+

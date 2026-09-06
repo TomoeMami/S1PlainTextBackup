@@ -1223,3 +1223,30 @@ CAPCOM对历史人物的编排方向跟暗荣是反过来的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相比之下，仁王的源神2代还能和斋藤义秀过过招，三代反而被赖朝当狗踹，是武家最初的栋梁太牛逼还是被二代主角打废了，抑或是他真的纯菜我不好说了
 
+
+*****
+
+####  魔法酪饼  
+##### 1606#       发表于 2026-9-6 11:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 鬼武者 马桶之道
+
+信号灯战斗也不太行，这系统就不太适合做小怪战，为了均衡体验小怪都演爆了。。。
+
+*****
+
+####  煌煌其烨  
+##### 1607#       发表于 2026-9-6 11:40
+
+刚过完地下研究所，主线流程确实爽，支线跑图真的麻，而且这女角色建模真的有点影响观赏剧情了，真有人能看打完大鵺后的那段剧情不麻的吗？按理说应该悲伤的氛围被阿国的那张脸全破坏了
+
+—— 来自 HUAWEI GLA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  zqqwe  
+##### 1608#       发表于 2026-9-6 11:45
+
+卡婊这波促进了官方模拟器版新鬼武者的销量是真的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞了个重温顺便洗眼，还是喜欢这款人设和搓招啊
+
