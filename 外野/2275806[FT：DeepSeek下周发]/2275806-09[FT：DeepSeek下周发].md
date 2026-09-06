@@ -13268,3 +13268,33 @@ astra真的太“舒适”了，很难表达这种感觉，类似一种“手感
 
 不管AGI来没来，对我而言，gpt 6已经是可以“登堂入室"级别的工具了，不出意外的话会一直长期订购了。
 
+
+*****
+
+####  omnitoken  
+##### 13079#       发表于 2026-9-6 22:29
+
+现在又传说ASTRA只用了两层looped transformer就达到了这个效果，下一批国模应该很快也要端上桌解决现在超长cot的问题
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  phorcys02  
+##### 13080#       发表于 2026-9-6 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212310&amp;ptid=2275806" target="_blank">hencechen 发表于 2026-9-6 22:26</a>
+
+如果不在意价格，astra太强了，我用了一年的20美刀套餐，这次gpt 6更新两天下来，果断冲了200美刀的20x，飞 ...</blockquote>
+太乐观了， sol刚上时候用的也很舒服， 没过多少时间就开始流口水了...越流越傻
+
+
+*****
+
+####  qwased  
+##### 13081#       发表于 2026-9-6 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212320&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-9-6 22:29</a>
+现在又传说ASTRA只用了两层looped transformer就达到了这个效果，下一批国模应该很快也要端上桌解决现在超 ...</blockquote>
+所以这东西应该怎么计费呢，难道按时长计费？
+

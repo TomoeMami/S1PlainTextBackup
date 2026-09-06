@@ -2010,3 +2010,27 @@ SE真就是吃了不懂社管的亏，当时要是多在论坛买点水军，多
 
 感觉是10年前的水平…………
 
+
+*****
+
+####  Chao  
+##### 1685#       发表于 2026-9-6 22:34
+
+<img src="https://img.stage1st.com/forum/202609/06/223342bvfv2mhzhvdhippo.jpg" referrerpolicy="no-referrer">
+
+<strong>鬼1.jpg</strong> (561.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 22:33 上传
+
+<img src="https://img.stage1st.com/forum/202609/06/223403e52dbbzt0q51qds3.jpg" referrerpolicy="no-referrer">
+
+<strong>鬼2.jpg</strong> (608.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-6 22:34 上传
+
+这意思是不是要出DLC了？
+
