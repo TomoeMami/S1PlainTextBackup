@@ -1894,3 +1894,11 @@ HD-2D能搞出来这种演出确实很有启发意义了
 
 早期购买特典：一个金钱加成的铠甲、一瓶全员mp药
 
+
+*****
+
+####  桐道悠  
+##### 191#       发表于 2026-9-6 14:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">太对味了，发售后必玩
+
