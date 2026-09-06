@@ -2021,3 +2021,13 @@ NS掌机只有500多P
 请教下三个版本的画面帧数感觉怎么样呀，纠结买哪个版本</blockquote>
 我自己试玩NS2和PC没区别
 
+
+*****
+
+####  宛若青空  
+##### 202#       发表于 2026-9-6 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70211129&amp;ptid=2283081" target="_blank">elven119 发表于 2026-9-6 17:59</a>
+我自己试玩NS2和PC没区别</blockquote>
+谢谢<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">那就NS2版了！
+
