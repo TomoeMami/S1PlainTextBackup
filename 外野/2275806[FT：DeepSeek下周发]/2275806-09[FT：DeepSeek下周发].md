@@ -13673,3 +13673,11 @@ context_management.experimental_mode = true</blockquote>
 只要灰测模型发出来，一切都会好起来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 如果GPT真的又好又便宜，梁子会降价的吧<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acropolis  
+##### 13114#       发表于 2026-9-7 06:18
+
+gpt这个能力加上token efficiency当前就是性价比最高的真没人能挑战吧，当然用一个月是一个月，一个月以后a/上市 oai降智再评
+
