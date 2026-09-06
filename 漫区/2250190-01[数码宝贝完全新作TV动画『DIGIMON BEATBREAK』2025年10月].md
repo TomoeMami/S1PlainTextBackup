@@ -105,3 +105,13 @@
 
 <img src="https://img.stage1st.com/forum/202609/07/011524b00jujyobh7bhunj.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天风绯炎  
+##### 779#       发表于 2026-9-7 03:49
+
+完全燃不起来的，大决战重燃决意回，爷爷和未春也很简单的就回来了
+
+究极的力量，下集终于进化究极体了，看个结局，该去下一作数码宝贝动画了<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
