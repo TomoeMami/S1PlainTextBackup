@@ -1294,3 +1294,24 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 —— 来自 OPPO OPD2515, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  四氧化三铅  
+##### 104#       发表于 2026-9-7 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215037&amp;ptid=2289342" target="_blank">洛克萨斯 发表于 2026-9-7 11:36</a>
+
+搞了很多年了啊，拉力赛，房车赛，方程式赛都有</blockquote>
+才几年啊，讲道理马修是西方在百余年的赛车比赛事故血与泪的产物，是赛车文化的一部分。 
+
+国内的确有钱有基建可以把赛场建的壮观，短短几年就能举办赛车比赛，但并没有赛车文化只能虚有其表，真发生问题就露馅了。
+
+
+*****
+
+####  Awanano  
+##### 105#       发表于 2026-9-7 12:05
+
+上海都这个样，说明举办大型活动的经验并不会跨领域互通，该走的弯路一个不少，提防一下国内这些包装出来看起来很国际化的赛事是有必要的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

@@ -14039,3 +14039,34 @@ meta谷歌xai落后几次，现在也能追上来
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  qwased  
+##### 13144#       发表于 2026-9-7 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213894&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-9-7 09:10</a>
+哈？那么怎么升core呢
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+公告里不是说带你的项目和用量找管理员升档吗
+
+*****
+
+####  lly778  
+##### 13145#       发表于 2026-9-7 12:02
+
+o这两个月砍额度的恶劣行为如果不是有那几个重置那真是不如a了
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  紧那罗  
+##### 13146#       发表于 2026-9-7 12:03
+
+用了一段时间paseo移动端
+
+感觉UI操作比直接用chatgpt、claude都更丝滑一些
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就是paseo管理的会话和codex原生管理的会有冲突比较麻烦 准备全部切过来先试试
+
