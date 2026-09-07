@@ -1006,3 +1006,39 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 ，后者专门搞小男孩恶心程度不是一个量级 ...</blockquote>
 我对王一博的认识 只知道那个文盲的出圈
 
+
+*****
+
+####  洛克萨斯  
+##### 89#       发表于 2026-9-7 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214578&amp;ptid=2289342" target="_blank">208208 发表于 2026-9-7 10:32</a>
+
+我的意思是，他不是娱乐歌手吗  或者说偶像歌手，怎么转型来赛车了
+
+他那些粉丝不要了吗  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这一站还有吴彦祖，古天乐郭富城也是赛车爱好者经常付费参赛玩的，有钱人的爱好
+
+*****
+
+####  Ferrari  
+##### 90#       发表于 2026-9-7 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214578&amp;ptid=2289342" target="_blank">208208 发表于 2026-9-7 10:32</a>
+我的意思是，他不是娱乐歌手吗  或者说偶像歌手，怎么转型来赛车了
+
+他那些粉丝不要了吗  ...</blockquote>
+主办方就指着他的粉丝卖票呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这种非国际的赛事，一般都是赠票随便发也没人看的
+粉丝来了捧个人场，而且每次必到，已成固定风景
+
+*****
+
+####  silvermoooo  
+##### 91#       发表于 2026-9-7 10:42
+
+60块钱还不如去售楼部当群演呢
+
+—— 来自 samsung SM-S9180, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

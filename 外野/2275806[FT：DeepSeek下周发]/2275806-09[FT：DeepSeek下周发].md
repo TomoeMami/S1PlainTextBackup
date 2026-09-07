@@ -13971,3 +13971,11 @@ o的api定价对比国模都不算特别高的那档，对比来说coding plan�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  drodchang  
+##### 13138#       发表于 2026-9-7 10:42
+
+其实不管是openai还是A/离赚钱都还差十万八千里呢
+
