@@ -476,3 +476,16 @@ DX和强自跟命运正义在一档，柯西金鸟甚至还低一档，甚至还
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  电脑死机  
+##### 4675#       发表于 2026-9-7 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70201059&amp;ptid=2071758" target="_blank">blue321 发表于 2026-9-4 12:12</a>
+
+哈啰大法这次终于没失望了，十连出了百式改
+
+可惜我奥古阵容太烂了，有二突的z船都没啥机会用…</blockquote>
+很失望，30发下去统统都是已经满破的ssr，再见
+

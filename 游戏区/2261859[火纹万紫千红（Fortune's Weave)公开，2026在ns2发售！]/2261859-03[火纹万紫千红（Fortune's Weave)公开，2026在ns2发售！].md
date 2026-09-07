@@ -3959,3 +3959,11 @@ ns2游戏卡收藏盒
 选便宜区服的就行，第一方游戏是全区游戏，在哪买都一样，dlc也是通用</blockquote>
 那么，哪个区买比较划算？（支持中文
 
+
+*****
+
+####  jockeyjoestar  
+##### 3331#       发表于 2026-9-7 10:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">  发售前一周才有好价吗  目前最低380？
+
