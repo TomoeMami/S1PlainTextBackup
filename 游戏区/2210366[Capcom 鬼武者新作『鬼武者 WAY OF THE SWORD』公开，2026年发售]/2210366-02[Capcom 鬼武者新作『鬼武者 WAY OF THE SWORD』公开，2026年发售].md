@@ -2502,3 +2502,26 @@ FF16很难翻啊
 
 我觉得最大问题还是传送上，跑路上的烦躁迁怒到这个了，也许能脱战传送降低不少。
 
+
+*****
+
+####  shpdw  
+##### 1727#       发表于 2026-9-7 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213375&amp;ptid=2210366" target="_blank">姬茧墨 发表于 2026-9-7 03:48</a>
+
+我说实话道中都做成这样了，小怪的一闪不如放宽松一些有几个精英怪的动作比boss难一闪多了，经常被怪围了一 ...</blockquote>
+小怪直接弹吧，大剑哥甚至没有一闪宽松的招，我打下来清杂效率和收益相对平衡就是弹了
+
+*****
+
+####  火红之眼  
+##### 1728#       发表于 2026-9-7 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214088&amp;ptid=2210366" target="_blank">zqqwe 发表于 2026-9-7 09:36</a>
+
+旧作主动进攻手段可丰富多了。
+
+即使不提搓招最多的新鬼，新鬼以前不同武器的鬼力槽增长共通但消耗是分开 ...</blockquote>
+如果说资源循环就是丰富，那你大可带觉醒鬼灯袋，这次路边随处可捡，2周目我全程带这个，所有战斗不是鬼武技就是变身处理，boss都不一定吃得完袋子
+
