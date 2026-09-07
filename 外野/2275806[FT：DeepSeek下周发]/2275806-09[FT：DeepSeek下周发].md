@@ -13999,3 +13999,27 @@ o的api定价对比国模都不算特别高的那档，对比来说coding plan�
 
 请教各位大佬，平时用来写办公室调研报告、活动策划、商业方案的话，用哪个模型会比较好啊
 
+
+*****
+
+####  nxmonitor  
+##### 13141#       发表于 2026-9-7 11:04
+
+<blockquote>xjlarry 发表于 2026-9-7 10:53
+请教各位大佬，平时用来写办公室调研报告、活动策划、商业方案的话，用哪个模型会比较好啊 ...</blockquote>
+买得到就K3，没有就V4P
+
+
+*****
+
+####  CCauchy  
+##### 13142#       发表于 2026-9-7 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213894&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-9-7 09:10</a>
+哈？那么怎么升core呢
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+不知道<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
