@@ -14466,3 +14466,76 @@ Hy4 preview 模型升级公告
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  德尔惠净水器  
+##### 13160#       发表于 2026-9-7 17:16
+
+Hy4 preview 模型升级公告
+
+<img src="https://img.stage1st.com/forum/202609/07/171642um5dwmjddbec50db.png" referrerpolicy="no-referrer">
+
+<strong>mmexportde0528e6acf639de5a3e9872b5421f93_1788772588891.png</strong> (192.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-7 17:16 上传
+
+
+*****
+
+####  龙骑士尹志平  
+##### 13161#       发表于 2026-9-7 17:17
+
+ 本帖最后由 龙骑士尹志平 于 2026-9-7 17:38 编辑 
+
+每次牛批模型升级，s1就会沦为新模型武装爬虫的rbq，太惨了
+
+*****
+
+####  scikirbypoke  
+##### 13162#       发表于 2026-9-7 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215417&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-7 12:44</a>
+有人说装ripgrep能省token 真的吗
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
+gpt喜欢默认用这个，装了至少少几次试错
+
+*****
+
+####  RookieTnT  
+##### 13163#       发表于 2026-9-7 17:50
+
+据说openai 五月底，大约10万块B300芯片在3号楼和4号楼刚刚上线。在此之前，1号楼和2号楼里有10万块B200芯片。
+
+吓哭了
+
+*****
+
+####  tonyunreal  
+##### 13164#       发表于 2026-9-7 17:54
+
+Hy4 preview 模型升级公告
+
+混元 Hy4 preview 首发接入 WorkBuddy 以来，收到了广大用户与开发者的积极体验和热情反馈。
+
+针对“复杂任务下的长思考、过度自我验证”等问题，我们进行了专项优化并全量上线。通过 Bench 指标与人工评测双重监控，在不损失任务效果的前提下，优化版本显著降低了任务轮次及输入输出 token 消耗。
+
+我们将持续敏捷迭代，欢迎大家继续体验并提出宝贵建议。
+
+腾讯混元 &amp; WorkBuddy 联合团队
+2026 年 9 月 7 日
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  FACS  
+##### 13165#       发表于 2026-9-7 18:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">换了个手机号能订阅kimi了，有没有漏油知道99/199实际上有多少额度啊
+
