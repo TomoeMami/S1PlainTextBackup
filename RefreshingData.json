@@ -13155,7 +13155,7 @@
     "lastedit": 1788777840,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1003288": {
     "totalreply": 4383,
@@ -13182,7 +13182,7 @@
     "lastedit": 1788777780,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2283074": {
     "totalreply": 2094,
@@ -15719,7 +15719,7 @@
     "newtitle": "[『剧场版 魔法少女小圆〈魔女之夜的回天〉​​​』【观影先行交流】]",
     "lastedit": 1788519846,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2288639": {
@@ -17303,7 +17303,7 @@
     "newtitle": "[今天见识到了什么叫形式主义]",
     "lastedit": 1788519726,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289152": {
@@ -17991,13 +17991,13 @@
     "update": false
   },
   "2289341": {
-    "totalreply": 329,
+    "totalreply": 330,
     "title": "[貌似不少人机器被老任BAN了，这里没人讨论吗]",
     "newtitle": "[貌似不少人机器被老任BAN了，这里没人讨论吗]",
-    "lastedit": 1788778260,
+    "lastedit": 1788778792,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2186670": {
     "totalreply": 439,
