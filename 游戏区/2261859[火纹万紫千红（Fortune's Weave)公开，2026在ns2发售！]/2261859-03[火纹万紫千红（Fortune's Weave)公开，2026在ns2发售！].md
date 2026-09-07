@@ -4129,3 +4129,27 @@ ns2游戏卡收藏盒
 【火焰纹章 万紫千红 中文宣传曲《千丝之誓》】 https://www.bilibili.com/video/BV19BbW6vEdt/?share_sour ...</blockquote>
 这同人二创不在标题标出来
 
+
+*****
+
+####  flyingover  
+##### 3341#       发表于 2026-9-7 20:00
+
+<img src="https://img.stage1st.com/forum/202609/07/200031jtqbboesllvfmlie.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 20:00 上传
+
+【キャラクター】ザーコネ（CV：峰晃弘）
+
+極悪非道の盗賊集団「ガイア旅団」の頭領。
+
+大剣闘祭の噂を聞きつけ、手下たちとダグシオンへとやってきた。
+
+戦いでは、真っ先に弱者を狙う卑劣な性格。
+
+●好きなもの：金、略奪、いい女、気の合う仲間との酒盛り、弱い相手をいたぶること、野菜
+
