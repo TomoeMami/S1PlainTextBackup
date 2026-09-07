@@ -1432,3 +1432,19 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 </blockquote>
 正常，只要不是太高强度的三班倒工作，下面都有自作聪明的“醒目仔”带头三人一起换班，干24小时休2天，反正我这单位某部门就爱这么干，我就等着哪天看戏。
 
+
+*****
+
+####  平贺才人  
+##### 112#       发表于 2026-9-7 20:10
+
+<img src="https://img.stage1st.com/forum/202609/07/201032y2nu4ti62g6kkgug.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1788783030762_6.webp</strong> (140.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 20:10 上传
+
+是懂事的
+
