@@ -2487,3 +2487,18 @@ FF16很难翻啊
 加上最终boss前都会给无限大招的武器，除了一闪难度自虐以外流程都很舒畅（2的送礼另说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 而系统最朴素的1代，有吸阵符这种堪比作弊的道具给玩家强制跳过难缠的杂兵战，珠玉在前很难做得像这作这么差<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shpdw  
+##### 1726#       发表于 2026-9-7 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214020&amp;ptid=2210366" target="_blank">卡拉德利姆 发表于 2026-9-7 09:27</a>
+
+这个马桶恶心就恶心在他所谓的设计感上了
+
+一般开放世界罐头，比如这次鬼武者学习的对象对马岛，开放世界 ...</blockquote>
+这些小箱庭我觉得还行啊，清开放据点我有种作业感。这个内部不管是通路还是敌人配置都还是很有差异性的。当然我也把开近路当是奖励的一环了。
+
+我觉得最大问题还是传送上，跑路上的烦躁迁怒到这个了，也许能脱战传送降低不少。
+

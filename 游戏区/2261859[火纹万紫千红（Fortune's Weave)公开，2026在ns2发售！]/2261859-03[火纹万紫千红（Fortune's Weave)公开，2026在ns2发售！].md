@@ -3948,3 +3948,14 @@ ns2游戏卡收藏盒
 
 一张海报
 
+
+*****
+
+####  罐子  
+##### 3330#       发表于 2026-9-7 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70209664&amp;ptid=2261859" target="_blank">ascomnet 发表于 2026-9-6 11:15</a>
+
+选便宜区服的就行，第一方游戏是全区游戏，在哪买都一样，dlc也是通用</blockquote>
+那么，哪个区买比较划算？（支持中文
+

@@ -914,3 +914,49 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 丢人丢大了，在一片我的中国化时刻新闻中，冒出个这么草台的新闻，连“机器人”们都不好反驳
 
+
+*****
+
+####  洛克萨斯  
+##### 81#       发表于 2026-9-7 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214041&amp;ptid=2289342" target="_blank">208208 发表于 2026-9-7 09:29</a>
+
+王一博？是那个被央视点名的绝望的文盲吗？
+
+他不是掏粪男孩的吗
+
+怎么变成赛车手了</blockquote>
+绅士车手，也就是我们俗称的老板车手，付费给车队参加比赛来娱乐的，是赛车运动的重要组成部分
+
+*****
+
+####  hugh8504  
+##### 82#       发表于 2026-9-7 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210245&amp;ptid=2289342" target="_blank">凉良 发表于 2026-9-6 13:36</a>
+
+怎么没具体内容
+
+车手说现场救援人员害怕丢下灭火器跑了，救护车人员在驾驶室里睡觉狂拍窗子都没叫醒。 ...</blockquote>
+月薪3000玩什么命啊，无偿加班不睡觉干啥<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千秋难诉  
+##### 83#       发表于 2026-9-7 09:34
+
+丢人丢大了，在一片我的中国化时刻新闻中，冒出个这么草台的新闻，连“机器人”们都不好反驳
+
+*****
+
+####  Ferrari  
+##### 84#       发表于 2026-9-7 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214041&amp;ptid=2289342" target="_blank">208208 发表于 2026-9-7 09:29</a>
+王一博？是那个被央视点名的绝望的文盲吗？
+他不是掏粪男孩的吗
+怎么变成赛车手了</blockquote>
+他是乐华的，不是掏粪那个时代峰峻
+，后者专门搞小男孩恶心程度不是一个量级
+
