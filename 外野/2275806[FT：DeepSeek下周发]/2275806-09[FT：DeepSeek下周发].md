@@ -13942,3 +13942,32 @@ sol可以写黄啊，文笔挺好的
 
 就是对于双方同意和戴套有着极强的执着
 
+
+*****
+
+####  Anarkia  
+##### 13136#       发表于 2026-9-7 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213393&amp;ptid=2275806" target="_blank">小津江 发表于 2026-9-7 05:21</a>
+
+4o是我唯一破限后可以涩涩，可以反推色图，甚至给我推荐黄网的版本，也是那会奥特曼说要开放nsfw，现在6 ...</blockquote>
+sol可以写黄啊，文笔挺好的
+
+就是对于双方同意和戴套有着极强的执着
+
+
+*****
+
+####  紧那罗  
+##### 13137#       发表于 2026-9-7 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214068&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-9-7 09:32</a>
+https://codex-resets.com/
+
+过去26周只有4周没手动重置/发重置卡.
+
+现在就看到底是API价格杀2B/2G端凯子, 还 ...</blockquote>
+o的api定价对比国模都不算特别高的那档，对比来说coding plan确实性价比爆棚<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">上市前猛猛蹬吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

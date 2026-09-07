@@ -2180,3 +2180,30 @@ NS掌机只有500多P
 </blockquote>
 试了下菲娜的lb都能增幅
 
+
+*****
+
+####  hiiroimatsu  
+##### 214#       发表于 2026-9-7 10:27
+
+奔跑正式版不知道能不能改善一下或者常驻，感觉响应总是慢半拍很别扭<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  跑调跑掉  
+##### 215#       发表于 2026-9-7 10:30
+
+<blockquote>hiiroimatsu 发表于 2026-9-7 10:27
+奔跑正式版不知道能不能改善一下或者常驻，感觉响应总是慢半拍很别扭</blockquote>
+没太懂你的意思，不过如果是想要常驻的话，可以在设置里改成切换模式，也就是按一下就从走路切换为跑步，不用一直按着
+
+*****
+
+####  黑暗之眼  
+##### 216#       发表于 2026-9-7 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214554&amp;ptid=2283081" target="_blank">hiiroimatsu 发表于 2026-9-7 10:27</a>
+
+奔跑正式版不知道能不能改善一下或者常驻，感觉响应总是慢半拍很别扭</blockquote>
+设置调成“切换”，按一下就切换成跑步了，不需要一直按
+

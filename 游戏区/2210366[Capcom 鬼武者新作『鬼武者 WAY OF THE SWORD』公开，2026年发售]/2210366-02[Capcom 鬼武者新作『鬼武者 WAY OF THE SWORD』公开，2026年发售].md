@@ -2546,3 +2546,16 @@ FF16很难翻啊
 
 给了两个崛起的服装……
 
+
+*****
+
+####  h122h  
+##### 1730#       发表于 2026-9-7 10:24
+
+[https://store.steampowered.com/app/3935810/_Way_of_the_Sword/](https://store.steampowered.com/app/3935810/_Way_of_the_Sword/)
+[https://store.steampowered.com/app/3935850/_Way_of_the_Sword/](https://store.steampowered.com/app/3935850/_Way_of_the_Sword/)
+
+两个免费dlc
+
+给了两个崛起的服装……
+

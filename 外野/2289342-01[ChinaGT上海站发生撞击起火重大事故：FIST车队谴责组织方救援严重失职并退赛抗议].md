@@ -981,3 +981,28 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 真60我觉得肯动身递灭火器简直超敬业了
 
+
+*****
+
+####  208208  
+##### 87#       发表于 2026-9-7 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214059&amp;ptid=2289342" target="_blank">洛克萨斯 发表于 2026-9-7 09:31</a>
+
+绅士车手，也就是我们俗称的老板车手，付费给车队参加比赛来娱乐的，是赛车运动的重要组成部分 ...</blockquote>
+我的意思是，他不是娱乐歌手吗  或者说偶像歌手，怎么转型来赛车了
+
+他那些粉丝不要了吗 
+
+*****
+
+####  208208  
+##### 88#       发表于 2026-9-7 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214106&amp;ptid=2289342" target="_blank">Ferrari 发表于 2026-9-7 09:39</a>
+
+他是乐华的，不是掏粪那个时代峰峻
+
+，后者专门搞小男孩恶心程度不是一个量级 ...</blockquote>
+我对王一博的认识 只知道那个文盲的出圈
+
