@@ -14547,3 +14547,27 @@ Hy4 preview 模型升级公告
 
 any的免费Astra有点慢但是智力没问题，比付费中转站还靠谱，5.6sol和opus5已经没有蒸馏价值了
 
+
+*****
+
+####  空き地卯木  
+##### 13167#       发表于 2026-9-7 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215606&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-9-7 17:17</a>
+每次牛批模型升级，s1就会沦为新模型武装爬虫的rbq，太惨了</blockquote>
+尼楼往前翻几页不就能看到个来问狗叔怎么不开API给爬虫的
+现成的gitclone不用，重复造轮子既浪费token又浪费带宽费，甚至嘉豪们可能连AI写出了个死循环都发现不了
+主打一个不思不学蹬了先爽
+
+
+*****
+
+####  空き地卯木  
+##### 13167#       发表于 2026-9-7 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215606&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-9-7 17:17</a>
+每次牛批模型升级，s1就会沦为新模型武装爬虫的rbq，太惨了</blockquote>
+尼楼往前翻几页不就能看到个来问狗叔怎么不开API给爬虫的
+现成的gitclone不用，重复造轮子既浪费token又浪费带宽费，甚至嘉豪们可能连AI写出了个死循环都发现不了
+主打一个不思不学蹬了先爽
+
