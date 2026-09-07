@@ -1105,3 +1105,139 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 五六七十年代欧洲赛车也是这样，大家周末的娱乐活动是去赛道看xx爵士和xx爵士一起跑圈然后撞死，运气不好 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上赛还是条件太好了，澳门那边街道赛经验就丰富很多，那条路超难开很容易出车祸，处理事故经验非常丰富
 
+
+*****
+
+####  四氧化三铅  
+##### 97#       发表于 2026-9-7 11:26
+
+不看这新闻我都不知道中国也搞赛车比赛了啊，我还以为只有西方国家搞这个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ferrari  
+##### 98#       发表于 2026-9-7 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214731&amp;ptid=2289342" target="_blank">Keiji 发表于 2026-9-7 10:55</a>
+60块的保安确实不值得拼命了
+
+这么多明星、老板参加的比赛也这么草台都很难想象比赛费用都跑到哪里去了 ...</blockquote>
+马修和保安还是有区别的
+60一天的活多半就是在看台盯着粉丝别出事
+马修得起码经过培训，听指挥挥个旗子捡捡赛道垃圾
+所以现在主办方拿着各车队的天价报名费给你配个这种级别的赛事维护人员是最没良心的那个
+再加上珠海那次大雨红旗的弱智操作，以及去年同样位置差点出事的医疗车
+一句话总结Topspeed是纯傻逼
+
+*****
+
+####  冰风血羽  
+##### 99#       发表于 2026-9-7 11:32
+
+才60那还说啥，能过去递个灭火器都是大爷有职业道德了
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+
+*****
+
+####  四氧化三铅  
+##### 97#       发表于 2026-9-7 11:26
+
+不看这新闻我都不知道中国也搞赛车比赛了啊，我还以为只有西方国家搞这个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ferrari  
+##### 98#       发表于 2026-9-7 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214731&amp;ptid=2289342" target="_blank">Keiji 发表于 2026-9-7 10:55</a>
+60块的保安确实不值得拼命了
+
+这么多明星、老板参加的比赛也这么草台都很难想象比赛费用都跑到哪里去了 ...</blockquote>
+马修和保安还是有区别的
+60一天的活多半就是在看台盯着粉丝别出事
+马修得起码经过培训，听指挥挥个旗子捡捡赛道垃圾
+所以现在主办方拿着各车队的天价报名费给你配个这种级别的赛事维护人员是最没良心的那个
+再加上珠海那次大雨红旗的弱智操作，以及去年同样位置差点出事的医疗车
+一句话总结Topspeed是纯傻逼
+
+*****
+
+####  冰风血羽  
+##### 99#       发表于 2026-9-7 11:32
+
+才60那还说啥，能过去递个灭火器都是大爷有职业道德了
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+*****
+
+####  foxpat  
+##### 100#       发表于 2026-9-7 11:35
+
+看网友回复130一天60块半天，这种价格你能请来一个愿意拎着灭火器走过来的大爷，都算是大爷厚道，换成年轻人早跑没影了
+
+
+*****
+
+####  四氧化三铅  
+##### 97#       发表于 2026-9-7 11:26
+
+不看这新闻我都不知道中国也搞赛车比赛了啊，我还以为只有西方国家搞这个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ferrari  
+##### 98#       发表于 2026-9-7 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214731&amp;ptid=2289342" target="_blank">Keiji 发表于 2026-9-7 10:55</a>
+60块的保安确实不值得拼命了
+
+这么多明星、老板参加的比赛也这么草台都很难想象比赛费用都跑到哪里去了 ...</blockquote>
+马修和保安还是有区别的
+60一天的活多半就是在看台盯着粉丝别出事
+马修得起码经过培训，听指挥挥个旗子捡捡赛道垃圾
+所以现在主办方拿着各车队的天价报名费给你配个这种级别的赛事维护人员是最没良心的那个
+再加上珠海那次大雨红旗的弱智操作，以及去年同样位置差点出事的医疗车
+一句话总结Topspeed是纯傻逼
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 洛克萨斯 + 1好评加鹅
+
+查看全部评分
+
+*****
+
+####  冰风血羽  
+##### 99#       发表于 2026-9-7 11:32
+
+才60那还说啥，能过去递个灭火器都是大爷有职业道德了
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+*****
+
+####  foxpat  
+##### 100#       发表于 2026-9-7 11:35
+
+看网友回复130一天60块半天，这种价格你能请来一个愿意拎着灭火器走过来的大爷，都算是大爷厚道，换成年轻人早跑没影了
+
+*****
+
+####  洛克萨斯  
+##### 101#       发表于 2026-9-7 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214978&amp;ptid=2289342" target="_blank">四氧化三铅 发表于 2026-9-7 11:26</a>
+
+不看这新闻我都不知道中国也搞赛车比赛了啊，我还以为只有西方国家搞这个 ...</blockquote>
+搞了很多年了啊，拉力赛，房车赛，方程式赛都有
+

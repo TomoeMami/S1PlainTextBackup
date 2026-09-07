@@ -2689,3 +2689,48 @@ FF16很难翻啊
 白金了，毗沙门剑还是有点东西，义经一阶全程闪过去，二阶没这勇气老实招架了，锻炼模式没道具还是不敢太 ...</blockquote>
 要打过鬼杀难度才拿到剑吧，最难熬的都过去了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，有什么推荐打法？？
 
+
+*****
+
+####  godless2020  
+##### 1741#       发表于 2026-9-7 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212401&amp;ptid=2210366" target="_blank">火红之眼 发表于 2026-9-6 22:46</a>
+
+白金了，毗沙门剑还是有点东西，义经一阶全程闪过去，二阶没这勇气老实招架了，锻炼模式没道具还是不敢太 ...</blockquote>
+要打过鬼杀难度才拿到剑吧，最难熬的都过去了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，有什么推荐打法？？
+
+
+*****
+
+####  godless2020  
+##### 1741#       发表于 2026-9-7 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212401&amp;ptid=2210366" target="_blank">火红之眼 发表于 2026-9-6 22:46</a>
+
+白金了，毗沙门剑还是有点东西，义经一阶全程闪过去，二阶没这勇气老实招架了，锻炼模式没道具还是不敢太 ...</blockquote>
+要打过鬼杀难度才拿到剑吧，最难熬的都过去了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，有什么推荐打法？？
+
+*****
+
+####  红魔馆的糖  
+##### 1742#       发表于 2026-9-7 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214667&amp;ptid=2210366" target="_blank">mai6696 发表于 2026-9-7 10:45</a>
+怒伐天会唐突粉光，还会吸魂快速强化，我死了两遍才过。
+
+弁庆我一遍就过了，没啥感觉。</blockquote>
+他让岩流收集人魂，宫本收集怪魂
+
+
+*****
+
+####  红魔馆的糖  
+##### 1742#       发表于 2026-9-7 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214667&amp;ptid=2210366" target="_blank">mai6696 发表于 2026-9-7 10:45</a>
+怒伐天会唐突粉光，还会吸魂快速强化，我死了两遍才过。
+
+弁庆我一遍就过了，没啥感觉。</blockquote>
+他让岩流收集人魂，宫本收集怪魂
+

@@ -2217,3 +2217,11 @@ NS掌机只有500多P
 
 —— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  宛若青空  
+##### 218#       发表于 2026-9-7 11:32
+
+不过游戏设置里都没震动开关不知道是不是正式版也真的没手柄震动功能了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
