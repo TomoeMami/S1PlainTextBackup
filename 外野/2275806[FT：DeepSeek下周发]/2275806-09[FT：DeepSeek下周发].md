@@ -14657,3 +14657,30 @@ any的免费Astra有点慢但是智力没问题，比付费中转站还靠谱，
 
 不是说O记一个研究员就有一千张卡可以玩，馋哭大飞鱼
 
+
+*****
+
+####  serj005  
+##### 13173#       发表于 2026-9-7 21:08
+
+ 本帖最后由 serj005 于 2026-9-7 21:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215418&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-7 12:44</a>
+有人说装ripgrep能省token 真的吗
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
+rg本身不省token，和grep本质一样，主要是查询速度rg比grep快很多，总任务时长能压低，具体看模型本身是否熟悉rg语法，熟悉rg行为加语法那查询命令和输出结果都能比grep略少一些，这时候可以说是省了一些token，如果老是语法错误重试那就不如grep省。
+
+现在很多agent都把内部的grep实现替换成rg来达到grep语法加rg速度的效果。
+
+*****
+
+####  小津江  
+##### 13174#       发表于 2026-9-7 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214518&amp;ptid=2275806" target="_blank">Anarkia 发表于 2026-9-7 10:23</a>
+
+sol可以写黄啊，文笔挺好的
+
+就是对于双方同意和戴套有着极强的执着</blockquote>
+我是长期账号加长期记忆慢慢搞得，萝莉设定啥的他都不管了，后来一夜回到解放前
+
