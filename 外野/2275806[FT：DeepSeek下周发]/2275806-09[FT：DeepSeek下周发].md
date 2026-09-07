@@ -14539,3 +14539,11 @@ Hy4 preview 模型升级公告
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">换了个手机号能订阅kimi了，有没有漏油知道99/199实际上有多少额度啊
 
+
+*****
+
+####  很久就在那边l  
+##### 13166#       发表于 2026-9-7 18:09
+
+any的免费Astra有点慢但是智力没问题，比付费中转站还靠谱，5.6sol和opus5已经没有蒸馏价值了
+
