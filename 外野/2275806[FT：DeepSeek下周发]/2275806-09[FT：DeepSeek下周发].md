@@ -13747,3 +13747,68 @@ DS 不 care 啊
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 13121#       发表于 2026-9-7 08:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213250&amp;ptid=2275806" target="_blank">浪子龙飞z 发表于 2026-9-7 01:53</a>
+我会翻墙也会海外付款，我就想要个性价比方案，gpt 怎么个性价比法呢</blockquote>
+订阅+两三天重置一次额度，国内模型斩杀线对比图都是拿oa两家的api价格比的，实际上绝大部分人用的都是coding plan，api价格是coding plan的20-70倍，拿coding plan对比国模确实是没有性价比
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  完全不懂  
+##### 13122#       发表于 2026-9-7 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213410&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-7 06:05</a>
+只要灰测模型发出来，一切都会好起来的
+如果GPT真的又好又便宜，梁子会降价的吧毕竟毛利是够的，只是怕需求 ...</blockquote>
+并非没有代差，astra已经是openai七月份练出来的，现在openai的“灰测”模型是那个10t的bel，我感觉现在国内外的算力差距表现甚至更加明显了
+
+—— 来自 OnePlus PKG110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cscbzcbz  
+##### 13123#       发表于 2026-9-7 08:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213651&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-9-7 08:26</a>
+DS 不 care 啊
+
+—— 来自 S1Fun</blockquote>
+还是care的，之前四小时会议梁子不是说降价他们内部是欢呼的吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+我理解就是技术人员希望自己的成果被更多人用的朴素感情<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 13124#       发表于 2026-9-7 08:56
+
+就说GLM5.3-Flash怎么这么慢呢，原来租的是海光的卡……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 13125#       发表于 2026-9-7 08:57
+
+漏油都是第一次知道gpt的token效率高么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+之前5.5和sol就是这样啊，gpt的token效率高于同代的Claude，更高于国模不少。
+每个token的效率和每个token的计算消耗是两回事，又不代表token消耗低了就算力消耗低了。
+不如说“高token效率”是gpt一直在走的技术路线。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 13126#       发表于 2026-9-7 08:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213727&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-9-7 08:43</a>
+不走雷霆大思考，更少token更高能力。这个方向业界走通的话，是不是存储内存价格就见顶了。 ...</blockquote>
+我猜这个就是那个loop transfomer的技术带来收益，可能雷霆大思考但是在loop里被内部消化掉了，给你表现的只有只有最后一次loop的结果
+
