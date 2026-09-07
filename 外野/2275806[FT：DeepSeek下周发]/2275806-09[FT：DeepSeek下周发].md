@@ -14070,3 +14070,11 @@ o这两个月砍额度的恶劣行为如果不是有那几个重置那真是不�
 感觉UI操作比直接用chatgpt、claude都更丝滑一些
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就是paseo管理的会话和codex原生管理的会有冲突比较麻烦 准备全部切过来先试试
 
+
+*****
+
+####  drodchang  
+##### 13147#       发表于 2026-9-7 12:11
+
+astra真的已经非常够用了，如果能便宜点就好了
+
