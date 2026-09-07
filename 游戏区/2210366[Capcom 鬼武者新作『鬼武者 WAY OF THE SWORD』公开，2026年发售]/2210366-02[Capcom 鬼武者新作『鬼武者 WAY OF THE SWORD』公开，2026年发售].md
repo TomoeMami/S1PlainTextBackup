@@ -2952,3 +2952,51 @@ FF16很难翻啊
 
 非变身时期选自己觉得稳健的打法，变身能一口气打空大部分精力条的话很容易资源循环，鬼灯袋等资源断档的时候续一下就好。
 
+
+*****
+
+####  mai6696  
+##### 1751#       发表于 2026-9-7 16:04
+
+首日百万
+
+<img src="https://img.stage1st.com/forum/202609/07/160435g1pbdlqybdqpn1pz.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7358.jpeg</strong> (419.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 16:04 上传
+
+<img src="https://img.stage1st.com/forum/202609/07/160441qttjem99q9r0wjlt.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>88985FA6-7DDE-40CE-A40C-53356829D667.jpeg</strong> (459.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 16:04 上传
+
+
+*****
+
+####  mai6696  
+##### 1751#       发表于 2026-9-7 16:04
+
+首日百万
+
+<img src="https://img.stage1st.com/forum/202609/07/160435g1pbdlqybdqpn1pz.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7358.jpeg</strong> (419.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 16:04 上传
+
+<img src="https://img.stage1st.com/forum/202609/07/160441qttjem99q9r0wjlt.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>88985FA6-7DDE-40CE-A40C-53356829D667.jpeg</strong> (459.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 16:04 上传
+
