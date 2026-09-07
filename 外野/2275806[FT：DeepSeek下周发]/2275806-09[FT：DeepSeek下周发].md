@@ -14236,3 +14236,73 @@ harness 本身这个功能是开源的 [https://github.com/openai/codex/pull/423
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  RookieTnT  
+##### 13155#       发表于 2026-9-7 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215410&amp;ptid=2275806" target="_blank">重楼 发表于 2026-9-7 12:40</a>
+
+harness 本身这个功能是开源的 https://github.com/openai/codex/pull/42385
+
+但肯定依赖openai 自己的llm ...</blockquote>
+你看pr就知道了. 和codex的远程压缩一下. 具体实现是依赖OpenAI的服务器的
+
+*****
+
+####  phorcys02  
+##### 13156#       发表于 2026-9-7 16:09
+
+这是嘉豪们又固定刷新啦？
+
+*****
+
+####  lactone  
+##### 13157#       发表于 2026-9-7 16:09
+
+每次泥潭被爬后短期内国模水平就大跃升，说明泥潭是AI竞争的关键，谁掌握泥潭，谁先AGI<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RookieTnT  
+##### 13155#       发表于 2026-9-7 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215410&amp;ptid=2275806" target="_blank">重楼 发表于 2026-9-7 12:40</a>
+
+harness 本身这个功能是开源的 https://github.com/openai/codex/pull/42385
+
+但肯定依赖openai 自己的llm ...</blockquote>
+你看pr就知道了. 和codex的远程压缩一下. 具体实现是依赖OpenAI的服务器的
+
+*****
+
+####  phorcys02  
+##### 13156#       发表于 2026-9-7 16:09
+
+这是嘉豪们又固定刷新啦？
+
+*****
+
+####  lactone  
+##### 13157#       发表于 2026-9-7 16:09
+
+每次泥潭被爬后短期内国模水平就大跃升，说明泥潭是AI竞争的关键，谁掌握泥潭，谁先AGI<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  omnitoken  
+##### 13158#       发表于 2026-9-7 16:14
+
+ 本帖最后由 omnitoken 于 2026-9-7 16:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215417&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-7 12:44</a>
+
+有人说装ripgrep能省token 真的吗
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
+不是rg的问题, 是现在找不出来哪个harness在macos/linux上不用rg的
+
+如果你想更省还可以装个rtk
+

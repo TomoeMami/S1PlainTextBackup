@@ -4057,3 +4057,11 @@ ns2游戏卡收藏盒
 
 【火焰纹章 万紫千红 中文宣传曲《千丝之誓》】 [https://www.bilibili.com/video/B ... are_source=copy_web](https://www.bilibili.com/video/BV19BbW6vEdt/?share_source=copy_web)
 
+
+*****
+
+####  摸鱼玩家  
+##### 3338#       发表于 2026-9-7 16:15
+
+感觉这个价格是降不下来了，之前pdd锁了个340的，现在日版又补贴了要400多了
+

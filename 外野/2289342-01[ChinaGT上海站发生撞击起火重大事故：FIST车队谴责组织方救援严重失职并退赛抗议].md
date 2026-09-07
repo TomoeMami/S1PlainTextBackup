@@ -1374,3 +1374,49 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 这也太无语了
 
+
+*****
+
+####  洛克萨斯  
+##### 109#       发表于 2026-9-7 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215214&amp;ptid=2289342" target="_blank">四氧化三铅 发表于 2026-9-7 11:59</a>
+
+才几年啊，讲道理马修是西方在百余年的赛车比赛事故血与泪的产物，是赛车文化的一部分。 
+
+国内的确有钱有 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以我说了最有经验应该就是澳门，毕竟是街道赛，东望洋那条路太容易出车祸了，内地比赛好像大部分都是场地赛，拉力赛那边我不熟不知道怎么做安全这块，可能有地方政府为了文旅宣传有提供帮助
+
+*****
+
+####  洛克萨斯  
+##### 110#       发表于 2026-9-7 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215306&amp;ptid=2289342" target="_blank">经验值UP 发表于 2026-9-7 12:09</a>
+
+国内这种级别的赛车比赛也就上海了吧，得去国外取经。</blockquote>
+能做房车赛的场地倒不止上海，澳门，珠海，成都，株洲，宁波都有，上海主要是场地规格是f1的而已
+
+
+*****
+
+####  洛克萨斯  
+##### 109#       发表于 2026-9-7 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215214&amp;ptid=2289342" target="_blank">四氧化三铅 发表于 2026-9-7 11:59</a>
+
+才几年啊，讲道理马修是西方在百余年的赛车比赛事故血与泪的产物，是赛车文化的一部分。 
+
+国内的确有钱有 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以我说了最有经验应该就是澳门，毕竟是街道赛，东望洋那条路太容易出车祸了，内地比赛好像大部分都是场地赛，拉力赛那边我不熟不知道怎么做安全这块，可能有地方政府为了文旅宣传有提供帮助
+
+*****
+
+####  洛克萨斯  
+##### 110#       发表于 2026-9-7 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215306&amp;ptid=2289342" target="_blank">经验值UP 发表于 2026-9-7 12:09</a>
+
+国内这种级别的赛车比赛也就上海了吧，得去国外取经。</blockquote>
+能做房车赛的场地倒不止上海，澳门，珠海，成都，株洲，宁波都有，上海主要是场地规格是f1的而已
+
