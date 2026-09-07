@@ -4249,3 +4249,19 @@ ns2游戏卡收藏盒
 
 设计这种干嘛呢
 
+
+*****
+
+####  5ew47  
+##### 3346#       发表于 2026-9-7 22:08
+
+手游那边宣布四主角进卡池了，俩女主立绘都偷偷加强了一下<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.stage1st.com/forum/202609/07/220811l20isiej39s0s62z.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8940.jpeg</strong> (186.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 22:08 上传
+
