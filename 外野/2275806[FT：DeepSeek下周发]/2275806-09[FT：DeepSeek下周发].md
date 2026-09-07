@@ -13728,3 +13728,22 @@ DS 不 care 啊
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  bixinhaner  
+##### 13119#       发表于 2026-9-7 08:43
+
+不走雷霆大思考，更少token更高能力。这个方向业界走通的话，是不是存储内存价格就见顶了。
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 13120#       发表于 2026-9-7 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213190&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-9-7 01:29</a>
+真的只是翻墙就好了，还要海外支付并且有可能需要验证海外手机号</blockquote>
+支付问题用海外苹果账号直接订阅就好，又不是a/整天封号
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

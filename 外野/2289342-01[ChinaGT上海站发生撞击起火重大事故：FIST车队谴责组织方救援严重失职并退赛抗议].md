@@ -796,3 +796,28 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Ferrari  
+##### 73#       发表于 2026-9-7 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210760&amp;ptid=2289342" target="_blank">Fuero 发表于 2026-9-6 16:17</a>
+【ChinaGT冥场面之《一句话，让官号全网下架直播回放》】 https://www.bilibili.com/video/BV1vEgX6TEZF/ ...</blockquote>
+有原版不消音的的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+【【小米·中国超级跑车锦标赛 珠海站】69号车组直接喷TopSpeed是傻*-哔哩哔哩】 https://b23.tv/19tlVrc
+
+
+*****
+
+####  希德尼娅  
+##### 74#       发表于 2026-9-7 08:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70210404&amp;ptid=2289342" target="_blank">cybernetics31 发表于 2026-9-6 14:25</a>
+王一博心真大 这种救援组织水平还敢参加
+
+我记得救援车和医疗车都是小米的吧
+
+ ...</blockquote>
+大个屁，他又不能未卜先知
+
