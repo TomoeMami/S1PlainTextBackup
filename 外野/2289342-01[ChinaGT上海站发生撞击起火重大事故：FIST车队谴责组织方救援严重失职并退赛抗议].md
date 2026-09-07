@@ -821,3 +821,20 @@ https://www.bilibili.com/video/BV1zZb76tESA/
  ...</blockquote>
 大个屁，他又不能未卜先知
 
+
+*****
+
+####  蛋黄酱Release  
+##### 75#       发表于 2026-9-7 09:01
+
+这不就是典型奴工理论<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+一个不管多么高大上的系统，在某一个环节用了奴工（泛指一切不人道的用工方式），那么整个系统提供的就是奴工级别的服务。
+
+*****
+
+####  紫苏  
+##### 76#       发表于 2026-9-7 09:03
+
+怀疑chinaGT一半的保安在手拉手围着王一博保护他上下车不被粉丝和自媒体冲倒<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
