@@ -13705,3 +13705,16 @@ kimi的订阅也是抠抠搜搜，最高档次还比199性价比差点。
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  真红之闪电  
+##### 13117#       发表于 2026-9-7 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213410&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-7 06:05</a>
+只要灰测模型发出来，一切都会好起来的
+如果GPT真的又好又便宜，梁子会降价的吧毕竟毛利是够的，只是怕需求 ...</blockquote>
+DS 不 care 啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
