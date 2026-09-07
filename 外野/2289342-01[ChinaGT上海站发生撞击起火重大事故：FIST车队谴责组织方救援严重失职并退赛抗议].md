@@ -736,3 +736,37 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 赛事的安保费用连一个能用的灭火器都买不来<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  只因你太美  
+##### 68#       发表于 2026-9-7 07:49
+
+主办方抓起来控制了没有
+
+*****
+
+####  itsmyrailgun  
+##### 69#       发表于 2026-9-7 07:49
+
+赛事自己的专业穿防火服的马修疏于应对，反应慢，靠60一天雇佣的保安大爷对付这种他们从没见过也不知道如何处理的事故，当然要遭人笑话了。
+太离谱了还顶着china这个词呢，简直就是乳化。
+
+<img src="https://img.stage1st.com/forum/202609/07/074815xz7o6nftg1lt3qdm.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1788738494099_1.webp</strong> (78.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 07:48 上传
+
+<img src="https://img.stage1st.com/forum/202609/07/074815hmke9n1mazmeg199.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1788738494207_2.webp</strong> (78.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 07:48 上传
+
+—— 来自 Xiaomi 2509FPN0BC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
