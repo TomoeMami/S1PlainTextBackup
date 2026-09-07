@@ -3967,3 +3967,34 @@ ns2游戏卡收藏盒
 
 <img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">  发售前一周才有好价吗  目前最低380？
 
+
+*****
+
+####  flyingover  
+##### 3332#       发表于 2026-9-7 10:08
+
+<img src="https://img.stage1st.com/forum/202609/07/100756isskyz8ozkjyk3ou.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (80.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-7 10:07 上传
+
+【キャラクター】マジーデ（CV：小野寺悠貴）
+
+ダグシオンをうろつく有名なごろつき。
+
+少年時代から素行が悪く、暴力沙汰を起こしては投獄される日々を送っていた。
+
+街の支配者となるため、大剣闘祭で優勝を目指している。
+
+●好きなもの：酒、女、漲る体力、イラつく奴との喧嘩
+
+*****
+
+####  cox  
+##### 3333#       发表于 2026-9-7 10:12
+
+本以为被抢了披风被路边踢死的兄弟也成可以入队的人选了。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

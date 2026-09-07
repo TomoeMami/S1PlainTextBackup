@@ -968,3 +968,16 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 比起爬坡那个，我觉得这个锅小米绝逼甩不掉，你冠名了不调查赛事主办方怪谁呢
 
+
+*****
+
+####  凉良  
+##### 86#       发表于 2026-9-7 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213525&amp;ptid=2289342" target="_blank">itsmyrailgun 发表于 2026-9-7 07:49</a>
+
+赛事自己的专业穿防火服的马修疏于应对，反应慢，靠60一天雇佣的保安大爷对付这种他们从没见过也不知道如何 ...</blockquote>
+60？？？？太NM夸张了
+
+真60我觉得肯动身递灭火器简直超敬业了
+

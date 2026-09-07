@@ -13886,3 +13886,46 @@ opencode的v4f绝对降智了。
 
 现在就看到底是API价格杀2B/2G端凯子, 还是Coding plan赔血本赚吆喝了. GPT的API和订阅会员之间的价差已经有100倍了吧
 
+
+*****
+
+####  nxmonitor  
+##### 13133#       发表于 2026-9-7 10:05
+
+而且真不用担心，灰测的基模也是七月份就拿出来的，后训练两个月也是同级，现在应该在找卡推理，就这点卡Pro这个价格都要被蹬爆
+
+*****
+
+####  nxmonitor  
+##### 13134#       发表于 2026-9-7 10:06
+
+ 本帖最后由 nxmonitor 于 2026-9-7 10:09 编辑 
+
+这几天觉得V4F有点降智了，不知道是不是有进展了，其实之前灰测在DSH三个模式都测过了，新的Flash也练好了
+
+
+*****
+
+####  BarricadeMKXX  
+##### 13135#       发表于 2026-9-7 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213956&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-9-7 09:17</a>
+opencode的v4f绝对降智了。
+我用我自用的写文agent，ds本家一遍过，opencode的就一直原地打转卡在工具调用 ...</blockquote>
+感觉现在commandcode也不行，让他改代码雷霆大思考然后截断没反应了，换官方api重来就能写完
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  BarricadeMKXX  
+##### 13135#       发表于 2026-9-7 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213956&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-9-7 09:17</a>
+opencode的v4f绝对降智了。
+我用我自用的写文agent，ds本家一遍过，opencode的就一直原地打转卡在工具调用 ...</blockquote>
+感觉现在commandcode也不行，让他改代码雷霆大思考然后截断没反应了，换官方api重来就能写完
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
