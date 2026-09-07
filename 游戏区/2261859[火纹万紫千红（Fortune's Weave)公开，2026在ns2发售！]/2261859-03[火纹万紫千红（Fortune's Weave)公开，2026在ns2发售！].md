@@ -4119,3 +4119,13 @@ ns2游戏卡收藏盒
 感觉这个价格是降不下来了，之前pdd锁了个340的，现在日版又补贴了要400多了 ...</blockquote>
 现在时间还早，pdd你得再等等。现阶段商家能拿多少货是未知的，进而影响补贴申请
 
+
+*****
+
+####  otakun  
+##### 3340#       发表于 2026-9-7 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215101&amp;ptid=2261859" target="_blank">ryj 发表于 2026-9-7 11:45</a>
+【火焰纹章 万紫千红 中文宣传曲《千丝之誓》】 https://www.bilibili.com/video/BV19BbW6vEdt/?share_sour ...</blockquote>
+这同人二创不在标题标出来
+
