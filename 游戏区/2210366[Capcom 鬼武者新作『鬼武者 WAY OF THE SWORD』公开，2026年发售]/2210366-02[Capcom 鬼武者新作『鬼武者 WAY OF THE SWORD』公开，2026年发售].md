@@ -2678,3 +2678,14 @@ FF16很难翻啊
 通关了，整体体验不如浪人崛起，但比仁王3强，大概这种感觉，和仁王3是两种方向的恶心，主要问题都是不用心 ...</blockquote>
 体量恐怕只有仁王3战国+平安两张图吧？
 
+
+*****
+
+####  godless2020  
+##### 1741#       发表于 2026-9-7 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212401&amp;ptid=2210366" target="_blank">火红之眼 发表于 2026-9-6 22:46</a>
+
+白金了，毗沙门剑还是有点东西，义经一阶全程闪过去，二阶没这勇气老实招架了，锻炼模式没道具还是不敢太 ...</blockquote>
+要打过鬼杀难度才拿到剑吧，最难熬的都过去了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，有什么推荐打法？？
+

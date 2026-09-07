@@ -1078,3 +1078,30 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 这么多明星、老板参加的比赛也这么草台都很难想象比赛费用都跑到哪里去了
 
+
+*****
+
+####  十六夜pad长  
+##### 95#       发表于 2026-9-7 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214731&amp;ptid=2289342" target="_blank">Keiji 发表于 2026-9-7 10:55</a>
+60块的保安确实不值得拼命了
+
+这么多明星、老板参加的比赛也这么草台都很难想象比赛费用都跑到哪里去了 ...</blockquote>
+五六七十年代欧洲赛车也是这样，大家周末的娱乐活动是去赛道看xx爵士和xx爵士一起跑圈然后撞死，运气不好跟着爵士一起死。没什么安全余量。
+
+只是我是没想到都2026年了，赛事组织就算跟不上F1这种顶级赛事，起码也别60一天招赛道马修吧，救护车也别睡得太死了吧。这是赛车，能不能对内燃机和化石燃料有点敬畏之心<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHB110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  洛克萨斯  
+##### 96#       发表于 2026-9-7 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214931&amp;ptid=2289342" target="_blank">十六夜pad长 发表于 2026-9-7 11:20</a>
+
+五六七十年代欧洲赛车也是这样，大家周末的娱乐活动是去赛道看xx爵士和xx爵士一起跑圈然后撞死，运气不好 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上赛还是条件太好了，澳门那边街道赛经验就丰富很多，那条路超难开很容易出车祸，处理事故经验非常丰富
+
