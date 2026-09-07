@@ -13718,3 +13718,13 @@ DS 不 care 啊
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  novalli  
+##### 13118#       发表于 2026-9-7 08:34
+
+国内还是太缺算力了。。。Kimi最早搞出超大上下文的时候就在用，现在不想用的主要原因就是有点慢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
