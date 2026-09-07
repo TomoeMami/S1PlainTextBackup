@@ -2627,3 +2627,43 @@ FF16很难翻啊
 
 我现在平时通马桶都带那个雷枪了，雷枪打崩一闪有很牛的蓝紫魂循环，基本场场战斗都能开真魔人，全靠真魔人启动连锁一闪了
 
+
+*****
+
+####  double8G  
+##### 1736#       发表于 2026-9-7 10:59
+
+犹豫要不要一周目全收集……说是二周目还得再通一遍不然数值不够<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shpdw  
+##### 1737#       发表于 2026-9-7 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214617&amp;ptid=2210366" target="_blank">煌煌其烨 发表于 2026-9-7 10:39</a>
+
+目前进度是刚打完弁庆，真有人能打完弁庆前面这段流程不笑吗？跑到半开放地图的右下角封印三个狱窗，然后又 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实这俩地方门口都有传送点，这几把美术把这地图的传送点搞得很不直观也是问题。我跑路总觉得自己漏了传送点没开。
+
+这个弁庆是道狂自己造的机械弁庆幻魔啊，没意识的。连话都不会说。
+
+
+*****
+
+####  缺德猫  
+##### 1738#       发表于 2026-9-7 11:05
+
+通关了，整体体验不如浪人崛起，但比仁王3强，大概这种感觉，和仁王3是两种方向的恶心，主要问题都是不用心糊弄人。
+
+最后演出拉的真满真爽
+
+*****
+
+####  JOJO42  
+##### 1739#       发表于 2026-9-7 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214619&amp;ptid=2210366" target="_blank">hkguty 发表于 2026-9-7 10:39</a>
+
+这系列感觉剧情挺乱来，也不怎么在乎与旧作的联系，游戏里的武藏跟动画里的武藏也对不上 ...</blockquote>
+发售前有说动漫武藏和游戏武藏不是同一角色，两个作品剧情没关联
+
