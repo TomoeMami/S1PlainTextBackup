@@ -12381,7 +12381,7 @@
     "lastedit": 1788776280,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2268807": {
     "totalreply": 512,
@@ -12549,10 +12549,10 @@
     "totalreply": 5158,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1788776580,
+    "lastedit": 1788777000,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2271402": {
     "totalreply": 8770,
@@ -12942,13 +12942,13 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 13166,
+    "totalreply": 13167,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[GPT-6 Astra 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1788776160,
+    "lastedit": 1788776916,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2245675": {
     "totalreply": 735,
@@ -16086,7 +16086,7 @@
     "totalreply": 6548,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1788776602,
+    "lastedit": 1788776820,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17519,7 +17519,7 @@
     "newtitle": "[10年期美债的收益已经比一些固收+基金都高了]",
     "lastedit": 1788517567,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289222": {
@@ -18132,7 +18132,7 @@
     "lastedit": 1788776340,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2289374": {
     "totalreply": 67,
@@ -18162,13 +18162,13 @@
     "update": false
   },
   "2289335": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[三门问题如果主持人改成另一名选手，概率是多少]",
     "newtitle": "[三门问题如果主持人改成另一名选手，概率是多少]",
-    "lastedit": 1788776220,
+    "lastedit": 1788776917,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2289387": {
     "totalreply": 101,
@@ -18234,12 +18234,12 @@
     "update": false
   },
   "2287667": {
-    "totalreply": 0,
+    "totalreply": 127,
     "title": "[郭德纲武汉演出被举报，涉嫌篡改经典红歌《弹起我心爱的土琵琶》]",
     "newtitle": "[郭德纲武汉演出被举报，涉嫌篡改经典红歌《弹起我心爱的土琵琶》]",
-    "lastedit": 1788776160,
+    "lastedit": 1788776927,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }
