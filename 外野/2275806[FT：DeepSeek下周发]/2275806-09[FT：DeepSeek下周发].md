@@ -14345,3 +14345,34 @@ harness 本身这个功能是开源的 https://github.com/openai/codex/pull/4238
 
 比sol强不少，但是这额度使用太夸张了
 
+
+*****
+
+####  omnitoken  
+##### 13158#       发表于 2026-9-7 16:14
+
+ 本帖最后由 omnitoken 于 2026-9-7 16:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215417&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-7 12:44</a>
+
+有人说装ripgrep能省token 真的吗
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
+不是rg的问题, 是现在找不出来哪个harness在macos/linux上不用rg的
+
+如果你想更省还可以装个rtk
+
+*****
+
+####  med  
+##### 13159#       发表于 2026-9-7 17:07
+
+比sol强不少，但是这额度使用太夸张了
+
+
+*****
+
+####  med  
+##### 13159#       发表于 2026-9-7 17:07
+
+比sol强不少，但是这额度使用太夸张了
+

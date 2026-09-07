@@ -2715,3 +2715,13 @@ bd访谈预览
 
 还有牢爹一开始啥都不肯说，就只会说谜语，结果解密就是有仇+环保<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这有啥不能说的吗
 
+
+*****
+
+####  a85982313  
+##### 500#       发表于 2026-9-7 16:17
+
+牢姐谜语人这么久啥都不知道不如牢爹醒来几句话
+
+还有牢爹一开始啥都不肯说，就只会说谜语，结果解密就是有仇+环保<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这有啥不能说的吗
+
