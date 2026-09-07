@@ -3998,3 +3998,22 @@ ns2游戏卡收藏盒
 
 本以为被抢了披风被路边踢死的兄弟也成可以入队的人选了。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ascomnet  
+##### 3334#       发表于 2026-9-7 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214129&amp;ptid=2261859" target="_blank">罐子 发表于 2026-9-7 09:43</a>
+
+那么，哪个区买比较划算？（支持中文</blockquote>
+日服便宜
+
+
+*****
+
+####  巴尔干炮  
+##### 3335#       发表于 2026-9-7 10:24
+
+这倒霉鬼是不是在A少线被他砍死了？
+

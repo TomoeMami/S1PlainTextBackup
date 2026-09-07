@@ -13929,3 +13929,16 @@ opencode的v4f绝对降智了。
 
 —— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Anarkia  
+##### 13136#       发表于 2026-9-7 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213393&amp;ptid=2275806" target="_blank">小津江 发表于 2026-9-7 05:21</a>
+
+4o是我唯一破限后可以涩涩，可以反推色图，甚至给我推荐黄网的版本，也是那会奥特曼说要开放nsfw，现在6 ...</blockquote>
+sol可以写黄啊，文笔挺好的
+
+就是对于双方同意和戴套有着极强的执着
+
