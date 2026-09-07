@@ -2279,3 +2279,36 @@ NS掌机只有500多P
 设置调成“切换”，按一下就切换成跑步了，不需要一直按</blockquote>
 原来是我没发现，明白了！
 
+
+*****
+
+####  hiiroimatsu  
+##### 221#       发表于 2026-9-7 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214571&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-9-7 10:31</a>
+
+设置调成“切换”，按一下就切换成跑步了，不需要一直按</blockquote>
+原来是我没发现，明白了！
+
+
+*****
+
+####  hiiroimatsu  
+##### 221#       发表于 2026-9-7 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214571&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-9-7 10:31</a>
+
+设置调成“切换”，按一下就切换成跑步了，不需要一直按</blockquote>
+原来是我没发现，明白了！
+
+
+*****
+
+####  hiiroimatsu  
+##### 221#       发表于 2026-9-7 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214571&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-9-7 10:31</a>
+
+设置调成“切换”，按一下就切换成跑步了，不需要一直按</blockquote>
+原来是我没发现，明白了！
+

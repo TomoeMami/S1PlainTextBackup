@@ -3000,3 +3000,36 @@ FF16很难翻啊
 
 2026-9-7 16:04 上传
 
+
+*****
+
+####  conanoysq  
+##### 1752#       发表于 2026-9-7 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215482&amp;ptid=2210366" target="_blank">mai6696 发表于 2026-9-7 16:04</a>
+
+首日百万</blockquote>
+本来担心会暴死，打算ps打完再补一份pc，现在看来不用了，凯子不多我一个<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  conanoysq  
+##### 1752#       发表于 2026-9-7 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215482&amp;ptid=2210366" target="_blank">mai6696 发表于 2026-9-7 16:04</a>
+
+首日百万</blockquote>
+本来担心会暴死，打算ps打完再补一份pc，现在看来不用了，凯子不多我一个<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  conanoysq  
+##### 1752#       发表于 2026-9-7 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215482&amp;ptid=2210366" target="_blank">mai6696 发表于 2026-9-7 16:04</a>
+
+首日百万</blockquote>
+本来担心会暴死，打算ps打完再补一份pc，现在看来不用了，凯子不多我一个<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
