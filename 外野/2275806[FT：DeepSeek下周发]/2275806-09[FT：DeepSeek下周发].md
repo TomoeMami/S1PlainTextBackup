@@ -13854,3 +13854,11 @@ opencode的v4f绝对降智了。
 
 —— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  nxmonitor  
+##### 13131#       发表于 2026-9-7 09:23
+
+这个Astra是刻意做短的，实际这个架构就不一定思维链少，典型例子就是做Oneshot，不写/goal几步就结束了
+
