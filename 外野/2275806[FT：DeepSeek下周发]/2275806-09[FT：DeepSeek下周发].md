@@ -13979,3 +13979,23 @@ o的api定价对比国模都不算特别高的那档，对比来说coding plan�
 
 其实不管是openai还是A/离赚钱都还差十万八千里呢
 
+
+*****
+
+####  RookieTnT  
+##### 13139#       发表于 2026-9-7 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213409&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-9-7 06:03</a>
+
+这是啥？能详细说下吗
+
+—— 来自 S1Fun</blockquote>
+上下文检索. 不进行压缩. 可以节约一次压缩的请求
+
+*****
+
+####  xjlarry  
+##### 13140#       发表于 2026-9-7 10:53
+
+请教各位大佬，平时用来写办公室调研报告、活动策划、商业方案的话，用哪个模型会比较好啊
+

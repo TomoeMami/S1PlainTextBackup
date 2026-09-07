@@ -1042,3 +1042,39 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 —— 来自 samsung SM-S9180, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nice女武神  
+##### 92#       发表于 2026-9-7 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214578&amp;ptid=2289342" target="_blank">208208 发表于 2026-9-7 10:32</a>
+
+我的意思是，他不是娱乐歌手吗  或者说偶像歌手，怎么转型来赛车了
+
+他那些粉丝不要了吗  ...</blockquote>
+有钱人花钱跑比赛不是很正常啊  怎么
+
+*****
+
+####  catartemis  
+##### 93#       发表于 2026-9-7 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214578&amp;ptid=2289342" target="_blank">208208 发表于 2026-9-7 10:32</a>
+
+我的意思是，他不是娱乐歌手吗  或者说偶像歌手，怎么转型来赛车了
+
+他那些粉丝不要了吗  ...</blockquote>
+不是转型，只是多涉猎一个项目吧，算是人设的一部分。
+
+偶像自费花钱参加比赛，可以接到更多的相关代言（比如体育用品运动服装等等），特别是如果已经代言了相关产品，那些品牌就可以借着这个赛事作推广<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keiji  
+##### 94#       发表于 2026-9-7 10:55
+
+60块的保安确实不值得拼命了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这么多明星、老板参加的比赛也这么草台都很难想象比赛费用都跑到哪里去了
+

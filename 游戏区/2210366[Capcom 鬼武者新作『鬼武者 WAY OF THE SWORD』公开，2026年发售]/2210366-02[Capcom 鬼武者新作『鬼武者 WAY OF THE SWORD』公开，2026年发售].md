@@ -2614,3 +2614,16 @@ FF16很难翻啊
 
 顺便，打弁庆前有狱窗，打完了还有两个狱窗+四个马桶。
 
+
+*****
+
+####  姬茧墨  
+##### 1735#       发表于 2026-9-7 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214232&amp;ptid=2210366" target="_blank">shpdw 发表于 2026-9-7 09:54</a>
+
+小怪直接弹吧，大剑哥甚至没有一闪宽松的招，我打下来清杂效率和收益相对平衡就是弹了 ...</blockquote>
+主要还是缺瞬间清场的招式，除了鬼武具武藏甚至只能复读那个十分弱智的长押轻来打aoe<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我现在平时通马桶都带那个雷枪了，雷枪打崩一闪有很牛的蓝紫魂循环，基本场场战斗都能开真魔人，全靠真魔人启动连锁一闪了
+
