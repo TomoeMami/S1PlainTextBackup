@@ -13820,3 +13820,37 @@ DS 不 care 啊
 
 Astra确实好用，虽然比方很怪，但我有种打车打到保时捷的感觉，等嫖公司token
 
+
+*****
+
+####  冤枉呐  
+##### 13128#       发表于 2026-9-7 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213101&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-7 01:00</a>
+早晚7那个？那个分用户组的，core不限
+
+论坛助手,iPhone</blockquote>
+哈？那么怎么升core呢
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qwased  
+##### 13129#       发表于 2026-9-7 09:14
+
+o/a两家的真实性价比得看这两个月上市后还能不能稳住订阅用户的额度了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果为了保业绩猛砍订阅（两家都有苗头了）那我觉得大多数人需要的其实还是flash0731级别的智力+不要钱一样的api性价比
+glm5.3f虽然用着不咋地但是考虑性价比，还是原谅它<img src="https://static.stage1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tk553521  
+##### 13130#       发表于 2026-9-7 09:17
+
+opencode的v4f绝对降智了。
+我用我自用的写文agent，ds本家一遍过，opencode的就一直原地打转卡在工具调用。
+太坑了，下个月绝对不用了
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

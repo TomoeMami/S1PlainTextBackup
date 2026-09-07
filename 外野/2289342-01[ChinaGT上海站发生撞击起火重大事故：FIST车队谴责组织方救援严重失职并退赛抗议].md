@@ -838,3 +838,33 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 怀疑chinaGT一半的保安在手拉手围着王一博保护他上下车不被粉丝和自媒体冲倒<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  熊边上  
+##### 77#       发表于 2026-9-7 09:10
+
+虽然大家可能实际都菜台
+但谁叫你这个菜台不仅差点出人命，还菜台得这么容易讲解
+
+*****
+
+####  听蛋蛋  
+##### 78#       发表于 2026-9-7 09:11
+
+赛车不是富二代运动吗，也能这么草台班子的
+
+—— 来自 vivo V2324HA, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  coldhot3  
+##### 79#       发表于 2026-9-7 09:17
+
+<blockquote>听蛋蛋 发表于 2026-9-7 09:11
+赛车不是富二代运动吗，也能这么草台班子的
+
+—— 来自 vivo V2324HA, Android 14, 鹅球 v3.5.99 ...</blockquote>
+对灵活就业要是好一点，哪里出来那么多富一代？这不就是有样学样了嘛。
+
