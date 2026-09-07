@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 20126,
+    "totalreply": 20127,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼7月]",
-    "lastedit": 1788777780,
+    "lastedit": 1788782088,
     "category": "外野",
     "active": true,
     "update": false
@@ -13155,7 +13155,7 @@
     "lastedit": 1788777840,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1003288": {
     "totalreply": 4383,
@@ -13182,7 +13182,7 @@
     "lastedit": 1788777780,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2283074": {
     "totalreply": 2094,
@@ -13410,13 +13410,13 @@
     "update": false
   },
   "2184820": {
-    "totalreply": 386,
+    "totalreply": 387,
     "title": "[『攻壳机动队』新作TV动画系列制作决定 2026年 科学猴制作]",
     "newtitle": "[『攻壳机动队』新作TV动画系列制作决定 2026年 科学猴制作]",
-    "lastedit": 1788777660,
+    "lastedit": 1788781753,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2250988": {
     "totalreply": 410,
@@ -14522,15 +14522,6 @@
     "newtitle": "[下一个会是谁呢]",
     "lastedit": 1787642166,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2274343": {
-    "totalreply": 51,
-    "title": "[樱花大战3和4的DC版汉化都出了]",
-    "newtitle": "[樱花大战3和4的DC版汉化都出了]",
-    "lastedit": 1787572326,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -16074,13 +16065,13 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 6552,
+    "totalreply": 6556,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1788777840,
+    "lastedit": 1788782092,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1907713": {
     "totalreply": 266,
@@ -17285,7 +17276,7 @@
     "newtitle": "[体育总局答新京报：推动在外卖、快递小哥休息站点配建健身设施]",
     "lastedit": 1788522488,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289145": {
@@ -17609,7 +17600,7 @@
     "newtitle": "[近一周三场游戏发布会对比打分丨开早了，明晚再战！]",
     "lastedit": 1788522846,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289235": {

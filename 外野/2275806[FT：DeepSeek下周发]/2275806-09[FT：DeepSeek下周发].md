@@ -14571,3 +14571,27 @@ any的免费Astra有点慢但是智力没问题，比付费中转站还靠谱，
 现成的gitclone不用，重复造轮子既浪费token又浪费带宽费，甚至嘉豪们可能连AI写出了个死循环都发现不了
 主打一个不思不学蹬了先爽
 
+
+*****
+
+####  RookieTnT  
+##### 13168#       发表于 2026-9-7 18:40
+
+<blockquote>FACS 发表于 2026-9-7 18:05
+换了个手机号能订阅kimi了，有没有漏油知道99/199实际上有多少额度啊</blockquote>
+199 我订阅过 我只用 k3 周限好像一亿多 
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  RookieTnT  
+##### 13168#       发表于 2026-9-7 18:40
+
+<blockquote>FACS 发表于 2026-9-7 18:05
+换了个手机号能订阅kimi了，有没有漏油知道99/199实际上有多少额度啊</blockquote>
+199 我订阅过 我只用 k3 周限好像一亿多 
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
