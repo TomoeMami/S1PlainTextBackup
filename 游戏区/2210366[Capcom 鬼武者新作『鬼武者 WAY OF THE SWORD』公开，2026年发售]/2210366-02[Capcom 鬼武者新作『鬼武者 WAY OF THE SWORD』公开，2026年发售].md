@@ -2788,3 +2788,29 @@ FF16很难翻啊
 
 <img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">最搞笑的不是明明被瘴气封锁搞成死域了，结果武藏做完任务京都人就好像从地底里爬出来一样活蹦乱跳的吗？
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 1747#       发表于 2026-9-7 12:19
+
+打完了，我的评价是长板更长底子更好逻辑更完善，但是短板更短的ff16，因为ff16我记得除了某个主线强制你得做完多少个支线外，可以完全不碰马桶因为毫无收益，但是鬼武者你不通马桶你哪来的升级素材和新御守<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  煌煌其烨  
+##### 1748#       发表于 2026-9-7 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214768&amp;ptid=2210366" target="_blank">shpdw 发表于 2026-9-7 11:00</a>
+其实这俩地方门口都有传送点，这几把美术把这地图的传送点搞得很不直观也是问题。我跑路总觉得自己漏了传 ...</blockquote>
+还有这设定？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI GLA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a3a4sc  
+##### 1749#       发表于 2026-9-7 12:25
+
+和上上作怪猎崛起联动了服装，我可以幻想一个崛起NS2补丁吗
+
