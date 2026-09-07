@@ -14376,3 +14376,28 @@ harness 本身这个功能是开源的 https://github.com/openai/codex/pull/4238
 
 比sol强不少，但是这额度使用太夸张了
 
+
+*****
+
+####  德尔惠净水器  
+##### 13160#       发表于 2026-9-7 17:16
+
+Hy4 preview 模型升级公告
+
+<img src="https://img.stage1st.com/forum/202609/07/171642um5dwmjddbec50db.png" referrerpolicy="no-referrer">
+
+<strong>mmexportde0528e6acf639de5a3e9872b5421f93_1788772588891.png</strong> (192.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-7 17:16 上传
+
+
+*****
+
+####  龙骑士尹志平  
+##### 13161#       发表于 2026-9-7 17:17
+
+每次牛批模型升级，s1就会沦为新模型武装爬虫的**，太惨了
+
