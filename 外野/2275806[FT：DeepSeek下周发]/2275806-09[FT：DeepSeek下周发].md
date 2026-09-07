@@ -14137,3 +14137,36 @@ astra实际上已经砍半额度了，可以让codex自己写脚本算。算下�
 我的需求用不了这么智能的模型时候，我认为他的性价比不如一些国模高</blockquote>
 gpt6即使是文字工作、各种编辑调研也是一哥，一遍出的性价比比国模反复试错还要人去纠错是高很多的
 
+
+*****
+
+####  重楼  
+##### 13152#       发表于 2026-9-7 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70213053&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-7 00:47</a>
+
+[features]
+
+context_management.experimental_mode = true</blockquote>
+harness 本身这个功能是开源的 [https://github.com/openai/codex/pull/42385](https://github.com/openai/codex/pull/42385)
+
+但肯定依赖openai 自己的llm
+
+*****
+
+####  neptunehs  
+##### 13153#       发表于 2026-9-7 12:44
+
+有人说装ripgrep能省token 真的吗
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  neptunehs  
+##### 13154#       发表于 2026-9-7 12:44
+
+有人说装ripgrep能省token 真的吗
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
