@@ -2225,3 +2225,27 @@ NS掌机只有500多P
 
 不过游戏设置里都没震动开关不知道是不是正式版也真的没手柄震动功能了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 218#       发表于 2026-9-7 11:32
+
+不过游戏设置里都没震动开关不知道是不是正式版也真的没手柄震动功能了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宛若青空  
+##### 218#       发表于 2026-9-7 11:32
+
+不过游戏设置里都没震动开关不知道是不是正式版也真的没手柄震动功能了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thez  
+##### 219#       发表于 2026-9-7 11:44
+
+去年的勇者斗恶龙HD2D有振动吗？
+

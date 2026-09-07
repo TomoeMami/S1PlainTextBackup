@@ -2734,3 +2734,15 @@ FF16很难翻啊
 弁庆我一遍就过了，没啥感觉。</blockquote>
 他让岩流收集人魂，宫本收集怪魂
 
+
+*****
+
+####  红魔馆的糖  
+##### 1742#       发表于 2026-9-7 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214667&amp;ptid=2210366" target="_blank">mai6696 发表于 2026-9-7 10:45</a>
+怒伐天会唐突粉光，还会吸魂快速强化，我死了两遍才过。
+
+弁庆我一遍就过了，没啥感觉。</blockquote>
+他让岩流收集人魂，宫本收集怪魂
+

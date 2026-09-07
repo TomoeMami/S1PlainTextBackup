@@ -4049,3 +4049,11 @@ ns2游戏卡收藏盒
 
 只看到砍翻了，万一没死呢
 
+
+*****
+
+####  ryj  
+##### 3337#       发表于 2026-9-7 11:45
+
+【火焰纹章 万紫千红 中文宣传曲《千丝之誓》】 [https://www.bilibili.com/video/B ... are_source=copy_web](https://www.bilibili.com/video/BV19BbW6vEdt/?share_source=copy_web)
+

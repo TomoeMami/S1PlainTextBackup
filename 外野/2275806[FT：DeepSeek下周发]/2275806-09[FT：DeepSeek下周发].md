@@ -14023,3 +14023,19 @@ o的api定价对比国模都不算特别高的那档，对比来说coding plan�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lactone  
+##### 13143#       发表于 2026-9-7 11:38
+
+ 本帖最后由 lactone 于 2026-9-7 11:40 编辑 
+
+字节不是说要搞一个10T大模型吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这个领域最大的特点就是追到第一很难但是到第一梯队不难
+
+meta谷歌xai落后几次，现在也能追上来
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
