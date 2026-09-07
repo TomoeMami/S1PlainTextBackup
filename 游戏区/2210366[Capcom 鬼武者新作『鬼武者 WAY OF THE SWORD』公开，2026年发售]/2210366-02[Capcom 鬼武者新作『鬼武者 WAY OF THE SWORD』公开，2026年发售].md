@@ -3154,3 +3154,15 @@ FF16很难翻啊
 只打主线，打完风雷双boss才只有一个御守，翻一下攻略原来有十五个御守，要通马桶获取，太**了<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 动作系统还是挺好玩的，希望这作大卖，续作可以把短板给补上    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  煌煌其烨  
+##### 1759#       发表于 2026-9-7 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214768&amp;ptid=2210366" target="_blank">shpdw 发表于 2026-9-7 11:00</a>
+其实这俩地方门口都有传送点，这几把美术把这地图的传送点搞得很不直观也是问题。我跑路总觉得自己漏了传 ...</blockquote>
+我这边打完弁庆去和静御前对话，她说弁庆和她一样是幽灵现身啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI GLA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
