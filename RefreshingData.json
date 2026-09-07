@@ -726,7 +726,7 @@
     "lastedit": 1788755880,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2034229": {
     "totalreply": 7103,
@@ -5613,7 +5613,7 @@
     "lastedit": 1788756000,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2125110": {
     "totalreply": 3831,
@@ -7466,7 +7466,7 @@
     "newtitle": "[少女前线2：追放 五号楼【群工会ID详见主楼】]",
     "lastedit": 1788497527,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2052383": {
@@ -8622,13 +8622,13 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 203522,
+    "totalreply": 203524,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1788755880,
+    "lastedit": 1788757157,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2185160": {
     "totalreply": 852,
@@ -12552,7 +12552,7 @@
     "lastedit": 1788755700,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2271402": {
     "totalreply": 8770,
@@ -12948,7 +12948,7 @@
     "lastedit": 1788756000,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2245675": {
     "totalreply": 735,
@@ -13083,7 +13083,7 @@
     "lastedit": 1788756300,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1992785": {
     "totalreply": 447,
@@ -13182,7 +13182,7 @@
     "lastedit": 1788756180,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2283074": {
     "totalreply": 2094,
@@ -13443,7 +13443,7 @@
     "lastedit": 1788755760,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284945": {
     "totalreply": 457,
@@ -16191,13 +16191,13 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 6516,
+    "totalreply": 6517,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1788755940,
+    "lastedit": 1788756567,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1907713": {
     "totalreply": 266,
@@ -17925,7 +17925,7 @@
     "lastedit": 1788755880,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284826": {
     "totalreply": 54,
@@ -18114,7 +18114,7 @@
     "lastedit": 1788755760,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2186670": {
     "totalreply": 439,
@@ -18267,7 +18267,7 @@
     "lastedit": 1788755760,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2289335": {
     "totalreply": 45,
