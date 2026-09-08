@@ -5613,7 +5613,7 @@
     "lastedit": 1788827400,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2125110": {
     "totalreply": 3831,
@@ -11453,7 +11453,7 @@
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
     "lastedit": 1788611649,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2175757": {
@@ -15708,7 +15708,7 @@
     "totalreply": 6625,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1788827050,
+    "lastedit": 1788870240,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16404,7 +16404,7 @@
     "lastedit": 1788828120,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2288965": {
     "totalreply": 43,
@@ -17439,7 +17439,7 @@
     "lastedit": 1788827820,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284826": {
     "totalreply": 54,
