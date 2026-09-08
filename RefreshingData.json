@@ -7871,7 +7871,7 @@
     "newtitle": "[【V17】虚拟YouTuber(vtuber)综合讨论楼]",
     "lastedit": 1788594365,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2136302": {
@@ -13823,15 +13823,6 @@
     "active": false,
     "update": false
   },
-  "2287656": {
-    "totalreply": 78,
-    "title": "[很不喜欢战斗系统花里胡哨的回合制RPG]",
-    "newtitle": "[很不喜欢战斗系统花里胡哨的回合制RPG]",
-    "lastedit": 1787643847,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
   "2287665": {
     "totalreply": 151,
     "title": "[影之刃零首周／首月销量多少？]",
@@ -14126,15 +14117,6 @@
     "newtitle": "[忍者棒球Bases Loaded]",
     "lastedit": 1787736846,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2288219": {
-    "totalreply": 139,
-    "title": "[金山居真是勃勃生机]",
-    "newtitle": "[金山居真是勃勃生机]",
-    "lastedit": 1787643605,
-    "category": "外野",
     "active": false,
     "update": false
   },
