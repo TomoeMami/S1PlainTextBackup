@@ -2759,7 +2759,7 @@
     "newtitle": "[魔法使之夜今年12月8日登录ps4／ns，全语音化 支持中文！｜23.12.14登录steam]",
     "lastedit": 1788586325,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2020657": {
@@ -14372,15 +14372,6 @@
     "active": false,
     "update": false
   },
-  "2288408": {
-    "totalreply": 101,
-    "title": "[刚才去看了2套房子，发现高层也有优势]",
-    "newtitle": "[刚才去看了2套房子，发现高层也有优势]",
-    "lastedit": 1787636166,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2288411": {
     "totalreply": 100,
     "title": "[看了今天的Hacker news，大破解和逆向时代来临了]",
@@ -14531,15 +14522,6 @@
     "newtitle": "[最近国内互联网进来好多印度人]",
     "lastedit": 1787733967,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2187742": {
-    "totalreply": 170,
-    "title": "[来个串游和云游戏讨论楼吧 — PC／主机串流、云游戏平台、串流设备等]",
-    "newtitle": "[来个串游和云游戏讨论楼吧 — PC／主机串流、云游戏平台、串流设备等]",
-    "lastedit": 1787636049,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -17150,7 +17132,7 @@
     "newtitle": "[联合国报告承认全球变暖将突破1.5℃阈值 《巴黎气候协定》接近失败]",
     "lastedit": 1788586448,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289147": {
