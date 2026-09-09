@@ -6945,7 +6945,7 @@
     "lastedit": 1788870540,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2163511": {
     "totalreply": 1142,
@@ -12945,10 +12945,10 @@
     "totalreply": 13175,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[]",
-    "lastedit": 1788870300,
+    "lastedit": 1788917160,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2245675": {
     "totalreply": 735,
@@ -14477,15 +14477,6 @@
     "newtitle": "[交大人工智能学院：AI领域，高校已被边缘化]",
     "lastedit": 1787816649,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2288481": {
-    "totalreply": 47,
-    "title": "[提醒一下，还有几天ns2就要涨价了]",
-    "newtitle": "[提醒一下，还有几天ns2就要涨价了]",
-    "lastedit": 1787719088,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
