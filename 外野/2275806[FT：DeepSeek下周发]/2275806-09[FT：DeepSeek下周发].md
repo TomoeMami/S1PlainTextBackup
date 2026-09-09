@@ -14865,3 +14865,99 @@ ds4.1-flash确实挺好用，速度快能力强，另外梁子明天要降价了
 
 用了半天ds4.1 flash，确实很好啊，速度太快了
 
+
+*****
+
+####  cscbzcbz  
+##### 13176#       发表于 2026-9-8 20:25
+
+泥潭终于好了
+泥潭挂了的这段时间，ds4.1-flash开了限时内测，据说能有400tok/s，能力好像也更强了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还没来得及测试
+
+*****
+
+####  狭义文具爱好者  
+##### 13177#       发表于 2026-9-9 09:26
+
+oai不出意外的官宣了千禧年ns问题解，前几天果然是空穴来风。另外这事果然还有场外，个人和公司的冲突，谁比谁干净呢，确实是oai能干出的事
+
+一键咩鳖素材+1，不过我没那么悲观就是了
+
+*****
+
+####  serj005  
+##### 13178#       发表于 2026-9-9 13:05
+
+关于dsh更新里的两个细节内容。
+一个是正在做electron,桌面端dsh快来了。
+另一个是有个关于动态system prompt依然能实现缓存命中的功能（需要模型支持才能开启），这个不知道是不是通过某个新架构模型实现的
+
+*****
+
+####  cscbzcbz  
+##### 13179#       发表于 2026-9-9 13:26
+
+ds4.1-flash确实挺好用，速度快能力强，另外梁子明天要降价了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 13180#       发表于 2026-9-9 16:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2035年  
+##### 13181#       发表于 2026-9-9 16:16
+
+用了半天ds4.1 flash，确实很好啊，速度太快了
+
+
+*****
+
+####  cscbzcbz  
+##### 13176#       发表于 2026-9-8 20:25
+
+泥潭终于好了
+泥潭挂了的这段时间，ds4.1-flash开了限时内测，据说能有400tok/s，能力好像也更强了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还没来得及测试
+
+*****
+
+####  狭义文具爱好者  
+##### 13177#       发表于 2026-9-9 09:26
+
+oai不出意外的官宣了千禧年ns问题解，前几天果然是空穴来风。另外这事果然还有场外，个人和公司的冲突，谁比谁干净呢，确实是oai能干出的事
+
+一键咩鳖素材+1，不过我没那么悲观就是了
+
+*****
+
+####  serj005  
+##### 13178#       发表于 2026-9-9 13:05
+
+关于dsh更新里的两个细节内容。
+一个是正在做electron,桌面端dsh快来了。
+另一个是有个关于动态system prompt依然能实现缓存命中的功能（需要模型支持才能开启），这个不知道是不是通过某个新架构模型实现的
+
+*****
+
+####  cscbzcbz  
+##### 13179#       发表于 2026-9-9 13:26
+
+ds4.1-flash确实挺好用，速度快能力强，另外梁子明天要降价了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 13180#       发表于 2026-9-9 16:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2035年  
+##### 13181#       发表于 2026-9-9 16:16
+
+用了半天ds4.1 flash，确实很好啊，速度太快了
+
