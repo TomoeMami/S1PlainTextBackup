@@ -6945,7 +6945,7 @@
     "lastedit": 1788870540,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2163511": {
     "totalreply": 1142,
@@ -13083,7 +13083,7 @@
     "lastedit": 1788931140,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1992785": {
     "totalreply": 447,
@@ -13182,7 +13182,7 @@
     "lastedit": 1788931620,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2283074": {
     "totalreply": 2094,
@@ -15585,7 +15585,7 @@
     "lastedit": 1788931200,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1907713": {
     "totalreply": 266,
@@ -17195,7 +17195,7 @@
     "newtitle": "[麒麟 2026 芯片晶体管密度暴涨 55%，华为何庭波更新韬定律论文]",
     "lastedit": 1788673091,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2287794": {
@@ -17456,7 +17456,7 @@
     "newtitle": "[EA《星球大战 绝地：幸存者》实机演示PV公开，2023.04.28发售]",
     "lastedit": 1788671893,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1116702": {
