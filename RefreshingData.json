@@ -12948,7 +12948,7 @@
     "lastedit": 1788917160,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2245675": {
     "totalreply": 735,
@@ -14453,15 +14453,6 @@
     "active": false,
     "update": false
   },
-  "2288495": {
-    "totalreply": 45,
-    "title": "[声称马来人会飞的教授被马来西亚大学解雇]",
-    "newtitle": "[声称马来人会飞的教授被马来西亚大学解雇]",
-    "lastedit": 1787720046,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2288428": {
     "totalreply": 48,
     "title": "[全新宝马纯电车iX3上市]",
@@ -15594,7 +15585,7 @@
     "lastedit": 1788870240,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1907713": {
     "totalreply": 266,
