@@ -4313,3 +4313,54 @@ ns2游戏卡收藏盒
 
 今天能预载了
 
+
+*****
+
+####  Edvinno  
+##### 3349#       发表于 2026-9-10 20:16
+
+等不及实体，还是先数字版爽一爽，实体看机会补吧<img src="https://static.stage1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Beaverfan01  
+##### 3350#       发表于 2026-9-10 20:18
+
+<img src="https://img.stage1st.com/forum/202609/10/201754gnxsssudku88vud6.jpg" referrerpolicy="no-referrer">
+
+<strong>6073.jpg</strong> (73.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-10 20:17 上传
+
+<img src="https://img.stage1st.com/forum/202609/10/201759fve0i7iv1mehvf2z.jpg" referrerpolicy="no-referrer">
+
+<strong>6075.jpg</strong> (187.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-10 20:17 上传
+
+
+*****
+
+####  蓮華  
+##### 3351#       发表于 2026-9-10 20:25
+
+<img src="https://img.stage1st.com/forum/202609/10/202509ckjkecakfa3skkxe.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5248.jpeg</strong> (261.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-10 20:25 上传
+
+<img src="https://img.stage1st.com/forum/202609/10/202509n02ul4b1gutd4ndl.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5249.jpeg</strong> (264.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-10 20:25 上传
+
