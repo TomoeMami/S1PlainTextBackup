@@ -12958,3 +12958,13 @@ PS5实体版可能还会有
 
 横滨，如龙不愧是男神异闻录<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 348#         楼主| 发表于 2026-9-10 19:55
+
+成就泄露
+
+https://www.exophase.com/game/persona-6-steam/achievements/
+

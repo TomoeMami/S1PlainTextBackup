@@ -15728,3 +15728,73 @@ mimox也开始内测了，不过考虑到梁子4.1和降价，感觉没什么用
 
 —— 来自 HUAWEI PLA-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ttoady  
+##### 13206#       发表于 2026-9-10 19:37
+
+有群吗，没大模型贴刷我人要死了<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gooyoy  
+##### 13207#       发表于 2026-9-10 19:37
+
+神无疑，滑动变祖器左满舵，震惊瘫座！好快啊啊啊啊啊，再也不想用蜗牛模型了。
+
+—— 来自 HUAWEI PLA-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  gooyoy  
+##### 13208#       发表于 2026-9-10 19:38
+
+劳动号子唱起来<img src="https://p.sda1.dev/35/3ffb9212c24283bbd8c76ed05da76265/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 德尔惠净水器 + 1欢乐多
+
+查看全部评分
+
+*****
+
+####  Sacross  
+##### 13209#       发表于 2026-9-10 19:47
+
+泥潭之前有反ai老哥老说ai会让互联网全部辣鸡化，现在看下来最大的问题怕不是活人站能不能从虫族入侵潮活下来了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  舞以  
+##### 13210#       发表于 2026-9-10 19:53
+
+我做了个 skill，让主 agent 用子代理干活之前先看时间，梁文峰就用 luna，梁文谷就用 v4.1f<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  LeoDT  
+##### 13211#       发表于 2026-9-10 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216411&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-10 19:53</a>
+
+我做了个 skill，让主 agent 用子代理干活之前先看时间，梁文峰就用 luna，梁文谷就用 v4.1f
+
+论坛助手,iPh ...</blockquote>
+直接做成Pi扩展了，luna还是嫌慢。
+
