@@ -15981,3 +15981,32 @@ dsh和v4.1f配合的新的动态system prompt缓存命中功能感觉还没办�
 
 虽然这个特性非常牛逼，但说实在也很难想出一个专门的动态system prompt应用场景。
 
+
+*****
+
+####  守名居  
+##### 13230#       发表于 2026-9-10 20:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这DS甲厚的也太离谱了
+
+*****
+
+####  needagf  
+##### 13231#       发表于 2026-9-10 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216688&amp;ptid=2275806" target="_blank">囧Smith 发表于 2026-9-10 20:39</a>
+
+S1 AI 小助手交流群956841615</blockquote>
+为啥群成员上线只有200，且已经满了
+
+
+*****
+
+####  囧Smith  
+##### 13232#       发表于 2026-9-10 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216775&amp;ptid=2275806" target="_blank">needagf 发表于 2026-9-10 20:49</a>
+
+为啥群成员上线只有200，且已经满了</blockquote>
+我也不是群主，我跟他说下
+
