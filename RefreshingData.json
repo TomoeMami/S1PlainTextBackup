@@ -11919,7 +11919,7 @@
     "totalreply": 11367,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 9.4 Persona3 Reload联动SS「月行水上」(本楼含YJWL动态交流)]",
-    "lastedit": 1789038419,
+    "lastedit": 1789039260,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12414,10 +12414,10 @@
     "totalreply": 796,
     "title": "[索尼playstation一号楼，港服四月一档会员免费游戏公布]",
     "newtitle": "[索尼playstation一号楼，港服四月一档会员免费游戏公布]",
-    "lastedit": 1788482766,
+    "lastedit": 1789040040,
     "category": "游戏区",
-    "active": false,
-    "update": false
+    "active": true,
+    "update": true
   },
   "2252759": {
     "totalreply": 2384,
@@ -12546,10 +12546,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 5169,
+    "totalreply": 5172,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1788791692,
+    "lastedit": 1789039942,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12897,10 +12897,10 @@
     "update": false
   },
   "2276704": {
-    "totalreply": 1820,
+    "totalreply": 1821,
     "title": "[【寂寞的车】车迷俱乐部（2026年3月汽车讨论专楼）]",
     "newtitle": "[【寂寞的车】车迷俱乐部（汽车讨论专楼）]",
-    "lastedit": 1789038960,
+    "lastedit": 1789039948,
     "category": "外野",
     "active": true,
     "update": false
@@ -12945,10 +12945,10 @@
     "totalreply": 13200,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[GPT-6 Astra 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1789035064,
+    "lastedit": 1789039980,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2245675": {
     "totalreply": 735,
@@ -13176,10 +13176,10 @@
     "update": false
   },
   "2282979": {
-    "totalreply": 4006,
+    "totalreply": 4012,
     "title": "[任天堂病 栋15楼，指到了！6.9晚十点新一期nd!]",
     "newtitle": "[任天堂病 栋15楼，9.8 塞尔达 nd，9.9 秋直二连爽看！]",
-    "lastedit": 1789038540,
+    "lastedit": 1789039947,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13755,10 +13755,10 @@
     "totalreply": 227,
     "title": "[有没有更多的蓝色大肥鱼]",
     "newtitle": "[有没有更多的蓝色大肥鱼]",
-    "lastedit": 1788775567,
+    "lastedit": 1789039440,
     "category": "外野",
-    "active": false,
-    "update": false
+    "active": true,
+    "update": true
   },
   "2200798": {
     "totalreply": 445,
@@ -13874,15 +13874,6 @@
     "newtitle": "[【大改+发金条】坦克世界2.0这诚意算是拉满了，还能回第二春吗]",
     "lastedit": 1788407527,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2288008": {
-    "totalreply": 222,
-    "title": "[笑死，女性扔瓶子没事，男性泼水被抓]",
-    "newtitle": "[笑死，女性扔充电宝没事，男性泼水被抓]",
-    "lastedit": 1787830205,
-    "category": "手游战斗",
     "active": false,
     "update": false
   },
@@ -14784,7 +14775,7 @@
     "lastedit": 1789039200,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2283071": {
     "totalreply": 154,
@@ -15075,10 +15066,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 6662,
+    "totalreply": 6670,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1789039380,
+    "lastedit": 1789040220,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": true
@@ -17277,6 +17268,15 @@
     "lastedit": 1789038420,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
+  },
+  "2287272": {
+    "totalreply": 0,
+    "title": "[再战三哥，米家（Mijia）品牌官宣落地印度]",
+    "newtitle": "[再战三哥，米家（Mijia）品牌官宣落地印度]",
+    "lastedit": 1789039140,
+    "category": "外野",
+    "active": true,
+    "update": true
   }
 }
