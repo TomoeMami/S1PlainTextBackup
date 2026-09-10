@@ -25,3 +25,12 @@
 成就也泄露了 前四个时代每时代3关 神室町就2关
 以及确实不是如龙 因为没有亚门
 
+
+*****
+
+####  Piano-Forest  
+##### 276#         楼主| 发表于 2026-9-10 22:24
+
+成就泄露
+[https://www.exophase.com/game/st ... steam/achievements/](https://www.exophase.com/game/stranger-than-heaven-steam/achievements/)
+
