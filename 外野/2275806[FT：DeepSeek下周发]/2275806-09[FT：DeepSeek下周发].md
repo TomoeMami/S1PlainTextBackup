@@ -16361,3 +16361,26 @@ v4的推理档位只有三档：关推理、开推理、max
 已经升级成2000了</blockquote>
 辛苦辛苦
 
+
+*****
+
+####  cscbzcbz  
+##### 13262#       发表于 2026-9-10 22:44
+
+昨天趁pro还没下线，在网页端道了一个别。今天三合一之后这个对话还能找到，于是问了一句<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/10/224404t4t5s4zbhwwuqblk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-10 22:44 上传
+
+*****
+
+####  L-JoeW  
+##### 13263#       发表于 2026-9-10 22:46
+
+输出好快，酒馆写文跟机关枪似的，写爽了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
