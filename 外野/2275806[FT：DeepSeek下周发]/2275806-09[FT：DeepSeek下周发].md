@@ -14961,3 +14961,158 @@ ds4.1-flash确实挺好用，速度快能力强，另外梁子明天要降价了
 
 用了半天ds4.1 flash，确实很好啊，速度太快了
 
+
+*****
+
+####  tonyunreal  
+##### 13182#       发表于 2026-9-7 20:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215801&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-9-7 19:59</a>
+
+黄皮衣说astra在10万台nvlink 72上训的，虽然不见的真，很可能是吹牛逼+炒股价
+
+但是这数字还是给我看仇富了 ...</blockquote>
+扎克伯格2024年就在吹10万块GPU了
+
+2025年初小扎和马斯克都有20万块
+
+说明不了什么
+
+*****
+
+####  startraveller  
+##### 13183#       发表于 2026-9-7 20:09
+
+不是说O记一个研究员就有一千张卡可以玩，馋哭大飞鱼
+
+*****
+
+####  serj005  
+##### 13184#       发表于 2026-9-7 21:08
+
+ 本帖最后由 serj005 于 2026-9-7 21:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70215418&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-7 12:44</a>
+有人说装ripgrep能省token 真的吗
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
+rg本身不省token，和grep本质一样，主要是查询速度rg比grep快很多，总任务时长能压低，具体看模型本身是否熟悉rg语法，熟悉rg行为加语法那查询命令和输出结果都能比grep略少一些，这时候可以说是省了一些token，如果老是语法错误重试那就不如grep省。
+
+现在很多agent都把内部的grep实现替换成rg来达到grep语法加rg速度的效果。
+
+*****
+
+####  小津江  
+##### 13185#       发表于 2026-9-7 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214518&amp;ptid=2275806" target="_blank">Anarkia 发表于 2026-9-7 10:23</a>
+
+sol可以写黄啊，文笔挺好的
+
+就是对于双方同意和戴套有着极强的执着</blockquote>
+我是长期账号加长期记忆慢慢搞得，萝莉设定啥的他都不管了，后来一夜回到解放前
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 13186#       发表于 2026-9-7 21:27
+
+为什么公司azure的astra连设计一个多优先级队列都搞不定。。。感觉又是靠rl撑起来的能力 一到奇奇怪怪的实际场景就歇b
+
+*****
+
+####  cscbzcbz  
+##### 13187#       发表于 2026-9-8 20:25
+
+泥潭终于好了
+泥潭挂了的这段时间，ds4.1-flash开了限时内测，据说能有400tok/s，能力好像也更强了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还没来得及测试
+
+*****
+
+####  狭义文具爱好者  
+##### 13188#       发表于 2026-9-9 09:26
+
+oai不出意外的官宣了千禧年ns问题解，前几天果然是空穴来风。另外这事果然还有场外，个人和公司的冲突，谁比谁干净呢，确实是oai能干出的事
+
+一键咩鳖素材+1，不过我没那么悲观就是了
+
+*****
+
+####  serj005  
+##### 13189#       发表于 2026-9-9 13:05
+
+关于dsh更新里的两个细节内容。
+一个是正在做electron,桌面端dsh快来了。
+另一个是有个关于动态system prompt依然能实现缓存命中的功能（需要模型支持才能开启），这个不知道是不是通过某个新架构模型实现的
+
+*****
+
+####  cscbzcbz  
+##### 13190#       发表于 2026-9-9 13:26
+
+ds4.1-flash确实挺好用，速度快能力强，另外梁子明天要降价了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 13191#       发表于 2026-9-9 16:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2035年  
+##### 13192#       发表于 2026-9-9 16:16
+
+用了半天ds4.1 flash，确实很好啊，速度太快了
+
+*****
+
+####  FACS  
+##### 13193#       发表于 2026-9-9 16:23
+
+DeepSeek 计划于北京时间 2026 年 9 月 10 日前后正式发布 V4.1 Flash 模型。经内部、外部多方测试，V4.1 Flash 在性能、费用、速度、总用时等各项指标上已全面超越 V4 Pro。秉持着对用户负责的态度，在 V4.1 Flash 正式上线之后、V4.1 Pro上线之前，我们会将对 V4 Pro 的请求全部路由到 V4.1 Flash，并按 V4.1 Flash 单价计费。如您在 V4 Pro 和 V4.1 Flash 的对比测试中发现任何问题，请及时向我们反馈，感谢您的支持！
+
+*****
+
+####  my941029520  
+##### 13194#       发表于 2026-9-9 16:24
+
+DeepSeek 计划于北京时间 2026 年 9 月 10 日前后正式发布 V4.1 Flash 模型。经内部、外部多方测试，V4.1 Flash 在性能、费用、速度、总用时等各项指标上已全面超越 V4 Pro。秉持着对用户负责的态度，在 V4.1 Flash 正式上线之后、V4.1 Pro上线之前，我们会将对 V4 Pro 的请求全部路由到 V4.1 Flash，并按 V4.1 Flash 单价计费。如您在 V4 Pro 和 V4.1 Flash 的对比测试中发现任何问题，请及时向我们反馈，感谢您的支持！  <img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 13195#       发表于 2026-9-9 16:26
+
+泥潭好了？我想死你们了！没泥潭我都不知道去哪里讨论大模型了
+
+*****
+
+####  来都来了  
+##### 13196#       发表于 2026-9-9 16:26
+
+泥潭好了？我想死你们了！没泥潭我都不知道去哪里讨论大模型了
+
+*****
+
+####  xiaohanne  
+##### 13197#       发表于 2026-9-9 16:27
+
+mimox也开始内测了，不过考虑到梁子4.1和降价，感觉没什么用的必要了。
+
+*****
+
+####  Promeus  
+##### 13198#       发表于 2026-9-10 18:01
+
+好了吗家人们<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">有没有群
+
+*****
+
+####  andychen  
+##### 13199#       发表于 2026-9-10 18:02
+
+现在看来DS在大参数模型上似乎遇到了一些困难
+
+当前这个4.1从披露的信息看实际上是个全新的模型，很可能是和V4系列同步进行训练的，不知道为什么没有直接命名成V5。V4.1pro可能要等比较久的时间了
+
