@@ -34,3 +34,13 @@
 成就泄露
 [https://www.exophase.com/game/st ... steam/achievements/](https://www.exophase.com/game/stranger-than-heaven-steam/achievements/)
 
+
+*****
+
+####  ziyuan327  
+##### 277#       发表于 2026-9-10 23:00
+
+看了那个战斗演示，这不纯搞笑嘛。
+
+如果还是如龙那种，走街上几步一群小怪的话，这战斗节奏不把人给玩睡着？
+
