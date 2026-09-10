@@ -16234,3 +16234,32 @@ ds的技术报告里专门提了嘴reasoning effort，v4.1f的这个参数好像
 
 这意味着不止有flash和pro，或者flash和pro之间还有一档。
 
+
+*****
+
+####  novem  
+##### 13254#       发表于 2026-9-10 21:35
+
+S1关门期间错过的大新闻太多了。。
+
+*****
+
+####  BarricadeMKXX  
+##### 13255#       发表于 2026-9-10 21:36
+
+下了个omp感觉比opencode复杂多了有点用不来（草）
+
+*****
+
+####  舞以  
+##### 13256#       发表于 2026-9-10 21:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我之前一直在用high，其实没感觉多有雷霆思考
+
+*****
+
+####  cscbzcbz  
+##### 13257#       发表于 2026-9-10 21:39
+
+体感也是high比max更舒服一些
+
