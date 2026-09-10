@@ -16384,3 +16384,19 @@ v4的推理档位只有三档：关推理、开推理、max
 
 输出好快，酒馆写文跟机关枪似的，写爽了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 13264#       发表于 2026-9-11 00:04
+
+nyt拜访openai，openai说自己在另一个千禧年问题中获得了实质性进展
+
+可能是hodge
+
+然后几次加码，变成实锤已经解决<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+感觉这两天ai4s这边都快疯了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
