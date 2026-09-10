@@ -15835,3 +15835,29 @@ mimox也开始内测了，不过考虑到梁子4.1和降价，感觉没什么用
 
 用4.1改个excel和ppt，依旧一坨<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没有任何审美可言，快是真的快
 
+
+*****
+
+####  cscbzcbz  
+##### 13214#       发表于 2026-9-10 20:10
+
+我现在就用K3主agent，4.1flash子agent，爽<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  neptunehs  
+##### 13215#       发表于 2026-9-10 20:15
+
+就算再便宜一晚上也要10大洋左右
+有没有黄金时代那样的近乎无限蹬套餐呢。。。
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  needagf  
+##### 13216#       发表于 2026-9-10 20:17
+
+老话重谈了，这么高的楼真的没有个群么，泥潭挂的时候，一整天都好难受。
+
