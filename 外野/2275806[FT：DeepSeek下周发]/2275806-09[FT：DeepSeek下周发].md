@@ -16126,3 +16126,69 @@ qin-shihuang-polar-bear.html
 4.1f快是快，降价了也是真的便宜，平时编程挺好，唯一的问题就是对玩瑟瑟完全不友好，那出的文本是人吗，无 ...</blockquote>
 这小参数还要代码能力好那后训练已经被腌入味儿了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  →熙←  
+##### 13243#       发表于 2026-9-10 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216979&amp;ptid=2275806" target="_blank">坛子漆黑 发表于 2026-9-10 21:13</a>
+
+4.1f快是快，降价了也是真的便宜，平时编程挺好，唯一的问题就是对玩瑟瑟完全不友好，那出的文本是人吗，无 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">让他跑设定很猛的吧, 色图也直接丢过去, 来者不拒,让他分析图片, 写个计划, 正文让其他ai写
+
+*****
+
+####  舞以  
+##### 13244#       发表于 2026-9-10 21:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能说期待梁子的新 pro 有活了，flash 真是好活吧
+别 jb 真成了谷谷哥哥了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 13245#       发表于 2026-9-10 21:20
+
+就看4.1pro的了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+kimi3.1强还是ds4.1pro强，决定了后续ds4.1flash以后给谁打工<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 13246#       发表于 2026-9-10 21:20
+
+别让它自己发挥是真的好用，自己发挥立刻神鬼二象性，观察下来主要是发散以后能力不够不一定收回来，收回来就神收不回来就区……
+
+*****
+
+####  phorcys02  
+##### 13247#       发表于 2026-9-10 21:20
+
+v4.1-flash 肯定算神呀。
+
+我有一个长线任务一直在跑，复杂度挺高的一大堆问题，有测试用例。
+
+最近都是领鸡蛋，glm5.3flash 半夜的免费token,zcode挂上跑一下。
+
+今天降价后的梁文谷时间一直在跑，v4.1flash 解决问题的速度是 glm5.3-flash的5-10倍，废话更少雷霆思考更少解决速度也更快.
+
+*****
+
+####  M乔梦  
+##### 13248#       发表于 2026-9-10 21:22
+
+4.1f写涩涩思路非常牛，但是落实到文字细节简直无法阅读<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 13249#       发表于 2026-9-10 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70217007&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-9-10 21:17</a>
+
+这小参数还要代码能力好那后训练已经被腌入味儿了</blockquote>
+其实不小 550b+200b的Engram, 就是没给写文的后训练
+
