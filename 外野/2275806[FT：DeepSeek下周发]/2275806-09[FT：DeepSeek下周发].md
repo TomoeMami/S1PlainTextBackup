@@ -16416,3 +16416,26 @@ nyt拜访openai，openai说自己在另一个千禧年问题中获得了实质�
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  tonyunreal  
+##### 13265#       发表于 2026-9-11 00:22
+
+Arena免费提供gpt-image-2.5 72小时，在Direct Mode里
+
+*****
+
+####  来都来了  
+##### 13266#       发表于 2026-9-11 00:28
+
+<img src="https://img.stage1st.com/forum/202609/11/002654evqnc7341nbrqrvb.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-09-09 013858.png</strong> (19.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 00:26 上传
+
+用4.1的时候千万要小心，搞不好就会陷入这种思维循环中，再配合每秒 400 token 的速度，就看见狂刷屏，刷刷地花钱。我昨天遇到了一次，还好看他半天没动，及时点开思维链，给他停下了。在网上看到有人把100多块钱给刷没了，然后屁都没输出<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
