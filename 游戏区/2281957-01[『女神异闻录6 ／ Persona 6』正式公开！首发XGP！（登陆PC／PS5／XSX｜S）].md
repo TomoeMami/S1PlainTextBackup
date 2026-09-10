@@ -12950,3 +12950,11 @@ PS5实体版可能还会有
 
 成就都泄露了 主角团叫hex 舞台在横滨
 
+
+*****
+
+####  猪突猛进R  
+##### 347#       发表于 2026-9-10 18:59
+
+横滨，如龙不愧是男神异闻录<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
