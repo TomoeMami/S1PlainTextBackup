@@ -15861,3 +15861,51 @@ mimox也开始内测了，不过考虑到梁子4.1和降价，感觉没什么用
 
 老话重谈了，这么高的楼真的没有个群么，泥潭挂的时候，一整天都好难受。
 
+
+*****
+
+####  nxmonitor  
+##### 13217#       发表于 2026-9-10 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216500&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-10 20:15</a>
+
+就算再便宜一晚上也要10大洋左右
+
+有没有黄金时代那样的近乎无限蹬套餐呢。。。</blockquote>
+那可能就是TPS太高导致的错觉……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kitano  
+##### 13218#       发表于 2026-9-10 20:24
+
+v4.1的思考链现在在极简模式下只会let me，原本用于锚定极简模式的anchored-standard也冻结了，那v4.1下漏油还观察到雷霆大思考吗？
+
+—— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  桂圆莲子  
+##### 13219#       发表于 2026-9-10 20:27
+
+<blockquote>heemoon 发表于 2026-9-10 20:03
+用4.1改个excel和ppt，依旧一坨没有任何审美可言，快是真的快</blockquote>
+上个skill会好很多，我觉得对代码工程来说harness是优秀解法，对日常工作文件来说skill是优秀解法，比如拿ppt来说，可以拿优秀ppt素材提炼优化ppt skill，做出来的ppt能感觉出来明显的不同。
+
+
+*****
+
+####  七氷  
+##### 13220#       发表于 2026-9-10 20:30
+
+我k3老是喜欢自己干，用Astra就会频繁调子代理，同一套环境<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 13221#       发表于 2026-9-10 20:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216623&amp;ptid=2275806" target="_blank">七氷 发表于 2026-9-10 20:30</a>
+我k3老是喜欢自己干，用Astra就会频繁调子代理，同一套环境</blockquote>
+需要用提示词约束
+
