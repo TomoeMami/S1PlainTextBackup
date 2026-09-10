@@ -6168,7 +6168,7 @@
     "totalreply": 2891,
     "title": "[国产安卓掌机奥丁2的u公布了，居然是8g2]",
     "newtitle": "[（转掌机讨论楼）国产安卓掌机奥丁3的u公布了，居然不是8e？]",
-    "lastedit": 1789052419,
+    "lastedit": 1789053480,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -6543,12 +6543,12 @@
     "update": false
   },
   "2089646": {
-    "totalreply": 2848,
+    "totalreply": 2849,
     "title": "[药屋少女的呢喃 TV动画化 2023年10月]",
     "newtitle": "[药屋少女的呢喃 TV动画化 2023年10月 剧透请反白]",
-    "lastedit": 1788571205,
+    "lastedit": 1789054095,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2082084": {
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 20140,
+    "totalreply": 20141,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼7月]",
-    "lastedit": 1789051726,
+    "lastedit": 1789053621,
     "category": "外野",
     "active": true,
     "update": false
@@ -12411,10 +12411,10 @@
     "update": false
   },
   "2173605": {
-    "totalreply": 798,
+    "totalreply": 799,
     "title": "[索尼playstation一号楼，港服四月一档会员免费游戏公布]",
     "newtitle": "[索尼playstation一号楼，港服四月一档会员免费游戏公布]",
-    "lastedit": 1789052904,
+    "lastedit": 1789053621,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13176,10 +13176,10 @@
     "update": false
   },
   "2282979": {
-    "totalreply": 4067,
+    "totalreply": 4070,
     "title": "[任天堂病 栋15楼，指到了！6.9晚十点新一期nd!]",
     "newtitle": "[任天堂病 栋15楼，9.8 塞尔达 nd，9.9 秋直二连爽看！]",
-    "lastedit": 1789050753,
+    "lastedit": 1789053799,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14742,10 +14742,10 @@
     "update": false
   },
   "2170377": {
-    "totalreply": 148,
+    "totalreply": 149,
     "title": "[小岛工作室 × 索尼 次世代谍报动作游戏《PHYSINT》公开！]",
     "newtitle": "[小岛工作室 × XBOX 次世代谍报动作游戏《PHYSINT》公开！]",
-    "lastedit": 1789053260,
+    "lastedit": 1789054096,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15039,10 +15039,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 7071,
+    "totalreply": 7101,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1789053134,
+    "lastedit": 1789054096,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16614,10 +16614,10 @@
     "update": false
   },
   "2262918": {
-    "totalreply": 113,
+    "totalreply": 119,
     "title": "[漫威金刚狼pv公开，确认2026／9／15发售]",
     "newtitle": "[漫威金刚狼pv公开，确认2026／9／15发售]",
-    "lastedit": 1789052940,
+    "lastedit": 1789054096,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17222,7 +17222,7 @@
     "newtitle": "[流行之神1-汉化发布（PSPChina汉化组×Shikeyu)]",
     "lastedit": 1788794357,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2281957": {
@@ -17321,6 +17321,15 @@
     "newtitle": "[《卧龙2：凤火连天》公开，2027年初全平台发售，首发XGP]",
     "lastedit": 1789052070,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2258707": {
+    "totalreply": 108,
+    "title": "[我听交警的]",
+    "newtitle": "[我听交警的]",
+    "lastedit": 1789054113,
+    "category": "手游战斗",
     "active": true,
     "update": false
   }
