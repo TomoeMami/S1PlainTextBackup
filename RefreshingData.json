@@ -2525,7 +2525,7 @@
     "newtitle": "[富坚义博 开设官推『全职猎人 ／ HUNTER×HUNTER』421话起休刊]",
     "lastedit": 1788776779,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1859334": {
@@ -13176,13 +13176,13 @@
     "update": false
   },
   "2282979": {
-    "totalreply": 3994,
+    "totalreply": 4000,
     "title": "[任天堂病 栋15楼，指到了！6.9晚十点新一期nd!]",
     "newtitle": "[任天堂病 栋15楼，9.8 塞尔达 nd，9.9 秋直二连爽看！]",
-    "lastedit": 1789035840,
+    "lastedit": 1789036500,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2283074": {
     "totalreply": 2094,
@@ -14106,7 +14106,7 @@
     "totalreply": 390,
     "title": "[《沙加 Emerald Beyond》公开，24年4月25日发售／中文官宣25.10.2发售]",
     "newtitle": "[《沙加 Emerald Beyond》公开，24年4月25日发售／中文官宣25.10.2发售]",
-    "lastedit": 1788795079,
+    "lastedit": 1789035900,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15102,13 +15102,13 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 6643,
+    "totalreply": 6648,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1789035900,
+    "lastedit": 1789036494,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1907713": {
     "totalreply": 266,
@@ -17295,6 +17295,6 @@
     "lastedit": 1789035060,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   }
 }
