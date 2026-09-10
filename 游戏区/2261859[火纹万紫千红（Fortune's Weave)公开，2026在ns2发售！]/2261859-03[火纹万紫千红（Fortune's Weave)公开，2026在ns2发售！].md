@@ -4499,3 +4499,13 @@ ns2游戏卡收藏盒
 
 刷刷刷的dlc。。苦等这个
 
+
+*****
+
+####  墨染白泉  
+##### 3356#       发表于 2026-9-10 22:55
+
+<blockquote>蓮華 发表于 2026-9-10 20:25
+</blockquote>
+凯伊5年后长成火纹正统蓝毛王子了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
