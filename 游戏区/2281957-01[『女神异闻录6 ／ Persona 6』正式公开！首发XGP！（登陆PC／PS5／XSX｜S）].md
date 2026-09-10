@@ -12978,3 +12978,11 @@ https://www.exophase.com/game/persona-6-steam/achievements/
 
 https://www.exophase.com/game/persona-6-steam/achievements/
 
+
+*****
+
+####  黑修士  
+##### 349#       发表于 2026-9-10 20:39
+
+明年初有P4R，如果P6也是明年，一年能玩两个P系列正作也不错
+

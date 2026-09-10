@@ -15909,3 +15909,75 @@ v4.1的思考链现在在极简模式下只会let me，原本用于锚定极简�
 我k3老是喜欢自己干，用Astra就会频繁调子代理，同一套环境</blockquote>
 需要用提示词约束
 
+
+*****
+
+####  Azcarlo  
+##### 13222#       发表于 2026-9-10 20:36
+
+4.1F 没有区但是也没有神
+
+虽然有视觉了但是审美和前端依旧一坨
+
+没有提示词约束依旧雷霆大思考
+
+挺适合做子代理模型，而且很快
+
+*****
+
+####  chronicle  
+##### 13223#       发表于 2026-9-10 20:38
+
+mimox目前漏出情况很迷，自家的客户端看起来很区，zcode调用api又不错，不过有一点是惊喜，支持文生图，而且文字没问题
+
+*****
+
+####  qz66618  
+##### 13224#       发表于 2026-9-10 20:39
+
+等4.1pro吧，这个新架构应该不会再出现4pro的情况了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 13225#       发表于 2026-9-10 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216623&amp;ptid=2275806" target="_blank">七氷 发表于 2026-9-10 20:30</a>
+我k3老是喜欢自己干，用Astra就会频繁调子代理，同一套环境</blockquote>
+我同一套环境也是 ds喜欢自己干 （自称）sol5.6跟muse spark就很喜欢开子进程。后者甚至我要求改ini描述他也给我开了子进程。。。虽然我开着trellis
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  囧Smith  
+##### 13226#       发表于 2026-9-10 20:39
+
+S1 AI 小助手交流群956841615
+
+*****
+
+####  王兰花秀丽  
+##### 13227#       发表于 2026-9-10 20:39
+
+mimo那个桌面端光看卖相比dsh强多了，不过dsh更新也是真的快    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  hugosol  
+##### 13228#       发表于 2026-9-10 20:41
+
+体感4.1 token烧得比v4dsfv快，但是现在也没得选了
+
+虽然benchmark分数很高但是我暂时感受不出很以前比有什么不一样（dsv4pro分数也很高嘛），当然astra我也感受不出有啥不一样，可能聪明一点吧但聪明程度有限<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 13229#       发表于 2026-9-10 20:43
+
+dsh和v4.1f配合的新的动态system prompt缓存命中功能感觉还没办法用上，自身模式里面没有这个特性的用武之地，要二次开发才能用出来。
+
+虽然这个特性非常牛逼，但说实在也很难想出一个专门的动态system prompt应用场景。
+

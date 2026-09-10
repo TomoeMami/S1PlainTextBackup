@@ -3186,3 +3186,16 @@ FF16很难翻啊
 —— 来自 HUAWEI GLA-AL00, Android 12 ...</blockquote>
 打弁庆之前和静御前还是和谁路上说的，而且你打过之后再去那个大桥上拿的幻魔杂记上面也有写。
 
+
+*****
+
+####  dotiaffy  
+##### 1762#       发表于 2026-9-10 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70212429&amp;ptid=2210366" target="_blank">Goumian_33 发表于 2026-9-6 22:49</a>
+
+还行吧。
+
+实在不敢判断那就看直播两个小时，如果没想自己上手那就算了</blockquote>
+demo玩了感觉还可以
+
