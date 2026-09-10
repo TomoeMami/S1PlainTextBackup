@@ -16277,3 +16277,87 @@ v4的推理档位只有三档：关推理、开推理、max
 
 现在应该是服务端做了low-&gt;50，high-&gt;75，max-&gt;100的映射。
 
+
+*****
+
+####  孟沁瑶  
+##### 13259#       发表于 2026-9-10 21:55
+
+有人知道qwen平台的deepseek是直接中转的吗？我用qwen的v4p也会直接升级到v4.1f吗？
+
+*****
+
+####  BarricadeMKXX  
+##### 13260#       发表于 2026-9-10 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70217440&amp;ptid=2275806" target="_blank">孟沁瑶 发表于 2026-9-10 21:55</a>
+
+有人知道qwen平台的deepseek是直接中转的吗？我用qwen的v4p也会直接升级到v4.1f吗？ ...</blockquote>
+官方v4p要等14号才正式路由，现在写v4p的应该都还是v4p
+
+*****
+
+####  needagf  
+##### 13261#       发表于 2026-9-10 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216894&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-9-10 21:05</a>
+
+已经升级成2000了</blockquote>
+辛苦辛苦
+
+
+*****
+
+####  孟沁瑶  
+##### 13259#       发表于 2026-9-10 21:55
+
+有人知道qwen平台的deepseek是直接中转的吗？我用qwen的v4p也会直接升级到v4.1f吗？
+
+*****
+
+####  BarricadeMKXX  
+##### 13260#       发表于 2026-9-10 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70217440&amp;ptid=2275806" target="_blank">孟沁瑶 发表于 2026-9-10 21:55</a>
+
+有人知道qwen平台的deepseek是直接中转的吗？我用qwen的v4p也会直接升级到v4.1f吗？ ...</blockquote>
+官方v4p要等14号才正式路由，现在写v4p的应该都还是v4p
+
+*****
+
+####  needagf  
+##### 13261#       发表于 2026-9-10 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216894&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-9-10 21:05</a>
+
+已经升级成2000了</blockquote>
+辛苦辛苦
+
+
+*****
+
+####  孟沁瑶  
+##### 13259#       发表于 2026-9-10 21:55
+
+有人知道qwen平台的deepseek是直接中转的吗？我用qwen的v4p也会直接升级到v4.1f吗？
+
+*****
+
+####  BarricadeMKXX  
+##### 13260#       发表于 2026-9-10 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70217440&amp;ptid=2275806" target="_blank">孟沁瑶 发表于 2026-9-10 21:55</a>
+
+有人知道qwen平台的deepseek是直接中转的吗？我用qwen的v4p也会直接升级到v4.1f吗？ ...</blockquote>
+官方v4p要等14号才正式路由，现在写v4p的应该都还是v4p
+
+*****
+
+####  needagf  
+##### 13261#       发表于 2026-9-10 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216894&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-9-10 21:05</a>
+
+已经升级成2000了</blockquote>
+辛苦辛苦
+
