@@ -16010,3 +16010,71 @@ S1 AI 小助手交流群956841615</blockquote>
 为啥群成员上线只有200，且已经满了</blockquote>
 我也不是群主，我跟他说下
 
+
+*****
+
+####  猫不理prime  
+##### 13233#       发表于 2026-9-10 20:58
+
+让4.1 flash跑了个秦始皇骑北极熊
+
+<img src="https://img.stage1st.com/forum/202609/10/205821b86f9wbf6rwaz9wa.png" referrerpolicy="no-referrer">
+
+<strong>5b8271aaa7cc6ae56a4f6d15de169ee7.png</strong> (1.82 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-10 20:58 上传
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/html.gif" referrerpolicy="no-referrer">
+
+qin-shihuang-polar-bear.html
+(24.4 KB, 下载次数: 0)
+
+2026-9-10 20:53 上传
+
+点击文件名下载附件
+
+；
+
+提示词：创建一个HTML，内容是：SVG绘制一个秦始皇骑北极熊的2D动画，不要做任何测试。
+
+*****
+
+####  AraTurambar  
+##### 13234#       发表于 2026-9-10 20:59
+
+用Astra清理claudish立竿见影。
+
+而且Claude给的额度是不是都太少了。OAI和xAI都多得多啊。
+
+
+*****
+
+####  heemoon  
+##### 13235#       发表于 2026-9-10 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216604&amp;ptid=2275806" target="_blank">桂圆莲子 发表于 2026-9-10 20:27</a>
+上个skill会好很多，我觉得对代码工程来说harness是优秀解法，对日常工作文件来说skill是优秀解法，比如 ...</blockquote>
+具体是怎么炼化的能指导一下么<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+我是直接扔个ppt让他抄，但抄也抄得不像<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windhawind2  
+##### 13236#       发表于 2026-9-10 21:02
+
+最近dsh跑个调研让我破防了
+
+一个有盐酸和硫酸的处方 它非得嘴硬说盐酸和硫酸作用不同 我天…这种科研常识要怎么训练
+
+*****
+
+####  80后卢瑟  
+##### 13237#       发表于 2026-9-10 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216775&amp;ptid=2275806" target="_blank">needagf 发表于 2026-9-10 20:49</a>
+
+为啥群成员上线只有200，且已经满了</blockquote>
+已经升级成2000了
+
