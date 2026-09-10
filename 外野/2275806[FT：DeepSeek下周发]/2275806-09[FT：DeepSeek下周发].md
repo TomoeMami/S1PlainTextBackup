@@ -16577,3 +16577,11 @@ ai4s 瞄准的是每年 3-4万亿美元的直接经费，和11万亿美元的间
 
 所以未来一段时间，只会看到O/和A/更加疯狂的鼓吹AI4S
 
+
+*****
+
+####  奈落的孤火花  
+##### 13268#       发表于 2026-9-11 07:43
+
+a\又开始说alibaba moonshot deepseek蒸馏了.......信誓旦旦地说moonshot deepseek用户的请求被转发到a\这边<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
