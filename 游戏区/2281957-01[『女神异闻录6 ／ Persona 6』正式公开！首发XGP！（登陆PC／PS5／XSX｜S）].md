@@ -12968,3 +12968,13 @@ PS5实体版可能还会有
 
 https://www.exophase.com/game/persona-6-steam/achievements/
 
+
+*****
+
+####  Piano-Forest  
+##### 348#         楼主| 发表于 2026-9-10 19:55
+
+成就泄露
+
+https://www.exophase.com/game/persona-6-steam/achievements/
+

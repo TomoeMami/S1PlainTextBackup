@@ -15798,3 +15798,40 @@ mimox也开始内测了，不过考虑到梁子4.1和降价，感觉没什么用
 论坛助手,iPh ...</blockquote>
 直接做成Pi扩展了，luna还是嫌慢。
 
+
+*****
+
+####  舞以  
+##### 13210#       发表于 2026-9-10 19:53
+
+我做了个 skill，让主 agent 用子代理干活之前先看时间，梁文峰就用 luna，梁文谷就用 v4.1f<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  LeoDT  
+##### 13211#       发表于 2026-9-10 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216411&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-10 19:53</a>
+
+我做了个 skill，让主 agent 用子代理干活之前先看时间，梁文峰就用 luna，梁文谷就用 v4.1f
+
+论坛助手,iPh ...</blockquote>
+直接做成Pi扩展了，luna还是嫌慢。
+
+
+*****
+
+####  nxmonitor  
+##### 13212#       发表于 2026-9-10 20:02
+
+4.1Flash适合有个大模型规划它做子代理，或者用严格的提示词来指挥，一旦自己发散就雷霆大思考…
+
+*****
+
+####  heemoon  
+##### 13213#       发表于 2026-9-10 20:03
+
+用4.1改个excel和ppt，依旧一坨<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没有任何审美可言，快是真的快
+
