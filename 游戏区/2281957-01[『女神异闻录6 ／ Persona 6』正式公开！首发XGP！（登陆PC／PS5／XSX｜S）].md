@@ -13006,3 +13006,12 @@ https://www.exophase.com/game/persona-6-steam/achievements/
 
 就差最后的打磨了吧明年下半年能出吗
 
+
+*****
+
+####  黑修士  
+##### 352#       发表于 2026-9-10 21:54
+
+已经有玩家通过不同语言版本成就信息，作出剧情推测和BOSS画像了
+[https://tieba.baidu.com/p/11012809287](https://tieba.baidu.com/p/11012809287)
+
