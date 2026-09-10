@@ -6503,7 +6503,7 @@
     "newtitle": "[【PMM】真爱楼：红色沙漠]",
     "lastedit": 1788748691,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1551489": {
@@ -14435,15 +14435,6 @@
     "active": false,
     "update": false
   },
-  "2288610": {
-    "totalreply": 63,
-    "title": "[财新报道 中国医保报销的获益实际上更倾向于高收入人群]",
-    "newtitle": "[财新报道 中国医保报销的获益实际上更倾向于高收入人群]",
-    "lastedit": 1787798054,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2288581": {
     "totalreply": 58,
     "title": "[我刚见到了地狱的一角]",
@@ -14468,15 +14459,6 @@
     "newtitle": "[今天微博热搜的那个案子，报案人其实是凶手。怪不得电视剧经常有警察追着报案人查]",
     "lastedit": 1788686050,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2192129": {
-    "totalreply": 173,
-    "title": "[猿公剑游先看新pv公开／bw将有线下试玩]",
-    "newtitle": "[猿公剑游先看新pv公开／8.27未来游戏展新pv公开]",
-    "lastedit": 1787797692,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -16556,7 +16538,7 @@
     "newtitle": "[Mihon／Tachiyomi系漫画软件／插件简介及讨论专楼 （更新：官方插件仓库遭遇DMCA投诉）]",
     "lastedit": 1788748571,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289110": {
