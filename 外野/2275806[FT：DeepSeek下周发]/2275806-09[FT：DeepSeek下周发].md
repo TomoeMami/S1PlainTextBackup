@@ -16078,3 +16078,51 @@ qin-shihuang-polar-bear.html
 为啥群成员上线只有200，且已经满了</blockquote>
 已经升级成2000了
 
+
+*****
+
+####  真红之闪电  
+##### 13238#       发表于 2026-9-10 21:09
+
+好多年不用QQ了……但是s1再挂真的有点难绷……我去找一找……
+
+
+*****
+
+####  80后卢瑟  
+##### 13239#       发表于 2026-9-10 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216879&amp;ptid=2275806" target="_blank">windhawind2 发表于 2026-9-10 21:02</a>
+
+最近dsh跑个调研让我破防了
+
+一个有盐酸和硫酸的处方 它非得嘴硬说盐酸和硫酸作用不同 我天…这种科研常识要 ...</blockquote>
+挂个知识库吧...
+
+*****
+
+####  坛子漆黑  
+##### 13240#       发表于 2026-9-10 21:13
+
+4.1f快是快，降价了也是真的便宜，平时编程挺好，唯一的问题就是对玩瑟瑟完全不友好，那出的文本是人吗，无意义的短剧拼凑，错位的角色认知，我设定是外公他能让角色喊爸<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 13241#       发表于 2026-9-10 21:14
+
+提速降价，究极稀疏，新 flash 就是个 agent 打工人啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  御坂MKII  
+##### 13242#       发表于 2026-9-10 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216979&amp;ptid=2275806" target="_blank">坛子漆黑 发表于 2026-9-10 21:13</a>
+
+4.1f快是快，降价了也是真的便宜，平时编程挺好，唯一的问题就是对玩瑟瑟完全不友好，那出的文本是人吗，无 ...</blockquote>
+这小参数还要代码能力好那后训练已经被腌入味儿了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
