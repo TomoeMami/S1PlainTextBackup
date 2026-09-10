@@ -16439,3 +16439,26 @@ Arena免费提供gpt-image-2.5 72小时，在Direct Mode里
 
 用4.1的时候千万要小心，搞不好就会陷入这种思维循环中，再配合每秒 400 token 的速度，就看见狂刷屏，刷刷地花钱。我昨天遇到了一次，还好看他半天没动，及时点开思维链，给他停下了。在网上看到有人把100多块钱给刷没了，然后屁都没输出<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  phorcys02  
+##### 13267#       发表于 2026-9-11 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218071&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-11 00:04</a>
+
+nyt拜访openai，openai说自己在另一个千禧年问题中获得了实质性进展
+
+可能是hodge</blockquote>
+写代码到瓶颈了，不吹下一个泡泡等着原地爆炸么。
+
+全球程序员一共也就三四千万,每人每年收一千也才三四百亿美元。
+
+更何况vibe越强程序员越少...还被开源模型把9成的收入期望都干没了
+
+ai4s 瞄准的是每年 3-4万亿美元的直接经费，和11万亿美元的间接经费
+
+不管能不能解决问题，实际上只要O/和A/吹的市场假装相信了， 那这 11万亿美元的市场，就能给 O/和A/足够的估值，只要能顺利上市，找到接盘侠，哪管洪水滔天，什么牛逼都可以吹，什么谎言都无所谓...
+
+所以未来一段时间，只会看到O/和A/更加疯狂的鼓吹AI4S
+
