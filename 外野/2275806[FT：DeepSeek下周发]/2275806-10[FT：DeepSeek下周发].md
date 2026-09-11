@@ -1330,3 +1330,41 @@ v4fv完败于V4.1F啊，为什么还要留着？顺便V4.1P早点拿出来是真
 
 不会这么快，让deepseek多优化几轮
 
+
+*****
+
+####  nxmonitor  
+##### 13415#       发表于 2026-9-11 21:49
+
+高TPS加高性能，意味着算力的极大解放，本地部署都要被V4.1F占了，还看到这个架构加loop transform也很容易，搞个低成本Astra不是梦想…
+
+*****
+
+####  德尔惠净水器  
+##### 13416#       发表于 2026-9-11 21:52
+
+高tps是不是engram embedding带来的
+
+*****
+
+####  bartholo4  
+##### 13417#       发表于 2026-9-11 21:53
+
+原来的3.1 Pro也是早就不如3.8 Flash了，这不也一直留着吗
+
+*****
+
+####  hugosol  
+##### 13418#       发表于 2026-9-11 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221482&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-11 21:13</a>
+
+不是，4.1F取代V4FV和0813有什么关系。
+
+说起来4FV是一个比0813还要抽象的模型，半个月就被本家原生多模 ...</blockquote>
+这种大版本变更你跑个分就跟我说4.1F完爆V4FV我肯定不信啊，之前我一直用V4FV用得好好的
+
+甚至有的人自己就有benchmark（比如anchored-standard的作者），两个模型并行一段时间大家测试对比过确实是这样，再把旧模型下线才是正常流程
+
+不过你说DS小公司没那么多资源对外我就留一两个主力模型……好像也不是那么一回事，涨价前全世界都跑来蹬DS的时候依然是国产模型里服务最稳定的一家，我也不知道怎么解释这个行为了，可能真的就是跑个分觉得没问题那就把旧模型直接撤了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
