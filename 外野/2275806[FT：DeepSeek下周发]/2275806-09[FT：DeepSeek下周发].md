@@ -16637,3 +16637,23 @@ a÷说中国模型公司为了蒸馏把许多用户的输入发向claude，政�
 
 只能说连练功都成正常宗教了你为什么不顺从呢？给我看乐了
 
+
+*****
+
+####  wandeeees  
+##### 13274#       发表于 2026-9-11 08:56
+
+之前那个灰测应该是v4.1pro吧，不过看着不像是多模态的样子，不会flash是多模态而pro不是吧
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  wandeeees  
+##### 13274#       发表于 2026-9-11 08:56
+
+之前那个灰测应该是v4.1pro吧，不过看着不像是多模态的样子，不会flash是多模态而pro不是吧
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
