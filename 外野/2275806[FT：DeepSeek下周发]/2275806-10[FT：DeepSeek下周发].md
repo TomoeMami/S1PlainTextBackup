@@ -1682,3 +1682,31 @@ X的推送就是这样的我有啥办法
 求助，色       色那个模型靠谱点？deepseek写的不太行    Re:Source</blockquote>
 小说消费得那么快吗？我看pixiv上那么多，我这辈子都看不完
 
+
+*****
+
+####  love4aids  
+##### 13429#       发表于 2026-9-11 23:11
+
+<img src="https://img.stage1st.com/forum/202609/11/230842xapaaqbbrqobvdpo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 23:08 上传
+
+
+*****
+
+####  love4aids  
+##### 13429#       发表于 2026-9-11 23:11
+
+<img src="https://img.stage1st.com/forum/202609/11/230842xapaaqbbrqobvdpo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 23:08 上传
+
