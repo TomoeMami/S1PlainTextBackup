@@ -1031,3 +1031,40 @@ a畜今天爆的kimi和ds坐中转站转发消息是真的还是假的</blockquo
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 13389#       发表于 2026-9-11 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221279&amp;ptid=2275806" target="_blank">squallx 发表于 2026-9-11 20:34</a>
+A\现在感觉就是急的乱跳脚 内部现在估计就跟自爆前的deepmind一样 等着看之后炸出的AI圈最大的乐子 ...</blockquote>
+但不得不说效果还行 好多简中圈的在那边鼓吹kimi的末日来了 国家会出手云云
+很烦
+
+顺便我真觉得没豆包是因为对a\最理想的就是国内豆包一家独大吧（
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  cscbzcbz  
+##### 13390#       发表于 2026-9-11 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221334&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-11 20:42</a>
+但不得不说效果还行 好多简中圈的在那边鼓吹kimi的末日来了 国家会出手云云
+很烦</blockquote>
+跳就跳吧，过几天kimi安然无恙，他们的谎言不就不攻自破了吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤星ビスコ  
+##### 13391#       发表于 2026-9-11 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221168&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-9-11 20:12</a>
+
+要占设备的嘛
+
+Re:Source</blockquote>
+没人调用了空放着算占设备，有调用需求那也赚着api的钱
+
