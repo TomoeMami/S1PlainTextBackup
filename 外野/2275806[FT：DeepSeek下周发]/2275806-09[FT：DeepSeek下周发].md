@@ -16744,3 +16744,58 @@ a%只说路由到opus啊，opus有灰测这么强？
 
 A➗又开始了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次可汗大点兵国模全喷了一遍
 
+
+*****
+
+####  love4aids  
+##### 13283#       发表于 2026-9-11 09:55
+
+gpt6消耗token太猛了，pro5顶不住，能不带让ds4.1f当奴工啊
+
+
+*****
+
+####  jasoncoop  
+##### 13284#       发表于 2026-9-11 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218852&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-9-11 09:55</a>
+gpt6消耗token太猛了，pro5顶不住，能不带让ds4.1f当奴工啊</blockquote>
+Astra派任务监工DSflash干活很正常啊
+
+*****
+
+####  lactone  
+##### 13285#       发表于 2026-9-11 10:03
+
+英文用户都在嘲讽a%
+
+倒是内网和中文有不少嘲讽国模的
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sontag  
+##### 13286#       发表于 2026-9-11 10:03
+
+泥潭信路由不多，但5月份开始火山稳定路由opus4.7/4.8和少量gpt5.5这是已经总所周知的了。只能说一帮大傻X以为是国模就可以机密上网，碰上一堆毫无安全道德傻X国模企业，然后**方方把数据交给最没道德最傻X的A÷，what can i say<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">。此外原来any是Minimax的吗，
+
+<img src="https://img.stage1st.com/forum/202609/11/100245n0kfeoddegzvxood.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 10:02 上传
+
+*****
+
+####  来都来了  
+##### 13287#       发表于 2026-9-11 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218803&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-11 09:50</a>
+数据也是有限的，爬完就不爬了
+
+论坛助手,iPhone</blockquote>
+什么等他射了就好了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
