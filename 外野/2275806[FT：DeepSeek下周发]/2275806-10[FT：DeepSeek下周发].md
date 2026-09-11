@@ -428,3 +428,54 @@ A/这个事情，主要一点是AI时代模型供应商能有非常大的话语�
 —— 来自 HUAWEI ALT-AL10, Android  ...</blockquote>
 应该有时间段内的限额吧，我触发两次了，最后还是用自己的api了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CCauchy  
+##### 13342#       发表于 2026-9-11 15:07
+
+anyrouter注册不了了呀
+
+*****
+
+####  Awanano  
+##### 13343#       发表于 2026-9-11 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220151&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-9-11 14:19</a>
+
+没有吧。A/最讨厌的就是中转站了，因为中转站都是分发Claude 订阅的额度的。A/应该就是通过披露这些文件 ...</blockquote>
+所以说他竭泽而渔，要是真爱国从美国利益出发，还不如继续闷着不说获取情报转接给美国国防，对自己转数据飞轮也有好处。我手上也是有Claude的订阅，他现在这个体量是能支撑起中转外溢增加的那部分客户的
+
+就现在GPT在国内的订阅覆盖程度，A/都能收集信息，OAI能收集到的只多不少，但就闷着不说发大财
+
+达里奥这比爱美国都是爱在面子上的，里子是一点不要。有点像川建国了
+
+
+*****
+
+####  CCauchy  
+##### 13342#       发表于 2026-9-11 15:07
+
+anyrouter注册不了了呀
+
+*****
+
+####  Awanano  
+##### 13343#       发表于 2026-9-11 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220151&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-9-11 14:19</a>
+
+没有吧。A/最讨厌的就是中转站了，因为中转站都是分发Claude 订阅的额度的。A/应该就是通过披露这些文件 ...</blockquote>
+所以说他竭泽而渔，要是真爱国从美国利益出发，还不如继续闷着不说获取情报转接给美国国防，对自己转数据飞轮也有好处。我手上也是有Claude的订阅，他现在这个体量是能支撑起中转外溢增加的那部分客户的
+
+就现在GPT在国内的订阅覆盖程度，A/都能收集信息，OAI能收集到的只多不少，但就闷着不说发大财
+
+达里奥这比爱美国都是爱在面子上的，里子是一点不要。有点像川建国了
+
+*****
+
+####  nxmonitor  
+##### 13344#       发表于 2026-9-11 15:14
+
+看到有中转站Fable数据拿到密钥了，排除极度草台的情况，大概率是被扫盘扫进去的，那又验证了刚才说的Claude Code有严重问题的假设…
+
