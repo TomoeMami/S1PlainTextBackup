@@ -979,3 +979,47 @@ S一串居然也这么反智吗……</blockquote>
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  黑夜中的冥想  
+##### 13384#       发表于 2026-9-11 20:22
+
+<img src="https://img.stage1st.com/forum/202609/11/202227shu6ps2uk2uhhznk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (318.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 20:22 上传
+
+*****
+
+####  一般市民  
+##### 13385#       发表于 2026-9-11 20:26
+
+真难伺候，一问都说Pro是区，写文八股文风差不遵循指令，要撤Pro又打滚要保留。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜中的冥想  
+##### 13386#       发表于 2026-9-11 20:26
+
+<img src="https://img.stage1st.com/forum/202609/11/202636b1dflxlalzg1xbto.png" referrerpolicy="no-referrer">
+
+<strong>797ac15ec6fbe20661eaa644b3463065.png</strong> (324 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 20:26 上传
+
+*****
+
+####  洛拉斯  
+##### 13387#       发表于 2026-9-11 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220998&amp;ptid=2275806" target="_blank">linhaolin1 发表于 2026-9-11 19:37</a>
+
+a畜今天爆的kimi和ds坐中转站转发消息是真的还是假的</blockquote>
+如果是真的，那为什么要爆出来呢，给国安个提醒吗？
+

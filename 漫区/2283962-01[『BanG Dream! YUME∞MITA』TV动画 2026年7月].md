@@ -226,3 +226,23 @@ vol她真是好女孩<img src="https://static.stage1st.com/image/smiley/face2017
 
 2026-9-11 19:30 上传
 
+
+*****
+
+####  aptx8285144  
+##### 463#       发表于 2026-9-11 20:16
+
+有一说一，自从牢薇变成工具人后，这片真符合烂的很搞笑的方向<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，比母鸡卡那种几乎一直在玩弄观众的还是好一点点
+
+*****
+
+####  aptx8285144  
+##### 464#       发表于 2026-9-11 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220687&amp;ptid=2283962" target="_blank">帆前 发表于 2026-9-11 18:24</a>
+
+哦这玩意终于完结了，真是一场酣畅淋漓的炒作啊
+
+最后歌美虽然说是迟来的正义，但我想说的是牢薇你又有什么 ...</blockquote>
+从主角从舞台上拉走律后，主角团就没啥正面或强有力的塑造了，由乃的支线也与这些破事氛围不同，于是乎也难怪会让牢薇看起来反而成为某种剧本看点
+
