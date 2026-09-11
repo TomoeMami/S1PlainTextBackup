@@ -1023,3 +1023,11 @@ S一串居然也这么反智吗……</blockquote>
 a畜今天爆的kimi和ds坐中转站转发消息是真的还是假的</blockquote>
 如果是真的，那为什么要爆出来呢，给国安个提醒吗？
 
+
+*****
+
+####  squallx  
+##### 13388#       发表于 2026-9-11 20:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
