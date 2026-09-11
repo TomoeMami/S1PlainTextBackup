@@ -357,3 +357,17 @@
 现在黑白莲一起出 ...</blockquote>
 白莲是青子乱搓出来的产物....七夜和里线关系比较大，虽然老MB确实白莲和七夜交集超多，但是七夜很涉及里线剧透
 
+
+*****
+
+####  岸浪白野  
+##### 574#       发表于 2026-9-11 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220470&amp;ptid=2026924" target="_blank">ナルバレック 发表于 2026-9-11 17:25</a>
+白莲是青子乱搓出来的产物....七夜和里线关系比较大，虽然老MB确实白莲和七夜交集超多，但是七夜很涉及里 ...</blockquote>
+白莲还是青子用塔塔利残渣做的呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+boss rush 诺耶尔都用学生服少年来擦边球了肯定有办法啊
+没里线出来之前新版塔塔利篇都只能被拖着
+那引入黑莲要讲黑莲的故事，就在mb做半个新版的歌月十夜，也能出现学生服少年然后再接新版MBAC
+更别说这作志贵换成了私服，那本来的学生服留给谁不用说了
+
