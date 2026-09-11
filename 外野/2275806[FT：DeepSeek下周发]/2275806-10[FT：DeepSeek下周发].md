@@ -1192,3 +1192,34 @@ X的推送就是这样的我有啥办法
 
 说起来4FV是一个比0813还要抽象的模型，半个月就被本家原生多模态的新模型取代，那可比全网玩梗的0813还短命多了。当时发出来难道就是因为牛来要发了？
 
+
+*****
+
+####  浪子龙飞z  
+##### 13402#       发表于 2026-9-11 21:19
+
+<blockquote>neptunehs 发表于 2026-9-11 21:07
+X的推送就是这样的我有啥办法
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
+X 我看到是一面倒的在嘲讽 A➗，不过不是简中圈
+
+*****
+
+####  毒品  
+##### 13403#       发表于 2026-9-11 21:19
+
+<img src="https://static.stage1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  phorcys02  
+##### 13404#       发表于 2026-9-11 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221450&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-11 21:07</a>
+
+X的推送就是这样的我有啥办法
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
+X的简中圈=屎坑啊，这还有啥可问的...
+
