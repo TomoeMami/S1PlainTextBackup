@@ -3412,3 +3412,39 @@ demo玩了感觉还可以
 
 —— 来自 HUAWEI VDE-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  格林卡罗尔  
+##### 1776#       发表于 2026-9-11 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220096&amp;ptid=2210366" target="_blank">deathyue 发表于 2026-9-11 13:50</a>
+上班族老登每天只能玩1-2小时，但拼刀拼得很爽，而且比只狼简单，现在刚拿到那个火鸟，这个有啥特殊用法吗 ...</blockquote>
+燃烧分为普通和剧烈两种，两格以上火鸟蓄力打可以出剧烈，所以推荐普通打一次，蓄力打一次
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  格林卡罗尔  
+##### 1776#       发表于 2026-9-11 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220096&amp;ptid=2210366" target="_blank">deathyue 发表于 2026-9-11 13:50</a>
+上班族老登每天只能玩1-2小时，但拼刀拼得很爽，而且比只狼简单，现在刚拿到那个火鸟，这个有啥特殊用法吗 ...</blockquote>
+燃烧分为普通和剧烈两种，两格以上火鸟蓄力打可以出剧烈，所以推荐普通打一次，蓄力打一次
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  格林卡罗尔  
+##### 1776#       发表于 2026-9-11 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220096&amp;ptid=2210366" target="_blank">deathyue 发表于 2026-9-11 13:50</a>
+上班族老登每天只能玩1-2小时，但拼刀拼得很爽，而且比只狼简单，现在刚拿到那个火鸟，这个有啥特殊用法吗 ...</blockquote>
+燃烧分为普通和剧烈两种，两格以上火鸟蓄力打可以出剧烈，所以推荐普通打一次，蓄力打一次
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
