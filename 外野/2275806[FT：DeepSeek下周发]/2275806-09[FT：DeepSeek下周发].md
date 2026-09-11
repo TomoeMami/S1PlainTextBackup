@@ -17142,3 +17142,36 @@ dsh:错误，你已经是工作区内修改了，不能再提权到工作区内�
 这问题是我的，dsh的 ...</blockquote>
 DSH我反正是不太爱用的，我觉得还不够成熟。试试Pi吧，我是Pi吹。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noneoneone  
+##### 13313#       发表于 2026-9-11 11:20
+
+<blockquote>[来都来了](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219467&amp;ptid=2275806) 发表于 09-11 11:16
+DSH我反正是不太爱用的，我觉得还不够成熟。试试Pi吧，我是Pi吹。</blockquote>
+
+我在dsh里用过的模型也有五六个了，服务商也换了三四家，还是头一次见这么弱智的情况
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  ycjiang1337  
+##### 13314#       发表于 2026-9-11 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218256&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-9-11 07:43</a>
+a\又开始说alibaba moonshot deepseek蒸馏了.......信誓旦旦地说moonshot deepseek用户的请求被转发到a\这 ...</blockquote>
+连话术本都是从知乎偷的，Kimi路由论最早是知乎初中生嘉豪编的PDF，那时候K3权重还没开源，问题是K3现在都开源一个多月了
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  很久就在那边l  
+##### 13315#       发表于 2026-9-11 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219274&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-11 10:53</a>
+anyrouter能免费用astra？</blockquote>
+刚出就能用了，5.6sol和opus5都下架，只让用fable5.1和astra
+
