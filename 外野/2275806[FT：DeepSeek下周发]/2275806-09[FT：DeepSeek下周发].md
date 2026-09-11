@@ -16709,3 +16709,11 @@ a%只说路由到opus啊，opus有灰测这么强？
 
 这几年的经验，外国指责中国干了啥，实际就是他们自己已经开始干了
 
+
+*****
+
+####  nxmonitor  
+##### 13279#       发表于 2026-9-11 09:29
+
+7.20就有的灰测，第一天试出来就超过4.8了，怎么这个时间能路由到Opus5？最搞笑的点在于声称和Kimi一样的技术，确实是超时空路由了……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

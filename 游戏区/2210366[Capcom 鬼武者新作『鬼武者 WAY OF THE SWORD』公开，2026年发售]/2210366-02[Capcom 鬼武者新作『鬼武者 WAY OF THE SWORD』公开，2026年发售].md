@@ -3207,3 +3207,15 @@ demo玩了感觉还可以
 
 泥潭瘫痪的这几天N网更新了随时随地传送的mod，救了命了
 
+
+*****
+
+####  scp073  
+##### 1764#       发表于 2026-9-11 09:33
+
+要解锁全外观的话，其实马桶是强制要通两遍的，通完鬼杀难度的马桶并不能解锁剑戟难度的衣服
+
+明明boss再战的衣服都可以两套一起解锁
+
+唉，享受<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
