@@ -685,3 +685,13 @@ kimi怎么还弄了个2.8，我3.1呢？
 
 互相蒸馏是正常操作，不过在蒸馏外国ai的时候需要注意的一点就是，外国很多这些都是闭源模型，离不开互联网直接本地操作，你想要得到输出必须要提供一些“数据”进行输入，这些数据的实际内容能引起的问题如果大起来会难以想象，这个只能指望这些企业的良心，还有国家相关部门的监管做到能同步而不延后了。
 
+
+*****
+
+####  蜇灵  
+##### 13354#       发表于 2026-9-11 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218121&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-11 00:28</a>
+用4.1的时候千万要小心，搞不好就会陷入这种思维循环中，再配合每秒 400 token 的速度，就看见狂刷屏，刷 ...</blockquote>
+这种情况梁子是不是应该给人家退一下钱<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
