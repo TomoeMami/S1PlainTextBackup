@@ -1746,3 +1746,27 @@ X的推送就是这样的我有啥办法
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  nxmonitor  
+##### 13431#       发表于 2026-9-11 23:43
+
+有个问题很好奇，这Meta是怎么刷分的？每个榜分数都很高，连Livebench这种都是，实际用着就是一坨大的。
+
+*****
+
+####  毒品  
+##### 13432#       发表于 2026-9-11 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221802&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-11 22:56</a>
+小说消费得那么快吗？我看pixiv上那么多，我这辈子都看不完</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  小止  
+##### 13433#       发表于 2026-9-11 23:47
+
+4.1f千万不要用max啊，一定要用high，我让4.1f做slint的epub样式排版，开了max做了一坨狗屎，甚至有字体渲染问题，而且做到一般就停了，我都以为作为一个flash模型这种活做不了，discard回去换到high库库做完，一点问题没有<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
