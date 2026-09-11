@@ -1080,3 +1080,53 @@ Re:Source</blockquote>
 
 不过我反倒觉得这应该是4.1pro很快就要放出来填补这个空缺的信号，希望到时候用上新架构的pro也能降价一波<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 13393#       发表于 2026-9-11 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221357&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-11 20:48</a>
+直接把dsv4fv撤了全路由到4.1flash我意见也挺大的，不过他们家没卡我也能理解
+
+把pro也撤那就只剩一个flash ...</blockquote>
+也可能是4.1f比4fv便宜 纯粹的商业考虑？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  zhongjie  
+##### 13394#       发表于 2026-9-11 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221109&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-9-11 20:01</a>
+
+光写文楼里就有不少人提了，现在的 4.1 flash 和 glm 一样是代码特化的</blockquote>
+写作就是需要大参数和世界知识
+
+*****
+
+####  舞以  
+##### 13395#       发表于 2026-9-11 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221357&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-11 20:48</a>
+
+直接把dsv4fv撤了全路由到4.1flash我意见也挺大的，不过他们家没卡我也能理解
+
+把pro也撤那就只剩一个flash ...</blockquote>
+flash是正经迭代了，ds没有保留legacy api的传统。
+
+pro么估计是他们想着跑agent不如df41，就下了，还节省算力。
+
+但是被喷了，就先让0813老师混着了。
+
+*****
+
+####  tonyunreal  
+##### 13396#       发表于 2026-9-11 21:02
+
+编程用户有太多大模可以选了，dsv4在智力、执行、价格都落后了
+
+剩下的基本都是写文的用户，不下线留给他们也好
+
