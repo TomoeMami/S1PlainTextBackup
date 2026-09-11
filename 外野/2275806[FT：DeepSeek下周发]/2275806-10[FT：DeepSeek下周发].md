@@ -1561,3 +1561,102 @@ DeepSeek 上新四款音色 都蛮好听的！ https://xhslink.cn/o/6C4QrDkTDuG 
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  misuzu0723  
+##### 13424#       发表于 2026-9-11 22:33
+
+tts 感觉是做着玩的？市面上开源的成熟产品挺多的了
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  杀人鲸  
+##### 13425#       发表于 2026-9-11 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221707&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-11 22:09</a>
+ds app灰测TTS 
+
+DeepSeek 上新四款音色 都蛮好听的！ https://xhslink.cn/o/6C4QrDkTDuG Re:Source ...</blockquote>
+手上有两个账号，一个是克隆应用的，登录的是朋友的账号。
+结果登录朋友账号时，随便问了个问题，突然发现有语音功能。点开自己的账号，发现没有，我靠。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tillnight  
+##### 13426#       发表于 2026-9-11 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221752&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-9-11 22:33</a>
+
+tts 感觉是做着玩的？市面上开源的成熟产品挺多的了
+
+—— 来自 vivo V2405A, Android 15, 鹅球 v4.0-alpha ...</blockquote>
+背后的意味还是很浓的，从单纯的实验室风格转向为重视产品。
+
+
+*****
+
+####  misuzu0723  
+##### 13424#       发表于 2026-9-11 22:33
+
+tts 感觉是做着玩的？市面上开源的成熟产品挺多的了
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  杀人鲸  
+##### 13425#       发表于 2026-9-11 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221707&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-11 22:09</a>
+ds app灰测TTS 
+
+DeepSeek 上新四款音色 都蛮好听的！ https://xhslink.cn/o/6C4QrDkTDuG Re:Source ...</blockquote>
+手上有两个账号，一个是克隆应用的，登录的是朋友的账号。
+结果登录朋友账号时，随便问了个问题，突然发现有语音功能。点开自己的账号，发现没有，我靠。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tillnight  
+##### 13426#       发表于 2026-9-11 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221752&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-9-11 22:33</a>
+
+tts 感觉是做着玩的？市面上开源的成熟产品挺多的了
+
+—— 来自 vivo V2405A, Android 15, 鹅球 v4.0-alpha ...</blockquote>
+背后的意味还是很浓的，从单纯的实验室风格转向为重视产品。
+
+*****
+
+####  StrangerJ  
+##### 13427#       发表于 2026-9-11 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221450&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-11 21:07</a>
+X的推送就是这样的我有啥办法
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
+看x的简中圈本身就是一种问题
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  StrangerJ  
+##### 13427#       发表于 2026-9-11 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221450&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-11 21:07</a>
+X的推送就是这样的我有啥办法
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
+看x的简中圈本身就是一种问题
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
