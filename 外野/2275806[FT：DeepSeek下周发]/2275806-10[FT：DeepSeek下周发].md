@@ -1956,3 +1956,11 @@ astra有NSFW破甲了？
 还以为是玩梗，没想到开放平台里真放了这条消息。幻方的运营简直是玩过家家，想一出是一出，那么随心所欲 ...</blockquote>
 “亲爱的用户，深度求索是你爹”
 
+
+*****
+
+####  RookieTnT  
+##### 13448#       发表于 2026-9-12 01:59
+
+[https://github.com/NVlabs/SoL-Pi](https://github.com/NVlabs/SoL-Pi) 据说英伟达优化过的这套 pi 方案 sol-pi 可以减少接近50%的 Token 消耗量 等我先测测看
+

@@ -19,3 +19,12 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Booorunestud  
+##### 223#       发表于 2026-9-12 01:58
+
+各种突兀的3d大招这个其实让我想起以前mugen里的一些塞了一堆mp4的“华丽人物”的感觉
+颇有古风吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
