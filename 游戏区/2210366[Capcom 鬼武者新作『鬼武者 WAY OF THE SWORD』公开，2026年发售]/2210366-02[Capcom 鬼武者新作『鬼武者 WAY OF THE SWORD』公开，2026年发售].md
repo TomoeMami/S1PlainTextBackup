@@ -3354,3 +3354,17 @@ demo玩了感觉还可以
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">上班族老登每天只能玩1-2小时，但拼刀拼得很爽，而且比只狼简单，现在刚拿到那个火鸟，这个有啥特殊用法吗，感觉和前几个比都不如？
 
+
+*****
+
+####  mai6696  
+##### 1774#       发表于 2026-9-11 14:22
+
+ 本帖最后由 mai6696 于 2026-9-11 14:24 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220096&amp;ptid=2210366" target="_blank">deathyue 发表于 2026-9-11 13:50</a>
+
+上班族老登每天只能玩1-2小时，但拼刀拼得很爽，而且比只狼简单，现在刚拿到那个火鸟，这个有啥特殊用法吗 ...</blockquote>
+1.吹出火鸟放在背上可以先不释放。攒够了能量可以切武器释放火龙卷，完了再切回笛子释放火鸟。
+
+2.火鸟可以打出强制硬直，尤其是源义经这种喜欢飞的，可以直接坠机。（用来打断一些不会反的招式也行，例如投技啥的。）
+

@@ -309,3 +309,34 @@ Z code是商业软件GUI，开箱即用。PI是开源的TUI，主打高度定制
 
 Z code是商业软件GUI，开箱即用。PI是开源的TUI，主打高度定制化。Open code既有GUI也有TUI。差别一句两句说不清，自己用一下就知道了。要说本质区别，那就是没区别，都是agent
 
+
+*****
+
+####  nxmonitor  
+##### 13337#       发表于 2026-9-11 14:11
+
+仔细读了一下A÷的文章，尤其是中间关于泄密的那段，判断下来很可能不是路由的问题，而是Claude Code在窃取信息，因此其他蒸馏都能指明具体版本，但DS和Kimi他们就搞不清楚。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Awanano  
+##### 13338#       发表于 2026-9-11 14:16
+
+A/这个事情，主要一点是AI时代模型供应商能有非常大的话语权和扣帽能力
+
+他对kimi和其他地方的指控即便是从中转站和agent得知的，都可以扣到其他竞争对手头上
+
+斗争还要持续下去，但他这样扣帽损害中转站地位挺竭泽而渔的，难绷
+
+*****
+
+####  zhongjie  
+##### 13339#       发表于 2026-9-11 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220149&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-9-11 14:16</a>
+
+A/这个事情，主要一点是AI时代模型供应商能有非常大的话语权和扣帽能力
+
+他对kimi和其他地方的指控即便是从 ...</blockquote>
+没有吧。A/最讨厌的就是中转站了，因为中转站都是分发Claude 订阅的额度的。A/应该就是通过披露这些文件展示泄密，直接让郭嘉来管厂商不给路由和中转了
+
