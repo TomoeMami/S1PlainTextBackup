@@ -3338,3 +3338,19 @@ demo玩了感觉还可以
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">上班族老登每天只能玩1-2小时，但拼刀拼得很爽，而且比只狼简单，现在刚拿到那个火鸟，这个有啥特殊用法吗，感觉和前几个比都不如？
 
+
+*****
+
+####  deathyue  
+##### 1773#       发表于 2026-9-11 13:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">上班族老登每天只能玩1-2小时，但拼刀拼得很爽，而且比只狼简单，现在刚拿到那个火鸟，这个有啥特殊用法吗，感觉和前几个比都不如？
+
+
+*****
+
+####  deathyue  
+##### 1773#       发表于 2026-9-11 13:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">上班族老登每天只能玩1-2小时，但拼刀拼得很爽，而且比只狼简单，现在刚拿到那个火鸟，这个有啥特殊用法吗，感觉和前几个比都不如？
+
