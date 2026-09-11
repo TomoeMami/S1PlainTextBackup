@@ -344,3 +344,16 @@ PlayStation如今告别大包大揽的外部扶持，正是这一宏观重构在
 自2024年初 ...</blockquote>
 吉田就是财务出身，他是吉田的头号小弟，吉田并没有把权利完全交出去，目前来讲吉田依旧是集团真正意义上的老大，不过CEO确实给他了
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 811#       发表于 2026-9-12 02:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221971&amp;ptid=2173605" target="_blank">椎名mahuyo 发表于 2026-9-11 23:59</a>
+
+【十时裕树执掌索尼一年半的“财务清算账单”：PlayStation如何从艺术灯塔沦为资本精算机器】
+
+自2024年初 ...</blockquote>
+外设那条会不会搞错了，我觉得INZONE还凑合吧，PULSE那堆独占协议的外设才真是有毛病
+

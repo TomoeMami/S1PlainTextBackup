@@ -1964,3 +1964,14 @@ astra有NSFW破甲了？
 
 [https://github.com/NVlabs/SoL-Pi](https://github.com/NVlabs/SoL-Pi) 据说英伟达优化过的这套 pi 方案 sol-pi 可以减少接近50%的 Token 消耗量 等我先测测看
 
+
+*****
+
+####  qwased  
+##### 13449#       发表于 2026-9-12 02:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222205&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-12 01:59</a>
+
+https://github.com/NVlabs/SoL-Pi 据说英伟达优化过的这套 pi 方案 sol-pi 可以减少接近50%的 Token 消耗 ...</blockquote>
+看了一下只有能力强到知道自己该保留什么上下文、组合工具指令不出错的模型才适合，还得配个跑得快的打杂模型帮他干读文件、找代码之类的活
+
