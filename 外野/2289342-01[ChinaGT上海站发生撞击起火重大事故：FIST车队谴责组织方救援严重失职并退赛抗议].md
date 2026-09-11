@@ -1526,3 +1526,23 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 捞钱是会的，保障是没有的，出不出事看天
 
+
+*****
+
+####  想去环球影城  
+##### 115#       发表于 2026-9-12 03:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70214978&amp;ptid=2289342" target="_blank">四氧化三铅 发表于 2026-9-7 11:26</a>
+
+不看这新闻我都不知道中国也搞赛车比赛了啊，我还以为只有西方国家搞这个 ...</blockquote>
+你醒啦，当年舒马赫都在上海拿过冠军的
+
+2934349b033b5bb52f666d4e2e7c3535b700bc0d.webp
+(43.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-12 03:00 上传
+
+<img src="https://img.stage1st.com/forum/202609/12/030019i2z4uc8ssc3itgti.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
