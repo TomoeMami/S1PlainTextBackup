@@ -16799,3 +16799,68 @@ Astra派任务监工DSflash干活很正常啊
 论坛助手,iPhone</blockquote>
 什么等他射了就好了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 13288#       发表于 2026-9-11 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218802&amp;ptid=2275806" target="_blank">Surlert 发表于 2026-9-11 09:50</a>
+
+速度相比之前快了很多，是engram的效果吗？</blockquote>
+还有激活参数极小的影响……
+
+*****
+
+####  AraTurambar  
+##### 13289#       发表于 2026-9-11 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218852&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-9-11 09:55</a>
+
+gpt6消耗token太猛了，pro5顶不住，能不带让ds4.1f当奴工啊</blockquote>
+我是astra当监工grok4.6当奴工。
+
+*****
+
+####  2215  
+##### 13290#       发表于 2026-9-11 10:09
+
+我现在怀疑是不是bvvd用claude跑新的电子战游戏代码被A/发现了，笑死。
+
+*****
+
+####  云卷花开  
+##### 13291#       发表于 2026-9-11 10:09
+
+国内路由论的源头就是以这个类脑管理为代表的类脑圈子，我自己观察来说天天这批人就是跑 ds 区正常讨论的时候胡搅蛮缠，然后前面的话术是“我掌握了 xx 决定性证据，但在墙内发就会被无知 d 友开盒”。这截图就是昨晚在 ds 讨论区我晚上看这群人共振“ds 把数据给 a➗要被老大干掉了”的时候说了一句，结果一分钟不到就永封了
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+1000016906.jpg
+(457.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 10:05 上传
+
+<img src="https://img.stage1st.com/forum/202609/11/100526v5crz9ege5s1khho.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 13292#       发表于 2026-9-11 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218978&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-9-11 10:09</a>
+国内路由论的源头就是以这个类脑管理为代表的类脑圈子，我自己观察来说天天这批人就是跑 ds 区正常讨论的时 ...</blockquote>
+文爱影响大脑实锤了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  云卷花开  
+##### 13293#       发表于 2026-9-11 10:13
+
+还机密数据，什么俄罗斯军事机密，我看这群人就纯粹和 A➗成吃屎循环论证了，a➗给五角大楼干活，所以就信 ds 这天天线上 api 直接换的直接线上给机密单位服务
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
