@@ -2059,3 +2059,13 @@ A÷那篇指控国模的问题。
 —— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
 什么截图？ 能提示下吗？
 
+
+*****
+
+####  rachepatty  
+##### 13456#       发表于 2026-9-12 04:08
+
+就楼里面A÷发言的截图
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

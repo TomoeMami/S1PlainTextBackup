@@ -73,3 +73,11 @@
 几种重要的主动技能做个独立小任务花时间就挺好的，比 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这些技能要求感觉像制作组搞真实性搞过头了
 
+
+*****
+
+####  火红之眼  
+##### 123#       发表于 2026-9-12 04:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">结局都打完了.....最高难度比昆特的还是简单不少，后期都是动脉斩摁着摩擦了，时间给得实在太多了，寻宝、匪窝、助人这些一眼无剧情马桶的不做，只做支线和宫廷任务最后起码能剩1/3以上的时间，不过讲真10来天左右时的主角强度已经足够让光头叫他爹了......
+
