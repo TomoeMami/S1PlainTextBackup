@@ -16657,3 +16657,47 @@ a÷说中国模型公司为了蒸馏把许多用户的输入发向claude，政�
 
 —— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  lactone  
+##### 13275#       发表于 2026-9-11 09:08
+
+a%只说路由到opus啊，opus有灰测这么强？
+
+不过大侄子可能要高潮一波了
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  星野あさみ  
+##### 13276#       发表于 2026-9-11 09:11
+
+<img src="https://img.stage1st.com/forum/202609/11/090846zy1zqy53ztee2z02.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (136.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 09:08 上传
+
+<img src="https://img.stage1st.com/forum/202609/11/090421ouzfh70u7k79j6s7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (111.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 09:04 上传
+
+本地跑的Qwen 3.8 Flash Next，代码写到一半开始拽文言文了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可能模型觉得文言文思考效率高？
+
+*****
+
+####  水風船  
+##### 13277#       发表于 2026-9-11 09:14
+
+为什么我chatbox试4.1一直都是连接失败
+
