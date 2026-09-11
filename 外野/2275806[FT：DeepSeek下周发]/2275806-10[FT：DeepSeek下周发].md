@@ -250,3 +250,62 @@ https://github.com/petrel-cn/pi-extensions
 
 opencode,pi,zcode这几个的本质区别是什么？
 
+
+*****
+
+####  魔法师lain  
+##### 13332#       发表于 2026-9-11 13:09
+
+想问一下现在workbuddy的ds4.1怎么算？都没免费token为啥说我超量？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  hugosol  
+##### 13333#       发表于 2026-9-11 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219908&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-11 12:40</a>
+
+体感开了极简之后非常不稳定啊，同样的提示词能roll出好几种思维链，而且除了let me全是区，会把事情办成 ...</blockquote>
+因为omp自带的提示词会给他说，你是一个XX专家，写代码要按照XX规则，我把这些system prompt都干掉替换成一句，You are a helpful software engineer assistant，用起来就舒服多了
+
+虽然思维链又回到之前的let me什么的，但其实新架构里这些关键字跟模型能力没啥关系的
+
+*****
+
+####  来都来了  
+##### 13334#       发表于 2026-9-11 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220004&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-11 13:07</a>
+没用pi主要是我不太确定它毛胚到什么程度，哪些是要修补一下再用哪些直接用就行，待会让dsh帮我搞一搞算了 ...</blockquote>
+https://github.com/petrel-cn/pi-extensions
+推销一下我自己的Pi三件套。
+
+*****
+
+####  自由之紫roy  
+##### 13335#       发表于 2026-9-11 13:15
+
+opencode,pi,zcode这几个的本质区别是什么？
+
+
+*****
+
+####  来都来了  
+##### 13336#       发表于 2026-9-11 13:20
+
+ 本帖最后由 来都来了 于 2026-9-11 13:22 编辑 
+
+Z code是商业软件GUI，开箱即用。PI是开源的TUI，主打高度定制化。Open code既有GUI也有TUI。差别一句两句说不清，自己用一下就知道了。要说本质区别，那就是没区别，都是agent
+
+
+*****
+
+####  来都来了  
+##### 13336#       发表于 2026-9-11 13:20
+
+ 本帖最后由 来都来了 于 2026-9-11 13:22 编辑 
+
+Z code是商业软件GUI，开箱即用。PI是开源的TUI，主打高度定制化。Open code既有GUI也有TUI。差别一句两句说不清，自己用一下就知道了。要说本质区别，那就是没区别，都是agent
+
