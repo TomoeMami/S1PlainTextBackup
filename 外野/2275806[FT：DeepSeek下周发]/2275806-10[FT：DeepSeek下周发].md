@@ -61,3 +61,20 @@ v4.1 flash有点意思
 看不到图啊，是不是和agentrouter搞混了，agentrouter和anyrouter实力差远了</blockquote>
 没有搞混，我的[https://anyrouter.dev/api/v1](https://anyrouter.dev/api/v1)一个模型都获取不到
 
+
+*****
+
+####  很久就在那边l  
+##### 13325#       发表于 2026-9-11 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219824&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-11 12:17</a>
+没有搞混，我的https://anyrouter.dev/api/v1一个模型都获取不到</blockquote>
+地址是https://anyrouter.top
+
+*****
+
+####  晓黑雾  
+##### 13326#       发表于 2026-9-11 12:32
+
+4.1f的写作能力暴跌也太大了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
