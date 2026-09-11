@@ -487,3 +487,30 @@ anyrouter注册不了了呀
 
 看到有中转站Fable数据拿到密钥了，排除极度草台的情况，大概率是被扫盘扫进去的，那又验证了刚才说的Claude Code有严重问题的假设…
 
+
+*****
+
+####  erliuer  
+##### 13345#       发表于 2026-9-11 15:24
+
+V4.1写文如何？
+
+*****
+
+####  很久就在那边l  
+##### 13346#       发表于 2026-9-11 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220193&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-11 14:37</a>
+啊这。。。。。有邀请奖励吗，可以邀请我</blockquote>
+注册需要l站2级号或者edu邮箱，不符合条件邀请了也没用，只能在codex和Claude code用，说白了是筛选高质量用户数据
+
+*****
+
+####  wlhlz  
+##### 13347#       发表于 2026-9-11 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220254&amp;ptid=2275806" target="_blank">erliuer 发表于 2026-9-11 15:24</a>
+
+V4.1写文如何？</blockquote>
+非常拉跨
+
