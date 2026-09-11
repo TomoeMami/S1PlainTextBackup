@@ -914,3 +914,68 @@ deepseek在国内除了微信公众号就开了小红书号，小红书上意见
 我就年初在那个频道呆过几天，v4预览版出来前那边就已经nsfw图满天飞反串烂炒遍地走，我直接跑了
 平时我都是蹲h一串频道里，其他频道氛围感觉都有点<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤星ビスコ  
+##### 13377#       发表于 2026-9-11 20:07
+
+确实没必要官方下线pro
+要是大家真觉得flash更好用更便宜，那没人调用了，官方可以再以pro使用量少而去下线
+
+*****
+
+####  谎称  
+##### 13378#       发表于 2026-9-11 20:09
+
+网页版的pro就这么被忽视了吗……
+
+*****
+
+####  云卷花开  
+##### 13379#       发表于 2026-9-11 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221145&amp;ptid=2275806" target="_blank">赤星ビスコ 发表于 2026-9-11 20:07</a>
+确实没必要官方下线pro
+要是大家真觉得flash更好用更便宜，那没人调用了，官方可以再以pro使用量少而去下线 ...</blockquote>
+要占设备的嘛
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  siebten  
+##### 13380#       发表于 2026-9-11 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220877&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-9-11 19:14</a>
+
+S一串居然也这么反智吗……</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闹分家事件的时候我就感觉类脑（和旅程）管理都是一群脑子不太聪明的键政萌萌人
+
+*****
+
+####  overflowal  
+##### 13381#       发表于 2026-9-11 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221157&amp;ptid=2275806" target="_blank">谎称 发表于 2026-9-11 20:09</a>
+网页版的pro就这么被忽视了吗……</blockquote>
+顺便就把大量的免费白嫖pro的用户都清了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  cscbzcbz  
+##### 13382#       发表于 2026-9-11 20:15
+
+官方会内测时会发这种问卷，本身就是已经有把pro下了的倾向了
+哎，归根结底，本质还是卡不够，这脖子被卡得太难受了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lly778  
+##### 13383#       发表于 2026-9-11 20:17
+
+4.1做执行模型真是又快又好
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

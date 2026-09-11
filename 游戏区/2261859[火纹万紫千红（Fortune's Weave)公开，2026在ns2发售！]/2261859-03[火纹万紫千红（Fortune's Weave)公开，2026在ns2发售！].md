@@ -5116,3 +5116,27 @@ IS不是做不出来帅哥，看来就是不想做
 
 卖多卖少我可不操这个心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyingover  
+##### 3400#       发表于 2026-9-11 20:05
+
+<img src="https://img.stage1st.com/forum/202609/11/200545bdxk6dm4rr9rlyzx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (89.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 20:05 上传
+
+【キャラクター】ハルヴィン（CV：佳原萌枝）
+
+縁あってアナトリアたちと行動を共にする、弓使いの女の子。
+
+ダグシオンに来る前は、曲馬団に所属する旅芸人でもあった。
+
+農園を営むごく普通の家庭で育ったため、争い事は苦手。
+
+●好きなもの：大道芸、野菜作り、見物客の笑顔、手品の練習
+
