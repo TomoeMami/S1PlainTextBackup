@@ -875,3 +875,42 @@ deepseek在国内除了微信公众号就开了小红书号，小红书上意见
 
 我觉得响应呼声挺好的，虽然4.1 flash很快也很有能力，但也容易犯低级错误，应该给用户选择的机会。
 
+
+*****
+
+####  wjxforever  
+##### 13373#       发表于 2026-9-11 19:57
+
+响应用户也算是好事吧，虽然我真的很怀疑有什么任务是0813能做而4.1flash做不了的
+
+
+*****
+
+####  novem  
+##### 13374#       发表于 2026-9-11 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220912&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-11 19:20</a>
+
+为响应广大用户的需求，我们决定在 2026 年 9 月 14 日之后继续提供 DeepSeek V4 Pro 的 API 调用服务，计 ...</blockquote>
+网页版的PRO难道从此就消失了
+
+*****
+
+####  御坂MKII  
+##### 13375#       发表于 2026-9-11 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221089&amp;ptid=2275806" target="_blank">wjxforever 发表于 2026-9-11 19:57</a>
+
+响应用户也算是好事吧，虽然我真的很怀疑有什么任务是0813能做而4.1flash做不了的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">光写文楼里就有不少人提了，现在的 4.1 flash 和 glm 一样是代码特化的
+
+*****
+
+####  羊寢  
+##### 13376#       发表于 2026-9-11 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221056&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-9-11 19:50</a>
+你 ds 区看少了，这群野狗天天在那胡搅蛮缠，昨天有个傻逼在那打滚半天才让人投票出去的，我这上下文就一 ...</blockquote>
+我就年初在那个频道呆过几天，v4预览版出来前那边就已经nsfw图满天飞反串烂炒遍地走，我直接跑了
+平时我都是蹲h一串频道里，其他频道氛围感觉都有点<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

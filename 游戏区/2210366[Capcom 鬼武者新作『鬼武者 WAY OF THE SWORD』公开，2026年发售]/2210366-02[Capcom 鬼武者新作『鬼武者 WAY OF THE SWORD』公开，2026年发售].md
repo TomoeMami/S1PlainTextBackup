@@ -3456,3 +3456,14 @@ demo玩了感觉还可以
 
 3个敌人剧烈燃烧那个成就应该怎么做
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 1778#       发表于 2026-9-11 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221064&amp;ptid=2210366" target="_blank">MRhythm 发表于 2026-9-11 19:52</a>
+
+3个敌人剧烈燃烧那个成就应该怎么做</blockquote>
+先打掉个灯让地面着火，然后用双头刀卷风，可以变火焰风暴
+
