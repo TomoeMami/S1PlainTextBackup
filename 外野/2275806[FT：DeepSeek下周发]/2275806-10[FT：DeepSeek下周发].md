@@ -340,3 +340,14 @@ A/这个事情，主要一点是AI时代模型供应商能有非常大的话语�
 他对kimi和其他地方的指控即便是从 ...</blockquote>
 没有吧。A/最讨厌的就是中转站了，因为中转站都是分发Claude 订阅的额度的。A/应该就是通过披露这些文件展示泄密，直接让郭嘉来管厂商不给路由和中转了
 
+
+*****
+
+####  CCauchy  
+##### 13340#       发表于 2026-9-11 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219876&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-9-11 12:30</a>
+
+地址是https://anyrouter.top</blockquote>
+啊这。。。。。有邀请奖励吗，可以邀请我
+
