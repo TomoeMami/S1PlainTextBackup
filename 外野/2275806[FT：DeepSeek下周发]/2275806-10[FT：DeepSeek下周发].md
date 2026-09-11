@@ -1887,3 +1887,62 @@ max会反复测试导致思维链极其长，high完不成的让max做最多就�
 
 看到b站小鬼学到个“cot解密”新词就到处乱用，为路由论实锤，我看ds已经解决了千禧年难题之p=np，已经可以实时解密cot并流式输出了。当然还有一种可能，假装在思考并等Claude输出<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  phorcys02  
+##### 13442#       发表于 2026-9-12 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222119&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-12 01:06</a>
+
+看到b站小鬼学到个“cot解密”新词就到处乱用，为路由论实锤，我看ds已经解决了千禧年难题之p=np，已经可以 ...</blockquote>
+不要搬屎，不要搬屎...
+
+*****
+
+####  lactone  
+##### 13443#       发表于 2026-9-12 01:17
+
+等pro吧
+
+如果pro性能超过fable或者opus5，哪怕是路由了又能怎么样
+
+不过国模得宣传一下ai4s了
+
+现在oa刷数学社媒振动，但是之前hy3突破了一个猜想，seed形式化挂谷猜想根本没人知道
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  phorcys02  
+##### 13444#       发表于 2026-9-12 01:18
+
+<img src="https://img.stage1st.com/forum/202609/12/011735ys8uxmk9z2a29xus.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (271.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-12 01:17 上传
+
+emm, 虽然样本还不太够吧..
+
+*****
+
+####  阿刚  
+##### 13445#       发表于 2026-9-12 01:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">他的雷霆大思考开着high还是长的要死……
+
+
+*****
+
+####  squallx  
+##### 13446#       发表于 2026-9-12 01:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221981&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-9-12 00:04</a>
+
+以深度求索的公司调性想直接上4.1f太正常了，他们是真的更想做底层创新啊，一直在上新架构，而练出来的东西 ...</blockquote>
+astra有NSFW破甲了？
+
