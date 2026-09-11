@@ -1879,3 +1879,11 @@ max会反复测试导致思维链极其长，high完不成的让max做最多就�
 
 41f好像可以无级调节推理强度的，支持1-100
 
+
+*****
+
+####  CCauchy  
+##### 13441#       发表于 2026-9-12 01:06
+
+看到b站小鬼学到个“cot解密”新词就到处乱用，为路由论实锤，我看ds已经解决了千禧年难题之p=np，已经可以实时解密cot并流式输出了。当然还有一种可能，假装在思考并等Claude输出<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
