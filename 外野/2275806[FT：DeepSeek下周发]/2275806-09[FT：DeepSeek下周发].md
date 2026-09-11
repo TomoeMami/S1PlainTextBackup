@@ -16864,3 +16864,53 @@ gpt6消耗token太猛了，pro5顶不住，能不带让ds4.1f当奴工啊</block
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  nianiania  
+##### 13294#       发表于 2026-9-11 10:24
+
+linuxdo 今天也是弱智大联欢了，看力竭了
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cscbzcbz  
+##### 13295#       发表于 2026-9-11 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218999&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-9-11 10:13</a>
+还机密数据，什么俄罗斯军事机密，我看这群人就纯粹和 A➗成吃屎循环论证了，a➗给五角大楼干活，所以就信  ...</blockquote>
+实际情况应该是有条件有需求的都本地部署了，毕竟开源
+
+
+*****
+
+####  misuzu0723  
+##### 13296#       发表于 2026-9-11 10:30
+
+<img src="https://img.stage1st.com/forum/202609/11/102928o6f6fdfftzn4mn6l.png" referrerpolicy="no-referrer">
+
+<strong>3c7fb7fa907e4d9474d6d03901b547eb.png</strong> (280.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 10:29 上传
+
+反正能不用A/的就不用吧，连开盒都来了
+
+更何况A/也早都没有之前的绝对优势了
+
+*****
+
+####  狭义文具爱好者  
+##### 13297#       发表于 2026-9-11 10:33
+
+OpenAI 暂停 200 美元 ChatGPT Pro 套餐订阅
+
+Tibo 宣布暂停 200 美元 Pro 套餐的新订阅，以减轻系统压力并保障更多用户使用。其他套餐和 API 仍可用，现有账户不受影响。
+
+https://x.com/thsottiaux/status/2098113585683808624
+
+oai的卡都顶不住了，我看内存显存还得涨
+
