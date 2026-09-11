@@ -4851,3 +4851,48 @@ IS不是做不出来帅哥，看来就是不想做
 
 等一个把山贼招募了又全战场送死的操作<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抹茶瓜  
+##### 3383#       发表于 2026-9-11 14:30
+
+等一个把山贼招募了又全战场送死的操作<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jockeyjoestar  
+##### 3384#       发表于 2026-9-11 15:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">  最后还是377海淘拿下了 希望国庆能到吧
+
+
+*****
+
+####  抹茶瓜  
+##### 3383#       发表于 2026-9-11 14:30
+
+等一个把山贼招募了又全战场送死的操作<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jockeyjoestar  
+##### 3384#       发表于 2026-9-11 15:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">  最后还是377海淘拿下了 希望国庆能到吧
+
+
+*****
+
+####  抹茶瓜  
+##### 3383#       发表于 2026-9-11 14:30
+
+等一个把山贼招募了又全战场送死的操作<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jockeyjoestar  
+##### 3384#       发表于 2026-9-11 15:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">  最后还是377海淘拿下了 希望国庆能到吧
+

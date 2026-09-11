@@ -362,3 +362,69 @@ A/这个事情，主要一点是AI时代模型供应商能有非常大的话语�
 地址是https://anyrouter.top</blockquote>
 啊这。。。。。有邀请奖励吗，可以邀请我
 
+
+*****
+
+####  CCauchy  
+##### 13340#       发表于 2026-9-11 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219876&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-9-11 12:30</a>
+
+地址是https://anyrouter.top</blockquote>
+啊这。。。。。有邀请奖励吗，可以邀请我
+
+*****
+
+####  heemoon  
+##### 13341#       发表于 2026-9-11 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220011&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-9-11 13:09</a>
+想问一下现在workbuddy的ds4.1怎么算？都没免费token为啥说我超量？
+
+—— 来自 HUAWEI ALT-AL10, Android  ...</blockquote>
+应该有时间段内的限额吧，我触发两次了，最后还是用自己的api了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CCauchy  
+##### 13340#       发表于 2026-9-11 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219876&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-9-11 12:30</a>
+
+地址是https://anyrouter.top</blockquote>
+啊这。。。。。有邀请奖励吗，可以邀请我
+
+*****
+
+####  heemoon  
+##### 13341#       发表于 2026-9-11 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220011&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-9-11 13:09</a>
+想问一下现在workbuddy的ds4.1怎么算？都没免费token为啥说我超量？
+
+—— 来自 HUAWEI ALT-AL10, Android  ...</blockquote>
+应该有时间段内的限额吧，我触发两次了，最后还是用自己的api了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CCauchy  
+##### 13340#       发表于 2026-9-11 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219876&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-9-11 12:30</a>
+
+地址是https://anyrouter.top</blockquote>
+啊这。。。。。有邀请奖励吗，可以邀请我
+
+*****
+
+####  heemoon  
+##### 13341#       发表于 2026-9-11 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220011&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-9-11 13:09</a>
+想问一下现在workbuddy的ds4.1怎么算？都没免费token为啥说我超量？
+
+—— 来自 HUAWEI ALT-AL10, Android  ...</blockquote>
+应该有时间段内的限额吧，我触发两次了，最后还是用自己的api了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
