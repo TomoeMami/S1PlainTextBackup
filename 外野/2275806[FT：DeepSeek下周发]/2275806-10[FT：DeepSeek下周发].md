@@ -1537,3 +1537,27 @@ DeepSeek 上新四款音色 都蛮好听的！ https://xhslink.cn/o/6C4QrDkTDuG 
 
 <img src="https://img.stage1st.com/forum/202609/11/220953v9xl5iibmdqziy95.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  misuzu0723  
+##### 13424#       发表于 2026-9-11 22:33
+
+tts 感觉是做着玩的？市面上开源的成熟产品挺多的了
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  杀人鲸  
+##### 13425#       发表于 2026-9-11 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221707&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-11 22:09</a>
+ds app灰测TTS 
+
+DeepSeek 上新四款音色 都蛮好听的！ https://xhslink.cn/o/6C4QrDkTDuG Re:Source ...</blockquote>
+手上有两个账号，一个是克隆应用的，登录的是朋友的账号。
+结果登录朋友账号时，随便问了个问题，突然发现有语音功能。点开自己的账号，发现没有，我靠。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
