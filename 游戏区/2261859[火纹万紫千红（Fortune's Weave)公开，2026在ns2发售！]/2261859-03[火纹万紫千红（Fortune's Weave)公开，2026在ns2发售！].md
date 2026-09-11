@@ -4650,3 +4650,27 @@ IS不是做不出来帅哥，看来就是不想做
 
 要有dlc也希望做成暗煤之章那样的独立流程吧，不过这次有dlc我也不首发买季票等出了月子看情况再说，engage那个邪龙之章真的恶心到我
 
+
+*****
+
+####  Kuebiko  
+##### 3369#       发表于 2026-9-11 11:37
+
+明明长得好看的女的不少
+
+为啥不乐做帅哥<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woaimiyabi  
+##### 3370#       发表于 2026-9-11 11:37
+
+山贼有七八个了 确实太多了
+
+*****
+
+####  66367749  
+##### 3371#       发表于 2026-9-11 11:39
+
+会不会是如果直接打3年后那只能招募满地的山贼，打剑斗祭可以解锁非山贼角色存活<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
