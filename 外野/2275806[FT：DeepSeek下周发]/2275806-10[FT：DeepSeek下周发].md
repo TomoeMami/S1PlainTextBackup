@@ -1130,3 +1130,65 @@ pro么估计是他们想着跑agent不如df41，就下了，还节省算力。
 
 剩下的基本都是写文的用户，不下线留给他们也好
 
+
+*****
+
+####  squallx  
+##### 13397#       发表于 2026-9-11 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221334&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-11 20:42</a>
+
+但不得不说效果还行 好多简中圈的在那边鼓吹kimi的末日来了 国家会出手云云
+
+很烦</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那你是真的该先清洗一下自己的信源了
+
+*****
+
+####  tillnight  
+##### 13398#       发表于 2026-9-11 21:05
+
+想coding的现在又可以领唐老师的周末鸡蛋了。
+
+*****
+
+####  hugosol  
+##### 13399#       发表于 2026-9-11 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221387&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-11 20:54</a>
+
+也可能是4.1f比4fv便宜 纯粹的商业考虑？
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0 ...</blockquote>
+反正他们定价算过肯定是能赚的，我也不觉得他们客户的体量这些不同的模型就完全没人用
+
+可能真的跑完分觉得flash完爆pro所以直接下线吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是外面的用户需求肯定比他们想象中复杂得多，像酒馆什么的我不信DeepSeek的人会去测试这玩意的生成文章的能力，反正多听用户反馈没什么不好的
+
+*****
+
+####  neptunehs  
+##### 13400#       发表于 2026-9-11 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221442&amp;ptid=2275806" target="_blank">squallx 发表于 2026-9-11 21:05</a>
+那你是真的该先清洗一下自己的信源了</blockquote>
+X的推送就是这样的我有啥办法
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  tillnight  
+##### 13401#       发表于 2026-9-11 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221448&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-11 21:06</a>
+
+反正他们定价算过肯定是能赚的，我也不觉得他们客户的体量这些不同的模型就完全没人用
+
+可能真的跑完分觉 ...</blockquote>
+不是，4.1F取代V4FV和0813有什么关系。
+
+说起来4FV是一个比0813还要抽象的模型，半个月就被本家原生多模态的新模型取代，那可比全网玩梗的0813还短命多了。当时发出来难道就是因为牛来要发了？
+
