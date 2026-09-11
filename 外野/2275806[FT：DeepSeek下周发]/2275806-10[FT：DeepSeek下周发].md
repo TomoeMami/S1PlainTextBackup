@@ -2047,3 +2047,15 @@ A÷那篇指控国模的问题。
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  经验值UP  
+##### 13455#       发表于 2026-9-12 03:53
+
+<blockquote>lactone 发表于 2026-9-12 03:38
+现在到处在刷那几个截图
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+什么截图？ 能提示下吗？
+

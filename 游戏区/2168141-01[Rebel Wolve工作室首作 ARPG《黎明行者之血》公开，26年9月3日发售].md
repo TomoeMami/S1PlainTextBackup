@@ -62,3 +62,14 @@
 确实，技能需要书+技能点+时间三种资源就很离谱。
 几种重要的主动技能做个独立小任务花时间就挺好的，比如动脉斩击得靠父亲战友任务解锁之类的。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  寂长无星夜  
+##### 122#       发表于 2026-9-12 03:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220898&amp;ptid=2168141" target="_blank">Schwarzess 发表于 2026-9-11 19:18</a>
+确实，技能需要书+技能点+时间三种资源就很离谱。
+几种重要的主动技能做个独立小任务花时间就挺好的，比 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这些技能要求感觉像制作组搞真实性搞过头了
+
