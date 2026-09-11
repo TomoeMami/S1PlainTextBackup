@@ -695,3 +695,13 @@ kimi怎么还弄了个2.8，我3.1呢？
 用4.1的时候千万要小心，搞不好就会陷入这种思维循环中，再配合每秒 400 token 的速度，就看见狂刷屏，刷 ...</blockquote>
 这种情况梁子是不是应该给人家退一下钱<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  羊寢  
+##### 13355#       发表于 2026-9-11 19:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218978&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-9-11 10:09</a>
+国内路由论的源头就是以这个类脑管理为代表的类脑圈子，我自己观察来说天天这批人就是跑 ds 区正常讨论的时 ...</blockquote>
+S一串居然也这么反智吗……
+
