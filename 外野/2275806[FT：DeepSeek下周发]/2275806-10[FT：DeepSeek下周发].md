@@ -39,3 +39,25 @@ v4.1 flash有点意思
 没看到啊</blockquote>
 看不到图啊，是不是和agentrouter搞混了，agentrouter和anyrouter实力差远了
 
+
+*****
+
+####  CCauchy  
+##### 13324#       发表于 2026-9-11 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219780&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-9-11 12:08</a>
+
+看不到图啊，是不是和agentrouter搞混了，agentrouter和anyrouter实力差远了</blockquote>
+没有搞混，我的[https://anyrouter.dev/api/v1](https://anyrouter.dev/api/v1)一个模型都获取不到
+
+
+*****
+
+####  CCauchy  
+##### 13324#       发表于 2026-9-11 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219780&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-9-11 12:08</a>
+
+看不到图啊，是不是和agentrouter搞混了，agentrouter和anyrouter实力差远了</blockquote>
+没有搞混，我的[https://anyrouter.dev/api/v1](https://anyrouter.dev/api/v1)一个模型都获取不到
+
