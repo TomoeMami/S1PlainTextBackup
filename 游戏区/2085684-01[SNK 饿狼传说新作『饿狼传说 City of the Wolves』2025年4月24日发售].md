@@ -128,3 +128,33 @@ p.s.
 
 这游戏，私货自嗨要到什么时候
 
+
+*****
+
+####  metalyuuki  
+##### 836#       发表于 2026-9-11 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158629&amp;ptid=2085684" target="_blank">小李子大脸猫 发表于 2026-8-27 23:35</a>
+比起石油佬在利雅得新月上花的钱，SNK这点钱真不算啥</blockquote>
+利雅得新月能讲故事圈钱，snk呢？22年提出的10年内做到世界前10，这已经过去4年了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  metalyuuki  
+##### 836#       发表于 2026-9-11 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158629&amp;ptid=2085684" target="_blank">小李子大脸猫 发表于 2026-8-27 23:35</a>
+比起石油佬在利雅得新月上花的钱，SNK这点钱真不算啥</blockquote>
+利雅得新月能讲故事圈钱，snk呢？22年提出的10年内做到世界前10，这已经过去4年了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  metalyuuki  
+##### 836#       发表于 2026-9-11 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158629&amp;ptid=2085684" target="_blank">小李子大脸猫 发表于 2026-8-27 23:35</a>
+比起石油佬在利雅得新月上花的钱，SNK这点钱真不算啥</blockquote>
+利雅得新月能讲故事圈钱，snk呢？22年提出的10年内做到世界前10，这已经过去4年了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
