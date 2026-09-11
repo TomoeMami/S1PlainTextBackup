@@ -2089,3 +2089,30 @@ A÷那篇指控国模的问题。
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  经验值UP  
+##### 13458#       发表于 2026-9-12 04:41
+
+<blockquote>lactone 发表于 2026-9-12 04:29
+我是有点怕的
+
+这事最好就冷处理了不管他
+
+不然横竖是给大侄子弹药</blockquote>
+如果真泄密不可能不处理，还有A÷这篇指责发出来的时候弹药已经形成了，跟你后面是否有反应没任何关系，就算没反应它们也会编反应，比如16人包括老大被带走这种。
+
+*****
+
+####  lactone  
+##### 13459#       发表于 2026-9-12 04:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222302&amp;ptid=2275806" target="_blank">经验值UP 发表于 2026-9-12 04:41</a>
+如果真泄密不可能不处理，还有A÷这篇指责发出来的时候弹药已经形成了，跟你后面是否有反应没任何关系， ...</blockquote>
+那如果没泄密呢？
+
+而且处理和处理不一样，罚款也是处理，抓紧去也是处理
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
