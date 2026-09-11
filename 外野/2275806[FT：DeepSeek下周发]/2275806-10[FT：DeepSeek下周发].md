@@ -78,3 +78,46 @@ v4.1 flash有点意思
 
 4.1f的写作能力暴跌也太大了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  很久就在那边l  
+##### 13325#       发表于 2026-9-11 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219824&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-11 12:17</a>
+没有搞混，我的https://anyrouter.dev/api/v1一个模型都获取不到</blockquote>
+地址是https://anyrouter.top
+
+*****
+
+####  晓黑雾  
+##### 13326#       发表于 2026-9-11 12:32
+
+4.1f的写作能力暴跌也太大了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 13327#       发表于 2026-9-11 12:35
+
+<blockquote>hugosol 发表于 2026-9-11 11:45
+别管A/了，来聊聊新的4.1使用感想吧
+
+体感用anchored-standard的形式简化一下提示词会比较说人话，套着omp自 ...</blockquote>
+建议强度开成high试试…
+
+
+*****
+
+####  qwased  
+##### 13328#       发表于 2026-9-11 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219644&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-11 11:45</a>
+
+别管A/了，来聊聊新的4.1使用感想吧
+
+体感用anchored-standard的形式简化一下提示词会比较说人话，套着omp自 ...</blockquote>
+我反而体感开了极简之后非常不稳定啊，同样的提示词能roll出好几种思维链，而且除了let me全是区，会把事情办成一团糟
+
+反而放pi里面直接用就挺好的，很稳定，该干什么干什么
+
