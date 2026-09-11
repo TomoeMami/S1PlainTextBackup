@@ -16924,3 +16924,59 @@ oai的卡都顶不住了，我看内存显存还得涨
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cmg1988  
+##### 13299#       发表于 2026-9-11 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70217727&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-10 22:44</a>
+
+昨天趁pro还没下线，在网页端道了一个别。今天三合一之后这个对话还能找到，于是问了一句
+
+ ...</blockquote>
+这是……怎么调出来的啊……
+
+*****
+
+####  lly778  
+##### 13300#       发表于 2026-9-11 10:47
+
+opus5 出的时间比灰测还晚 意思是ds路由4.8秒了opus5
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  一骑当千  
+##### 13301#       发表于 2026-9-11 10:51
+
+关于泄密我认为还真可能，不过不是路由，而是某些没保密意识，啥数据都网传ai,还看不起国模认为国模干得不行，如类脑这种洋模入脑又蠢又坏的人用a/模型处理涉密文件，这种人才更可恨。
+
+
+*****
+
+####  CCauchy  
+##### 13302#       发表于 2026-9-11 10:53
+
+anyrouter能免费用astra？
+
+*****
+
+####  lactone  
+##### 13303#       发表于 2026-9-11 10:54
+
+现在除了昨天晚上的那个报告，a/还有什么别的东西吗？
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  CCauchy  
+##### 13304#       发表于 2026-9-11 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218999&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-9-11 10:13</a>
+
+还机密数据，什么俄罗斯军事机密，我看这群人就纯粹和 A➗成吃屎循环论证了，a➗给五角大楼干活，所以就信  ...</blockquote>
+问下有没有三个俄罗斯人
+
