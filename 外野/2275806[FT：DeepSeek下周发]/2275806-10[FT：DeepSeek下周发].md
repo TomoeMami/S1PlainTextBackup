@@ -737,3 +737,33 @@ dsv4 pro 0813打赢复活赛了，没想到吧 <img src="https://static.stage1st
 
 难绷，来点打赢复活赛的梗图
 
+
+*****
+
+####  apefrank  
+##### 13360#       发表于 2026-9-11 19:33
+
+早就说了中国人别用cc<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  guyfawkes  
+##### 13361#       发表于 2026-9-11 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220912&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-11 19:20</a>
+
+为响应广大用户的需求，我们决定在 2026 年 9 月 14 日之后继续提供 DeepSeek V4 Pro 的 API 调用服务，计 ...</blockquote>
+还以为是玩梗，没想到开放平台里真放了这条消息。幻方的运营简直是玩过家家，想一出是一出，那么随心所欲的吗？
+
+*****
+
+####  唠叨  
+##### 13362#       发表于 2026-9-11 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218539&amp;ptid=2275806" target="_blank">星野あさみ 发表于 2026-9-11 09:11</a>
+本地跑的Qwen 3.8 Flash Next，代码写到一半开始拽文言文了。
+
+可能模型觉得文言文思考效率高？ ...</blockquote>
+我还碰到过写着写着开始用日文思考
+
