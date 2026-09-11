@@ -344,3 +344,16 @@
 现在黑白莲一起出，半个歌月十夜+MBAC故事重制吧
 更别说MBAC 故事 白莲最后选了七夜当master<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 573#       发表于 2026-9-11 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220364&amp;ptid=2026924" target="_blank">岸浪白野 发表于 2026-9-11 16:47</a>
+
+之前说到这作文字量多和志贵CV之前透露说录音录了1个星期就已经怀疑把歌月十夜做进去了
+
+现在黑白莲一起出 ...</blockquote>
+白莲是青子乱搓出来的产物....七夜和里线关系比较大，虽然老MB确实白莲和七夜交集超多，但是七夜很涉及里线剧透
+

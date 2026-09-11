@@ -158,3 +158,14 @@ p.s.
 比起石油佬在利雅得新月上花的钱，SNK这点钱真不算啥</blockquote>
 利雅得新月能讲故事圈钱，snk呢？22年提出的10年内做到世界前10，这已经过去4年了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 837#       发表于 2026-9-11 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219249&amp;ptid=2085684" target="_blank">谢皮利男爵 发表于 2026-9-11 10:50</a>
+
+这游戏，私货自嗨要到什么时候</blockquote>
+明年还有十二个角色，然后更新完毕，之前解包是这样的，明年上半年会有牙王弗朗茨这些
+
