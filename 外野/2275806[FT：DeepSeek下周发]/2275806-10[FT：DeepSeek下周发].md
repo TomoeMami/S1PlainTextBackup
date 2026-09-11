@@ -767,3 +767,52 @@ dsv4 pro 0813打赢复活赛了，没想到吧 <img src="https://static.stage1st
 可能模型觉得文言文思考效率高？ ...</blockquote>
 我还碰到过写着写着开始用日文思考
 
+
+*****
+
+####  linhaolin1  
+##### 13363#       发表于 2026-9-11 19:37
+
+a畜今天爆的kimi和ds坐中转站转发消息是真的还是假的
+
+<img src="https://img.stage1st.com/forum/202609/11/193715sk6thkttgtttx1z1.png" referrerpolicy="no-referrer">
+
+<strong>IMG_8531.png</strong> (363.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-11 19:37 上传
+
+*****
+
+####  拯救节操希灵宅  
+##### 13364#       发表于 2026-9-11 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220978&amp;ptid=2275806" target="_blank">guyfawkes 发表于 2026-9-11 19:33</a>
+
+还以为是玩梗，没想到开放平台里真放了这条消息。幻方的运营简直是玩过家家，想一出是一出，那么随心所欲 ...</blockquote>
+幻方就是二游策划，社区有意见就滑跪，挺正常吧
+
+*****
+
+####  cscbzcbz  
+##### 13365#       发表于 2026-9-11 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220978&amp;ptid=2275806" target="_blank">guyfawkes 发表于 2026-9-11 19:33</a>
+还以为是玩梗，没想到开放平台里真放了这条消息。幻方的运营简直是玩过家家，想一出是一出，那么随心所欲 ...</blockquote>
+还行吧，不算草台，用户呼声挺大的算是及时响应用户需求了
+之前内测有调研问卷，问dsv4.1f能不能取代dsv4pro，估计大部分人选了可以取代。但是实际不用agent干活的用户，还是有使用pro的需求的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杀人鲸  
+##### 13366#       发表于 2026-9-11 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218286&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-9-11 08:04</a>
+你又不点名骂，谁知道你骂的是谁，直接@啊</blockquote>
+话说，我突然有点好奇：论坛有艾特功能吗？总感觉这个论坛用了挺久，好像从没见过有人用过这个功能。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
