@@ -1068,3 +1068,15 @@ A\现在感觉就是急的乱跳脚 内部现在估计就跟自爆前的deepmind
 Re:Source</blockquote>
 没人调用了空放着算占设备，有调用需求那也赚着api的钱
 
+
+*****
+
+####  hugosol  
+##### 13392#       发表于 2026-9-11 20:48
+
+直接把dsv4fv撤了全路由到4.1flash我意见也挺大的，不过他们家没卡我也能理解<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+把pro也撤那就只剩一个flash模型了，这也太奇怪了
+
+不过我反倒觉得这应该是4.1pro很快就要放出来填补这个空缺的信号，希望到时候用上新架构的pro也能降价一波<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
