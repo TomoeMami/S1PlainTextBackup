@@ -16717,3 +16717,30 @@ a%只说路由到opus啊，opus有灰测这么强？
 
 7.20就有的灰测，第一天试出来就超过4.8了，怎么这个时间能路由到Opus5？最搞笑的点在于声称和Kimi一样的技术，确实是超时空路由了……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Surlert  
+##### 13280#       发表于 2026-9-11 09:50
+
+速度相比之前快了很多，是engram的效果吗？
+
+
+*****
+
+####  CCauchy  
+##### 13281#       发表于 2026-9-11 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70216405&amp;ptid=2275806" target="_blank">Sacross 发表于 2026-9-10 19:47</a>
+泥潭之前有反ai老哥老说ai会让互联网全部辣鸡化，现在看下来最大的问题怕不是活人站能不能从虫族入侵潮活下 ...</blockquote>
+数据也是有限的，爬完就不爬了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Rowen233  
+##### 13282#       发表于 2026-9-11 09:52
+
+A➗又开始了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次可汗大点兵国模全喷了一遍
+
