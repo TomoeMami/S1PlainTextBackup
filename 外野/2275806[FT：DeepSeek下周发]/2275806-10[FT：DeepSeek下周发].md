@@ -1438,3 +1438,102 @@ engram最大的作用是卸载参数到host侧，和tps没半毛钱关系
 
 —— 来自 nubia NX737J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  mitzvah  
+##### 13422#       发表于 2026-9-11 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221624&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-11 21:49</a>
+
+高TPS加高性能，意味着算力的极大解放，本地部署都要被V4.1F占了，还看到这个架构加loop transform也很容易 ...</blockquote>
+300g的权重最差也要m3ultra512g
+
+155g的v4flash还能咬咬牙，这个是真不行
+
+*****
+
+####  王兰花秀丽  
+##### 13423#       发表于 2026-9-11 22:09
+
+ 本帖最后由 王兰花秀丽 于 2026-9-11 22:12 编辑 
+
+ds app灰测TTS 
+
+DeepSeek 上新四款音色 都蛮好听的！ https://xhslink.cn/o/6C4QrDkTDuG [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+1000053331.png
+(122.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 22:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/11/220953v9xl5iibmdqziy95.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mitzvah  
+##### 13422#       发表于 2026-9-11 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221624&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-11 21:49</a>
+
+高TPS加高性能，意味着算力的极大解放，本地部署都要被V4.1F占了，还看到这个架构加loop transform也很容易 ...</blockquote>
+300g的权重最差也要m3ultra512g
+
+155g的v4flash还能咬咬牙，这个是真不行
+
+*****
+
+####  王兰花秀丽  
+##### 13423#       发表于 2026-9-11 22:09
+
+ 本帖最后由 王兰花秀丽 于 2026-9-11 22:12 编辑 
+
+ds app灰测TTS 
+
+DeepSeek 上新四款音色 都蛮好听的！ https://xhslink.cn/o/6C4QrDkTDuG [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+1000053331.png
+(122.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 22:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/11/220953v9xl5iibmdqziy95.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mitzvah  
+##### 13422#       发表于 2026-9-11 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221624&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-11 21:49</a>
+
+高TPS加高性能，意味着算力的极大解放，本地部署都要被V4.1F占了，还看到这个架构加loop transform也很容易 ...</blockquote>
+300g的权重最差也要m3ultra512g
+
+155g的v4flash还能咬咬牙，这个是真不行
+
+*****
+
+####  王兰花秀丽  
+##### 13423#       发表于 2026-9-11 22:09
+
+ 本帖最后由 王兰花秀丽 于 2026-9-11 22:12 编辑 
+
+ds app灰测TTS 
+
+DeepSeek 上新四款音色 都蛮好听的！ https://xhslink.cn/o/6C4QrDkTDuG [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+1000053331.png
+(122.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 22:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/11/220953v9xl5iibmdqziy95.png" referrerpolicy="no-referrer">
+
