@@ -16914,3 +16914,13 @@ https://x.com/thsottiaux/status/2098113585683808624
 
 oai的卡都顶不住了，我看内存显存还得涨
 
+
+*****
+
+####  lactone  
+##### 13298#       发表于 2026-9-11 10:43
+
+本科生都来了，怕不是做毕设
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
