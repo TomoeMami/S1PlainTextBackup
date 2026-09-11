@@ -816,3 +816,62 @@ a畜今天爆的kimi和ds坐中转站转发消息是真的还是假的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  云卷花开  
+##### 13367#       发表于 2026-9-11 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220998&amp;ptid=2275806" target="_blank">linhaolin1 发表于 2026-9-11 19:37</a>
+a畜今天爆的kimi和ds坐中转站转发消息是真的还是假的</blockquote>
+见我本楼回复，反华公司和殖人群体打配合呢
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  拯救节操希灵宅  
+##### 13368#       发表于 2026-9-11 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221008&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-11 19:39</a>
+
+还行吧，不算草台，用户呼声挺大的算是及时响应用户需求了
+
+之前内测有调研问卷，问dsv4.1f能不能取代dsv4 ...</blockquote>
+我记得之前哪个游戏的策划发问卷，问关卡难度是否合适，大部分人选了过于简单，然后下版本加高难度后被炎上
+
+*****
+
+####  Baccano  
+##### 13369#       发表于 2026-9-11 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220998&amp;ptid=2275806" target="_blank">linhaolin1 发表于 2026-9-11 19:37</a>
+a畜今天爆的kimi和ds坐中转站转发消息是真的还是假的</blockquote>
+他们自家的Claude都说指控缺乏证据
+
+*****
+
+####  云卷花开  
+##### 13370#       发表于 2026-9-11 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220877&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-9-11 19:14</a>
+S一串居然也这么反智吗……</blockquote>
+你 ds 区看少了，这群野狗天天在那胡搅蛮缠，昨天有个傻逼在那打滚半天才让人投票出去的，我这上下文就一句话直接永封
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  很久就在那边l  
+##### 13371#       发表于 2026-9-11 19:50
+
+deepseek在国内除了微信公众号就开了小红书号，小红书上意见很大
+
+*****
+
+####  中国人  
+##### 13372#       发表于 2026-9-11 19:52
+
+我觉得响应呼声挺好的，虽然4.1 flash很快也很有能力，但也容易犯低级错误，应该给用户选择的机会。
+

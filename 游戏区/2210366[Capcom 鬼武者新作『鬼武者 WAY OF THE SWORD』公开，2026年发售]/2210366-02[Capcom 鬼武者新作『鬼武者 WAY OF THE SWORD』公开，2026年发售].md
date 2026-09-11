@@ -3448,3 +3448,11 @@ demo玩了感觉还可以
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  MRhythm  
+##### 1777#       发表于 2026-9-11 19:52
+
+3个敌人剧烈燃烧那个成就应该怎么做
+
