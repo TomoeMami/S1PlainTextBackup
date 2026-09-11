@@ -2012,3 +2012,20 @@ A÷那篇指控国模的问题。
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  phorcys02  
+##### 13452#       发表于 2026-9-12 03:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222255&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-12 03:11</a>
+
+现在为啥都在说kimi
+
+按照a/的说法，ds也路由了</blockquote>
+主要问题是，A/说kimi就是kimi吗？
+
+没准是某个中转站给 fable里掺了k3呢...(真良心）
+
+其他的可能是掺了ds和qwen的
+
