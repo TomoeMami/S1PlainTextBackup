@@ -705,3 +705,35 @@ kimi怎么还弄了个2.8，我3.1呢？
 国内路由论的源头就是以这个类脑管理为代表的类脑圈子，我自己观察来说天天这批人就是跑 ds 区正常讨论的时 ...</blockquote>
 S一串居然也这么反智吗……
 
+
+*****
+
+####  tonyunreal  
+##### 13356#       发表于 2026-9-11 19:17
+
+dsv4 pro 0813打赢复活赛了，没想到吧 <img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绝地潜兵  
+##### 13357#       发表于 2026-9-11 19:20
+
+笑嘻了，这么草台班子的吗
+
+*****
+
+####  cscbzcbz  
+##### 13358#       发表于 2026-9-11 19:20
+
+为响应广大用户的需求，我们决定在 2026 年 9 月 14 日之后继续提供 DeepSeek V4 Pro 的 API 调用服务，计费方式保持不变；如有变动，我们将另行通知。感谢您的理解与支持！<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+大体量模型还是没法替代的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 13359#       发表于 2026-9-11 19:23
+
+难绷，来点打赢复活赛的梗图
+

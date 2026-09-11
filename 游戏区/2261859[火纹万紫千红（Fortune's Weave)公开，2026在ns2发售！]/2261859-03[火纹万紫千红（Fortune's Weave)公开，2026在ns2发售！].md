@@ -5092,3 +5092,19 @@ IS不是做不出来帅哥，看来就是不想做
 
 女生组现在看来平均水平还行了，男的我也想不通受众是谁<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kuebiko  
+##### 3398#       发表于 2026-9-11 19:22
+
+看看过往两作的销量 看看战棋游戏的现状 拧巴是可以理解的
+
+茫茫多山贼 极其稀有的帅哥才是完全无法理解的
+
+不是不能有山贼 问题是这也太多了 帅哥也太少了
+
+偏偏美女又不少 很多审美也都在线
+
+谁能懂IS在想什么<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

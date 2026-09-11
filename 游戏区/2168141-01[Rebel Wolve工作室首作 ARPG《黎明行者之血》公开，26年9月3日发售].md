@@ -51,3 +51,14 @@
 
 2026-9-11 18:26 上传
 
+
+*****
+
+####  Schwarzess  
+##### 121#       发表于 2026-9-11 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220686&amp;ptid=2168141" target="_blank">寂长无星夜 发表于 2026-9-11 18:24</a>
+推荐装个加点不消耗时间的MOD，这样就很宽裕了</blockquote>
+确实，技能需要书+技能点+时间三种资源就很离谱。
+几种重要的主动技能做个独立小任务花时间就挺好的，比如动脉斩击得靠父亲战友任务解锁之类的。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
