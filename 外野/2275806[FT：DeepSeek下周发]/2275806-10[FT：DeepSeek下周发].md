@@ -1787,3 +1787,14 @@ X的推送就是这样的我有啥办法
 
 关于r18写作，老实说没有十全十美的模型。v4pga算是还可以的模型，其他可以用的模型有，gemini3.8f，k3，claude 4.6 opus。
 
+
+*****
+
+####  hugosol  
+##### 13436#       发表于 2026-9-12 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221926&amp;ptid=2275806" target="_blank">小止 发表于 2026-9-11 23:47</a>
+
+4.1f千万不要用max啊，一定要用high，我让4.1f做slint的epub样式排版，开了max做了一坨狗屎，甚至有字体渲 ...</blockquote>
+这个又是什么原理，我看好多人都这么说<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
