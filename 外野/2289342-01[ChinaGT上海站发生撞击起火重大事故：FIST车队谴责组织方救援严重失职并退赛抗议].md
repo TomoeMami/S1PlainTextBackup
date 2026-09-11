@@ -1546,3 +1546,13 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 <img src="https://img.stage1st.com/forum/202609/12/030019i2z4uc8ssc3itgti.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wuuuuuud  
+##### 116#       发表于 2026-9-12 07:37
+
+有监控啊，救护车6分多到的
+
+—— 来自 nubia NX737J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
