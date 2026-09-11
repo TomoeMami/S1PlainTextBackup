@@ -4763,3 +4763,33 @@ IS不是做不出来帅哥，看来就是不想做
 
 2026-9-11 11:56 上传
 
+
+*****
+
+####  mai6696  
+##### 3377#       发表于 2026-9-11 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219651&amp;ptid=2261859" target="_blank">hkguty 发表于 2026-9-11 11:46</a>
+
+这游戏对女玩家的吸引力怕是不及前作的十分之一，全靠阿鲁卡多苟着，阿鲁卡多塑造能不能成为下一个山猪一样 ...</blockquote>
+女玩家
+
+喜好：帅气的男人
+
+*****
+
+####  星花  
+##### 3378#       发表于 2026-9-11 12:08
+
+选女主角，然后组一个全山贼队。🐶
+
+
+*****
+
+####  guiminan  
+##### 3379#       发表于 2026-9-11 12:15
+
+怎么又一个喜欢女人的
+
+—— 来自 vivo V2329A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
