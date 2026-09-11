@@ -3269,3 +3269,14 @@ demo玩了感觉还可以
 我之前也老吃蓝光投，后来看到有人说可以迎上去碰瓷</blockquote>
 确实贴近就不出了 但是它手出来那下我就没一次躲过去的囧
 
+
+*****
+
+####  scp073  
+##### 1770#       发表于 2026-9-11 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70218791&amp;ptid=2210366" target="_blank">iou90 发表于 2026-9-11 09:48</a>
+
+第一个 boss 佐佐木我昨儿打了1个多小时 半个小时后才能稳定崩掉打进二阶段... 而且前面快20分钟一直没锁定 ...</blockquote>
+衣服是全boss再战通了才给，但是挺丑的
+
