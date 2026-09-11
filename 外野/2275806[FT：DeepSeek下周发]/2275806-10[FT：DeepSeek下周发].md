@@ -1223,3 +1223,110 @@ X的推送就是这样的我有啥办法
 —— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
 X的简中圈=屎坑啊，这还有啥可问的...
 
+
+*****
+
+####  舞以  
+##### 13405#       发表于 2026-9-11 21:35
+
+我的 x 主页的简中内容已经被我调教得基本只剩下网黄了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  neptunehs  
+##### 13406#       发表于 2026-9-11 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221556&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-11 21:35</a>
+我的 x 主页的简中内容已经被我调教得基本只剩下网黄了
+
+论坛助手,iPhone</blockquote>
+我原本也是啊 但最近因为对ai感兴趣看了一些deepseek的内容 然后就开始疯狂推送简中圈的ai内容。。。
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  舞以  
+##### 13407#       发表于 2026-9-11 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221560&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-11 21:36</a>
+我原本也是啊 但最近因为对ai感兴趣看了一些deepseek的内容 然后就开始疯狂推送简中圈的ai内容。。。
+
+— ...</blockquote>
+llm 现在都是炒作狗，从公司到自媒体，混 x 的简中内容更是纯野狗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  王兰花秀丽  
+##### 13408#       发表于 2026-9-11 21:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221560&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-11 21:36</a>
+我原本也是啊 但最近因为对ai感兴趣看了一些deepseek的内容 然后就开始疯狂推送简中圈的ai内容。。。
+
+— ...</blockquote>
+我说资讯还是看这个楼吧，楼友会帮你过滤大粪的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  yikka  
+##### 13409#       发表于 2026-9-11 21:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 推基本只有画师了，没简中的推文
+
+
+*****
+
+####  jinuzuktII  
+##### 13410#       发表于 2026-9-11 21:40
+
+推上的简中用户因为过滤了大批日子人, 所以傻逼浓度奇高无比
+
+*****
+
+####  nxmonitor  
+##### 13411#       发表于 2026-9-11 21:40
+
+v4fv完败于V4.1F啊，为什么还要留着？顺便V4.1P早点拿出来是真的，想看看这个架构运营2-3T模型的成本是多少…
+
+*****
+
+####  来都来了  
+##### 13412#       发表于 2026-9-11 21:40
+
+<img src="https://img.stage1st.com/forum/202609/11/214007tnq5wzb54bbaetnb.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1789134005214_1.webp</strong> (149.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 21:40 上传
+
+<img src="https://img.stage1st.com/forum/202609/11/214007pfw48j24dzbf72fy.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1789134005458_2.webp</strong> (171.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-11 21:40 上传
+
+我现在发现了，即使Deepseek也是草台<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 13413#       发表于 2026-9-11 21:44
+
+说起来4.1的架构是个黑科技，可能是目前满足国模2T以上模型正常运营的最好路线了，到时候跑出个100-150TPS也不是不可能，像K3这种质量不错但是直接算力被卡死是不行的…
+
+*****
+
+####  cscbzcbz  
+##### 13414#       发表于 2026-9-11 21:45
+
+不会这么快，让deepseek多优化几轮
+
