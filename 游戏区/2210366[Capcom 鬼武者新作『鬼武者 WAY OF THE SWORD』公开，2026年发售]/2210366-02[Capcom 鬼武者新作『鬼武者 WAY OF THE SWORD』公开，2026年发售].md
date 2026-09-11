@@ -3402,3 +3402,13 @@ demo玩了感觉还可以
 
 —— 来自 HUAWEI VDE-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  海岸线zjl  
+##### 1775#       发表于 2026-9-11 16:29
+
+不知道为什么，遇到过不去的Boss，只要把耳机摘了不听声音一次就能过。然后虽然关了声音但是脑袋里还能时不时回响刀剑碰撞的声音，而且没有声音打击感还是很足，真牛逼啊卡普空。
+
+—— 来自 HUAWEI VDE-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
