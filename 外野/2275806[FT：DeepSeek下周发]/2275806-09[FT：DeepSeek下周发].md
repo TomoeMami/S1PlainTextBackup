@@ -17175,3 +17175,34 @@ a\又开始说alibaba moonshot deepseek蒸馏了.......信誓旦旦地说moonsho
 anyrouter能免费用astra？</blockquote>
 刚出就能用了，5.6sol和opus5都下架，只让用fable5.1和astra
 
+
+*****
+
+####  @weakb0y  
+##### 13316#       发表于 2026-9-11 11:28
+
+ 本帖最后由 @weakb0y 于 2026-9-11 11:32 编辑 
+
+平常deepseek还是在zcode用，昨晚上想试试新的dsh，说是对4.1有了优化，
+
+无意间看见这个思维链，这这.......
+
+不仅充斥着稳定大量的 I'm...  For... I'm...
+<img src="https://imgchr.com/i/pnZ486x" id="aimg_V5ww2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+也有熟悉的 Let me... But wait... Actually
+<img src="https://imgchr.com/i/pnZ4GX6" id="aimg_vdIs4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  ycjiang1337  
+##### 13317#       发表于 2026-9-11 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219330&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-11 10:59</a>
+你说涉密单位的人敢不敢把内容传外国AI，那一定有敢的。
+
+你说DS会不会把涉密单位的路由给A家，那十个头也 ...</blockquote>
+用自家API路由任何数据都是严重违法行为，无论是否涉密
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
