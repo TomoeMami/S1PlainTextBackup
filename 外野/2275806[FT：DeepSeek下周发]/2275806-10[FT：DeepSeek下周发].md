@@ -1798,3 +1798,76 @@ X的推送就是这样的我有啥办法
 4.1f千万不要用max啊，一定要用high，我让4.1f做slint的epub样式排版，开了max做了一坨狗屎，甚至有字体渲 ...</blockquote>
 这个又是什么原理，我看好多人都这么说<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 13437#       发表于 2026-9-12 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222011&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-12 00:13</a>
+这个又是什么原理，我看好多人都这么说</blockquote>
+41f 的推理甜点就是 high 啊，技术报告都说了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  一般市民  
+##### 13438#       发表于 2026-9-12 00:27
+
+写文的个人感受：
+
+GLM 5.2 参数够大，能够输出长篇和描写足够细致（最好显示指令要求）
+
+K 2.6，基本同上，脑洞最大最重口的（大概）
+
+DS V4 Pro 预览版 基本同上，有点太文艺，自由发挥喜欢发散强行升华 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+豆包 Seed 2.1 其实也别有一番风味，感觉训练语料和上面三位明显不同
+
+老美的Inkling也可以试试
+
+上面这些老版本的八股和逻辑问题躲不了。
+
+
+*****
+
+####  舞以  
+##### 13437#       发表于 2026-9-12 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222011&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-12 00:13</a>
+这个又是什么原理，我看好多人都这么说</blockquote>
+41f 的推理甜点就是 high 啊，技术报告都说了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  一般市民  
+##### 13438#       发表于 2026-9-12 00:27
+
+写文的个人感受：
+
+GLM 5.2 参数够大，能够输出长篇和描写足够细致（最好显示指令要求）
+
+K 2.6，基本同上，脑洞最大最重口的（大概）
+
+DS V4 Pro 预览版 基本同上，有点太文艺，自由发挥喜欢发散强行升华 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+豆包 Seed 2.1 其实也别有一番风味，感觉训练语料和上面三位明显不同
+
+老美的Inkling也可以试试
+
+上面这些老版本的八股和逻辑问题躲不了。
+
+
+*****
+
+####  nxmonitor  
+##### 13439#       发表于 2026-9-12 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222011&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-12 00:13</a>
+
+这个又是什么原理，我看好多人都这么说</blockquote>
+max会反复测试导致思维链极其长，high完不成的让max做最多就好一点
+
