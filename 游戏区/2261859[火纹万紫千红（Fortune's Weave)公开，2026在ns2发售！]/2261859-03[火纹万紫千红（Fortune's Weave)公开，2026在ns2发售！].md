@@ -4843,3 +4843,11 @@ IS不是做不出来帅哥，看来就是不想做
 
 搞不懂弄一堆黑皮山贼干嘛
 
+
+*****
+
+####  抹茶瓜  
+##### 3383#       发表于 2026-9-11 14:30
+
+等一个把山贼招募了又全战场送死的操作<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
