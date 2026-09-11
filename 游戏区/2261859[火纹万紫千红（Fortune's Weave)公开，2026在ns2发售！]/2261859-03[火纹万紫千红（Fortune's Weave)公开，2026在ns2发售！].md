@@ -4527,3 +4527,11 @@ ns2游戏卡收藏盒
 
 直面会也没公布dlc，这代不会没有超难了吧，通关后给你来个回声那样的迷宫刷刷刷？
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 3358#       发表于 2026-9-11 08:18
+
+本作山贼男是不是太多了，感觉可以组全山贼男队了<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
