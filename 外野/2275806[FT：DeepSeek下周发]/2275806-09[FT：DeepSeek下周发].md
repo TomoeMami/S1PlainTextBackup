@@ -17114,3 +17114,31 @@ sol:我要提权到工作区内修改，然后调用工具。
 
 dsh:错误，你已经是工作区内修改了，不能再提权到工作区内修改。
 
+
+*****
+
+####  cscbzcbz  
+##### 13311#       发表于 2026-9-11 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219388&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-11 11:07</a>
+心血来潮，想试试5.6sol，跑了小一周的额度，结果啥都没干。
+
+看了下会话给我气笑了。
+
+这问题是我的，dsh的 ...</blockquote>
+有点离谱了，你这不会是被路由到4o了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  来都来了  
+##### 13312#       发表于 2026-9-11 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219388&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-11 11:07</a>
+心血来潮，想试试5.6sol，跑了小一周的额度，结果啥都没干。
+
+看了下会话给我气笑了。
+
+这问题是我的，dsh的 ...</blockquote>
+DSH我反正是不太爱用的，我觉得还不够成熟。试试Pi吧，我是Pi吹。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
