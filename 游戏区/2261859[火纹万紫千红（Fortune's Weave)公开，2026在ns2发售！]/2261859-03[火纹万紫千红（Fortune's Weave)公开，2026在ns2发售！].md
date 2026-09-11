@@ -4519,3 +4519,11 @@ ns2游戏卡收藏盒
 </blockquote>
 凯伊5年后长成火纹正统蓝毛王子了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nez  
+##### 3357#       发表于 2026-9-11 07:57
+
+直面会也没公布dlc，这代不会没有超难了吧，通关后给你来个回声那样的迷宫刷刷刷？
+

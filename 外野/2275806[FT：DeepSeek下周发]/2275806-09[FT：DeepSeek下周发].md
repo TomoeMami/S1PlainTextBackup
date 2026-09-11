@@ -16585,3 +16585,22 @@ ai4s 瞄准的是每年 3-4万亿美元的直接经费，和11万亿美元的间
 
 a\又开始说alibaba moonshot deepseek蒸馏了.......信誓旦旦地说moonshot deepseek用户的请求被转发到a\这边<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  646993211  
+##### 13269#       发表于 2026-9-11 07:57
+
+a÷说中国模型公司为了蒸馏把许多用户的输入发向claude，政府和公司甚至毛子那边的用户私密资料被a看到了
+
+
+*****
+
+####  spaceblue  
+##### 13270#       发表于 2026-9-11 08:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70217109&amp;ptid=2275806" target="_blank">里奥哟西 发表于 2026-9-10 21:27</a>
+
+楼里面傻逼ai大神能不能别爬论坛了，🐴死了啊天天爬</blockquote>
+你又不点名骂，谁知道你骂的是谁，直接@啊
+
