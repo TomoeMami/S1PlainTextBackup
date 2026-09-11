@@ -1368,3 +1368,73 @@ v4fv完败于V4.1F啊，为什么还要留着？顺便V4.1P早点拿出来是真
 
 不过你说DS小公司没那么多资源对外我就留一两个主力模型……好像也不是那么一回事，涨价前全世界都跑来蹬DS的时候依然是国产模型里服务最稳定的一家，我也不知道怎么解释这个行为了，可能真的就是跑个分觉得没问题那就把旧模型直接撤了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 13419#       发表于 2026-9-11 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221639&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-11 21:52</a>
+
+高tps是不是engram embedding带来的</blockquote>
+engram最大的作用是卸载参数到host侧，和tps没半毛钱关系
+
+*****
+
+####  云卷花开  
+##### 13420#       发表于 2026-9-11 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221639&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-11 21:52</a>
+高tps是不是engram embedding带来的</blockquote>
+是超小的激活，本次新架构的另一个黑科技，ds 真实架构仙人降本仙人
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  wuuuuuud  
+##### 13421#       发表于 2026-9-11 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221644&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-11 21:53</a>
+这种大版本变更你跑个分就跟我说4.1F完爆V4FV我肯定不信啊，之前我一直用V4FV用得好好的
+
+甚至有的人自己 ...</blockquote>
+“小”公司决策快啊，而且人都开源了，想用找第三方呗
+
+—— 来自 nubia NX737J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 13419#       发表于 2026-9-11 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221639&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-11 21:52</a>
+
+高tps是不是engram embedding带来的</blockquote>
+engram最大的作用是卸载参数到host侧，和tps没半毛钱关系
+
+*****
+
+####  云卷花开  
+##### 13420#       发表于 2026-9-11 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221639&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-11 21:52</a>
+高tps是不是engram embedding带来的</blockquote>
+是超小的激活，本次新架构的另一个黑科技，ds 真实架构仙人降本仙人
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  wuuuuuud  
+##### 13421#       发表于 2026-9-11 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221644&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-11 21:53</a>
+这种大版本变更你跑个分就跟我说4.1F完爆V4FV我肯定不信啊，之前我一直用V4FV用得好好的
+
+甚至有的人自己 ...</blockquote>
+“小”公司决策快啊，而且人都开源了，想用找第三方呗
+
+—— 来自 nubia NX737J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
