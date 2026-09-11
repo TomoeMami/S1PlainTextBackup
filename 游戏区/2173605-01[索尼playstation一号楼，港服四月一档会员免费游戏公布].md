@@ -217,3 +217,33 @@ IGN:就像其主角的艾德曼合金骨架一样，《漫威金刚狼》的底�
 
 另外去年是不是有放出来岛哥哥被收购的传闻，我更认为是没谈妥，毕竟赫尔曼失势了。新老**概率走独占政策
 
+
+*****
+
+####  黑猫软  
+##### 808#       发表于 2026-9-11 23:02
+
+<img src="https://img.stage1st.com/forum/202609/11/230203rdpnp1mgzempseti.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1789135973053_866.jpg</strong> (211.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-11 23:02 上传
+
+
+*****
+
+####  黑猫软  
+##### 808#       发表于 2026-9-11 23:02
+
+<img src="https://img.stage1st.com/forum/202609/11/230203rdpnp1mgzempseti.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1789135973053_866.jpg</strong> (211.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-11 23:02 上传
+

@@ -1660,3 +1660,25 @@ X的推送就是这样的我有啥办法
 
 —— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  CCauchy  
+##### 13428#       发表于 2026-9-11 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221508&amp;ptid=2275806" target="_blank">毒品 发表于 2026-9-11 21:19</a>
+
+求助，色       色那个模型靠谱点？deepseek写的不太行    Re:Source</blockquote>
+小说消费得那么快吗？我看pixiv上那么多，我这辈子都看不完
+
+
+*****
+
+####  CCauchy  
+##### 13428#       发表于 2026-9-11 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221508&amp;ptid=2275806" target="_blank">毒品 发表于 2026-9-11 21:19</a>
+
+求助，色       色那个模型靠谱点？deepseek写的不太行    Re:Source</blockquote>
+小说消费得那么快吗？我看pixiv上那么多，我这辈子都看不完
+
