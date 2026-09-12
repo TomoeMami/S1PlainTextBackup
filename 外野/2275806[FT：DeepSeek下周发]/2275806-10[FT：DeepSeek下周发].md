@@ -3437,3 +3437,14 @@ c看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比s
 c看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比sol max强。</blockquote>
 雷达站的v4.1f也挺可怕的
 
+
+*****
+
+####  千千千千鸟  
+##### 13537#       发表于 2026-9-12 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224146&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-12 19:34</a>
+
+看你用什么，我反正thinkbook笔电，有ps5，游戏就用bottls玩点gal，反正显卡也垃圾，玩不了别的，也就cs2 ...</blockquote>
+那我还是要玩一切强显卡需求的游戏<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">研究下
+
