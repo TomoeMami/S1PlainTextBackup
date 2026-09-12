@@ -1034,3 +1034,23 @@ IGN这些媒体记者，永远都只会看表象，先射箭再画靶
 
 —— 来自 vivo V2545A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  和菜头  
+##### 49#       发表于 2026-9-12 14:59
+
+索尼已经断气了.jpg
+
+—— 来自 vivo V2545A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  和菜头  
+##### 49#       发表于 2026-9-12 14:59
+
+索尼已经断气了.jpg
+
+—— 来自 vivo V2545A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
