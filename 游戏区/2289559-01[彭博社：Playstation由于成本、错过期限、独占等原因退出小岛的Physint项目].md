@@ -623,3 +623,39 @@ OD我感觉今年TGS可能就 ...</blockquote>
 —— 来自 S1Fun ...</blockquote>
 跟你索不一样的是，windows也是微软生态圈
 
+
+*****
+
+####  shimotsuki14  
+##### 67#       发表于 2026-9-12 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224341&amp;ptid=2289559" target="_blank">woaimiyabi 发表于 2026-9-12 20:23</a>
+那你这么说 konami 也养了那么多年小岛，给了小岛制作游戏的条件 让他做出来了合金装备这个经典系列，最后 ...</blockquote>
+大家骂Konami不是因为小岛才骂吧
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  shimotsuki14  
+##### 67#       发表于 2026-9-12 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224341&amp;ptid=2289559" target="_blank">woaimiyabi 发表于 2026-9-12 20:23</a>
+那你这么说 konami 也养了那么多年小岛，给了小岛制作游戏的条件 让他做出来了合金装备这个经典系列，最后 ...</blockquote>
+大家骂Konami不是因为小岛才骂吧
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  shimotsuki14  
+##### 67#       发表于 2026-9-12 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224341&amp;ptid=2289559" target="_blank">woaimiyabi 发表于 2026-9-12 20:23</a>
+那你这么说 konami 也养了那么多年小岛，给了小岛制作游戏的条件 让他做出来了合金装备这个经典系列，最后 ...</blockquote>
+大家骂Konami不是因为小岛才骂吧
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
