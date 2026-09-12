@@ -5455,3 +5455,19 @@ tb  之前pdd最低补贴还有320的
 
 is：山贼爽可比销量重要多了·jpg
 
+
+*****
+
+####  Jabeck  
+##### 3422#       发表于 2026-9-12 13:15
+
+担心销量之前还是先担心担心剧情是不是跟主旋律一样史诗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jabeck  
+##### 3422#       发表于 2026-9-12 13:15
+
+担心销量之前还是先担心担心剧情是不是跟主旋律一样史诗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

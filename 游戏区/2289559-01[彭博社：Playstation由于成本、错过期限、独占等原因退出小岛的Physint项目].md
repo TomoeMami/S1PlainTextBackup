@@ -489,3 +489,14 @@ bend商业上还好嘛，反而是不受媒体和高层喜欢的典型，然后�
 所以我一直说fuck 科乐美是不够公道的，公司赚不到钱肯定会终止合作。小岛秀夫的制作模式已经不适合资本主 ...</blockquote>
 科纳米和索尼，连着两家东家都和小岛散伙了，就看微软能不能hold住，感觉岛哥哥花销很大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  青色精灵の最期  
+##### 54#       发表于 2026-9-12 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221733&amp;ptid=2289559" target="_blank">huahuaanying 发表于 2026-9-11 22:19</a>
+
+所以我一直说fuck 科乐美是不够公道的，公司赚不到钱肯定会终止合作。小岛秀夫的制作模式已经不适合资本主 ...</blockquote>
+科纳米和索尼，连着两家东家都和小岛散伙了，就看微软能不能hold住，感觉岛哥哥花销很大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
