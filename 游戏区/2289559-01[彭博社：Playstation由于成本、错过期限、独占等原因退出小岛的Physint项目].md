@@ -659,3 +659,47 @@ OD我感觉今年TGS可能就 ...</blockquote>
 
 —— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  nage560  
+##### 68#       发表于 2026-9-12 22:07
+
+你看小岛这名声果不其然臭了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nage560  
+##### 69#       发表于 2026-9-12 22:07
+
+重复编辑。
+
+*****
+
+####  绿冰  
+##### 70#       发表于 2026-9-12 22:10
+
+ 本帖最后由 绿冰 于 2026-9-12 22:12 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224832&amp;ptid=2289559" target="_blank">shimotsuki14 发表于 2026-9-12 21:57</a>
+大家骂Konami不是因为小岛才骂吧
+
+—— 来自 OPPO PKJ110, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>这个倒应该是，只是很多人没意识到
+一堆游戏不出新作或者出烂作，本来就应该那几年主管游戏的小岛负责
+只是最后K赶人的手段太黑（还不一定全是真的），搞得一堆人觉得小岛冰清玉白，什么锅都往K扣
+
+—— 來自 realme RMX5060, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  凉良  
+##### 71#       发表于 2026-9-12 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224832&amp;ptid=2289559" target="_blank">shimotsuki14 发表于 2026-9-12 21:57</a>
+
+大家骂Konami不是因为小岛才骂吧
+
+—— 来自 OPPO PKJ110, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+这个好像还真是因为小岛才fuck的吧
+
+不过科乐美当时确实手段太脏了点
+
