@@ -2926,3 +2926,27 @@ Windows关键是powershell太孤儿了，错误率太高。现在有了harness�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  七氷  
+##### 13505#       发表于 2026-9-12 16:32
+
+Linux现在玩游戏也没有问题啊，只要不玩带反作弊的网游
+
+*****
+
+####  tonyunreal  
+##### 13506#       发表于 2026-9-12 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223684&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-12 15:55</a>
+
+4.1f的i’m思维链出现有什么规律吗，刷到两次，感觉确实不如let me</blockquote>
+这两天收集的一些玄学，估计都是错的
+
+1. 长提示词不容易出
+
+2. 不用dsh用其他客户端就不会出，zcode最好
+
+3. dsh里ptc模式最不容易出（但是oneshot效果有降低），其次标准，最差是极简
+
