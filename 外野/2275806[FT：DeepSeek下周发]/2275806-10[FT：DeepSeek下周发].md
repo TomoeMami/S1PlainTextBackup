@@ -2846,3 +2846,18 @@ AI agent 时代可能是有史以来 Linux 桌面最好的时代，折腾、排�
 新的屎山论剑，4.1flash  ...</blockquote>
 得分也是最高的<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 13501#       发表于 2026-9-12 15:55
+
+4.1f的i’m思维链出现有什么规律吗，刷到两次，感觉确实不如let me<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RookieTnT  
+##### 13502#       发表于 2026-9-12 15:56
+
+gpt又要重置了. 还说优化了astar 估计又开始ai传统异能 降智了.
+
