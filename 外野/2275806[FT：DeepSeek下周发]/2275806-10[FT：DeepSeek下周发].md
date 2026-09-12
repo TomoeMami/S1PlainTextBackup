@@ -3733,3 +3733,23 @@ Dario又发了一个恶臭声明，要求限制AI发展速度了，不然人类�
 
 新时代神谕机
 
+
+*****
+
+####  lly778  
+##### 13562#       发表于 2026-9-13 01:07
+
+A/现在比astra比不过，fable眼看就要被国内模型超了，急得要死
+
+*****
+
+####  guiyyan  
+##### 13563#       发表于 2026-9-13 01:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225637&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-13 00:58</a>
+
+跪拜astra的就很多啊，动不动就是把自己的所有日程都发给astra让他给建议自己照着行动的
+
+新时代神谕机 ...</blockquote>
+感觉就像是某种早期信徒优越感😄
+

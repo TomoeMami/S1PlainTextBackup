@@ -5549,3 +5549,11 @@ tb  之前pdd最低补贴还有320的</blockquote>
 
 最新的人物关系图，凯伊这队还是三角恋
 
+
+*****
+
+####  白色池塘  
+##### 3430#       发表于 2026-9-13 01:03
+
+哎呀，本作的舞台明显是在参考罗马帝国，那多一些四面八方来的蛮子山贼不是很正常吗<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
