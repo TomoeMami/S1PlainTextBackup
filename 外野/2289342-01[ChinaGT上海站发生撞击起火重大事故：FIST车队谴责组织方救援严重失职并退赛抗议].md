@@ -1603,3 +1603,16 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 而现在的FIA赛车服防火标准最多只能为车手争取20秒时间。
 
+
+*****
+
+####  佛剑分说  
+##### 121#       发表于 2026-9-12 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222593&amp;ptid=2289342" target="_blank">早乙女元气 发表于 2026-9-12 08:45</a>
+
+车队没有抗议到点上，赛事情况说明也是避重就轻。
+
+格罗斯让那次事故，起火后十秒赛道工作人员的灭火器开就 ...</blockquote>
+所以现在蹦出来喊反转的不是傻就是坏<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

@@ -363,3 +363,23 @@ x上喷索尼很大程度是对索尼这些年没拿出什么正经货货给大�
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  佛罗伦萨  
+##### 42#       发表于 2026-9-12 10:44
+
+死亡搁浅2其实很倒霉，遇到了33号远征队。本来去年有关艺术类的奖项，甚至年度奖都属于死亡搁浅2，结果碰上了一个上位替代。
+
+
+*****
+
+####  nianiania  
+##### 43#       发表于 2026-9-12 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222891&amp;ptid=2289559" target="_blank">佛罗伦萨 发表于 2026-9-12 10:44</a>
+死亡搁浅2其实很倒霉，遇到了33号远征队。本来去年有关艺术类的奖项，甚至年度奖都属于死亡搁浅2，结果碰上 ...</blockquote>
+输在出身上了呀，只恨小岛不是出身法国的日裔法国人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
