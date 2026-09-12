@@ -2628,3 +2628,75 @@ Codex大概下午三点重置，速蹬</blockquote>
 Codex大概下午三点重置，速蹬</blockquote>
 站起来蹬！
 
+
+*****
+
+####  蜇灵  
+##### 13496#       发表于 2026-9-12 14:58
+
+ocg，cc和ds官方，哪个的v4.1f最便宜且不降智降速？
+
+*****
+
+####  phorcys02  
+##### 13497#       发表于 2026-9-12 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223462&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-9-12 13:42</a>
+
+此外国内一些平台评论区（尤其是b站）上对于AI的吹捧随着最近AI在数学上的成果简直到了魔怔的地步，甚至让 ...</blockquote>
+你这是第一次体会到民主党肉喇叭的威力？
+
+
+*****
+
+####  蜇灵  
+##### 13496#       发表于 2026-9-12 14:58
+
+ocg，cc和ds官方，哪个的v4.1f最便宜且不降智降速？
+
+*****
+
+####  phorcys02  
+##### 13497#       发表于 2026-9-12 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223462&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-9-12 13:42</a>
+
+此外国内一些平台评论区（尤其是b站）上对于AI的吹捧随着最近AI在数学上的成果简直到了魔怔的地步，甚至让 ...</blockquote>
+你这是第一次体会到民主党肉喇叭的威力？
+
+
+*****
+
+####  蜇灵  
+##### 13496#       发表于 2026-9-12 14:58
+
+ocg，cc和ds官方，哪个的v4.1f最便宜且不降智降速？
+
+*****
+
+####  phorcys02  
+##### 13497#       发表于 2026-9-12 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223462&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-9-12 13:42</a>
+
+此外国内一些平台评论区（尤其是b站）上对于AI的吹捧随着最近AI在数学上的成果简直到了魔怔的地步，甚至让 ...</blockquote>
+你这是第一次体会到民主党肉喇叭的威力？
+
+
+*****
+
+####  蜇灵  
+##### 13496#       发表于 2026-9-12 14:58
+
+ocg，cc和ds官方，哪个的v4.1f最便宜且不降智降速？
+
+*****
+
+####  phorcys02  
+##### 13497#       发表于 2026-9-12 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223462&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-9-12 13:42</a>
+
+此外国内一些平台评论区（尤其是b站）上对于AI的吹捧随着最近AI在数学上的成果简直到了魔怔的地步，甚至让 ...</blockquote>
+你这是第一次体会到民主党肉喇叭的威力？
+
