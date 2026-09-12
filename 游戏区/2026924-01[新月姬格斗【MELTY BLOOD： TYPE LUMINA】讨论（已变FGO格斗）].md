@@ -371,3 +371,61 @@ boss rush 诺耶尔都用学生服少年来擦边球了肯定有办法啊
 那引入黑莲要讲黑莲的故事，就在mb做半个新版的歌月十夜，也能出现学生服少年然后再接新版MBAC
 更别说这作志贵换成了私服，那本来的学生服留给谁不用说了
 
+
+*****
+
+####  岸浪白野  
+##### 575#       发表于 2026-9-12 11:07
+
+昨天真的太省时间了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/12/110734pzj1z5xoh9y1x29m.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1789182452992_1.webp</strong> (85.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-12 11:07 上传
+
+<img src="https://img.stage1st.com/forum/202609/12/110734azfsyl40eyf2p2ki.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1789182453350_2.webp</strong> (57.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-12 11:07 上传
+
+<img src="https://img.stage1st.com/forum/202609/12/110734tslfflcdz0mcbmhs.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1789182453720_3.webp</strong> (95.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-12 11:07 上传
+
+
+*****
+
+####  Piano-Forest  
+##### 576#       发表于 2026-9-12 11:10
+
+PV：https://youtu.be/yZbYY02l5pc
+
+MELTY BLOOD: TYPE LUMINAがリニューアル
+
+進化したバトルシステムと新たなキャラクターが参戦
+
+夢の中で再び戦いの物語が動き出す──
+
+2027年4月22日に発売決定！
+
+公式サイト：https://meltyblood.twilumina.com/
+
+公式X：@MB_LUMINA（ https://x.com/MB_LUMINA​ ）
+
+原作 奈須きのこ / TYPE-MOON
+
+開発 フランスパン
+
+発売 株式会社アニプレックス
+
