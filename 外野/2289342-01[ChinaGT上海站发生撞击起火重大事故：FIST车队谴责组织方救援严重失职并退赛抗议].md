@@ -1556,3 +1556,13 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 
 —— 来自 nubia NX737J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  tsukicn  
+##### 117#       发表于 2026-9-12 08:07
+
+是不是反转了，在qq群看到的，有监控
+
+—— 来自 vivo V2338A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
