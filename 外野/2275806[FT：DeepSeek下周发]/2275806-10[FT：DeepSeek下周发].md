@@ -2700,3 +2700,45 @@ ocg，cc和ds官方，哪个的v4.1f最便宜且不降智降速？
 此外国内一些平台评论区（尤其是b站）上对于AI的吹捧随着最近AI在数学上的成果简直到了魔怔的地步，甚至让 ...</blockquote>
 你这是第一次体会到民主党肉喇叭的威力？
 
+
+*****
+
+####  misuzu0723  
+##### 13498#       发表于 2026-9-12 15:17
+
+【四家Flash大乱斗，挑战屎山代码｜屎山论剑-哔哩哔哩】 https://b23.tv/N8VWQhf
+新的屎山论剑，4.1flash 速度上有绝对优势<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  Cirn09  
+##### 13499#       发表于 2026-9-12 15:20
+
+上个月D老师花了几分钱+几分钟就修好了我手动修了好几次都没修好的 NAS GPU 掉驱动问题，打算把主力机换到 Linux 了
+AI agent 时代可能是有史以来 Linux 桌面最好的时代，折腾、排障不再是一次性耗费x小时、耗费大量精力的麻烦问题，更别说还能靠 vibe coding 拓展自己想要的桌面功能，全面发挥 Linux 灵活性自由度了属于是
+
+—— 来自 HUAWEI VYG-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  misuzu0723  
+##### 13498#       发表于 2026-9-12 15:17
+
+【四家Flash大乱斗，挑战屎山代码｜屎山论剑-哔哩哔哩】 https://b23.tv/N8VWQhf
+新的屎山论剑，4.1flash 速度上有绝对优势<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  Cirn09  
+##### 13499#       发表于 2026-9-12 15:20
+
+上个月D老师花了几分钱+几分钟就修好了我手动修了好几次都没修好的 NAS GPU 掉驱动问题，打算把主力机换到 Linux 了
+AI agent 时代可能是有史以来 Linux 桌面最好的时代，折腾、排障不再是一次性耗费x小时、耗费大量精力的麻烦问题，更别说还能靠 vibe coding 拓展自己想要的桌面功能，全面发挥 Linux 灵活性自由度了属于是
+
+—— 来自 HUAWEI VYG-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
