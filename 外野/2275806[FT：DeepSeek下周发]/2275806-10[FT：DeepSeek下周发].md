@@ -3583,3 +3583,25 @@ workbuddy是真的垃圾流氓软件啊。
 一堆无法关闭的隐藏提示词和工具调用，动不动给对话最后一段让你加个给ai ...</blockquote>
 用CodeBuddy cil呀，不习惯tui的话还自带一个前端网页
 
+
+*****
+
+####  cscbzcbz  
+##### 13550#       发表于 2026-9-13 00:16
+
+ 本帖最后由 cscbzcbz 于 2026-9-13 00:17 编辑 
+
+看雷达站，dsv4.1flash 又是high的分数比max高<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+high112题对了86题，max150题对了90题<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+等样本多一些在看看，按这个分数真超过sol了
+
+<img src="https://img.stage1st.com/forum/202609/13/001407hna1lqqr2hu2lzq7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 00:14 上传
+
