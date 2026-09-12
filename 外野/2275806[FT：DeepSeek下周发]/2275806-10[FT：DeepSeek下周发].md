@@ -3054,3 +3054,25 @@ Linux现在玩游戏也没有问题啊，只要不玩带反作弊的网游
 
 今年年初，数码区的换LINUX主力系统贴里还有很多人说排雷，linux雷很多啥的，本来那时候我已经想换了，最后打消了，但是到agent时代还真可以用起来了吧，我现在windows的设置也全部交给codex了，完全全权托管。。
 
+
+*****
+
+####  mitzvah  
+##### 13513#       发表于 2026-9-12 18:25
+
+ 本帖最后由 mitzvah 于 2026-9-12 18:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223885&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-9-12 18:16</a>
+
+今年年初，数码区的换LINUX主力系统贴里还有很多人说排雷，linux雷很多啥的，本来那时候我已经想换了，最后 ...</blockquote>
+linux确实不少雷，我的strix halo为了跑训练脚本上了Ubuntu24.04，结果gui卡死的毛病死活修不好，但也无所谓，直接命令行其它电脑上的代理ssh做comfyui的服务器后端一点问题都没有
+
+*****
+
+####  千千千千鸟  
+##### 13514#       发表于 2026-9-12 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223896&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-12 18:25</a>
+
+linux确实不少雷，我的strix halo为了跑训练脚本上了Ubuntu24.04，结果gui卡死的毛病死活修不好，但也无所 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我就是想日常使用，也有好新鲜的因素在里面，体验一下新事物的感觉，不过之前门槛有点高，现在无论如何都有agent兜底的话感觉可以放心玩了。
+
