@@ -16,3 +16,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">舞台角色和跳舞动作有什么联系性嘛，怎么同一套周年服有的角色会跳有的角色换上就挥挥手的
 
+
+*****
+
+####  江戸前ルナ  
+##### 2099#         楼主| 发表于 2026-9-12 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221927&amp;ptid=2104259" target="_blank">madcow 发表于 2026-9-11 23:47</a>
+
+舞台角色和跳舞动作有什么联系性嘛，怎么同一套周年服有的角色会跳有的角色换上就挥挥手的 ...</blockquote>
+根据情人节比心，应该就是随机（
+
