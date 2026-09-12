@@ -3571,3 +3571,15 @@ workbuddy是真的垃圾流氓软件啊。
 
 计费上一堆小巧思，免费的hy4或者积分倍率低的v4.1f还有glm5.3f用着用着会悄悄切到高倍率的初始档<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  叶林s  
+##### 13549#       发表于 2026-9-12 23:53
+
+<blockquote>serj005 发表于 2026-9-12 23:41
+workbuddy是真的垃圾流氓软件啊。
+
+一堆无法关闭的隐藏提示词和工具调用，动不动给对话最后一段让你加个给ai ...</blockquote>
+用CodeBuddy cil呀，不习惯tui的话还自带一个前端网页
+
