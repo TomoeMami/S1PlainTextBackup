@@ -3605,3 +3605,14 @@ high112题对了86题，max150题对了90题<img src="https://static.stage1st.co
 
 2026-9-13 00:14 上传
 
+
+*****
+
+####  serj005  
+##### 13551#       发表于 2026-9-13 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225295&amp;ptid=2275806" target="_blank">叶林s 发表于 2026-9-12 23:53</a>
+用CodeBuddy cil呀，不习惯tui的话还自带一个前端网页</blockquote>
+cli没法签到，workbuddy都是看着有免费积分捏着鼻子用的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+另外cli近期更新也挺难绷的，一两个就把版本web界面整个给改了，还把dsh的四个模式原封不动copy过去
+
