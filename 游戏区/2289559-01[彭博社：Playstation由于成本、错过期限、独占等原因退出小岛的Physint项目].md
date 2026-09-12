@@ -581,3 +581,14 @@ OD我感觉今年TGS可能就 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  凉良  
+##### 63#       发表于 2026-9-12 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224341&amp;ptid=2289559" target="_blank">woaimiyabi 发表于 2026-9-12 20:23</a>
+
+那你这么说 konami 也养了那么多年小岛，给了小岛制作游戏的条件 让他做出来了合金装备这个经典系列，最后 ...</blockquote>
+我一直觉得科乐美赶走小岛真的没问题小岛当年完全是把科乐美往死路上带。 有问题的是科乐美赶人的姿态。
+
