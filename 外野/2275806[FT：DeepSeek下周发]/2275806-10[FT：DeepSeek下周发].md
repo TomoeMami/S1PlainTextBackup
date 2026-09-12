@@ -3761,3 +3761,34 @@ A/现在比astra比不过，fable眼看就要被国内模型超了，急得要�
 
 ⏰直接制裁A畜吧，反正它的数据中心供应链都依赖国内
 
+
+*****
+
+####  lly778  
+##### 13565#       发表于 2026-9-13 01:39
+
+4.1目前max档位肯定是有问题的，雷达站上high的deepswe比max高，灰测思维链现在就是大区
+
+*****
+
+####  阿刚  
+##### 13566#       发表于 2026-9-13 01:42
+
+<blockquote>qwased 发表于 2026-9-13 00:58
+跪拜astra的就很多啊，动不动就是把自己的所有日程都发给astra让他给建议自己照着行动的
+
+新时代神谕机 ...</blockquote>
+神谕机也太尼玛有病了
+
+*****
+
+####  xiaohanne  
+##### 13567#       发表于 2026-9-13 01:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225637&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-13 00:58</a>
+
+跪拜astra的就很多啊，动不动就是把自己的所有日程都发给astra让他给建议自己照着行动的
+
+新时代神谕机 ...</blockquote>
+有没有人把电子钱包给astra的，想看看神人表演。
+
