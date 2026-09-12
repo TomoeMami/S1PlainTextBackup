@@ -383,3 +383,30 @@ x上喷索尼很大程度是对索尼这些年没拿出什么正经货货给大�
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tachikoma27  
+##### 44#       发表于 2026-9-12 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222891&amp;ptid=2289559" target="_blank">佛罗伦萨 发表于 2026-9-12 10:44</a>
+死亡搁浅2其实很倒霉，遇到了33号远征队。本来去年有关艺术类的奖项，甚至年度奖都属于死亡搁浅2，结果碰上 ...</blockquote>
+那就是顶着历年年度里评分倒数，销量最低，外加无实质性突破续作三重debuff获奖。后面的游戏很难超越了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 45#       发表于 2026-9-12 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221725&amp;ptid=2289559" target="_blank">爱护动物抓根宝 发表于 2026-9-11 22:16</a>
+
+疫情+**潮基本把北美文娱产业创烂了，小岛工作室其实也算是典型代表，毕竟工作室直接开在美国的，不过话又 ...</blockquote>
+工作室在日本啊
+
+*****
+
+####  Dreammask  
+##### 46#       发表于 2026-9-12 11:05
+
+不赚钱只是表面原因吧，总不能告诉我bend活到现在是因为往日不再真赚到钱了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

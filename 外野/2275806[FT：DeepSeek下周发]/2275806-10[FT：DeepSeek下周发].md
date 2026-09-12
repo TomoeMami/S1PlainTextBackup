@@ -2310,3 +2310,48 @@ A/这么明显的泄露隐私，而且真假未知，这都没人声讨泄露隐
 
 A/这样做只让人觉得好笑<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  StrangerJ  
+##### 13477#       发表于 2026-9-12 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222303&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-12 04:44</a>
+那如果没泄密呢？
+
+而且处理和处理不一样，罚款也是处理，抓进去也是处理</blockquote>
+为什么不去跟大侄子一起发散跑过来拉屎呢
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  neptunehs  
+##### 13478#       发表于 2026-9-12 11:02
+
+nvidia那个专用pi 有人试过了吗 好像叫sol-pi？很ds能配吗
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  BarricadeMKXX  
+##### 13479#       发表于 2026-9-12 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222532&amp;ptid=2275806" target="_blank">chautauqua 发表于 2026-9-12 08:24</a>
+大家有没有qq群？怕哪天论坛又上不了了
+
+—— 来自 vivo V2403A, Android 16, 鹅球 v4.0 ...</blockquote>
+前面有，956841615
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  airshit  
+##### 13480#       发表于 2026-9-12 11:03
+
+把国内用户的数据往外面发吗，上一个这么有胆子的公司是哪个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
