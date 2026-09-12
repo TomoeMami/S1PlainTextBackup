@@ -467,3 +467,25 @@ bend商业上还好嘛，反而是不受媒体和高层喜欢的典型，然后�
 
 作为岛儿子，我只能说小岛最大的缺点就是过于👅好莱坞了，我都数不清因为这事岛爆雷多少次。小岛如果不找欧美这帮大明星和懒逼，开发进度不敢想能快多少，给索哥和软哥交俩demo简直轻轻松松，OD因为演员**能拖延两年真神了😀physint更是八字没一撇
 
+
+*****
+
+####  青色精灵の最期  
+##### 53#       发表于 2026-9-12 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221735&amp;ptid=2289559" target="_blank">ナルバレック 发表于 2026-9-11 22:19</a>
+
+彭博社的游戏记者主要是望月崇吧？美国还有一个主要记者……不过这个说法逻辑上还是挺通顺的 ...</blockquote>
+写这篇的是Jason Schreier，爆料准确度和信誉都是第一梯队，这位老哥挖掘大厂一些内幕，很多大厂管理层很讨厌他，我倒是觉得他过往说到了不少大厂不愿披露的痛点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  青色精灵の最期  
+##### 54#       发表于 2026-9-12 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221733&amp;ptid=2289559" target="_blank">huahuaanying 发表于 2026-9-11 22:19</a>
+
+所以我一直说fuck 科乐美是不够公道的，公司赚不到钱肯定会终止合作。小岛秀夫的制作模式已经不适合资本主 ...</blockquote>
+科纳米和索尼，连着两家东家都和小岛散伙了，就看微软能不能hold住，感觉岛哥哥花销很大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

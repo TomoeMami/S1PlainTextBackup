@@ -2457,3 +2457,11 @@ Codex大概下午三点重置，速蹬
 
 强烈要求大肥鱼的声音修改, 现在的和形象严重不符<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 13490#       发表于 2026-9-12 13:13
+
+陶哲轩、邓煜等25位菲尔兹奖得主发表联合声明：警惕AI研发目标与数学研究核心价值严重脱节。现在的AI for math能否创造出新的数学工具和数学思维仍属未知，如果AI真的能进化成AGI倒还好说，但是如果只是把数学难题当成benchmark来刷确实看不出对数学创新上的贡献<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
