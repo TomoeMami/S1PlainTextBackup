@@ -3459,3 +3459,22 @@ c看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比s
 那我还是要玩一切强显卡需求的游戏研究下</blockquote>
 游戏反而简单，steam上有的基本都可以，我指的是像剪辑软件这种
 
+
+*****
+
+####  CCauchy  
+##### 13538#       发表于 2026-9-12 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224733&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-9-12 21:40</a>
+
+那我还是要玩一切强显卡需求的游戏研究下</blockquote>
+游戏反而简单，steam上有的基本都可以，我指的是像剪辑软件这种
+
+
+*****
+
+####  FACS  
+##### 13539#       发表于 2026-9-12 22:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">zcode什么意思，他这个/btw怎么会随机乱入subagent的输出
+
