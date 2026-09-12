@@ -428,3 +428,14 @@ x上喷索尼很大程度是对索尼这些年没拿出什么正经货货给大�
 
 分手后小岛那堆用游骑兵引擎做的资产还能用嘛
 
+
+*****
+
+####  ナルバレック  
+##### 49#       发表于 2026-9-12 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222969&amp;ptid=2289559" target="_blank">Dreammask 发表于 2026-9-12 11:05</a>
+
+不赚钱只是表面原因吧，总不能告诉我bend活到现在是因为往日不再真赚到钱了 ...</blockquote>
+bend商业上还好嘛，反而是不受媒体和高层喜欢的典型，然后好几年没作品了
+
