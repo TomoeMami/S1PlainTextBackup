@@ -2495,3 +2495,83 @@ Codex大概下午三点重置，速蹬
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  ycjiang1337  
+##### 13492#       发表于 2026-9-12 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222254&amp;ptid=2275806" target="_blank">四氧化三铅 发表于 2026-9-12 03:09</a>
+
+A÷那篇指控国模的问题。
+
+假如说这些指控都是真的，假如说。</blockquote>
+然而你完全说反了，路由是严重违法行为
+
+
+*****
+
+####  ycjiang1337  
+##### 13492#       发表于 2026-9-12 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222254&amp;ptid=2275806" target="_blank">四氧化三铅 发表于 2026-9-12 03:09</a>
+
+A÷那篇指控国模的问题。
+
+假如说这些指控都是真的，假如说。</blockquote>
+然而你完全说反了，路由是严重违法行为
+
+
+*****
+
+####  ycjiang1337  
+##### 13492#       发表于 2026-9-12 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222254&amp;ptid=2275806" target="_blank">四氧化三铅 发表于 2026-9-12 03:09</a>
+
+A÷那篇指控国模的问题。
+
+假如说这些指控都是真的，假如说。</blockquote>
+然而你完全说反了，路由是严重违法行为
+
+*****
+
+####  狭义文具爱好者  
+##### 13493#       发表于 2026-9-12 13:42
+
+<img src="https://img.stage1st.com/forum/202609/12/134215q63au1m7d576d96x.png" referrerpolicy="no-referrer">
+
+<strong>83ED1A6E129647726296EB6D1851D4F8.png</strong> (29.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-12 13:42 上传
+
+*****
+
+####  qz66618  
+##### 13494#       发表于 2026-9-12 13:42
+
+此外国内一些平台评论区（尤其是b站）上对于AI的吹捧随着最近AI在数学上的成果简直到了魔怔的地步，甚至让我思考在《三体》里描述的降临派是否真的会出现在现实。我甚至认为一些”拜AI教“的思想本质上和反智没有区别<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狭义文具爱好者  
+##### 13493#       发表于 2026-9-12 13:42
+
+<img src="https://img.stage1st.com/forum/202609/12/134215q63au1m7d576d96x.png" referrerpolicy="no-referrer">
+
+<strong>83ED1A6E129647726296EB6D1851D4F8.png</strong> (29.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-12 13:42 上传
+
+*****
+
+####  qz66618  
+##### 13494#       发表于 2026-9-12 13:42
+
+此外国内一些平台评论区（尤其是b站）上对于AI的吹捧随着最近AI在数学上的成果简直到了魔怔的地步，甚至让我思考在《三体》里描述的降临派是否真的会出现在现实。我甚至认为一些”拜AI教“的思想本质上和反智没有区别<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
