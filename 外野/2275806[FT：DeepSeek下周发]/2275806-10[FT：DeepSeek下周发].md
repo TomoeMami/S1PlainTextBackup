@@ -3332,3 +3332,108 @@ x上英文ai圈子比内网还乌烟瘴气</blockquote>
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  fat  
+##### 13534#       发表于 2026-9-12 21:26
+
+c
+
+<img src="https://img.stage1st.com/forum/202609/12/212619vlpzhjj0rjayalaa.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260912-212608.png</strong> (149.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-12 21:26 上传
+
+看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比sol max强。
+
+*****
+
+####  misuzu0723  
+##### 13535#       发表于 2026-9-12 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224684&amp;ptid=2275806" target="_blank">fat 发表于 2026-9-12 21:26</a>
+c看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比sol max强。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这个得分只能作为一个参考，不然你看众测站里 4.1f 的 high 也能拉到 110+
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  fat  
+##### 13534#       发表于 2026-9-12 21:26
+
+c
+
+<img src="https://img.stage1st.com/forum/202609/12/212619vlpzhjj0rjayalaa.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260912-212608.png</strong> (149.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-12 21:26 上传
+
+看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比sol max强。
+
+*****
+
+####  misuzu0723  
+##### 13535#       发表于 2026-9-12 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224684&amp;ptid=2275806" target="_blank">fat 发表于 2026-9-12 21:26</a>
+c看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比sol max强。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这个得分只能作为一个参考，不然你看众测站里 4.1f 的 high 也能拉到 110+
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  德尔惠净水器  
+##### 13536#       发表于 2026-9-12 21:34
+
+<blockquote>fat 发表于 2026-9-12 21:26
+c看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比sol max强。</blockquote>
+雷达站的v4.1f也挺可怕的
+
+
+*****
+
+####  fat  
+##### 13534#       发表于 2026-9-12 21:26
+
+c
+
+<img src="https://img.stage1st.com/forum/202609/12/212619vlpzhjj0rjayalaa.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260912-212608.png</strong> (149.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-12 21:26 上传
+
+看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比sol max强。
+
+*****
+
+####  misuzu0723  
+##### 13535#       发表于 2026-9-12 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224684&amp;ptid=2275806" target="_blank">fat 发表于 2026-9-12 21:26</a>
+c看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比sol max强。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这个得分只能作为一个参考，不然你看众测站里 4.1f 的 high 也能拉到 110+
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  德尔惠净水器  
+##### 13536#       发表于 2026-9-12 21:34
+
+<blockquote>fat 发表于 2026-9-12 21:26
+c看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比sol max强。</blockquote>
+雷达站的v4.1f也挺可怕的
+
