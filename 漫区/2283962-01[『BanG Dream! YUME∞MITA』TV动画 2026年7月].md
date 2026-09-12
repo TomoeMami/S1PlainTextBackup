@@ -254,3 +254,22 @@ vol她真是好女孩<img src="https://static.stage1st.com/image/smiley/face2017
 
 vol这个角色真的太空洞了，都说磕cp双方都要喜欢，但实在对薇没什么爱；；
 
+
+*****
+
+####  帆前  
+##### 466#       发表于 2026-9-12 07:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221208&amp;ptid=2283962" target="_blank">aptx8285144 发表于 2026-9-11 20:18</a>
+
+从主角从舞台上拉走律后，主角团就没啥正面或强有力的塑造了，由乃的支线也与这些破事氛围不同，于是乎也 ...</blockquote>
+主角团塑造太灾难了，依赖电波小孩开会，yuno前队友的萌豚番回忆反而显得人类了
+
+
+*****
+
+####  雷攻姛人  
+##### 467#       发表于 2026-9-12 08:02
+
+最终是主角团和薇欧拉都没拉起来
+

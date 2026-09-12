@@ -191,3 +191,14 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 不过也是几原系不可不品的一环 ...</blockquote>
 其实拉拉家除了拉拉本人外都是谜语人也比较影响观感，不过这片细节还可以，芙莉她哥前面就有暗示其实是有关注拉拉的，现在“偷听”得知拉拉是人鱼后傻眼表情+跟过来，其实基本暗示老哥是暗恋拉拉的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 507#       发表于 2026-9-12 08:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221246&amp;ptid=2183857" target="_blank">aptx8285144 发表于 2026-9-11 20:28</a>
+
+其实拉拉家除了拉拉本人外都是谜语人也比较影响观感，不过这片细节还可以，芙莉她哥前面就有暗示其实是有 ...</blockquote>
+老哥这个细节也是以小喜剧形式出现了很多次了，主打一个润滑剂作用
+
