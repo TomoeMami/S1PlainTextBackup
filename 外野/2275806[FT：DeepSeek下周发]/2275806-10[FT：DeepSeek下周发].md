@@ -3281,3 +3281,54 @@ v4.1的网页端，目前用下来最大的提升点除了速度以外，就是�
 v4时期随便一个常识问题或者有确定答案的知识性问题全都要跑一遍网页搜索才能磨磨唧唧给出个答案，有时候还会被搜索结果干扰污染。
 v4.1之后它用自身知识直接回答问题的比例显著提升，终于不用每次都等搜索结果了。
 
+
+*****
+
+####  Cloude_L  
+##### 13530#       发表于 2026-9-12 20:10
+
+workbuddy就是烧token太快，自带api都这样
+
+但是自己买deepseek比用腾子给的积分省多了
+
+*****
+
+####  lactone  
+##### 13531#       发表于 2026-9-12 20:10
+
+还是就看泥漏吧
+
+x上英文ai圈子比内网还乌烟瘴气
+
+谷歌rsi那个leaker直接被gemini官方怼了说不认识她
+但是造谣的推传的到处都是，gemini官方怼他的推没人看
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  scikirbypoke  
+##### 13532#       发表于 2026-9-12 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224281&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-12 20:10</a>
+还是就看泥漏吧
+
+x上英文ai圈子比内网还乌烟瘴气</blockquote>
+搜了下感觉是什么路边发点字谜就一堆狂欢
+
+*****
+
+####  lactone  
+##### 13533#       发表于 2026-9-12 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224292&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-9-12 20:12</a>
+搜了下感觉是什么路边发点字谜就一堆狂欢</blockquote>
+因为传闻源头被谷歌官方怼了
+
+现在是gemini怼我说明他急了，说明传言是真的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然而谷歌老板几天前还买说把资源调到rsi上，两天就搞出来了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

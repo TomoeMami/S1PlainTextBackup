@@ -24,3 +24,14 @@
 
 不给司马懿戴冠的话怎么也优化不掉换人服，算了，反正自回体
 
+
+*****
+
+####  飛霞精灵  
+##### 48216#       发表于 2026-9-12 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223224&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2026-9-12 12:25</a>
+
+不给司马懿戴冠的话怎么也优化不掉换人服，算了，反正自回体</blockquote>
+抱个太公望大腿然后用金时速刷就行，唯一缺陷是得换人，开局用低星海盗刷个宝威再换懿抹多。
+
