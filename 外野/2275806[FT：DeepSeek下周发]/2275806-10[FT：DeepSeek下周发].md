@@ -2861,3 +2861,30 @@ AI agent 时代可能是有史以来 Linux 桌面最好的时代，折腾、排�
 
 gpt又要重置了. 还说优化了astar 估计又开始ai传统异能 降智了.
 
+
+*****
+
+####  mitzvah  
+##### 13503#       发表于 2026-9-12 16:09
+
+Windows关键是powershell太孤儿了，错误率太高。现在有了harness，本地代理都能把linux收拾的服服帖帖
+
+
+*****
+
+####  mitzvah  
+##### 13503#       发表于 2026-9-12 16:09
+
+Windows关键是powershell太孤儿了，错误率太高。现在有了harness，本地代理都能把linux收拾的服服帖帖
+
+*****
+
+####  neptunehs  
+##### 13504#       发表于 2026-9-12 16:16
+
+而且wsl虽然能用但谈不上好用（磁盘性能之类的）
+
+要不是还要打游戏我真想转linux了。。。
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
