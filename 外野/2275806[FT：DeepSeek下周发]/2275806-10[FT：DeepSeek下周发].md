@@ -3129,3 +3129,35 @@ x上在传谷歌deepmind内部搞定rsi了<img src="https://static.stage1st.com/
 
 gpt快要出6 日月地球了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 13520#       发表于 2026-9-12 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223461&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-9-12 13:42</a></blockquote>
+我数数，opus4.6 4.8 5 5.1，剩下21个人是谁？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  终究似水向东流  
+##### 13521#       发表于 2026-9-12 19:13
+
+<blockquote>qz66618 发表于 2026-9-12 13:42
+此外国内一些平台评论区（尤其是b站）上对于AI的吹捧随着最近AI在数学上的成果简直到了魔怔的地步，甚至让 ...</blockquote>
+是国外ai，特指oa，不要搞错了
+
+*****
+
+####  lactone  
+##### 13522#       发表于 2026-9-12 19:16
+
+x上出现了说谷歌搞定了rsi的传闻，不过rsi定义到底是啥<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+如果是自动迭代那么很多公司都能做到
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
