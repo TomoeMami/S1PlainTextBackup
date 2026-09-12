@@ -225,3 +225,16 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 
 至于菈菈的光是真的难评，与其说卖BG还是GL给我的感觉更像是白眼狼，上岸的时候谁对她好，她就想要更多，以前是王子现在是莫里，当年想吃王子所以第二次上岸就迟疑了，卢卡解除了她的心结于是又开始想着莫里
 
+
+*****
+
+####  Piano-Forest  
+##### 510#         楼主| 发表于 2026-9-12 20:20
+
+<img src="https://p.sda1.dev/35/81b7d0b45bd37bb71f1bb3fad071fb46/HR73n9HawAE1mqm.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/df03c4db56607d1f93a4a3dd07cc3b32/HR798odbgAAbjmI.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/35/8bf310ecdb90e2f00e3e079ac3934bd6/1000173753.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/ac02a0a3671df7bb462dcbca7e632079/1000173754.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/13a98056cf81f78039fbb24f815fdb1f/1000173755.jpg" referrerpolicy="no-referrer">
+
