@@ -2449,3 +2449,11 @@ Codex大概下午三点重置，速蹬
 
 <img src="https://img.stage1st.com/forum/202609/12/124639gz29do2zoxxo2jfq.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  →熙←  
+##### 13489#       发表于 2026-9-12 13:04
+
+强烈要求大肥鱼的声音修改, 现在的和形象严重不符<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
