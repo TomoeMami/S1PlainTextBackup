@@ -2302,3 +2302,11 @@ A/这么明显的泄露隐私，而且真假未知，这都没人声讨泄露隐
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  里奥哟西  
+##### 13476#       发表于 2026-9-12 09:51
+
+A/这样做只让人觉得好笑<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
