@@ -1645,3 +1645,18 @@ China gt主办方垃圾就是中国搓
 
 我知道你想输，不如先从你自己开始
 
+
+*****
+
+####  千秋难诉  
+##### 124#       发表于 2026-9-12 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223729&amp;ptid=2289342" target="_blank">C.W.Nimitz 发表于 2026-9-12 16:26</a>
+
+China gt主办方垃圾就是中国搓
+
+你家邻居吵架你是不是要说中国人都患狂躁症呀。</blockquote>
+这么草台的事，拿出来被国人外国人嘲嘲又怎么样了，难不成还要强行拿出来赢吗
+
+教员提的实事求是的精神去哪儿了，还是说坛友准备竞选美国2024年总统创MAGA大业<img src="https://static.stage1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
