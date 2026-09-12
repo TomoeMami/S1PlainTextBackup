@@ -3522,3 +3522,19 @@ Mimo的新模型是区……<img src="https://static.stage1st.com/image/smiley/f
 c看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比sol max强。</blockquote>
 跑分只够图一乐。现在模型的实际水平，请去看屎山论剑。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浪子龙飞z  
+##### 13545#       发表于 2026-9-12 23:27
+
+<blockquote>lactone 发表于 2026-9-12 19:16
+x上出现了说谷歌搞定了rsi的传闻，不过rsi定义到底是啥
+
+如果是自动迭代那么很多公司都能做到</blockquote>
+怎么可能。
+
+梁文峰列的路径表里，agent - 持续学习 -自我迭代（奇点）
+
+rsi 就是自我迭代，如果真被 Googl 解决了，那么它就迈入 agi 奇点了
+
