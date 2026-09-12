@@ -3538,3 +3538,36 @@ x上出现了说谷歌搞定了rsi的传闻，不过rsi定义到底是啥
 
 rsi 就是自我迭代，如果真被 Googl 解决了，那么它就迈入 agi 奇点了
 
+
+*****
+
+####  lactone  
+##### 13546#       发表于 2026-9-12 23:36
+
+ 本帖最后由 lactone 于 2026-9-12 23:38 编辑 
+
+Dario又发了一个恶臭声明，要求限制AI发展速度了
+
+还说应该和⏰合作限制
+
+*****
+
+####  qz66618  
+##### 13547#       发表于 2026-9-12 23:36
+
+dsh测试的那个team功能有人试过吗，我看一些评论感觉还挺强的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  serj005  
+##### 13548#       发表于 2026-9-12 23:41
+
+workbuddy是真的垃圾流氓软件啊。
+
+一堆无法关闭的隐藏提示词和工具调用，动不动给对话最后一段让你加个给ai的称呼名称，界面卡的要死，终止对话然后进行新对话的时候实际后台对话还在跑，老对话还能覆盖新对话记录。
+
+计费上一堆小巧思，免费的hy4或者积分倍率低的v4.1f还有glm5.3f用着用着会悄悄切到高倍率的初始档<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
