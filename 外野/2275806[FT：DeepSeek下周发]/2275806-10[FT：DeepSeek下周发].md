@@ -3616,3 +3616,57 @@ high112题对了86题，max150题对了90题<img src="https://static.stage1st.co
 cli没法签到，workbuddy都是看着有免费积分捏着鼻子用的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 另外cli近期更新也挺难绷的，一两个就把版本web界面整个给改了，还把dsh的四个模式原封不动copy过去
 
+
+*****
+
+####  来都来了  
+##### 13552#       发表于 2026-9-13 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225128&amp;ptid=2275806" target="_blank">squallx 发表于 2026-9-12 23:15</a>
+
+跑分只够图一乐。现在模型的实际水平，请去看屎山论剑。</blockquote>
+但是在屎山论剑里，Astra把其他人全秒了。最难的王者bug也是一轮过，是唯一一个可以一轮过王者bug的
+
+*****
+
+####  唠叨  
+##### 13553#       发表于 2026-9-13 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225448&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-13 00:16</a>
+
+看雷达站，dsv4.1flash 又是high的分数比max高
+
+high112题对了86题，max150题对了90题</blockquote>
+我猛蹬了一天4.1，又快又强，但是办事很马虎，各种细节一坨，正在派qwen3.8flash给他擦屁股，校验复合查出一大堆细节问题。
+
+DeepSeek V4.1 Flash：“你就说跑没跑通吧！”
+
+不过能力确实比qwen3.8flash强，会话里qwen3.8flash直接说干不了，开个新会话4.1说能干，然后给了几个方案。
+
+不过几个小时过去了还没跑通。
+
+*****
+
+####  qwased  
+##### 13554#       发表于 2026-9-13 00:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225239&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-12 23:36</a>
+
+Dario又发了一个恶臭声明，要求限制AI发展速度了，不然人类💊
+
+同一篇文章里既说严格卡⏰芯片又说应该和⏰ ...</blockquote>
+他先想想要拿什么应对astra吧，fable5.1简直是个笑话
+
+
+*****
+
+####  来都来了  
+##### 13555#       发表于 2026-9-13 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225258&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-12 23:41</a>
+
+workbuddy是真的垃圾流氓软件啊。
+
+一堆无法关闭的隐藏提示词和工具调用，动不动给对话最后一段让你加个给ai ...</blockquote>
+我在本楼里呼吁过好几次 Work Buddy 是流氓软件了，但是坛友就是不听，还是孜孜不倦地给新人推荐 Work Buddy
+
