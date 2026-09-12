@@ -3192,3 +3192,51 @@ x上出现了说谷歌搞定了rsi的传闻，不过rsi定义到底是啥<img sr
 Linux现在玩游戏也没有问题啊，只要不玩带反作弊的网游</blockquote>
 反作弊也可以，我能玩鸣潮，反作弊现在Linux的解决方案可神奇了，直接bpf拦截，你反作弊引擎要什么响应都给你
 
+
+*****
+
+####  CCauchy  
+##### 13524#       发表于 2026-9-12 19:34
+
+ 本帖最后由 CCauchy 于 2026-9-12 19:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223878&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-9-12 18:12</a>
+
+今年年初，数码区的换LINUX主力系统贴里还有很多人说排雷，linux雷很多啥的，本来那时候我已经想换了，最后 ...</blockquote>
+看你用什么，我反正thinkbook笔电，有ps5，游戏就用bottls玩点gal，反正显卡也垃圾，玩不了别的，也就cs2最低画质一百多帧吧，已经用了快一年了，不过我最初花了很多时间配置，几乎是一个月每天不停地调试，不过那个时候AI菜我也菜，走了很多弯路，其实没多少工作量，而且我要求也高，我不仅是要摆脱Windows，而且对数据安全和高可用性有很高的要求，只有Linux能满足我，我觉得目前除了需要图形性能比较强的、不能使用wine的Windows软件不能用以外，其他的都可以满足，而且还有很多Windows没有的功能，非常方便，反正我不想念Windows，也不觉得macOS有什么好的
+
+上述Windows软件不能用的一部分原因还是硬件配置问题，如果我的电脑是双显卡，可以直通解决，或者不是这一代intel，可以使用gpu虚拟化解决
+
+*****
+
+####  CCauchy  
+##### 13525#       发表于 2026-9-12 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223743&amp;ptid=2275806" target="_blank">七氷 发表于 2026-9-12 16:32</a>
+
+Linux现在玩游戏也没有问题啊，只要不玩带反作弊的网游</blockquote>
+反作弊也可以，我能玩鸣潮，反作弊现在Linux的解决方案可神奇了，直接bpf拦截，你反作弊引擎要什么响应都给你
+
+
+*****
+
+####  CCauchy  
+##### 13524#       发表于 2026-9-12 19:34
+
+ 本帖最后由 CCauchy 于 2026-9-12 19:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223878&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-9-12 18:12</a>
+
+今年年初，数码区的换LINUX主力系统贴里还有很多人说排雷，linux雷很多啥的，本来那时候我已经想换了，最后 ...</blockquote>
+看你用什么，我反正thinkbook笔电，有ps5，游戏就用bottls玩点gal，反正显卡也垃圾，玩不了别的，也就cs2最低画质一百多帧吧，已经用了快一年了，不过我最初花了很多时间配置，几乎是一个月每天不停地调试，不过那个时候AI菜我也菜，走了很多弯路，其实没多少工作量，而且我要求也高，我不仅是要摆脱Windows，而且对数据安全和高可用性有很高的要求，只有Linux能满足我，我觉得目前除了需要图形性能比较强的、不能使用wine的Windows软件不能用以外，其他的都可以满足，而且还有很多Windows没有的功能，非常方便，反正我不想念Windows，也不觉得macOS有什么好的
+
+上述Windows软件不能用的一部分原因还是硬件配置问题，如果我的电脑是双显卡，可以直通解决，或者不是这一代intel，可以使用gpu虚拟化解决
+
+*****
+
+####  CCauchy  
+##### 13525#       发表于 2026-9-12 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223743&amp;ptid=2275806" target="_blank">七氷 发表于 2026-9-12 16:32</a>
+
+Linux现在玩游戏也没有问题啊，只要不玩带反作弊的网游</blockquote>
+反作弊也可以，我能玩鸣潮，反作弊现在Linux的解决方案可神奇了，直接bpf拦截，你反作弊引擎要什么响应都给你
+
