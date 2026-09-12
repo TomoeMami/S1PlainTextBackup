@@ -429,3 +429,14 @@ MELTY BLOOD: TYPE LUMINAがリニューアル
 
 発売 株式会社アニプレックス
 
+
+*****
+
+####  ナルバレック  
+##### 577#       发表于 2026-9-12 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222973&amp;ptid=2026924" target="_blank">岸浪白野 发表于 2026-9-12 11:07</a>
+
+昨天真的太省时间了</blockquote>
+视频挤牙膏的程度真是太离谱了，如此复读机的事情
+

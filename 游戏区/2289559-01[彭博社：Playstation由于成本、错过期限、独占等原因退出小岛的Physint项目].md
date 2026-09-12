@@ -439,3 +439,23 @@ x上喷索尼很大程度是对索尼这些年没拿出什么正经货货给大�
 不赚钱只是表面原因吧，总不能告诉我bend活到现在是因为往日不再真赚到钱了 ...</blockquote>
 bend商业上还好嘛，反而是不受媒体和高层喜欢的典型，然后好几年没作品了
 
+
+*****
+
+####  a317216007  
+##### 50#       发表于 2026-9-12 12:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">索尼宁可亏上几个亿去讨好DEI，也不愿意在小岛身上砸点小钱，不知道是哪位公司专员发力了
+
+
+*****
+
+####  绿冰  
+##### 51#       发表于 2026-9-12 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223197&amp;ptid=2289559" target="_blank">a317216007 发表于 2026-9-12 12:16</a>
+索尼宁可亏上几个亿去讨好DEI，也不愿意在小岛身上砸点小钱，不知道是哪位公司专员发力了 ...</blockquote>
+我觉得，砸DEI不止几个亿，给小岛的也不是什么小钱<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 來自 realme RMX5060, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
