@@ -20,3 +20,16 @@
 
 用的mihon 0.20.4版本
 
+
+*****
+
+####  azbhg1  
+##### 188#         楼主| 发表于 2026-9-13 03:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222620&amp;ptid=2254551" target="_blank">针水城 发表于 2026-9-12 08:56</a>
+
+请问下 MIHON要怎么更新书架的漫画，按照以前TACHIYOMI的操作他跟新不了 ，难不成我要一本本刷新吗....昨天 ...</blockquote>
+正常在更新界面直接下拉就全局刷新了
+
+拷贝插件有至少三个不同人开发的版本
+
