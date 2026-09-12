@@ -3925,3 +3925,15 @@ ps搞完开pc，打了传说中的DLSS5的mod。对比ps5的画面，mod打上�
 打完道狂告诉我要进最终战了，望着至少还有一半的技能树陷入了沉思...
 搜了一下，原来是两个大号马桶，我以为是剧情解锁，实际是要自己去....
 
+
+*****
+
+####  比利的微笑  
+##### 1809#       发表于 2026-9-13 06:36
+
+B站神秘的推荐机制，看完差点没绷住
+在一堆无伤一闪boss的视频里蹦出来个这个，也算是一种豪气冲天吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[人间四十五年，强者之路，鬼武者剑之道。](https://www.bilibili.com/video/BV1wzbu6zEeQ)
+
+—— 来自 Google Pixel 7 Pro, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
