@@ -3877,3 +3877,14 @@ https://github.com/slee-persis/GVS5H
 我现在觉得中小模型并行甚至可能比单一大模型强</blockquote>
 大模型上下文塞到150K之后也会很明显的智力下降了，300K能不流口水的模型应该还不存在
 
+
+*****
+
+####  来都来了  
+##### 13575#       发表于 2026-9-13 02:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225631&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-9-13 00:57</a>
+
+没办法 给他们hermes他们根本用不来  那么小白用什么智能体办公比较好呢？ ...</blockquote>
+当然是hermes，总比用流氓软件好
+
