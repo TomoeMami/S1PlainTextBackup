@@ -3851,3 +3851,29 @@ A/现在比astra比不过，fable眼看就要被国内模型超了，急得要�
 用agent team组织一群qwen27b跑编程测试，达到fable的分数
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拆分任务到最小单元并保持执行线程的上下文始终最短且干净能够非常有效的提升智力
 
+
+*****
+
+####  lactone  
+##### 13573#       发表于 2026-9-13 01:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225789&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-13 01:55</a>
+https://github.com/slee-persis/GVS5H
+
+用agent team组织一群qwen27b跑编程测试，达到fable的分数
+
+拆分任务 ...</blockquote>
+我现在觉得中小模型并行甚至可能比单一大模型强
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  qwased  
+##### 13574#       发表于 2026-9-13 02:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225805&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-13 01:59</a>
+
+我现在觉得中小模型并行甚至可能比单一大模型强</blockquote>
+大模型上下文塞到150K之后也会很明显的智力下降了，300K能不流口水的模型应该还不存在
+
