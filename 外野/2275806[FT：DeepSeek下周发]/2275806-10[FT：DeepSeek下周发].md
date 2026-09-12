@@ -3511,3 +3511,14 @@ mimo desktop中签了，用smart自动切模型跑了下新项目，做计划感
 
 Mimo的新模型是区……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  squallx  
+##### 13544#       发表于 2026-9-12 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224684&amp;ptid=2275806" target="_blank">fat 发表于 2026-9-12 21:26</a>
+
+c看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比sol max强。</blockquote>
+跑分只够图一乐。现在模型的实际水平，请去看屎山论剑。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
