@@ -2465,3 +2465,33 @@ Codex大概下午三点重置，速蹬
 
 陶哲轩、邓煜等25位菲尔兹奖得主发表联合声明：警惕AI研发目标与数学研究核心价值严重脱节。现在的AI for math能否创造出新的数学工具和数学思维仍属未知，如果AI真的能进化成AGI倒还好说，但是如果只是把数学难题当成benchmark来刷确实看不出对数学创新上的贡献<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  云卷花开  
+##### 13491#       发表于 2026-9-12 13:26
+
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">我相信数学家花点儿精力考虑我现在需要解决的问题可以给我一个我非常信服且挑不出问题的方案，而现在能解决千禧年问题的巨型模型思考解决方案的水平很难说能不能比应届生好，我不跟应届生连续讨论一周来确定一件事具体怎么做只是因为应届生的注意力精力和 io 速度不达标而已
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  云卷花开  
+##### 13491#       发表于 2026-9-12 13:26
+
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">我相信数学家花点儿精力考虑我现在需要解决的问题可以给我一个我非常信服且挑不出问题的方案，而现在能解决千禧年问题的巨型模型思考解决方案的水平很难说能不能比应届生好，我不跟应届生连续讨论一周来确定一件事具体怎么做只是因为应届生的注意力精力和 io 速度不达标而已
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  云卷花开  
+##### 13491#       发表于 2026-9-12 13:26
+
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">我相信数学家花点儿精力考虑我现在需要解决的问题可以给我一个我非常信服且挑不出问题的方案，而现在能解决千禧年问题的巨型模型思考解决方案的水平很难说能不能比应届生好，我不跟应届生连续讨论一周来确定一件事具体怎么做只是因为应届生的注意力精力和 io 速度不达标而已
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
