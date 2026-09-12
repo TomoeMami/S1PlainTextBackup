@@ -410,3 +410,13 @@ x上喷索尼很大程度是对索尼这些年没拿出什么正经货货给大�
 
 不赚钱只是表面原因吧，总不能告诉我bend活到现在是因为往日不再真赚到钱了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  melody123  
+##### 47#       发表于 2026-9-12 11:44
+
+陪她十年烧钱追星，给引擎给钱给人支援给宣发给人脉甚至工作室的房子都是索尼的家产，加起来不够gta6预购的量，索尼也是觉醒不当力工了，可惜还是爱她，让她美美撤离了，ip还有影视改编权一个都没留
+
+—— 来自 Xiaomi 22081212G, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -1616,3 +1616,18 @@ https://www.bilibili.com/video/BV1zZb76tESA/
 格罗斯让那次事故，起火后十秒赛道工作人员的灭火器开就 ...</blockquote>
 所以现在蹦出来喊反转的不是傻就是坏<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  satsuki1981  
+##### 122#       发表于 2026-9-12 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222445&amp;ptid=2289342" target="_blank">wuuuuuud 发表于 2026-9-12 07:37</a>
+
+有监控啊，救护车6分多到的
+
+—— 来自 nubia NX737J, Android 15, 鹅球 v4.0-alpha</blockquote>
+[https://www.bilibili.com/video/BV1psb56WEru/](https://www.bilibili.com/video/BV1psb56WEru/)
+
+2014年的案例，都不是F1了，救援车不到40秒就到现场，6分钟没其他人来救的话可以烧熟了
+
