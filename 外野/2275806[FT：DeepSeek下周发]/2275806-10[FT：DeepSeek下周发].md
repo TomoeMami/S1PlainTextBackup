@@ -3086,3 +3086,46 @@ dsh始终把pwsh作为windows环境的一等公民且明确不做git bash适配�
 
 毕竟electron客户端在做了，windows用户量摆在这不能不考虑，win平台pwsh在功能和语法方面理论比bash更好。
 
+
+*****
+
+####  老司机的马甲  
+##### 13516#       发表于 2026-9-12 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222963&amp;ptid=2275806" target="_blank">airshit 发表于 2026-9-12 11:03</a>
+把国内用户的数据往外面发吗，上一个这么有胆子的公司是哪个
+
+—— 来自 HUAWEI HOP-AL10, Android 16, 鹅 ...</blockquote>
+滴滴<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  LeoDT  
+##### 13517#       发表于 2026-9-12 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223913&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-9-12 18:29</a>
+
+我就是想日常使用，也有好新鲜的因素在里面，体验一下新事物的感觉，不过之前门槛有点高，现在无论如何都 ...</blockquote>
+现在环境比以前好多了，尤其是wayland也慢慢好起来了，如果是日常使用完全不会有什么问题。丰富的窗口管理器是我一直坚持用Linux工作的最大理由了，Mac用了几年最头疼的就是窗口管理器，最后还是转回了Arch。抛弃X之后发现hyprland做的挺不错的，而且想省事还有用了hyprland的完整shell比如noctalia之类，是想快速体验“不一样”最好的选择了。
+
+最近omarchy也声势浩大，虽然从头到脚vibe的，问题一堆，但是只想玩玩的话也不是不行。不过还是建议有时间的话从头折腾Arch，折腾的乐趣独一份。
+
+*****
+
+####  lactone  
+##### 13518#       发表于 2026-9-12 18:59
+
+x上在传谷歌deepmind内部搞定rsi了<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 13519#       发表于 2026-9-12 19:00
+
+gpt快要出6 日月地球了
+
