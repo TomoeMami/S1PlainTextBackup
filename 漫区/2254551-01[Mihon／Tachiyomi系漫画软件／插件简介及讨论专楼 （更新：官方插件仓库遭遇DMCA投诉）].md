@@ -10,3 +10,13 @@
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  针水城  
+##### 187#       发表于 2026-9-12 08:56
+
+请问下 MIHON要怎么更新书架的漫画，按照以前TACHIYOMI的操作他跟新不了 ，难不成我要一本本刷新吗....昨天发现新插件TACHIYOMI用不了 换了MIHON 顺便更新了插件后 发现拷贝漫画没评论了
+
+用的mihon 0.20.4版本
+

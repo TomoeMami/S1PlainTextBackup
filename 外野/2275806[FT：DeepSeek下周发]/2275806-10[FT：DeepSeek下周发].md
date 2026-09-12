@@ -2288,3 +2288,17 @@ A/这么明显的泄露隐私，而且真假未知，这都没人声讨泄露隐
 
 有些人别把这楼当垃圾桶，什么玩意也过来发泄。反人类公司明着在你头上拉屎还心甘情愿被人当枪使是不是有病
 
+
+*****
+
+####  nianiania  
+##### 13475#       发表于 2026-9-12 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222335&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-12 05:57</a>
+主要是一些b小将知乎小将看到a/用词很吓人罢了
+
+这里面有多少是真敏感信息真不好说</blockquote>
+能不能别在这儿犯病，这是资讯楼，不是让你在这儿对着一眼假的消息来万一是真的呢好害怕这一套，你怎么不害怕明天地球爆炸？
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
