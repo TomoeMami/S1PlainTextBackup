@@ -711,3 +711,53 @@ OD我感觉今年TGS可能就 ...</blockquote>
 
 konami现在混的可好了，实况足球都快成konami的原神了，统治手游足球市场，ea的足球收入可能还真没konami的高
 
+
+*****
+
+####  鱼雷鲨  
+##### 73#       发表于 2026-9-12 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221733&amp;ptid=2289559" target="_blank">huahuaanying 发表于 2026-9-11 22:19</a>
+
+所以我一直说fuck 科乐美是不够公道的，公司赚不到钱肯定会终止合作。小岛秀夫的制作模式已经不适合资本主 ...</blockquote>
+小岛是个机制、游戏模式测试平台，DS2失败也是因为开放世界、送货、建设不新鲜了，旋转轮胎系列和卡车模拟不还有核心玩家么
+
+暗影之王就没发挥出岛味优势
+
+
+*****
+
+####  鱼雷鲨  
+##### 74#       发表于 2026-9-12 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70221746&amp;ptid=2289559" target="_blank">风使塞缇 发表于 2026-9-11 22:26</a>
+
+之前我就想应该还是钱的问题
+
+因为一个谍战游戏，大家的默认预期都是合金装备5那种级别的
+
+烧钱的量级上就不 ...</blockquote>
+小岛当年玩了GTA4之后就一直提开放世界开放任务，跟名越也讨论过。要在DS那种完全无缝地图上塞进一个充满互动的罐头世界那是直接挑战GTA6……
+
+*****
+
+####  鱼雷鲨  
+##### 75#       发表于 2026-9-12 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222141&amp;ptid=2289559" target="_blank">ArowRocher 发表于 2026-9-12 01:17</a>
+
+大概很多年之前就有人算过MGSV的账，结论大意是抠吉马下金蛋但吃的也是金饲料，DS两作算不算金蛋有待商榷， ...</blockquote>
+暗影之王是真没爆款
+
+*****
+
+####  鱼雷鲨  
+##### 76#       发表于 2026-9-12 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224344&amp;ptid=2289559" target="_blank">无形的吹奏者 发表于 2026-9-12 20:24</a>
+
+什么叫Xbox将其所有游戏都发布在PC上？不是前脚才说要重视独占吗？又来经典蛇鼠两端了？
+
+—— 来自 S1Fun ...</blockquote>
+下一代/当代后半Xbox架构跟Win11无缝衔接，最终目标是你有XGP就可以下载到性能对标的PC
+
