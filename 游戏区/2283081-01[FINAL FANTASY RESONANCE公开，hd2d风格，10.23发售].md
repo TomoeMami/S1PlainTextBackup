@@ -28,3 +28,11 @@
 各种突兀的3d大招这个其实让我想起以前mugen里的一些塞了一堆mp4的“华丽人物”的感觉
 颇有古风吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  christiny  
+##### 224#       发表于 2026-9-12 14:49
+
+这个3d大招确实很low😂，只有闭着眼睛忍一下
+
