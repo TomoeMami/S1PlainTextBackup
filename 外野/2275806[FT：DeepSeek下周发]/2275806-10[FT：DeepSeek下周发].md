@@ -3792,3 +3792,62 @@ A/现在比astra比不过，fable眼看就要被国内模型超了，急得要�
 新时代神谕机 ...</blockquote>
 有没有人把电子钱包给astra的，想看看神人表演。
 
+
+*****
+
+####  阿刚  
+##### 13568#       发表于 2026-9-13 01:46
+
+<blockquote>guiyyan 发表于 2026-9-13 00:55
+普通人群明显**高估了AI短期的能力成长，睿站某些视频下面的评论区给人看笑了都，就差给幻想里的未来AI跪下 ...</blockquote>
+感觉现在吹ai的都是没用过ai的真正用ai的平均每周至少被这帮人工智障气破防三四次，就字面意义上人类平均水平的集合体，需要你全神贯注的互动才能保证他不犯蠢不糊弄不瞎搞，简直赛博嘉豪
+
+*****
+
+####  终究似水向东流  
+##### 13569#       发表于 2026-9-13 01:46
+
+<blockquote>qwased 发表于 2026-9-13 00:58
+跪拜astra的就很多啊，动不动就是把自己的所有日程都发给astra让他给建议自己照着行动的
+
+新时代神谕机 ...</blockquote>
+路由到4o咋整
+
+*****
+
+####  lactone  
+##### 13570#       发表于 2026-9-13 01:49
+
+如果真搞ai版本的华盛顿海军条约是不是挺有意思<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以后就有条约级显卡，条约级大模型这一说
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  qwased  
+##### 13571#       发表于 2026-9-13 01:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225743&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-9-13 01:44</a>
+
+有没有人把电子钱包给astra的，想看看神人表演。</blockquote>
+已经看过几个实践了
+
+1，对astra说你去帮我赚80美元，我的额度不够用了，astra发现账号有一个重置卡直接用了，说现在你有额度了
+
+2，用提示词绕过astra的限制，对他下了一个赚200美元的goal，astra跑了一晚上找到一个编程悬赏做完并收到了200美元
+
+3，分析账单有哪些能砍的，省掉大几百无用订阅（美国人是智障吧，账单都不会看<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  qwased  
+##### 13572#       发表于 2026-9-13 01:55
+
+[https://github.com/slee-persis/GVS5H](https://github.com/slee-persis/GVS5H)
+
+用agent team组织一群qwen27b跑编程测试，达到fable的分数
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拆分任务到最小单元并保持执行线程的上下文始终最短且干净能够非常有效的提升智力
+

@@ -35,3 +35,13 @@
 
 这新主线，利佳和小萌终于……出来挖洞了XD。这SIN本部里面果然就跟预想的一样啊，毫无意外
 
+
+*****
+
+####  冰风血羽  
+##### 2101#       发表于 2026-9-13 01:45
+
+20连出了俩重力初音，不死心掏出邮件还有升级奖励只有蓝天白云<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我想要的电葱妈妈只能不知道什么时候才有的复刻再见了
+
+110连大失败<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
