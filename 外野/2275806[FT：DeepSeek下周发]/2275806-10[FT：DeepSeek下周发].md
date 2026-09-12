@@ -3076,3 +3076,13 @@ linux确实不少雷，我的strix halo为了跑训练脚本上了Ubuntu24.04，
 linux确实不少雷，我的strix halo为了跑训练脚本上了Ubuntu24.04，结果gui卡死的毛病死活修不好，但也无所 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我就是想日常使用，也有好新鲜的因素在里面，体验一下新事物的感觉，不过之前门槛有点高，现在无论如何都有agent兜底的话感觉可以放心玩了。
 
+
+*****
+
+####  serj005  
+##### 13515#       发表于 2026-9-12 18:45
+
+dsh始终把pwsh作为windows环境的一等公民且明确不做git bash适配，让我总感觉ds是有在搞pwsh专训的，用dsh跑4.1f，大战pwsh的现象好像已经变少了。
+
+毕竟electron客户端在做了，windows用户量摆在这不能不考虑，win平台pwsh在功能和语法方面理论比bash更好。
+
