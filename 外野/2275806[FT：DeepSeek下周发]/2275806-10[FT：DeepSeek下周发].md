@@ -3670,3 +3670,66 @@ workbuddy是真的垃圾流氓软件啊。
 一堆无法关闭的隐藏提示词和工具调用，动不动给对话最后一段让你加个给ai ...</blockquote>
 我在本楼里呼吁过好几次 Work Buddy 是流氓软件了，但是坛友就是不听，还是孜孜不倦地给新人推荐 Work Buddy
 
+
+*****
+
+####  德尔惠净水器  
+##### 13556#       发表于 2026-9-13 00:54
+
+<blockquote>cscbzcbz 发表于 2026-9-13 00:16
+看雷达站，dsv4.1flash 又是high的分数比max高
+
+high112题对了86题，max150题对了90题
+
+</blockquote>
+这分数连astra都干掉了
+
+*****
+
+####  guiyyan  
+##### 13557#       发表于 2026-9-13 00:55
+
+普通人群明显**高估了AI短期的能力成长，睿站某些视频下面的评论区给人看笑了都，就差给幻想里的未来AI跪下朝拜了，我比较保守，感觉最早明年开始大模型就要撞墙了
+
+*****
+
+####  CCauchy  
+##### 13558#       发表于 2026-9-13 00:56
+
+现在狂欢不就跟几年前嘲讽AI一样盲目吗
+
+*****
+
+####  唠叨  
+##### 13559#       发表于 2026-9-13 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225610&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-13 00:51</a>
+
+我在本楼里呼吁过好几次 Work Buddy 是流氓软件了，但是坛友就是不听，还是孜孜不倦地给新人推荐 Work Bu ...</blockquote>
+没办法 给他们hermes他们根本用不来  那么小白用什么智能体办公比较好呢？
+
+*****
+
+####  CCauchy  
+##### 13560#       发表于 2026-9-13 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225239&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-12 23:36</a>
+
+Dario又发了一个恶臭声明，要求限制AI发展速度了，不然人类💊
+
+同一篇文章里既说严格卡⏰芯片又说应该和⏰ ...</blockquote>
+喋喋不休，一天到晚做它那个b对齐，硬安全没有，只有对齐
+
+
+*****
+
+####  qwased  
+##### 13561#       发表于 2026-9-13 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225624&amp;ptid=2275806" target="_blank">guiyyan 发表于 2026-9-13 00:55</a>
+
+普通人群明显**高估了AI短期的能力成长，睿站某些视频下面的评论区给人看笑了都，就差给幻想里的未来AI跪下 ...</blockquote>
+跪拜astra的就很多啊，动不动就是把自己的所有日程都发给astra让他给建议自己照着行动的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+新时代神谕机
+

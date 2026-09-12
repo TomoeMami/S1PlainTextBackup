@@ -3894,3 +3894,25 @@ ps搞完开pc，打了传说中的DLSS5的mod。对比ps5的画面，mod打上�
 
 太刀等于是用蓝换紫。
 
+
+*****
+
+####  手铐君  
+##### 1806#       发表于 2026-9-13 00:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">最难崩的是我一周目把马桶全清了，结果现在看着那堆宝箱和马桶里的技能点，我真的想笑
+
+*****
+
+####  小修  
+##### 1807#       发表于 2026-9-13 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224510&amp;ptid=2210366" target="_blank">wzh5555 发表于 2026-9-12 20:55</a>
+
+双刀伤害太低了，鬼杀难度下肉一点的杂兵秒不掉，也就黄魂这个功能了。
+
+鬼杀难度下长枪对于最肉的杂兵都 ...</blockquote>
+你这么讲也没问题，无压力贪输出确实火鸟更好。
+
+以通关为目的和以速杀为目的确实需求不同
+
