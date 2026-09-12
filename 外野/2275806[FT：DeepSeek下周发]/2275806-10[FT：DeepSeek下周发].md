@@ -3240,3 +3240,21 @@ Linux现在玩游戏也没有问题啊，只要不玩带反作弊的网游</bloc
 Linux现在玩游戏也没有问题啊，只要不玩带反作弊的网游</blockquote>
 反作弊也可以，我能玩鸣潮，反作弊现在Linux的解决方案可神奇了，直接bpf拦截，你反作弊引擎要什么响应都给你
 
+
+*****
+
+####  HazukiShion  
+##### 13526#       发表于 2026-9-12 19:56
+
+现在的 4.1f 是选 high 还是 max？
+
+*****
+
+####  →熙←  
+##### 13527#       发表于 2026-9-12 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224206&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-9-12 19:56</a>
+
+现在的 4.1f 是选 high 还是 max？</blockquote>
+甜点是high, high做不出来的换更强模型
+
