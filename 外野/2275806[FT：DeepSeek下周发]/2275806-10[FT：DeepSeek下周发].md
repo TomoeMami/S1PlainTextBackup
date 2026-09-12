@@ -2355,3 +2355,14 @@ nvidia那个专用pi 有人试过了吗 好像叫sol-pi？很ds能配吗
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  CCauchy  
+##### 13481#       发表于 2026-9-12 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222538&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-9-12 08:25</a>
+
+难绷 A÷说的生物医药和军工问题是今年数模竞赛的题目</blockquote>
+时间对不上吧，我倾向于观察者网三人组
+
