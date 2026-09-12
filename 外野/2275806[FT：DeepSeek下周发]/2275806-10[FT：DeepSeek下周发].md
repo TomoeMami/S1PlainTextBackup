@@ -3478,3 +3478,28 @@ c看了雷达站才发现，astra拉爆了其他模型了啊，astra low 都比s
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">zcode什么意思，他这个/btw怎么会随机乱入subagent的输出
 
+
+*****
+
+####  CCauchy  
+##### 13540#       发表于 2026-9-12 22:42
+
+claude的 /btw也是经常串上一个/btw
+
+*****
+
+####  CCauchy  
+##### 13541#       发表于 2026-9-12 22:43
+
+所以我觉得tui真的不行，真要用还是webui
+
+
+*****
+
+####  noneoneone  
+##### 13542#       发表于 2026-9-12 22:45
+
+mimo desktop中签了，用smart自动切模型跑了下新项目，做计划感觉还可以，执行起来就不太行。晚点再试试办公自动化的效果。cc额度恢复后用4.1f跑一下这个项目看怎么样。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
