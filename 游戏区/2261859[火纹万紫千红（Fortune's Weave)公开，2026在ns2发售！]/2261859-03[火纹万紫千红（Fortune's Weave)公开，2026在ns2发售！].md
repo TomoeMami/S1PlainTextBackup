@@ -5670,3 +5670,35 @@ tb  之前pdd最低补贴还有320的</blockquote>
 
 偷跑那位过了十多个小时没有发表任何剧透，看来是沉迷了。
 
+
+*****
+
+####  bwsusaga  
+##### 3443#       发表于 2026-9-13 20:39
+
+<img src="https://img.stage1st.com/forum/202609/13/203837nvb27b2v7ibzu26b.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_2026-09-13_203411_046.png</strong> (2.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 20:38 上传
+
+<img src="https://img.stage1st.com/forum/202609/13/203857aebk9z2d2du8ozmn.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_2026-09-13_203418_245.png</strong> (3.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 20:38 上传
+
+新PV能看到一点五年后立绘，凯伊变化还挺大的。
+
+
+*****
+
+####  bwsusaga  
+##### 3444#       发表于 2026-9-13 20:43
+
+有没有全同伴总结可看？感觉可以先搞拉郎配了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

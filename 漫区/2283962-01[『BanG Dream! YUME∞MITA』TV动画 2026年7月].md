@@ -387,3 +387,11 @@ vol这个角色真的太空洞了，都说磕cp双方都要喜欢，但实在对
 
 —— 来自 Xiaomi 23046RP50C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  海底铁锚  
+##### 479#       发表于 2026-9-13 20:38
+
+从动画制作和演出的角度来说，梦限大真的在很多地方致敬了好几个少女乐队<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 有些地方即视感太强烈了。
+

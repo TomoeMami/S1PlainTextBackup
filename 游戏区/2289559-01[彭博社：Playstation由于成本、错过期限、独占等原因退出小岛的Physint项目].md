@@ -1182,3 +1182,15 @@ concord全职200人是在加州，死亡搁浅是在东京，能比吗？
 
 然后再把小岛留下的一堆烂摊子当罪证去F 573，那就更搞笑了
 
+
+*****
+
+####  melody123  
+##### 114#       发表于 2026-9-13 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227983&amp;ptid=2289559" target="_blank">哈罗 发表于 2026-9-13 16:54</a>
+不能光算社内人头，ds1的制作名单列了近1500人，大部分人当然不是本社全职，但全是支出项，另外员工社保 ...</blockquote>
+那一票staff里好多都是游骑兵来支援的，场地更是离谱，说是索尼股东名下房产
+
+—— 来自 Xiaomi 22081212G, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
