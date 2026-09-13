@@ -3992,3 +3992,14 @@ b站更多的是一种踩油门心态和看热闹随波逐流，也有一部分�
 红迪在传美国要全面禁止持有开放权重模型？违者按持有核武器定罪</blockquote>
 这个不可能，不然就会重新定义“开源”
 
+
+*****
+
+####  空き地卯木  
+##### 13587#       发表于 2026-9-13 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227019&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-13 12:03</a>
+红迪在传美国要全面禁止持有开放权重模型？违者按持有核武器定罪</blockquote>
+真持有核武器了 美国政府还敢定罪吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+我说人人拥核它才不乱有没有懂的
+
