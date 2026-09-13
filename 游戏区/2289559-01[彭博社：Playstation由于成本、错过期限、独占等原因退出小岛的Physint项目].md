@@ -796,3 +796,13 @@ konami现在混的可好了，实况足球都快成konami的原神了，统治�
 疫情+**潮基本把北美文娱产业创烂了，小岛工作室其实也算是典型代表，毕竟工作室直接开在美国的，不过话又 ...</blockquote>
 小岛工作室在东京啊，不在美国
 
+
+*****
+
+####  哎哟卧槽了  
+##### 81#       发表于 2026-9-13 09:11
+
+反正都是工期长，给小岛砸几亿起码换来一堆明星，给顽皮狗砸几亿换个被ban的服务游戏+光头尼姑<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PLA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
