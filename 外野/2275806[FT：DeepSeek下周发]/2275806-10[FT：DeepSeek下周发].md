@@ -4435,3 +4435,15 @@ V4.1flash从体量上是GLM5.3的水平，实际质量其实还略高出一点�
 
 智谱的GLM5.5估计会遇到Kimi一样的问题，有训练的能力但是没运营的算力，最后还是要看V4.1Pro的脸色
 
+
+*****
+
+####  魔法师lain  
+##### 13609#       发表于 2026-9-13 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227592&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-9-13 14:39</a>
+workbuddy太恶心了，没用他们优惠的模型也在任务一半跳出超出使用频率强行终止，要切auto才能重新来，太恶 ...</blockquote>
+可以换模型说继续啊
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

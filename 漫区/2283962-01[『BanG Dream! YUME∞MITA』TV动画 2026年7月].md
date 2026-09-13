@@ -377,3 +377,13 @@ vol这个角色真的太空洞了，都说磕cp双方都要喜欢，但实在对
 
 —— 来自 OPPO PLP110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  LLLLLuB  
+##### 478#       发表于 2026-9-13 16:34
+
+本质还是卖角色，烂炒流量也是流量，跟那种流量明星是同一套打法
+
+—— 来自 Xiaomi 23046RP50C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
