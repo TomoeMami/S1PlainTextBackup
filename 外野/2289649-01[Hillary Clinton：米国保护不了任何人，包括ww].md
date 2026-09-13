@@ -550,3 +550,26 @@ WW最有价值的是地
 
 我寻思奶龙一直就想卖4v啊。只是我们领土问题不容谈判导致牢美的4v筹码毫无价值而已
 
+
+*****
+
+####  我家阿喵叫花花  
+##### 51#       发表于 2026-9-13 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227389&amp;ptid=2289649" target="_blank">sellboy 发表于 2026-9-13 13:31</a>
+
+日本对⏰的异族认知还是远强于ww的，民间自发组织的不合作甚至抵抗活动也会远强于ww。
+
+日本真的自己分出 ...</blockquote>
+没事，且不说金将军，南伪都乐意帮忙得很
+
+*****
+
+####  wwhaha  
+##### 52#       发表于 2026-9-13 16:27
+
+有hk先例在这里还能再捧2000w天龙人的话....
+草好像也不是不可能
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
