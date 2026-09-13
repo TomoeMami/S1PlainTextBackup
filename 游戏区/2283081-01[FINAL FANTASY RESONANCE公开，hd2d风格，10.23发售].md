@@ -133,3 +133,22 @@
 
 豪华版多了些东西，值得多花100元吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相棒  
+##### 231#       发表于 2026-9-14 02:05
+
+ 试玩了一下，抛去老土的剧情不提，作为一个老RPG玩家那真是如饮美酒啊！不愧是几十年jrpg老店，真想做起正统派jrpg那老师傅的手艺硬是要得。
+
+
+*****
+
+####  隔壁老黄  
+##### 232#       发表于 2026-9-14 02:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224999&amp;ptid=2283081" target="_blank">yunxyz 发表于 2026-9-12 22:48</a>
+梦中情游，难得的预购了一次。
+不知道**SE会不会背刺，后面理论上还会有幻兽系统，应该养成上不至于单薄。 ...</blockquote>
+这游戏有 5 部吧，这是第一部，主要角色就刚开始那仨，男女男吧
+
