@@ -266,3 +266,12 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 上一集BG，这一集又卖了点女女关系性，这端水我得服啊，但是接下来好几集咋演，真实之爱到底是个啥玩意儿， ...</blockquote>
 有成为预言家的可能<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 514#         楼主| 发表于 2026-9-13 19:42
+
+制作幕后 正片制作细节篇
+[https://youtu.be/rWu2EAKvDlE](https://youtu.be/rWu2EAKvDlE)
+

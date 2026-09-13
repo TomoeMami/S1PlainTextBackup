@@ -4656,3 +4656,18 @@ https://hf-mirror.com/alphaZimuth/Hy-MT2-30B-A3B-APEX-GGUF/tree/main
 
 句子比较复杂的正经书籍还是gpt吧，flash级的模型容易误解
 
+
+*****
+
+####  qwased  
+##### 13628#       发表于 2026-9-13 19:37
+
+偶然看到有个脏token测试意外让gpt吐出思维链的，也全是I need but wait actually<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁蒸的谁
+
+*****
+
+####  相见恨晚  
+##### 13629#       发表于 2026-9-13 19:40
+
+qoder初体验之让它看了一下文档它也回答完成后发送键就一直转圈无法再继续对话
+
