@@ -4026,3 +4026,11 @@ B站神秘的推荐机制，看完差点没绷住
 不是强迫症建议直接改素材 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">应该是考虑到玩家一周目的大药都攒着呢
 
+
+*****
+
+####  reficul  
+##### 1819#       发表于 2026-9-13 17:28
+
+一个半小时打完源神了，好爽，纯粹地拼刀，摸熟规律后就好了，弹刀的收益超级大，拼一下直接掉2500+的架势
+
