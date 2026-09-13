@@ -125,3 +125,11 @@
 
 —— 来自 Xiaomi 22021211RC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  godless2020  
+##### 230#       发表于 2026-9-13 08:45
+
+豪华版多了些东西，值得多花100元吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
