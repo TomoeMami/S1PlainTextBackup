@@ -131,3 +131,14 @@ Deck不管怎么调都糊得玩不下去，但是这种rpg游戏不想在电脑�
 
 9分RPG，年度神作！！！！！
 
+
+*****
+
+####  Schwarzess  
+##### 128#       发表于 2026-9-13 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223463&amp;ptid=2168141" target="_blank">安瓦尔阿明 发表于 2026-9-12 13:42</a>
+很好奇这游戏的等级/伤害/血量/抗性机制。感觉游戏里敌人血都贼厚，目前把剑术系加伤害天赋点得七七八八， ...</blockquote>
+喜欢我动态等级机制吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+可能要看下各个装备的词条，主要叠武器伤害暴击爆伤。饰品类不提供防御力所以只要看词条就行了（其实防具也不怎么需要看护甲值）。词条好的可以去找工匠一直升级虽然很花钱。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
