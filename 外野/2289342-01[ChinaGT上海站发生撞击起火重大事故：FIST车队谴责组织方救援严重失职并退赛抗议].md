@@ -1704,3 +1704,13 @@ China gt主办方垃圾就是中国搓
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">群里看了个图，大爷说没有60，只有48
 
+
+*****
+
+####  Marseille  
+##### 129#       发表于 2026-9-14 03:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230614&amp;ptid=2289342" target="_blank">8号鸡 发表于 2026-9-14 00:53</a>
+群里看了个图，大爷说没有60，只有48</blockquote>
+太正常了，中超比赛的保安招的兼职，给的费用是按招200块钱给的，但是层层外包到150再到100再到60-70元，至于更低对有没有我就不知道了。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
