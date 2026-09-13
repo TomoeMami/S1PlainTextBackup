@@ -3941,3 +3941,13 @@ dsh始终把pwsh作为windows环境的一等公民且明确不做git bash适配�
 
 deepseekHarness好用，拉去重构某个组件，这是结果。消费金额¥3.21<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 13581#       发表于 2026-9-13 11:13
+
+b站更多的是一种踩油门心态和看热闹随波逐流，也有一部分人确实魔怔，妄想着AI发展能帮自己干完所有活并且让自己舒舒服服享受的未来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
