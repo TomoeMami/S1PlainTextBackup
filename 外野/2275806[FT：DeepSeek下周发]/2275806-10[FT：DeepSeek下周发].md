@@ -4501,3 +4501,38 @@ ds自己的测试报告也是工具越简单能力越强，能力表现最强的
 
 顺便一提，DS4.1已经很少大战PowerShell和GBK了，感觉在这一块应该是专门做了训练。
 
+
+*****
+
+####  mitzvah  
+##### 13615#       发表于 2026-9-13 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227974&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-13 16:51</a>
+
+我也是默认pi用到死，什么功能都不加，最多只加btw这类不额外引入上下文的辅助性插件，目前没有遇到不够 ...</blockquote>
+新一代模型普遍在训练阶段就内化了大量约束，会本能的调用工具去验证自己的行为，这时候在老一代harness里就捉急了，注入的十几ktoken往往会坏事成为对抗性prompt把模型逼疯的，很多雷霆大思考就是这么来的
+
+*****
+
+####  tillnight  
+##### 13616#       发表于 2026-9-13 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227753&amp;ptid=2275806" target="_blank">蓝色梦魇 发表于 2026-9-13 15:38</a>
+
+现在ds4.1flash，用DSH的话还有必要第一轮注入极简模式的提示词吗（用anchored-standard） ...</blockquote>
+4.1F和模式没关系。
+
+
+*****
+
+####  mitzvah  
+##### 13617#       发表于 2026-9-13 17:14
+
+ 本帖最后由 mitzvah 于 2026-9-13 17:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227875&amp;ptid=2275806" target="_blank">novalli 发表于 2026-9-13 16:26</a>
+
+感觉pi什么都不加已经够应对普通零碎要求了，想管理大型工程可以自己做些文档加以引导。
+
+我到现在还是很不 ...</blockquote>
+让模型自己grep很不可靠的，给他部署静态分析工具的mcp，让其基于静态分析工具的结果理解代码库
+
