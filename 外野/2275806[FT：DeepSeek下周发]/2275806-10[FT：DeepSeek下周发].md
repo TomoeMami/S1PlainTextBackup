@@ -4567,3 +4567,16 @@ ds4.1现在还能破限么，用之前的提示词被她一秒识破了，完全
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mitzvah  
+##### 13621#       发表于 2026-9-13 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228131&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-9-13 17:32</a>
+
+现在啥国模日译中翻译最好？性价比最高的呢？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+资源够就上gemma4，本地文字类任务的神，没好的gpu腾讯的hymt2或者sakura，cpu都能跑
+
