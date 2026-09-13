@@ -816,3 +816,11 @@ konami现在混的可好了，实况足球都快成konami的原神了，统治�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Jabeck  
+##### 83#       发表于 2026-9-13 12:51
+
+讲道理，索尼又给场地又给钱甚至那些明星估计也是通过索尼影视那边的关系找来的，小岛哪来的自信要IP所有权啊。<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

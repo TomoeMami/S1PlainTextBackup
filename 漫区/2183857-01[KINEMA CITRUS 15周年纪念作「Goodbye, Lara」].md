@@ -256,3 +256,13 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 
 追到第八集了，第六集后节奏很赶阿，两集搞定见王子+约会+绝交+和好，一集搞定姐姐谜底+迷茫出海再+下定决心回来，还顺便完结比赛回收了第一集颁奖的相片，甚至觉得在这里结局都可以了，另外晚上小阳台谈心是我的今年最佳画面了
 
+
+*****
+
+####  43453  
+##### 513#       发表于 2026-9-13 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136030&amp;ptid=2183857" target="_blank">香雨香香 发表于 2026-8-24 12:07</a>
+上一集BG，这一集又卖了点女女关系性，这端水我得服啊，但是接下来好几集咋演，真实之爱到底是个啥玩意儿， ...</blockquote>
+有成为预言家的可能<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
