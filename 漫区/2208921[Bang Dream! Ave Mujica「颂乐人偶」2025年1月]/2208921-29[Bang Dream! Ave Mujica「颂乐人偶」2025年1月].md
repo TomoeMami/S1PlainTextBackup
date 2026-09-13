@@ -118,3 +118,36 @@ TV动画「BanG Dream! Ave Mujica」的后续故事将在 《BanG Dream! Our Not
 #BanGDream# #OurNotes# #交织的乐章#</blockquote>
        [https://www.bilibili.com/video/BV1cyYi6REXH](https://www.bilibili.com/video/BV1cyYi6REXH)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42019#       发表于 2026-9-13 21:05
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/13/210409ksacc1iiseidcz12.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-13_21-01-48.png</strong> (967.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 21:04 上传
+
+       [https://x.com/bang_dream_on/status/2099111378560917761](https://x.com/bang_dream_on/status/2099111378560917761)
+
+       <strong>正式上线时各乐队实装乐曲汇总🎶</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/13/210512sgzthg2e5pveehcx.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-13_21-03-20-piclite.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 21:05 上传
+
+敬请期待✨
+
+#BanGDream# #OurNotes# #交织的乐章# #交织的乐章0924#</blockquote>
+      [https://www.bilibili.com/video/BV1wCYi6xEbG](https://www.bilibili.com/video/BV1wCYi6xEbG)
+

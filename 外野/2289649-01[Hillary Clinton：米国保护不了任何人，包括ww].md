@@ -748,3 +748,19 @@ WW最有价值的是地
 全世界最不能接受弯弯回归的就是窝窝了，搞不好应激军事独走</blockquote>
 窝窝头要是真肯独走搞个新时代的珍珠港那就好了。
 
+
+*****
+
+####  iantsai  
+##### 72#       发表于 2026-9-13 20:58
+
+ 本帖最后由 iantsai 于 2026-9-13 21:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228285&amp;ptid=2289649" target="_blank">肥肥的守宫 发表于 2026-9-13 18:04</a>
+
+台湾极限能动员两三百万军队还是不可小看的</blockquote>
+你想多了。它们现在就二十几万军队，300万什么概念？算一下就知道，二年兵役制下要攒够300万人，那得把最近二十年服役的人全都召集起来才有。
+
+你觉得蛙岛能做到？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反过来想一下，一个2300万人口的地区，动员起300万人的军队，那这边不用打过去，看他们几天会全面内讧就好了。
+
