@@ -4346,3 +4346,22 @@ Adam Majmudar是openai的研究员，他的X发了篇帖子，解释为啥业内
 
 网络安全方面，ai早就超人了，因为网安本来就是考验对过往网络基础设施的知识量和注意力的行业，而且ai可以开几千个并发来从各种角度攻击。但相反而言，ai 对网络安全的防御方的加持就没那么大，矛与盾是不平衡的。
 
+
+*****
+
+####  蓝色梦魇  
+##### 13600#       发表于 2026-9-13 15:38
+
+现在ds4.1flash，用DSH的话还有必要第一轮注入极简模式的提示词吗（用anchored-standard）
+
+
+*****
+
+####  nxmonitor  
+##### 13601#       发表于 2026-9-13 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227753&amp;ptid=2275806" target="_blank">蓝色梦魇 发表于 2026-9-13 15:38</a>
+
+现在ds4.1flash，用DSH的话还有必要第一轮注入极简模式的提示词吗（用anchored-standard） ...</blockquote>
+第一步是别用DSH……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
