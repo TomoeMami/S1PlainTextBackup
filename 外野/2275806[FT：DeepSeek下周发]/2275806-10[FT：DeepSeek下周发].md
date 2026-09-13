@@ -4924,3 +4924,16 @@ rsi最好是一种越用越强的，一个模型推理，并持续学习，能�
 
 话说有没有pi布道师能说说好在哪<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">抛开社区插件不谈
 
+
+*****
+
+####  mitzvah  
+##### 13653#       发表于 2026-9-14 04:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230071&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-9-13 23:06</a>
+
+有什么具体mcp推荐的？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+我用的是codebase-memory-mcp 这东西功能最全，你先让harness自己把这东西部署好，然后，找一个比较难的后端问题，你让他去做，这是你就会发现harness在疯狂徒劳的grep/sed搜索代码，基本上是搜一段写一段就发现自己错了————这个时候就可以介入了，你可以问他，“你的裸grep，sed并不可靠，你认为哪些任务需codebase的静态分析工具介入，那些不得不grep，sed？”——————glm，deepseek这一等级的模型就会自行给出一个有效的分界——————在讨论的比较清楚之后就让他写一个skill拦截这些愚蠢徒劳的裸grep，sed，这样harness就学会自动使用静态分析工具解决问题了
+

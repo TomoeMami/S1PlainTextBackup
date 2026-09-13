@@ -4123,3 +4123,16 @@ B站神秘的推荐机制，看完差点没绷住
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  say_gg_plz  
+##### 1829#       发表于 2026-9-14 04:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225679&amp;ptid=2210366" target="_blank">千本blur 发表于 2026-9-13 01:11</a>
+
+我完蛋了，打完道狂告诉我要进最终战了，望着至少还有一半的技能树陷入了沉思。搜了一下，原来是要通两个两 ...</blockquote>
+主线里真的有强制去解锁一次技能然后告诉你之后解锁技能也要去找地方的
+
+但是这两天看下来反映主线快打完技能没解锁的人还挺多的，看来真的是很多人打这部分没看文本的
+
