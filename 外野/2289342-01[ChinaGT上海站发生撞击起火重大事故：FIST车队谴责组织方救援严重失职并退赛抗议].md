@@ -1714,3 +1714,15 @@ China gt主办方垃圾就是中国搓
 群里看了个图，大爷说没有60，只有48</blockquote>
 太正常了，中超比赛的保安招的兼职，给的费用是按招200块钱给的，但是层层外包到150再到100再到60-70元，至于更低对有没有我就不知道了。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  我就再氪一单  
+##### 130#       发表于 2026-9-14 07:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230614&amp;ptid=2289342" target="_blank">8号鸡 发表于 2026-9-14 00:53</a>
+群里看了个图，大爷说没有60，只有48</blockquote>
+nga那张吗，说灭火器不是打不开而是坏的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
