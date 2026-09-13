@@ -348,3 +348,16 @@ vol这个角色真的太空洞了，都说磕cp双方都要喜欢，但实在对
 
 一口气看完的，觉得这部片的乐趣就是看一群神人发电啊，极端大友厨，极端天然呆，极端自律上进姐，极端AI人格，就律像个正常人一点只有一层极端肉食的属性低配高松灯显得和团队格格不入，v姐就不说了。日常看甲亢发电，剧情推进看v姐炸团，那里没意思了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 476#       发表于 2026-9-13 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227520&amp;ptid=2283962" target="_blank">hikuchimakoto 发表于 2026-9-13 14:10</a>
+
+能唱反调吗，这梦限大做的挺有趣啊。
+
+一口气看完的，觉得这部片的乐趣就是看一群神人发电啊，极端大友厨， ...</blockquote>
+且不说由乃直言“其实我不想和你们维持这种过家家的友情”，妖薇的摧团之旅从<strong>第八话开始就被天意的大手强行按着变成佛人一个</strong>，哪家的大反派要是这么虎头甚至还没到尾就已经开始腐烂，面对藤独子后期更是几乎突兀地变成单方面看对方毫无逻辑轰炸的，这反派当的也太可笑了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
