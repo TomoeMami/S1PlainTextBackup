@@ -384,3 +384,13 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 
 —— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Graduation  
+##### 522#       发表于 2026-9-14 07:26
+
+ 本帖最后由 Graduation 于 2026-9-14 07:27 编辑 
+
+这集作为解密回里面人物对话有点裹脚布又臭又长了，里面很多设定也没解清楚。演出如果能更舞台剧化，像企鹅罐、银河美少年那样，力大飞砖糊弄过去那脚本短板点也还好，可惜两边都没做到，感觉连超时空辉夜都打不过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
