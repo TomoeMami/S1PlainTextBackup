@@ -4398,3 +4398,40 @@ DSH的普通模式或者切PI最好
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  木水风铃  
+##### 13605#       发表于 2026-9-13 16:29
+
+想在codex用astra搞点瑟瑟内容，怎么破限讷？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN50, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nxmonitor  
+##### 13606#       发表于 2026-9-13 16:33
+
+V4.1flash从体量上是GLM5.3的水平，实际质量其实还略高出一点（甚至短程任务K3也比不过），但是速度差得就太大了，总觉得两边是不是杠上了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  drodchang  
+##### 13607#       发表于 2026-9-13 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227891&amp;ptid=2275806" target="_blank">木水风铃 发表于 2026-9-13 16:29</a>
+
+想在codex用astra搞点瑟瑟内容，怎么破限讷？
+
+—— 来自 HUAWEI OCE-AN50, Android 12, 鹅球 v3.5.99 ...</blockquote>
+编故事，astra容易轻信别人
+
+*****
+
+####  nxmonitor  
+##### 13608#       发表于 2026-9-13 16:36
+
+智谱的GLM5.5估计会遇到Kimi一样的问题，有训练的能力但是没运营的算力，最后还是要看V4.1Pro的脸色
+
