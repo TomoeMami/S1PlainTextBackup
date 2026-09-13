@@ -581,3 +581,11 @@ UI完全简化。很多东西连图标都没有。
 
 —— 来自 HUAWEI HBN-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  66367749  
+##### 61#       发表于 2026-9-13 09:31
+
+玩过工画堂的蓝色天使队，还挺喜欢的。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
