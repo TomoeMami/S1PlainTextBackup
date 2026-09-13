@@ -4732,3 +4732,18 @@ dario昨天发言连马斯克奥特曼谷歌都附和了，不知道葫芦里卖
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  noneoneone  
+##### 13635#       发表于 2026-9-13 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70229176&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-13 20:45</a>
+
+2.5还是X呢
+
+2.5我感觉只要提示词够明确，它还是能干点活的，就是不会主动测试，适合做子代理 ...</blockquote>
+X，也不是说不能干活，就是经常用奇异的思路理解我的指令，然后又用摆烂的方式实现我的要求。
+
+有一种向猴爪许愿的感觉。
+
