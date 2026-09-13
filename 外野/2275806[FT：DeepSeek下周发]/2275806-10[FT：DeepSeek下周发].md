@@ -4841,3 +4841,15 @@ OpenCode算是什么水平的智能体？
 最近三家都开始炒rsi，一开始是2号谷歌老大说投入资源去rsi，然后是奥特曼说rsi，然后是谷歌搞了rsi的传闻 ...</blockquote>
 本来就有雏形啊，现在的玩家没哪家不是用自己模型训练迭代的吧，关键是能无人员干预的自行递归才是重点，这个的前提首先得搞定持续学习
 
+
+*****
+
+####  无尽的牙刷  
+##### 13646#       发表于 2026-9-13 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228131&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-9-13 17:32</a>
+现在啥国模日译中翻译最好？性价比最高的呢？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+不考虑成本的话，qwen3.8max
+

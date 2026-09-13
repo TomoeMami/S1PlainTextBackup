@@ -1660,3 +1660,39 @@ China gt主办方垃圾就是中国搓
 
 教员提的实事求是的精神去哪儿了，还是说坛友准备竞选美国2024年总统创MAGA大业<img src="https://static.stage1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  佛剑分说  
+##### 125#       发表于 2026-9-13 22:57
+
+<img src="https://img.stage1st.com/forum/202609/13/225733h5kdggdjlzp0cik0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (242.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 22:57 上传
+
+*****
+
+####  神之飞雪  
+##### 126#       发表于 2026-9-13 22:59
+
+小米好像也撤资了
+
+*****
+
+####  佛剑分说  
+##### 127#       发表于 2026-9-13 23:00
+
+<img src="https://img.stage1st.com/forum/202609/13/230013l9bj2nbf7ceee7tc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 23:00 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

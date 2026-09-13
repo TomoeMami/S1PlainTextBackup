@@ -55,3 +55,11 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  madcow  
+##### 2103#       发表于 2026-9-13 23:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">电葱和重力葱是一套语音然后冰火是一套语音？
+
