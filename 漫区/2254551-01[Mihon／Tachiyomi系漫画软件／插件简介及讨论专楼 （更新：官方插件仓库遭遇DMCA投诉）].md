@@ -63,3 +63,23 @@
 
 tachiyomi彻底不能用了，遗憾
 
+
+*****
+
+####  针水城  
+##### 192#       发表于 2026-9-13 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70226378&amp;ptid=2254551" target="_blank">ShiKi847 发表于 2026-9-13 08:39</a>
+
+备份还原，先去tachiyomi找到你的存储位置，把autobackup的文件找到，然后用mihon备份还原文件 ...</blockquote>
+就是这么操作的 书架是已经过来了 但是MIHON没办法批量更新，刷新后出来个正在更新分类 然后就没下文了，在TACHIYOMI不是会出来个一本本漫画的名字过去的通知吗 MIHON现在没出现
+
+*****
+
+####  KDConan  
+##### 193#       发表于 2026-9-13 13:17
+
+我的mihon更新一直有一搭无一搭，偶尔能更新几个，大部分时间得自己一部部刷一下
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

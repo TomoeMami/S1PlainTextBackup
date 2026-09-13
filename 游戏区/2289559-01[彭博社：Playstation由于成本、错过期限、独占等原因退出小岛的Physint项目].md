@@ -824,3 +824,17 @@ konami现在混的可好了，实况足球都快成konami的原神了，统治�
 
 讲道理，索尼又给场地又给钱甚至那些明星估计也是通过索尼影视那边的关系找来的，小岛哪来的自信要IP所有权啊。<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ff2077  
+##### 84#       发表于 2026-9-13 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70226486&amp;ptid=2289559" target="_blank">哎哟卧槽了 发表于 2026-9-13 09:11</a>
+反正都是工期长，给小岛砸几亿起码换来一堆明星，给顽皮狗砸几亿换个被ban的服务游戏+光头尼姑
+
+—— 来自  ...</blockquote>
+问题是ip不是索尼的啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
