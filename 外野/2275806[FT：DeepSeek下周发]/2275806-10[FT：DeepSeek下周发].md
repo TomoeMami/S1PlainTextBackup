@@ -4916,3 +4916,11 @@ rsi最好是一种越用越强的，一个模型推理，并持续学习，能�
 
 [万物皆插件，然后呢？](https://www.dreamingcat.me/posts/2026/wan4-wu4-jie1-cha1-jian4-ran2-hou4-ne0/)
 
+
+*****
+
+####  小牛无大将  
+##### 13652#       发表于 2026-9-14 01:56
+
+话说有没有pi布道师能说说好在哪<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">抛开社区插件不谈
+

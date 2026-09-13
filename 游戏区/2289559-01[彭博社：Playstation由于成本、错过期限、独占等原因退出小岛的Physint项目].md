@@ -1330,3 +1330,11 @@ DS能让人再次相信游戏作为真正的艺术品的存在价值。
 当然有一个第一方工作室比岛 ...</blockquote>
 不许骂尼尔先辈😠
 
+
+*****
+
+####  FLZB  
+##### 125#       发表于 2026-9-14 02:00
+
+岛哥哥用DS和DS2把不喜欢和喜欢这类游戏的人都骗进来杀，给他飞了一点不怨，早该拷打一下了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
