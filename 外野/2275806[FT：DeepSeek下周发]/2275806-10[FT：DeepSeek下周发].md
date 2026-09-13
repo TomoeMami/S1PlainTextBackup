@@ -4789,3 +4789,21 @@ dario昨天发言连马斯克奥特曼谷歌都附和了，不知道葫芦里卖
 
 qoder只送300积分，deepseekflash几下子就用了一百了，有点不经用啊，它也没个签到领积分。话说它60块的和别家的比咋样啊，楼里也没怎么见说这个qoder的
 
+
+*****
+
+####  nxmonitor  
+##### 13640#       发表于 2026-9-13 21:56
+
+不就是加息预期高涨，然后美国AI公司要爆炸吗？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 13641#       发表于 2026-9-13 22:00
+
+dario马上就要ipo，这个时候喊停就很神奇
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
