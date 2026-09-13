@@ -3914,3 +3914,14 @@ ai好用是好用. 但是一点点基础知识都不懂就开始项目 搞到后
 dsh始终把pwsh作为windows环境的一等公民且明确不做git bash适配，让我总感觉ds是有在搞pwsh专训的，用dsh ...</blockquote>
 用pwsh7后基本上没有几次出错了，可能是有专门针对性训练吧
 
+
+*****
+
+####  野蛮人之夜  
+##### 13579#       发表于 2026-9-13 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225633&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-13 00:57</a>
+
+喋喋不休，一天到晚做它那个b对齐，硬安全没有，只有对齐</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">“对齐”这词其实宗教意味很浓的，所以我都不太这么说
+

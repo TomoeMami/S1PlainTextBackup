@@ -95,3 +95,43 @@
 
 2026-9-13 10:07 上传
 
+
+*****
+
+####  DARK_HGCG  
+##### 144#       发表于 2026-9-13 10:11
+
+官方漫画唉
+
+<img src="https://img.stage1st.com/forum/202609/13/101006ek0x3bbdqzkz2xd2.jpg" referrerpolicy="no-referrer">
+
+<strong>29896.jpg</strong> (247.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 10:10 上传
+
+<img src="https://img.stage1st.com/forum/202609/13/101008y3t2ivcvtx3eqm3h.jpg" referrerpolicy="no-referrer">
+
+<strong>29897.jpg</strong> (259.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 10:10 上传
+
+<img src="https://img.stage1st.com/forum/202609/13/101039r5aofqkm32o5qa3i.jpg" referrerpolicy="no-referrer">
+
+<strong>29898.jpg</strong> (315.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 10:10 上传
+
+<img src="https://img.stage1st.com/forum/202609/13/101039fqd535lld3lallvy.jpg" referrerpolicy="no-referrer">
+
+<strong>29899.jpg</strong> (285.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 10:10 上传
+
