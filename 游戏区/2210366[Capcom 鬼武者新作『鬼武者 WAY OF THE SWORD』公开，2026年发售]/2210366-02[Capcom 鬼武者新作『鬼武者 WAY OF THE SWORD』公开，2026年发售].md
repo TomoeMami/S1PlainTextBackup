@@ -3937,3 +3937,14 @@ B站神秘的推荐机制，看完差点没绷住
 
 —— 来自 Google Pixel 7 Pro, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  reficul  
+##### 1810#       发表于 2026-9-13 07:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225621&amp;ptid=2210366" target="_blank">手铐君 发表于 2026-9-13 00:54</a>
+
+剑戟和鬼杀感觉差距有点大。剑戟大部分boss都是打的太轻松，结果鬼杀把课全部补回来了感觉正常玩法应该是剑 ...</blockquote>
+剑戟直奔主线不升级的话，难度也不低呀
+
