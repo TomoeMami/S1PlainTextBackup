@@ -4050,3 +4050,11 @@ B站神秘的推荐机制，看完差点没绷住
 
 毘沙门剑还是太强了。鬼杀难度到了后面酒吞，异化佐佐木，源神每一个我都是嗑满状态和吃复活药才过的。以为复战估计很难了，没想到打的还算是轻松。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是我水平有限，感觉主动出击，不如打后手轻松点
 
+
+*****
+
+####  卡拉德利姆  
+##### 1822#       发表于 2026-9-13 20:20
+
+救商人那个成就怎么稳定解锁？我二周目鬼杀都打通了，救30个人的成就都解锁了就这个没解锁<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
