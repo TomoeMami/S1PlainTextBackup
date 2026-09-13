@@ -361,3 +361,19 @@ vol这个角色真的太空洞了，都说磕cp双方都要喜欢，但实在对
 一口气看完的，觉得这部片的乐趣就是看一群神人发电啊，极端大友厨， ...</blockquote>
 且不说由乃直言“其实我不想和你们维持这种过家家的友情”，妖薇的摧团之旅从<strong>第八话开始就被天意的大手强行按着变成佛人一个</strong>，哪家的大反派要是这么虎头甚至还没到尾就已经开始腐烂，面对藤独子后期更是几乎突兀地变成单方面看对方毫无逻辑轰炸的，这反派当的也太可笑了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 477#       发表于 2026-9-13 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70226786&amp;ptid=2283962" target="_blank">刑部姬真可爱 发表于 2026-9-13 10:48</a>
+剧情方面的事已经无人在意了
+
+你就说你薇姐戏内戏外人气高不高吧</blockquote>
+你就是大名鼎鼎的v吗jpg
+
+虽然戏份上更像是被竹村一枪崩了的德胖。
+
+—— 来自 OPPO PLP110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
