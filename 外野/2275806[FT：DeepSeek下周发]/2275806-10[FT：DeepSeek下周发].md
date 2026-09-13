@@ -4447,3 +4447,45 @@ workbuddy太恶心了，没用他们优惠的模型也在任务一半跳出超�
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  serj005  
+##### 13610#       发表于 2026-9-13 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227875&amp;ptid=2275806" target="_blank">novalli 发表于 2026-9-13 16:26</a>
+
+感觉pi什么都不加已经够应对普通零碎要求了，想管理大型工程可以自己做些文档加以引导。
+
+我到现在还是很不 ...</blockquote>
+我也是默认pi用到死，什么功能都不加，最多只加btw这类不额外引入上下文的辅助性插件，目前没有遇到不够用的场景，或者说真遇到棘手需求换其他agent一般也解决不了。
+
+现在模型越来越强的基础上可以说就是工具类上下文越少整体智力和能力水平越高。
+
+ds自己的测试报告也是工具越简单能力越强，能力表现最强的就是剔除一切工具只剩一个bash的mini-swe。
+
+*****
+
+####  处男鉴黄师  
+##### 13611#       发表于 2026-9-13 16:52
+
+<blockquote>魔法师lain 发表于 2026-9-13 16:42
+可以换模型说继续啊
+
+—— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+换模型一样的，必须选auto，换成minimax m3然后积分唰唰往下掉，明明没用多少token。
+
+*****
+
+####  酱狐狸  
+##### 13612#       发表于 2026-9-13 16:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">4.1f是不是被调得不会说人话了，让4.1f做点调研，出来的报告让人感觉看不懂中文了
+
+*****
+
+####  heemoon  
+##### 13613#       发表于 2026-9-13 16:56
+
+用k3感觉是有条不紊，稳扎稳打。用v4.1f感觉横冲直撞，脱缰野马<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
