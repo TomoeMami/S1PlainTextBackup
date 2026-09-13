@@ -291,3 +291,42 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 
 平稳落地就好
 
+
+*****
+
+####  Piano-Forest  
+##### 517#         楼主| 发表于 2026-9-14 00:37
+
+ 本帖最后由 Piano-Forest 于 2026-9-14 00:39 编辑 
+
+🐚⁺‧┈　#さよならララ エンドカード　┈‧⁺ 🫧˚
+
+　   　   　  第11話「魔女グレイス」
+
+　　
+
+キャラクターデザイン #谷紫織 さんによるエンドカードをお届けします✨
+
+ご視聴いただいた皆さま、ありがとうございました。
+
+ついに明かされたグレイスの過去…次回、遂に最終回です。
+
+来週もお楽しみに！
+
+さよララ～👋
+<img src="https://p.sda1.dev/35/3ee3c2bc893ca2782b7e463eb989124c/HSF7CWfaYAADgtV.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/dowagers/status/2099166186051338367](https://x.com/dowagers/status/2099166186051338367)
+
+さよならララ11話ご視聴ありがとうございました！
+
+作画監督、原画等で参加させて頂きました。
+
+演出の佐藤さんはじめ各セクションのスタッフの皆さまの素晴らしいお仕事にパワーを貰っておりました✊
+
+いよいよ次は12話！
+<img src="https://p.sda1.dev/35/094b8e7108c1dca6371cc1b3ab33f407/HSG8gnsbwAAjUnt.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/warder2013/status/2099175930602349052](https://x.com/warder2013/status/2099175930602349052)
+<img src="https://p.sda1.dev/35/4f42b819024cbe63a8600b321853da41/1000173921.jpg" referrerpolicy="no-referrer">
+
