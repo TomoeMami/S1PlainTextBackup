@@ -4747,3 +4747,25 @@ X，也不是说不能干活，就是经常用奇异的思路理解我的指令�
 
 有一种向猴爪许愿的感觉。
 
+
+*****
+
+####  tonyunreal  
+##### 13636#       发表于 2026-9-13 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70229319&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-13 21:07</a>
+X，也不是说不能干活，就是经常用奇异的思路理解我的指令，然后又用摆烂的方式实现我的要求。
+
+有一种向猴 ...</blockquote>
+x系列应该是炼失败了吧
+看用过的人就没有说好话的……
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  gammatau  
+##### 13637#       发表于 2026-9-13 21:29
+
+llm是语言模型，而编程语言是人工造出来的规则语言，llm在编程和找人类编程里的漏洞上强过人类也没什么奇怪的
+
