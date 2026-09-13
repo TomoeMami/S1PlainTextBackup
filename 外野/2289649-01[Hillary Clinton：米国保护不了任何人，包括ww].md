@@ -593,3 +593,39 @@ WW最有价值的是地
 
 在其他地方倒是可以学习下美帝对欧洲和日韩的处理，维持实际控制权的同时把治理成本尽可能转嫁到当地，中间的平衡操作一直都掌握的不错
 
+
+*****
+
+####  weary10  
+##### 55#       发表于 2026-9-13 17:00
+
+和平4v代价太大，还是物理的好。4v是旧中国所有牛鬼蛇神的窝点，是倭寇的窝点，是西大窝点，世界上所有反动势力都在，这地方不打扫干净是不行的。
+
+
+*****
+
+####  拭泪之翼  
+##### 56#       发表于 2026-9-13 17:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 台湾回归都只是时间问题了，我现在基本不关心这个议题了，唯一让我感兴趣的，就是喜闻乐见的清算大戏
+
+在他们的认知里，阿公但对叛徒是下狠手不留情的，希望是确实是这样<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吔屎  
+##### 57#       发表于 2026-9-13 17:03
+
+真投了说不好这边真接受，毕竟这是载入史册的大事，至于群众，反正现在也不差这个继续苦一苦群众咯<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  wlhlz  
+##### 58#       发表于 2026-9-13 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227567&amp;ptid=2289649" target="_blank">汤博士 发表于 2026-9-13 14:27</a>
+看看最近的中东不就知道有没有用了。</blockquote>
+看了中东还能得出米弟拼命就能有用的结论，那才是神了
+

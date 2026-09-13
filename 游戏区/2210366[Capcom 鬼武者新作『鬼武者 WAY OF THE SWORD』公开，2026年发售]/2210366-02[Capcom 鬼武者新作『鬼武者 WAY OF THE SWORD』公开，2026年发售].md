@@ -4014,3 +4014,15 @@ B站神秘的推荐机制，看完差点没绷住
 
 拿到一闪剑后真实闪一切啊
 
+
+*****
+
+####  司马千晶  
+##### 1818#       发表于 2026-9-13 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227489&amp;ptid=2210366" target="_blank">卡拉德利姆 发表于 2026-9-13 14:01</a>
+鬼杀难度我感觉马桶即时全通自己的数值都比不过对面数值膨胀的速度
+
+不是强迫症建议直接改素材 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">应该是考虑到玩家一周目的大药都攒着呢
+

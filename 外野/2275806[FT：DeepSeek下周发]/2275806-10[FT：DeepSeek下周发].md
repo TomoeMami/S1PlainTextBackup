@@ -4489,3 +4489,15 @@ ds自己的测试报告也是工具越简单能力越强，能力表现最强的
 
 用k3感觉是有条不紊，稳扎稳打。用v4.1f感觉横冲直撞，脱缰野马<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 13614#       发表于 2026-9-13 17:02
+
+ 本帖最后由 来都来了 于 2026-9-13 17:04 编辑 
+
+看到楼里吹Pi的人越来越多，我很欣慰<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">没有用过Pi的人真的都应该用一用，它确实非常强大，而且非常高效省钱。
+
+顺便一提，DS4.1已经很少大战PowerShell和GBK了，感觉在这一块应该是专门做了训练。
+
