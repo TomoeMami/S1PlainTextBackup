@@ -99,3 +99,15 @@ tachiyomi彻底不能用了，遗憾
 
 还有好像切换页面后自动更新就会暂停 只能在那个页面等着
 
+
+*****
+
+####  KDConan  
+##### 195#       发表于 2026-9-13 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227431&amp;ptid=2254551" target="_blank">针水城 发表于 2026-9-13 13:42</a>
+刚才我一点点排查过去 先去看自动更新那 有没有把有未看章节跳过那选上 我给点掉 可以更新一部分 然后刚才 ...</blockquote>
+我就没开自动更新，都是更新页面里手动刷，原来不能离开页面的吗<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

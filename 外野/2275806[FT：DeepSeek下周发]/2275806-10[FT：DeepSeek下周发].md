@@ -4037,3 +4037,49 @@ b站更多的是一种踩油门心态和看热闹随波逐流，也有一部分�
 
 实际上，在都联网的情况下qwen3.8 27b随便干翻qwen3 max吧。
 
+
+*****
+
+####  bartholo4  
+##### 13591#       发表于 2026-9-13 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227409&amp;ptid=2275806" target="_blank">近距离作战 发表于 2026-9-13 13:37</a>
+
+还有非法AI的事儿</blockquote>
+主要还是看这个事儿是不是因然的
+
+生个娃不登记不上户口都享受不到各种公权力的福利呢
+
+*****
+
+####  近距离作战  
+##### 13592#       发表于 2026-9-13 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227517&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-9-13 14:08</a>
+
+主要还是看这个事儿是不是因然的
+
+生个娃不登记不上户口都享受不到各种公权力的福利呢 ...</blockquote>
+那连高性能计算机硬件都得登记了，这乐子才大
+
+*****
+
+####  绝地潜兵  
+##### 13593#       发表于 2026-9-13 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70226651&amp;ptid=2275806" target="_blank">野蛮人之夜 发表于 2026-9-13 10:09</a>
+
+“对齐”这词其实宗教意味很浓的，所以我都不太这么说</blockquote>
+草，英语真是屎山
+
+
+*****
+
+####  mitzvah  
+##### 13594#       发表于 2026-9-13 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227387&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-9-13 13:31</a>
+
+其实有个说法是，如果智能体能力确实很强了之后，应该是禁止私自搭建复制智能体，智能体只能由公权力来搭建 ...</blockquote>
+现在qwen3.8 27b都可以随便破解老游戏，爬老网站了，还不够强？
+
