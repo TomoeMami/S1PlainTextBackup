@@ -4853,3 +4853,15 @@ OpenCode算是什么水平的智能体？
 —— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
 不考虑成本的话，qwen3.8max
 
+
+*****
+
+####  魔法师lain  
+##### 13647#       发表于 2026-9-13 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228061&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-13 17:14</a>
+让模型自己grep很不可靠的，给他部署静态分析工具的mcp，让其基于静态分析工具的结果理解代码库 ...</blockquote>
+有什么具体mcp推荐的？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
