@@ -3948,3 +3948,24 @@ B站神秘的推荐机制，看完差点没绷住
 剑戟和鬼杀感觉差距有点大。剑戟大部分boss都是打的太轻松，结果鬼杀把课全部补回来了感觉正常玩法应该是剑 ...</blockquote>
 剑戟直奔主线不升级的话，难度也不低呀
 
+
+*****
+
+####  手铐君  
+##### 1811#       发表于 2026-9-13 08:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70226253&amp;ptid=2210366" target="_blank">reficul 发表于 2026-9-13 07:48</a>
+剑戟直奔主线不升级的话，难度也不低呀</blockquote>
+那样的话要通2遍马桶太难了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厄斯沃穆  
+##### 1812#       发表于 2026-9-13 08:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225565&amp;ptid=2210366" target="_blank">蒋公卖萌 发表于 2026-9-13 00:36</a>
+不懂就问，这是首部把源义经设定成坏人的游戏吗（甚至是所有的娱乐作品）？ ...</blockquote>
+黑化源义经是个老题材了，早几十年前手冢老头的火鸟就把源义经写成军阀独夫战争疯子了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

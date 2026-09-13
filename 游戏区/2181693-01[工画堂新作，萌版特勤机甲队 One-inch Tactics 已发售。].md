@@ -567,3 +567,17 @@ UI完全简化。很多东西连图标都没有。
 
 这游戏是不是驾驶员不能升级，机体也无法改造的那种？
 
+
+*****
+
+####  kimihung  
+##### 60#         楼主| 发表于 2026-9-13 07:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225115&amp;ptid=2181693" target="_blank">新HGCG 发表于 2026-9-12 23:12</a>
+出NS版了所以顶一下问个问题
+
+这游戏是不是驾驶员不能升级，机体也无法改造的那种？ ...</blockquote>
+没有驾驶员养成和机体养成，驾驶员出击和击杀都会增加驾驶员相应属性。越用越强，机体只有换武器，后期会给新机体用。
+
+—— 来自 HUAWEI HBN-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
