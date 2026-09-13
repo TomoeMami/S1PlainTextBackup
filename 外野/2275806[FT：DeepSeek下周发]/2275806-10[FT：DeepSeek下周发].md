@@ -4621,3 +4621,38 @@ https://hf-mirror.com/alphaZimuth/Hy-MT2-30B-A3B-APEX-GGUF/tree/main
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  相见恨晚  
+##### 13625#       发表于 2026-9-13 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227936&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-9-13 16:42</a>
+
+可以换模型说继续啊
+
+—— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+敲定了两天的细节开始执行十几分钟后直接中断，确实可以换auto继续，但自动换的minimax在压缩对话后又问了我一堆问题，气得我一点都不想看让它直接动手不要再问了，虽然文档做得多，但做出来的肯定和我想的不一样了。所以现在下载qoder了
+
+*****
+
+####  asier  
+##### 13626#       发表于 2026-9-13 19:20
+
+想用藤子的积分可以用codebuddy
+
+
+*****
+
+####  qwased  
+##### 13627#       发表于 2026-9-13 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228619&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-9-13 19:13</a>
+
+问的是不是本地跑的啦，接云端api和key直接跑的。偶只有个魔改a3000，不能装新驱动，才12g显存。
+
+——  ...</blockquote>
+口水网文哈基米比较好,认梗能力强
+
+句子比较复杂的正经书籍还是gpt吧，flash级的模型容易误解
+
