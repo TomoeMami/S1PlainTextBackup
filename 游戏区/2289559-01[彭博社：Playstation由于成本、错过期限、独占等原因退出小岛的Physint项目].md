@@ -892,3 +892,13 @@ konami现在混的可好了，实况足球都快成konami的原神了，统治�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  mintslime  
+##### 89#       发表于 2026-9-13 14:37
+
+我是岛粉我也要说死搁2不行，刀哥哥还是只能夹着尾巴做游戏，不能让他过得太好<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+当然有一个第一方工作室比岛哥哥能烧钱，没岛哥哥能出货，还喜欢搞些DEI的烂活，为什么还活着呢那我就不知道了
+

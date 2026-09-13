@@ -111,3 +111,16 @@ tachiyomi彻底不能用了，遗憾
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  针水城  
+##### 196#       发表于 2026-9-13 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227516&amp;ptid=2254551" target="_blank">KDConan 发表于 2026-9-13 14:08</a>
+
+我就没开自动更新，都是更新页面里手动刷，原来不能离开页面的吗
+
+—— 来自 Xiaomi 24117RK2CC, Android ...</blockquote>
+不是开自动更新 是自动更新那个页面有个选择 把那几个选项点了你再刷新就会开始全部更新了 刚才一点点试了发现。 离开页面这个不确定。可能我离开页面前他已经更新完毕了 ，现在没通知进度条我都不知道更新到哪 有没有结束
+
