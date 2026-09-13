@@ -3969,3 +3969,13 @@ B站神秘的推荐机制，看完差点没绷住
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  卡拉德利姆  
+##### 1813#       发表于 2026-9-13 14:01
+
+鬼杀难度我感觉马桶即时全通自己的数值都比不过对面数值膨胀的速度
+
+不是强迫症建议直接改素材<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
