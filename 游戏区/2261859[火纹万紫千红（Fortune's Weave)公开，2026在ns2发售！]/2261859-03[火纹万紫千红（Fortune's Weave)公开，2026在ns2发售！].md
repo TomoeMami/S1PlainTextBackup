@@ -5631,3 +5631,13 @@ tb  之前pdd最低补贴还有320的</blockquote>
 
 现在卡带还蛮贵的，一般哪家发货快一点
 
+
+*****
+
+####  clyde-wang  
+##### 3439#       发表于 2026-9-13 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70196403&amp;ptid=2261859" target="_blank">蓮華 发表于 2026-9-3 18:26</a>
+给个链接，搜不到啊</blockquote>
+我下周TGS去东京，我去线下买豪华版，日亚的确也能预订
+
