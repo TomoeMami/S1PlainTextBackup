@@ -910,3 +910,31 @@ konami现在混的可好了，实况足球都快成konami的原神了，统治�
 
 其实讲道理，我感觉死亡搁浅两部的成本应该都没超一亿刀啊，特别是死搁1，估计5000w都不到，推特黑小岛的都说什么1.5亿起步，闹麻了
 
+
+*****
+
+####  缺德猫  
+##### 91#       发表于 2026-9-13 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227590&amp;ptid=2289559" target="_blank">mintslime 发表于 2026-9-13 14:37</a>
+
+我是岛粉我也要说死搁2不行，刀哥哥还是只能夹着尾巴做游戏，不能让他过得太好
+
+当然有一个第一方工作室比岛 ...</blockquote>
+因为评分、销量、奖项完爆岛哥哥。
+
+哦对了，就连影视剧拍的都比岛哥哥成功。
+
+*****
+
+####  liekong  
+##### 92#       发表于 2026-9-13 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227590&amp;ptid=2289559" target="_blank">mintslime 发表于 2026-9-13 14:37</a>
+我是岛粉我也要说死搁2不行，刀哥哥还是只能夹着尾巴做游戏，不能让他过得太好
+
+当然有一个第一方工作室比岛 ...</blockquote>
+不是爆出索尼想直接收购小岛工作室吗，岛哥哥拒绝了罢了，亲儿子跟干儿子那能一样吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
