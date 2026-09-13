@@ -3925,3 +3925,19 @@ dsh始终把pwsh作为windows环境的一等公民且明确不做git bash适配�
 喋喋不休，一天到晚做它那个b对齐，硬安全没有，只有对齐</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">“对齐”这词其实宗教意味很浓的，所以我都不太这么说
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 13580#       发表于 2026-9-13 10:59
+
+<img src="https://img.stage1st.com/forum/202609/13/105759tntc5ggo2rctne28.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 10:57 上传
+
+deepseekHarness好用，拉去重构某个组件，这是结果。消费金额¥3.21<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
