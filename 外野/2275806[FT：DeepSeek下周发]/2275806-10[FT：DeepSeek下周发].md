@@ -4607,3 +4607,17 @@ ds4.1现在还能破限么，用之前的提示词被她一秒识破了，完全
 
 速度暴打gemma4，质量比gemma4开思考都略高
 
+
+*****
+
+####  魔法师lain  
+##### 13624#       发表于 2026-9-13 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228249&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-13 17:57</a>
+https://hf-mirror.com/alphaZimuth/Hy-MT2-30B-A3B-APEX-GGUF/tree/main
+
+速度暴打gemma4，质量比gemma4 ...</blockquote>
+问的是不是本地跑的啦，接云端api和key直接跑的
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

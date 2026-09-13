@@ -1145,3 +1145,14 @@ concord全职200人是在加州，死亡搁浅是在东京，能比吗？
 
 死亡搁浅1是我2019年的年度游戏，是我为数不多愿意玩到全成就的游戏，但是2代今年刚打完，评价为真的不行。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ShiKi847  
+##### 111#       发表于 2026-9-13 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228574&amp;ptid=2289559" target="_blank">heseran 发表于 2026-9-13 19:01</a>
+
+死亡搁浅1是我2019年的年度游戏，是我为数不多愿意玩到全成就的游戏，但是2代今年刚打完，评价为真的不行。 ...</blockquote>
+我也，DS2现在还没通关，烂尾了，我觉得DS就不应该出2的，早点把OD做完做新作多好
+
