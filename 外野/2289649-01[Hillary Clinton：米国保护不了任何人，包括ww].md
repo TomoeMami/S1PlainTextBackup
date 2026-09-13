@@ -698,3 +698,16 @@ WW最有价值的是地
 
 台湾极限能动员两三百万军队还是不可小看的<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  9号单开道岔  
+##### 67#       发表于 2026-9-13 20:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70226967&amp;ptid=2289649" target="_blank">lostfile 发表于 2026-9-13 11:44</a>
+
+在野总是很清醒。</blockquote>
+不不，和清醒无关。
+
+到了希拉里这个地位的人，说出来的话，已经与事实无关了。而是一种政治宣言，宣称她和她小政治联盟，未来的政治方针，要推进什么，要在什么方向上给YKW扯后腿，要谋求哪个方向的政治利益
+
