@@ -5710,3 +5710,16 @@ tb  之前pdd最低补贴还有320的</blockquote>
 
 这代移动时怎么把攻击范围也标出来了，感觉画蛇添足了，看着难受
 
+
+*****
+
+####  纯夏  
+##### 3446#       发表于 2026-9-14 01:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70229154&amp;ptid=2261859" target="_blank">bwsusaga 发表于 2026-9-13 20:43</a>
+
+有没有全同伴总结可看？感觉可以先搞拉郎配了</blockquote>
+[https://www.youtube.com/watch?v=TqPNNZkBtk0](https://www.youtube.com/watch?v=TqPNNZkBtk0)
+
+目前为止公开的全94位角色总结
+
