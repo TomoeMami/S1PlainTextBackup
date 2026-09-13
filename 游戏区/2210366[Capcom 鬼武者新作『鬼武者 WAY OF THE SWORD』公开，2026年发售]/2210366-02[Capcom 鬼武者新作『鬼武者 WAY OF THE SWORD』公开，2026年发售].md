@@ -4058,3 +4058,16 @@ B站神秘的推荐机制，看完差点没绷住
 
 救商人那个成就怎么稳定解锁？我二周目鬼杀都打通了，救30个人的成就都解锁了就这个没解锁<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1823#       发表于 2026-9-13 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225565&amp;ptid=2210366" target="_blank">蒋公卖萌 发表于 2026-9-13 00:36</a>
+
+不懂就问，这是首部把源义经设定成坏人的游戏吗（甚至是所有的娱乐作品）？ ...</blockquote>
+那不至于，源义经当反派也不是头一遭了。随便举几个例子，孔雀王里他就是大反派；漂流武士里与主角敌对。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现实历史可以说他是个悲情人物，但是和好人也不太沾边。放火烧村，射杀平民都干过，坛之浦逼得平家全家老小跳海（虽然平家覆灭有点成王败寇的意思）。政治情商几乎为零，功高震主不说，自己还不醒悟，后续干的所有事情基本都是在挑动他哥的逆鳞（这个说起来就长了，这里就不展开说了）
+
