@@ -4865,3 +4865,34 @@ OpenCode算是什么水平的智能体？
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  LeoDT  
+##### 13648#       发表于 2026-9-13 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230071&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-9-13 23:06</a>
+有什么具体mcp推荐的？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+试试codegraph，不过可能会有坑，这东西只适合最开始探索某子系统时的那一下，之后最好还是老老实实rg。可以先用它做几个小任务，每个任务做完跟模型要工具使用的总结，最后弄出几条使用规范再用就好多了。
+
+
+*****
+
+####  霓虹灯鱼  
+##### 13649#       发表于 2026-9-13 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228131&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-9-13 17:32</a>
+现在啥国模日译中翻译最好？性价比最高的呢？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/13/233327tv84vbb2zmz244fk.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1789313606420_1.webp</strong> (111.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 23:33 上传
+
