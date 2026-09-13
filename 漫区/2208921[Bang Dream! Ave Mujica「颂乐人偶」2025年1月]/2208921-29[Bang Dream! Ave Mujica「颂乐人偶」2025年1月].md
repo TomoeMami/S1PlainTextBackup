@@ -79,3 +79,42 @@ TV动画「BanG Dream! Ave Mujica」的后续故事将在 《BanG Dream! Our Not
 #BanGDream# #OurNotes# #交织的乐章#</blockquote>
       [https://www.bilibili.com/video/BV1V1Yj6pEnR/](https://www.bilibili.com/video/BV1V1Yj6pEnR/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42018#       发表于 2026-9-13 20:52
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/13/205117hbr57q8srs71zxkz.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-13_20-43-35.png</strong> (664.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 20:51 上传
+
+       [https://x.com/bang_dream_on/status/2099108926482759712](https://x.com/bang_dream_on/status/2099108926482759712)
+
+       [https://www.youtube.com/watch?v=7vC5H1G04sA](https://www.youtube.com/watch?v=7vC5H1G04sA)
+
+       <strong>924国际服公测定档 |《BanG Dream! Our Notes》官方游戏预告片公开✨</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/13/205159h82zkr4kikukcf9i.jpg" referrerpolicy="no-referrer">
+
+<strong>436c0e0feef03b703972c32bb3a1e14a5057faa6.jpg</strong> (455.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 20:51 上传
+
+由 BanG Dream! 企划带来的全新音游《BanG Dream! Our Notes》官方游戏预告片公开✨
+
+奏响吧！属于我们的乐章！
+
+《BanG Dream! Our Notes》9月24日全球同步上线！
+
+#BanGDream# #OurNotes# #交织的乐章#</blockquote>
+       [https://www.bilibili.com/video/BV1cyYi6REXH](https://www.bilibili.com/video/BV1cyYi6REXH)
+

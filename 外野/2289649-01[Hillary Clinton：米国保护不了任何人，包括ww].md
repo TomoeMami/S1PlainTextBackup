@@ -730,3 +730,21 @@ WW最有价值的是地
 我觉得打日本的可行性高于打4V  毕竟4V是敌人的预设战场</blockquote>
 4V那点体量再怎么预设也没有用，真不打它那就只能是收益不够看
 
+
+*****
+
+####  EVA01  
+##### 70#       发表于 2026-9-13 20:54
+
+最好先弄清原话上下文 老妖婆没这么容易认怂 
+
+*****
+
+####  iantsai  
+##### 71#       发表于 2026-9-13 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228192&amp;ptid=2289649" target="_blank">sauron.j 发表于 2026-9-13 17:47</a>
+
+全世界最不能接受弯弯回归的就是窝窝了，搞不好应激军事独走</blockquote>
+窝窝头要是真肯独走搞个新时代的珍珠港那就好了。
+

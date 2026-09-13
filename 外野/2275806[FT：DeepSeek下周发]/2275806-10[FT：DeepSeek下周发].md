@@ -4691,3 +4691,44 @@ qoder初体验之让它看了一下文档它也回答完成后发送键就一直
 
 用了两天mimo。感想是其他大模型还只是向不说人话的状态发展，mimo已经更进一步，处于不懂人话的状态了。
 
+
+*****
+
+####  tonyunreal  
+##### 13632#       发表于 2026-9-13 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70229093&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-13 20:33</a>
+
+用了两天mimo。
+
+感想是其他大模型还只是向不说人话的状态发展，mimo已经更进一步，处于不懂人话的状态了。
+
+ ...</blockquote>
+2.5还是X呢
+
+2.5我感觉只要提示词够明确，它还是能干点活的，就是不会主动测试，适合做子代理
+
+*****
+
+####  CCauchy  
+##### 13633#       发表于 2026-9-13 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227609&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-9-13 14:47</a>
+Adam Majmudar是openai的研究员，他的X发了篇帖子，解释为啥业内要降速了：
+
+从外部来看，把过去两周发生的 ...</blockquote>
+主要是安全加固很容易影响正常使用且要大量人工介入
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lactone  
+##### 13634#       发表于 2026-9-13 20:47
+
+dario昨天发言连马斯克奥特曼谷歌都附和了，不知道葫芦里卖什么药
+
+还传ds非正式的表示认可
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
