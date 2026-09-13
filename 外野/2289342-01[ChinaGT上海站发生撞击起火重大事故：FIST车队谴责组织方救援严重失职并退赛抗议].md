@@ -1726,3 +1726,14 @@ nga那张吗，说灭火器不是打不开而是坏的<img src="https://static.s
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Ferrari  
+##### 131#       发表于 2026-9-14 07:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230031&amp;ptid=2289342" target="_blank">神之飞雪 发表于 2026-9-13 22:59</a>
+听说小米好像也撤资了？以后不冠名了？</blockquote>
+和小米比起来，这些参赛的才是金主，金主都撤了米蹭这个冠名也没意义了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来一个打不着关系的电车在这蹭油车赛事也就欺负下不懂的人罢了
+
