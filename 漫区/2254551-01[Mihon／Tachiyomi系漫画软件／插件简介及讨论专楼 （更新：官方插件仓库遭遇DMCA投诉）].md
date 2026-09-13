@@ -83,3 +83,19 @@ tachiyomi彻底不能用了，遗憾
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  针水城  
+##### 194#       发表于 2026-9-13 13:42
+
+ 本帖最后由 针水城 于 2026-9-13 13:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227345&amp;ptid=2254551" target="_blank">KDConan 发表于 2026-9-13 13:17</a>
+
+我的mihon更新一直有一搭无一搭，偶尔能更新几个，大部分时间得自己一部部刷一下
+
+—— 来自 Xiaomi 24117R ...</blockquote>
+刚才我一点点排查过去 先去看自动更新那 有没有把有未看章节跳过那选上 我给点掉 可以更新一部分 然后刚才一个个代理节点切过去 就可以更新了 就是没有TACHIYOMI的更新通知有点不习惯
+
+还有好像切换页面后自动更新就会暂停 只能在那个页面等着
+
