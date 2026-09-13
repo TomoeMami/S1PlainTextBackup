@@ -690,3 +690,11 @@ WW最有价值的是地
 
 全世界最不能接受弯弯回归的就是窝窝了，搞不好应激军事独走
 
+
+*****
+
+####  肥肥的守宫  
+##### 66#       发表于 2026-9-13 18:04
+
+台湾极限能动员两三百万军队还是不可小看的<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
