@@ -1057,3 +1057,23 @@ concord全职200人是在加州，死亡搁浅是在东京，能比吗？
 
 加州人工成本摆在那，自己算concord 5年纯开发的成本
 
+
+*****
+
+####  赤黑的假面  
+##### 104#       发表于 2026-9-13 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228375&amp;ptid=2289559" target="_blank">BK10 发表于 2026-9-13 18:23</a>
+
+第三方脱离独占基本大势所趋，从ps3时代开始这个趋势就不可阻挡，单机独占一平台就是慢性死亡至少索尼和微 ...</blockquote>
+主要是16年KOJIMA PRODUCTION重组都是索尼掏钱重组的，KJP也不是小岛水滴筹重组的，而且给他资源又不差，被包养了还觉得自己是独立人格。而且就因为不合作不投钱了，岛神邪教粉就嘎嘎冲索尼，怎么买DS2的时候不见这些人的影子，不然至于只卖250W吗，岛神有岛黑真是自己作的，一点不冤枉，而且索尼这种大企业他都这样了，你要是小老板，你敢投他吗
+
+*****
+
+####  BK10  
+##### 105#       发表于 2026-9-13 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228408&amp;ptid=2289559" target="_blank">赤黑的假面 发表于 2026-9-13 18:29</a>
+主要是16年KOJIMA PRODUCTION重组都是索尼掏钱重组的，KJP也不是小岛水滴筹重组的，而且给他资源又不差， ...</blockquote>
+现在微软还在投说明小岛还是吸引力的，依然有凯子买单，看他怎么控制了，不行那就是一样的结局
+
