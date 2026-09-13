@@ -688,3 +688,15 @@ Q3还是我的主力娱乐机，但多个玩具又有什么坏处呢，玩HiFi�
 
 老莱的steam frame开箱视频被泄露出来了 [https://www.bilibili.com/video/BV1QcYZ6YEBU/](https://www.bilibili.com/video/BV1QcYZ6YEBU/)
 
+
+*****
+
+####  泰坦失足  
+##### 66#       发表于 2026-9-13 10:42
+
+ 本帖最后由 泰坦失足 于 2026-9-13 10:45 编辑 
+
+看到个任斗Melee被反编译后有人用AI移植到了Quest3上.
+
+感觉这种老游戏被完整反编译出源代码后, 让AI做个VR版挺有前途的. 至少比指望VR商业游戏市场真的做起来有希望点.<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">. 或者原生双眼3D的各种模拟器, 性能正好在头戴ARM设备上限的甜点区上.
+
