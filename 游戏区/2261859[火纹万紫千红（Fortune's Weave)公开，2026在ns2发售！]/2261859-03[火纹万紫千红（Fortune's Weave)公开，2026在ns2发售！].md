@@ -5702,3 +5702,11 @@ tb  之前pdd最低补贴还有320的</blockquote>
 
 有没有全同伴总结可看？感觉可以先搞拉郎配了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nez  
+##### 3445#       发表于 2026-9-14 01:12
+
+这代移动时怎么把攻击范围也标出来了，感觉画蛇添足了，看着难受
+
