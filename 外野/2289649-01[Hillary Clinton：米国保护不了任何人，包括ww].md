@@ -532,3 +532,13 @@ WW最有价值的是地
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  x.cat  
+##### 49#       发表于 2026-9-13 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70226998&amp;ptid=2289649" target="_blank">傻吧喵 发表于 2026-9-13 11:56</a>
+所以当初说希拉里当选就打算把台湾交易掉是真的？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没可能，老妖婆当选估计手段更激进
+
