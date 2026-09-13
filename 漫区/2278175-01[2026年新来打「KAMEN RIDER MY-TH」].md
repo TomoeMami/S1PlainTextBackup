@@ -79,3 +79,19 @@
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  挺好的  
+##### 143#       发表于 2026-9-13 10:07
+
+红猫的驱动器明显和十二支不是一个系统
+
+<img src="https://img.stage1st.com/forum/202609/13/100701jzv1qfh8kj0h8sfs.jpg" referrerpolicy="no-referrer">
+
+<strong>9eeb3dbe06b1aa740928b90e1ba4690d.jpg</strong> (113.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-13 10:07 上传
+
