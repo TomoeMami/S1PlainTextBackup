@@ -1165,3 +1165,20 @@ concord全职200人是在加州，死亡搁浅是在东京，能比吗？
 索尼纯舔狗幡然醒悟壮士断腕一点问题没有
 问题是微软无缝当舔狗接盘，小岛这这么多年哄抬上去的b价就下不来。        [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Linkwjj  
+##### 113#       发表于 2026-9-13 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227392&amp;ptid=2289559" target="_blank">madcow 发表于 2026-9-13 13:32</a>
+
+573是那种
+
+12年的时候播完武装神姬广告动画然后把玩具取消整个项目关了。那这个算是业务调整，看不上这点钱 ...</blockquote>
+你因为任何理由去F 573，都可以
+
+唯独因为小岛去F 573那就是冤枉
+
+然后再把小岛留下的一堆烂摊子当罪证去F 573，那就更搞笑了
+

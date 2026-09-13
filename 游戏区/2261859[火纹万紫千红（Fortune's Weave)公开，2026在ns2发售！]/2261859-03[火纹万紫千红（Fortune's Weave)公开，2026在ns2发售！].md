@@ -5652,3 +5652,13 @@ tb  之前pdd最低补贴还有320的</blockquote>
 有同性S吗，记得风花雪月很早就透露了</blockquote>
 不是说这作没 S 对话吗？
 
+
+*****
+
+####  lancelotezio  
+##### 3441#       发表于 2026-9-13 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227060&amp;ptid=2261859" target="_blank">milky658 发表于 2026-9-13 12:14</a>
+现在卡带还蛮贵的，一般哪家发货快一点</blockquote>
+贵点的但是快的就是天猫的墨策
+
