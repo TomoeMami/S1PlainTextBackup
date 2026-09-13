@@ -63,3 +63,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">电葱和重力葱是一套语音然后冰火是一套语音？
 
+
+*****
+
+####  冰风血羽  
+##### 2104#       发表于 2026-9-14 06:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">通过摸π语音可以得知是两套（确信
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
