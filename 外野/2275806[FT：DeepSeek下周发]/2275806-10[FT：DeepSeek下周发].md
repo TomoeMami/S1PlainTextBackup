@@ -3959,3 +3959,36 @@ b站更多的是一种踩油门心态和看热闹随波逐流，也有一部分�
 
 <img src="https://static.stage1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  drodchang  
+##### 13583#       发表于 2026-9-13 11:58
+
+现在b站的ai降临派可太多了，国外反而加速主义只是小众
+
+*****
+
+####  tonyunreal  
+##### 13584#       发表于 2026-9-13 12:03
+
+红迪在传美国要全面禁止持有开放权重模型？违者按持有核武器定罪
+
+
+*****
+
+####  CCauchy  
+##### 13585#       发表于 2026-9-13 12:05
+
+人人拥核，它才不乱
+
+*****
+
+####  drodchang  
+##### 13586#       发表于 2026-9-13 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227019&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-13 12:03</a>
+
+红迪在传美国要全面禁止持有开放权重模型？违者按持有核武器定罪</blockquote>
+这个不可能，不然就会重新定义“开源”
+
