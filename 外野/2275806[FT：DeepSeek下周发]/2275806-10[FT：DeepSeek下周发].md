@@ -4671,3 +4671,23 @@ https://hf-mirror.com/alphaZimuth/Hy-MT2-30B-A3B-APEX-GGUF/tree/main
 
 qoder初体验之让它看了一下文档它也回答完成后发送键就一直转圈无法再继续对话
 
+
+*****
+
+####  novalli  
+##### 13630#       发表于 2026-9-13 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228061&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-13 17:14</a>
+让模型自己grep很不可靠的，给他部署静态分析工具的mcp，让其基于静态分析工具的结果理解代码库 ...</blockquote>
+这个确实。之前用一个差一点的模型处理一个数据.c，里面一堆名字类似的数组，每次都找到类似的第一个数组就不找了，必须要强调完全一致的变量名才行，然后隔不多久又忘了。。。
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  noneoneone  
+##### 13631#       发表于 2026-9-13 20:33
+
+用了两天mimo。感想是其他大模型还只是向不说人话的状态发展，mimo已经更进一步，处于不懂人话的状态了。
+
