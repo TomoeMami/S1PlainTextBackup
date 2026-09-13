@@ -3904,3 +3904,13 @@ ai好用是好用. 但是一点点基础知识都不懂就开始项目 搞到后
 
 要在工作中学习，没有必要怕做出来是屎。我做的第一个小项目，现在回头一看也纯粹是一坨屎。但是我靠着做这个工具，学了很多AI使用的基础知识，顺带还学会了VS Code和Git的使用。
 
+
+*****
+
+####  蜇灵  
+##### 13578#       发表于 2026-9-13 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223981&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-12 18:45</a>
+dsh始终把pwsh作为windows环境的一等公民且明确不做git bash适配，让我总感觉ds是有在搞pwsh专训的，用dsh ...</blockquote>
+用pwsh7后基本上没有几次出错了，可能是有专门针对性训练吧
+
