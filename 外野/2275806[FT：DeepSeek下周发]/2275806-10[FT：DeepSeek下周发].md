@@ -4365,3 +4365,25 @@ Adam Majmudar是openai的研究员，他的X发了篇帖子，解释为啥业内
 现在ds4.1flash，用DSH的话还有必要第一轮注入极简模式的提示词吗（用anchored-standard） ...</blockquote>
 第一步是别用DSH……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 13602#       发表于 2026-9-13 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227753&amp;ptid=2275806" target="_blank">蓝色梦魇 发表于 2026-9-13 15:38</a>
+
+现在ds4.1flash，用DSH的话还有必要第一轮注入极简模式的提示词吗（用anchored-standard） ...</blockquote>
+不行，极简会导致DS4.1非常不稳定，应该是这块后训练还没做完
+
+DSH的普通模式或者切PI最好
+
+*****
+
+####  mitzvah  
+##### 13603#       发表于 2026-9-13 15:58
+
+省心就用zcode，pi稍微麻烦点，这两个算是最好的了
+
+现在glm5.3的智力不大行了，不知道什么时候能换代
+

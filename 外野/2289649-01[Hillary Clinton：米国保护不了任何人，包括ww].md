@@ -542,3 +542,11 @@ WW最有价值的是地
 所以当初说希拉里当选就打算把台湾交易掉是真的？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没可能，老妖婆当选估计手段更激进
 
+
+*****
+
+####  pointer243  
+##### 50#       发表于 2026-9-13 15:59
+
+我寻思奶龙一直就想卖4v啊。只是我们领土问题不容谈判导致牢美的4v筹码毫无价值而已
+
