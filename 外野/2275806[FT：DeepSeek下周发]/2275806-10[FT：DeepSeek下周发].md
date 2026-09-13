@@ -4536,3 +4536,24 @@ ds自己的测试报告也是工具越简单能力越强，能力表现最强的
 我到现在还是很不 ...</blockquote>
 让模型自己grep很不可靠的，给他部署静态分析工具的mcp，让其基于静态分析工具的结果理解代码库
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 13618#       发表于 2026-9-13 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70227609&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-9-13 14:47</a>
+
+Adam Majmudar是openai的研究员，他的X发了篇帖子，解释为啥业内要降速了：
+
+从外部来看，把过去两周发生的 ...</blockquote>
+笑嘻了 plateau 到了没活了开始吹是监管了 LLM本身的极限 - 加上RL的极限 - LSTM的极限（we are here) 然后大崩盘之后还有的说 哎呀是监管怎么怎么样
+
+
+*****
+
+####  wuliang  
+##### 13619#       发表于 2026-9-13 17:24
+
+ds4.1现在还能破限么，用之前的提示词被她一秒识破了，完全不影响她的道德判断标准
+
