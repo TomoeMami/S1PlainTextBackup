@@ -5641,3 +5641,14 @@ tb  之前pdd最低补贴还有320的</blockquote>
 给个链接，搜不到啊</blockquote>
 我下周TGS去东京，我去线下买豪华版，日亚的确也能预订
 
+
+*****
+
+####  HazukiShion  
+##### 3440#       发表于 2026-9-13 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70222047&amp;ptid=2261859" target="_blank">嘲哳的声音 发表于 2026-9-12 00:25</a>
+
+有同性S吗，记得风花雪月很早就透露了</blockquote>
+不是说这作没 S 对话吗？
+
