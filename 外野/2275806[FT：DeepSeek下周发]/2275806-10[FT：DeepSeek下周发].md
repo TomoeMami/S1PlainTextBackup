@@ -4580,3 +4580,15 @@ ds4.1现在还能破限么，用之前的提示词被她一秒识破了，完全
 —— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
 资源够就上gemma4，本地文字类任务的神，没好的gpu腾讯的hymt2或者sakura，cpu都能跑
 
+
+*****
+
+####  zfy1989  
+##### 13622#       发表于 2026-9-13 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228101&amp;ptid=2275806" target="_blank">wuliang 发表于 2026-9-13 17:24</a>
+ds4.1现在还能破限么，用之前的提示词被她一秒识破了，完全不影响她的道德判断标准 ...</blockquote>
+目前最好的破限方式仍然是酒馆预设，然后是 dsh 的破限模式的插件
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -41,3 +41,25 @@
 
 感觉最后会直接日冕月蚀合体进化
 
+
+*****
+
+####  粉儿alice  
+##### 785#       发表于 2026-9-13 17:46
+
+月蚀斗篷兽算错误进化 友朗强x眼 都第几集还玩这个啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+妖狐兽说过数码小畜生是没有性别的 但看到辉二声优配的三藏兽kiss老登会长 实在绷不住了<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空洞骑士  
+##### 786#       发表于 2026-9-13 17:52
+
+<blockquote>粉儿alice 发表于 2026-9-13 17:46
+月蚀斗篷兽算错误进化 友朗强x眼 都第几集还玩这个啊
+
+</blockquote>
+妖狐兽说过没性别，但是合体战争的萌萌兽说过自己是男孩子。有没有性别看来纯看编剧想不想。那么问题来了，神谷浩史配音的三藏兽到底是什么性别呢？
+
