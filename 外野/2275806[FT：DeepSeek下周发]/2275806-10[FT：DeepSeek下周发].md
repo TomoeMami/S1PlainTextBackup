@@ -4592,3 +4592,18 @@ ds4.1现在还能破限么，用之前的提示词被她一秒识破了，完全
 
 —— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 13623#       发表于 2026-9-13 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70228131&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-9-13 17:32</a>
+
+现在啥国模日译中翻译最好？性价比最高的呢？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+[https://hf-mirror.com/alphaZimut ... APEX-GGUF/tree/main](https://hf-mirror.com/alphaZimuth/Hy-MT2-30B-A3B-APEX-GGUF/tree/main)
+
+速度暴打gemma4，质量比gemma4开思考都略高
+
