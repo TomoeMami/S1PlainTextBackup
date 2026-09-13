@@ -4937,3 +4937,14 @@ rsi最好是一种越用越强的，一个模型推理，并持续学习，能�
 —— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99</blockquote>
 我用的是codebase-memory-mcp 这东西功能最全，你先让harness自己把这东西部署好，然后，找一个比较难的后端问题，你让他去做，这是你就会发现harness在疯狂徒劳的grep/sed搜索代码，基本上是搜一段写一段就发现自己错了————这个时候就可以介入了，你可以问他，“你的裸grep，sed并不可靠，你认为哪些任务需codebase的静态分析工具介入，那些不得不grep，sed？”——————glm，deepseek这一等级的模型就会自行给出一个有效的分界——————在讨论的比较清楚之后就让他写一个skill拦截这些愚蠢徒劳的裸grep，sed，这样harness就学会自动使用静态分析工具解决问题了
 
+
+*****
+
+####  mitzvah  
+##### 13654#       发表于 2026-9-14 04:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230761&amp;ptid=2275806" target="_blank">小牛无大将 发表于 2026-9-14 01:56</a>
+
+话说有没有pi布道师能说说好在哪抛开社区插件不谈</blockquote>
+注入的系统prompt极少，市面上的绝大多数harness都是基于几年前的prompt工程方法论的产物，内部存在大量的对抗性prompt注入逼迫模型自检——————新一代的模型普遍在训练阶段就已经内化了用工具自检的自我约束本能，这个时候再注入这些对抗性prompt会把模型逼疯的。其次就是全部由ts写成出现问题或者增加功能都可以自我修改，完成递归进化——————因为框架设计的水平很高，所以这么搞的稳定性显著高于dsh
+
