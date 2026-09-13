@@ -33,3 +33,16 @@
 
 拷贝插件有至少三个不同人开发的版本
 
+
+*****
+
+####  针水城  
+##### 189#       发表于 2026-9-13 08:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70226004&amp;ptid=2254551" target="_blank">azbhg1 发表于 2026-9-13 03:21</a>
+
+正常在更新界面直接下拉就全局刷新了
+
+拷贝插件有至少三个不同人开发的版本 ...</blockquote>
+我就是这么操作的 更新不了 只能一个一个漫画刷新...是我漫画从TACHIYOMI导入的原因吗？
+
