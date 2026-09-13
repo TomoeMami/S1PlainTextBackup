@@ -5605,3 +5605,11 @@ tb  之前pdd最低补贴还有320的</blockquote>
 
 逛了逛火纹贴吧，这作要是因为人设褒姒就褒姒了，能把妖魔鬼怪赶走也算大功一件。<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 3436#       发表于 2026-9-13 11:29
+
+女角色还各有滋味，男角色同质太多了，没什么记忆点 虽然我不排斥当山贼王，但花样也要多点啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
