@@ -51,3 +51,15 @@
 这下真可以猜卡池是啥了</blockquote>
 至少开发机不难猜，v2a v2b v2ab 疯女人 面罩男 铃铛女ssr，ult就帝国版v2，second v放卡池或者强敌，v2abc遥遥无期
 
+
+*****
+
+####  无念  
+##### 4681#       发表于 2026-9-14 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231185&amp;ptid=2071758" target="_blank">电脑死机 发表于 2026-9-14 08:41</a>
+至少开发机不难猜，v2a v2b v2ab 疯女人 面罩男 铃铛女ssr，ult就帝国版v2，second v放卡池或者强敌，v2a ...</blockquote>
+应该不会一口气放完，估计前半只有V和Vdash
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

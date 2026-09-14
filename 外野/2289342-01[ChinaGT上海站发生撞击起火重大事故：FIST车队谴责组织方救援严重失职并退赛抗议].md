@@ -1748,3 +1748,16 @@ nga那张吗，说灭火器不是打不开而是坏的<img src="https://static.s
 群里看了个图，大爷说没有60，只有48</blockquote>
 那个图还有下文，上面给的预算是安全员3000/天，至于这个大爷算不算是安全员就不知道了
 
+
+*****
+
+####  duo_wolf  
+##### 133#       发表于 2026-9-14 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230957&amp;ptid=2289342" target="_blank">我就再氪一单 发表于 2026-9-14 07:09</a>
+
+nga那张吗，说灭火器不是打不开而是坏的
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+所以，大爷递过去的第一个灭火器运气好正好是个好的？万一先递过去的是第二个那个？？
+

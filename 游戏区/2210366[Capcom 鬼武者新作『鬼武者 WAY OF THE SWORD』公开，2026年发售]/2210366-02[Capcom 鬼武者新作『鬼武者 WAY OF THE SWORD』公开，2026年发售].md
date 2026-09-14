@@ -4202,3 +4202,13 @@ B站神秘的推荐机制，看完差点没绷住
 尤其是“百鬼夜行”这个支线的最后一波 ...</blockquote>
 马桶咬人了也是马桶<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 1835#       发表于 2026-9-14 09:10
+
+<blockquote>隔壁老黄 发表于 2026-9-14 02:20
+比石榴强多了，石榴那是真的马桶，不带一点故事纯收集素材</blockquote>
+甚至感觉紫大妈的带剧情支线少了些，打完佐佐木爬塔还以为最后还会刷一波，结果也没有
+
