@@ -4190,3 +4190,15 @@ B站神秘的推荐机制，看完差点没绷住
 
 所以游戏原来设计的同一时间只有一个怪有攻击动作是对<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 1834#       发表于 2026-9-14 09:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231258&amp;ptid=2210366" target="_blank">conanoysq 发表于 2026-9-14 08:53</a>
+打了激进AImod，第三遍全任务全清打完，真的感觉马桶一点都不马桶了
+
+尤其是“百鬼夜行”这个支线的最后一波 ...</blockquote>
+马桶咬人了也是马桶<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
