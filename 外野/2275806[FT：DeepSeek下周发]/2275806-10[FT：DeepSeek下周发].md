@@ -5118,3 +5118,25 @@ WorkBuddy的优化非常糟糕，资源占用大得离谱
 WorkBuddy的优化非常糟糕，资源占用大得离谱</blockquote>
 不但卡还有一堆bug，计费和上下文管理状态都很不明确，用户看到的和模型收到的可能都是两个东西，不同对话之间的上下文还会串，可以说是大厂工具里最难用的一个。
 
+
+*****
+
+####  nekomimimisuzu  
+##### 13669#       发表于 2026-9-14 10:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">公司电脑用workbuddy / 发个技能都能卡死
+
+*****
+
+####  小野賢章  
+##### 13670#       发表于 2026-9-14 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230761&amp;ptid=2275806" target="_blank">小牛无大将 发表于 2026-9-14 01:56</a>
+
+话说有没有pi布道师能说说好在哪抛开社区插件不谈</blockquote>
+上下文用 tree 管理，类似于 git 的分支，可以在任何一个环节另开对话，包括工具调用中途，可以把当前分支总结了注入新分支，相当于受控制压缩上下文，并且之前的完整上下文是可以无损恢复的。
+
+比如当前对话进行了一个探索，有了结论之后，再回到主分支。
+
+另外就是自己开发插件的代价很低，让 pi 自己开发扩展，代替 skill 之类的，运行结果稳定，不消耗 token
+

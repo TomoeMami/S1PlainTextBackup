@@ -424,3 +424,12 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 
 什么不要为规则而活要为爱而活对于文艺创作者来说很浪漫，但是放在脚踏实地的现实中是不能细想的
 
+
+*****
+
+####  Piano-Forest  
+##### 526#         楼主| 发表于 2026-9-14 10:24
+
+[https://x.com/boobybooby3838/status/2099202506245206205](https://x.com/boobybooby3838/status/2099202506245206205)
+<img src="https://p.sda1.dev/35/7ad287e527507ce34153c86f1d9bf004/1000173949.jpg" referrerpolicy="no-referrer">
+

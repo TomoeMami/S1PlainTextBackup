@@ -5785,3 +5785,34 @@ dlc会是什么呢，我看猜测要么是4副主角的剧情，要么是红花�
 要是现在还没公布有季票那我宁愿他别出dlc赶紧做新作
 再来一个engage那样的dlc我是真不买了
 
+
+*****
+
+####  freedom12  
+##### 3452#       发表于 2026-9-14 10:17
+
+<img src="https://img.stage1st.com/forum/202609/14/101616ig88zc14g3jhxcg8.png" referrerpolicy="no-referrer">
+
+<strong>Ss_fe18_jasmine_crop.png</strong> (16.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 10:16 上传
+
+和之前的暴躁包租婆形象比起来，实际角色要好不少
+
+*****
+
+####  cox  
+##### 3453#       发表于 2026-9-14 10:20
+
+这还在发新人物？那今晚是佩佩咯。你这代op是拿不出手么。<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  流连成双  
+##### 3454#       发表于 2026-9-14 10:25
+
+这次这个角色量感觉支援剧情很难写，该不会又没有拉郎配系统了吧
+
