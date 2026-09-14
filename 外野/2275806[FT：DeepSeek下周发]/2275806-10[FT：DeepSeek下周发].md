@@ -6774,3 +6774,20 @@ DS炸了，大的来了？
 
 原来是梁子炸了么，那没事了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（bushi
 
+
+*****
+
+####  御姐贾  
+##### 13814#       发表于 2026-9-15 03:08
+
+炸了炸了，可怜我的资料库刚扫到一半，睡觉了睡觉了，这起来岂不是要在梁文锋时间蹬，不要啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ddr712  
+##### 13815#       发表于 2026-9-15 03:08
+
+<img src="https://static.stage1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">正在网页版听大肥鱼唱歌，突然连不上了。
+
