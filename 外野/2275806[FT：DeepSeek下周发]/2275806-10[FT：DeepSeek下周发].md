@@ -6039,3 +6039,36 @@ trae在软件质量和流畅度上比workbuddy好很多，开箱即用方面是�
 最近偶尔在单位电脑上用workbuddy免费积分有一点体会。这东西虽然使用体验远不如正经的agent，但是有几个点 ...</blockquote>
 Skill是要占上下文的，你以为Skill多了工作方便，其实是Skill多了，你的花费越来越高，效率越来越低。
 
+
+*****
+
+####  jasoncoop  
+##### 13748#       发表于 2026-9-14 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234832&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-9-14 18:19</a>
+不是，为了踩workbuddy你连opencode桌面版都讲的出来了吗？你这家伙
+
+论坛助手,iPhone ...</blockquote>
+只用过opencode的tui，它gui版怎么个情况？差到workbuddy的地步了？<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋黄酱Release  
+##### 13749#       发表于 2026-9-14 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234848&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-14 18:21</a>
+Skill是要占上下文的，你以为Skill多了工作方便，其实是Skill多了，你的花费越来越高，效率越来越低。 ...</blockquote>
+日常的非开发任务其实大部分都挺弱智的，免费的额度用用还行。开发任务千万别用workbuddy<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 13750#       发表于 2026-9-14 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234832&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-9-14 18:19</a>
+不是，为了踩workbuddy你连opencode桌面版都讲的出来了吗？你这家伙
+
+论坛助手,iPhone ...</blockquote>
+opencode桌面功能再少，再vibe，流畅度也比workbuddy高几个量级，也不会搞出对话手动终止后实际请求和余额依然在消耗这种逆天低级bug<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+而且不是要开箱即用吗，opencode桌面端也是exe安装加附带几个免费模型开箱即用啊
+
