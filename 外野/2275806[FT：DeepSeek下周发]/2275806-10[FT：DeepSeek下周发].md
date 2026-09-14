@@ -6564,3 +6564,18 @@ how？
 
 workbuddy不是不给api吗？
 
+
+*****
+
+####  BarricadeMKXX  
+##### 13794#       发表于 2026-9-14 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235824&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-9-14 22:23</a>
+
+how？
+
+workbuddy不是不给api吗？</blockquote>
+[https://www.workbuddy.cn/profile/keys](https://www.workbuddy.cn/profile/keys)
+
+充钱就给
+

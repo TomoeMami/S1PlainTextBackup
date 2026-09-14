@@ -372,3 +372,11 @@ ns2只有钥匙卡，ns1实体卡，ns1不支持升级ns2。就连美版ns2版�
 有点奇怪，NS2的八方1+2日服明明是有中文的，这个反而没有</blockquote>
 因为sb SE又犯病了，浅野组的游戏从八方0开始又全部变成港服独占中文了，简直有病<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  裂空之龙  
+##### 253#       发表于 2026-9-14 22:36
+
+专家难度太刮了，不知道正式版后期技能多了能不能buff一下，塞壬3w多血cloud极限技打弱点才2000多，期间听了无数次女主极限技skip后的尖声尾音……
+
