@@ -5026,3 +5026,15 @@ rsi最好是一种越用越强的，一个模型推理，并持续学习，能�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  startraveller  
+##### 13661#       发表于 2026-9-14 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231108&amp;ptid=2275806" target="_blank">御姐贾 发表于 2026-9-14 08:22</a>
+新的一周了，这周会有什么大活儿呢？预言家宣布本周是___？
+
+—— 来自 S1Fun ...</blockquote>
+Grok 4.7该有了吧，然后说不定kimi 3.1和opus 5.1，听说还有GPT6-Sol
+

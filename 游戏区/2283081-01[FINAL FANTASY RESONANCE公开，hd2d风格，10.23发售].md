@@ -168,3 +168,26 @@
 
 专家难度数值高，高难度下战斗系统乐趣不大，要多次农怪练级才能打过BOSS。有点乏味考虑降低难度。
 
+
+*****
+
+####  黑暗之眼  
+##### 234#       发表于 2026-9-14 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231196&amp;ptid=2283081" target="_blank">a3a4sc 发表于 2026-9-14 08:42</a>
+
+6小时43分钟最高专家难度打完了试玩版的第一章。终于玩到正常的最终幻想了。
+
+幻兵系统塞满了FF正传各代主 ...</blockquote>
+16都有15当然要有
+
+*****
+
+####  GMJ  
+##### 235#       发表于 2026-9-14 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748421&amp;ptid=2283081" target="_blank">maomaoying 发表于 2026-6-9 23:06</a>
+
+这是新作吗 我看弹幕说是什么手游改的</blockquote>
+美术素材确实是手游的。。。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
