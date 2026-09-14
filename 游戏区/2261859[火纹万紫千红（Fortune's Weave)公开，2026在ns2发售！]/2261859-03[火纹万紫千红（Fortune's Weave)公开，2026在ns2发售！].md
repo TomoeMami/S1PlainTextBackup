@@ -5737,3 +5737,14 @@ tb  之前pdd最低补贴还有320的</blockquote>
 
 2026-9-14 08:40 上传
 
+
+*****
+
+####  灼眼的蔬菜达人  
+##### 3448#       发表于 2026-9-14 09:30
+
+放个贴吧拿的中文版
+这种关系图一出一下子就有趣起来了<img src="https://p.sda1.dev/35/611ba0869d**9bd84152572e4d166e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24090RA29C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

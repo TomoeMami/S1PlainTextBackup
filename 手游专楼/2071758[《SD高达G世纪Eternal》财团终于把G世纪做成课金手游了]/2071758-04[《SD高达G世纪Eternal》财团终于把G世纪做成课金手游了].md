@@ -72,3 +72,11 @@
 v冲感觉撑不起1.5周年的份量
 制作组玩1.5高达的梗的心已经按捺不住了，陪跑多半会是1.5高达
 
+
+*****
+
+####  西人  
+##### 4683#       发表于 2026-9-14 09:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">V拆分的话，只有V高达V大叔肯定撑不起
+

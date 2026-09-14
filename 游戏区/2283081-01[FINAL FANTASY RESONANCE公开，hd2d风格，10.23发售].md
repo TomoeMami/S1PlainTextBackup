@@ -249,3 +249,14 @@ FF.jpg
 今天早上支付宝刷到卷了</blockquote>
 你这券有点厉害啊
 
+
+*****
+
+####  ParukiaMKII  
+##### 241#       发表于 2026-9-14 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231449&amp;ptid=2283081" target="_blank">GMJ 发表于 2026-9-14 09:23</a>
+
+你这券有点厉害啊</blockquote>
+支付宝农场和惊喜市集双卷合一，就是很难刷出来
+
