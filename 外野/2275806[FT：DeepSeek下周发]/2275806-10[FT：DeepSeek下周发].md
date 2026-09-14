@@ -5454,3 +5454,13 @@ EAC就是桌面版的啊
 
 我觉得在看到分子计算机，常温超导体（量子计算机前置），核聚变电厂前不太指望能看到ai能有什么大的发展。RSI炒作太笑死人来。
 
+
+*****
+
+####  舞以  
+##### 13698#       发表于 2026-9-14 13:42
+
+梁叔叔是所有人的老师<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
