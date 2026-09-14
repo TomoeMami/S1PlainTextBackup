@@ -286,3 +286,11 @@ B站IGN转的大招演出视频，播放量最多的就是15的大招，弹幕�
 
 那后面剧情还出吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  3436  
+##### 245#       发表于 2026-9-14 12:28
+
+想买个实体版的发现又是钥匙卡，只能买线上了
+

@@ -5295,3 +5295,41 @@ ai对信创的移植是极大的加速<img src="https://static.stage1st.com/imag
 都是Linux也没多难适配吧
 最近搞了远控软件容器化，只有asklink和todesk成功了，而且它们每个发行版的elf都是一样的
 
+
+*****
+
+####  cyberalogo  
+##### 13684#       发表于 2026-9-14 12:24
+
+火星了，才发现DS会给你算一个任务要用多少token，以前都是思考几秒直接输出，都不知道翻译一部电影字幕要用几万token。
+
+<img src="https://img.stage1st.com/forum/202609/14/122259p7zxk3zo0tqz73dt.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260914_121957.jpg</strong> (83.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 12:22 上传
+
+
+*****
+
+####  omnitoken  
+##### 13685#       发表于 2026-9-14 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230071&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-9-13 23:06</a>
+
+有什么具体mcp推荐的？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+关键词不是mcp
+
+你让你的agent打开对应语言的lsp就行
+
+*****
+
+####  小野賢章  
+##### 13686#       发表于 2026-9-14 12:33
+
+我问了AI，他们基本都说最好方案就是用grep/rg，不是必须要lsp的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
