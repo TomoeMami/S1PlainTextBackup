@@ -5005,3 +5005,14 @@ rsi最好是一种越用越强的，一个模型推理，并持续学习，能�
 
 我在dsflashv4.1上主动静态分析与动态调试配合，正面解决了本地ds4项目部署时遭遇到的图文混合任务中提示缓存失效全量prefill问题，后端是fork 自antirez的ds4项目的魔改版，没有任何参考资料，这需要深度的修改后端的c代码，这在以前想都不敢想
 
+
+*****
+
+####  hugosol  
+##### 13659#       发表于 2026-9-14 08:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231040&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-14 08:01</a>
+
+我自己的观察，大型项目上，给出需求一次性的静态分析是不够的，随着任务的推进，静态分析需求也会更新， ...</blockquote>
+要是能让它稳定调用mcp理论上应该会有效果，我按你的思路搞个skill出来试试，之前也没想到这个办法<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
