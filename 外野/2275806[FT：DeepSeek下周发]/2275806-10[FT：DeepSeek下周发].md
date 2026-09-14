@@ -5529,3 +5529,13 @@ ds4.1速度更快，能力上限更高，缺点是记忆涣散会做错更多小
 GLM-5.3-Flash 对比 Deepseek 0731,还有4.1F，哪个比较强？</blockquote>
 我处理文本任务的时候，感觉ds4.1f的幻觉比glm5.3f多一点，速度快的代价。
 
+
+*****
+
+####  neptunehs  
+##### 13704#       发表于 2026-9-14 14:24
+
+是不是agent router或b.ai啥的也要被一刀切了？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
