@@ -38,3 +38,16 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  电脑死机  
+##### 4680#       发表于 2026-9-14 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223194&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-9-12 12:16</a>
+
+1.5周年还真是更新V的主线关卡
+
+这下真可以猜卡池是啥了</blockquote>
+至少开发机不难猜，v2a v2b v2ab 疯女人 面罩男 铃铛女ssr，ult就帝国版v2，second v放卡池或者强敌，v2abc遥遥无期
+
