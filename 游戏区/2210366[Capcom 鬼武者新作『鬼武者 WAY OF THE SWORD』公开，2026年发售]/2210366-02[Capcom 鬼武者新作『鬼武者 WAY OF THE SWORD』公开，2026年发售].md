@@ -4265,3 +4265,26 @@ B站神秘的推荐机制，看完差点没绷住
 
 天上的神族肯定是给未来挖的坑了，世界观基本算重启，不知道老设定还能起几分作用
 
+
+*****
+
+####  wzh5555  
+##### 1841#       发表于 2026-9-14 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230850&amp;ptid=2210366" target="_blank">Zxian49 发表于 2026-9-14 03:36</a>
+
+问个结尾剧情方面的问题，剧透注意‼️
+
+所以结尾cg里的金魂是鬼族的灵魂？然后武藏认同且拥抱了鬼族的力量 ...</blockquote>
+没问题，武藏少有的成长点
+
+
+*****
+
+####  wthall  
+##### 1842#       发表于 2026-9-14 10:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">当时开场看见2个用剑高手被一群杂兵幻魔堆死了就差点没绷住。
+
+明明3代里面攻打本能寺一堆足轻小兵还能喝幻魔杂兵1v1. 世界观重启以后就没法破防了么，垃圾。
+

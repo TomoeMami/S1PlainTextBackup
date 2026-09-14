@@ -260,3 +260,13 @@ FF.jpg
 你这券有点厉害啊</blockquote>
 支付宝农场和惊喜市集双卷合一，就是很难刷出来
 
+
+*****
+
+####  a3a4sc  
+##### 242#       发表于 2026-9-14 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231252&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-9-14 08:52</a>
+16都有15当然要有</blockquote>
+B站IGN转的大招演出视频，播放量最多的就是15的大招，弹幕和屏幕充满了惊诧。
+

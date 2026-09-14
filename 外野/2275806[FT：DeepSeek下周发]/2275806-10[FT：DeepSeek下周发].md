@@ -5101,3 +5101,20 @@ dario马上就要ipo，这个时候喊停就很神奇
 
 另外对老登同事非常好用。
 
+
+*****
+
+####  nxmonitor  
+##### 13667#       发表于 2026-9-14 10:05
+
+WorkBuddy的优化非常糟糕，资源占用大得离谱
+
+*****
+
+####  serj005  
+##### 13668#       发表于 2026-9-14 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231721&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-14 10:05</a>
+WorkBuddy的优化非常糟糕，资源占用大得离谱</blockquote>
+不但卡还有一堆bug，计费和上下文管理状态都很不明确，用户看到的和模型收到的可能都是两个东西，不同对话之间的上下文还会串，可以说是大厂工具里最难用的一个。
+
