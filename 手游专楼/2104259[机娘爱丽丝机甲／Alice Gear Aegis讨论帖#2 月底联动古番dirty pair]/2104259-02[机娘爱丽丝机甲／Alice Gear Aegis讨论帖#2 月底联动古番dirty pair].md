@@ -97,3 +97,15 @@
 
 你游是懒到用绊剧情充当月中活动了还是说在憋大的？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 2108#       发表于 2026-9-14 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232797&amp;ptid=2104259" target="_blank">wilkyway 发表于 2026-9-14 12:35</a>
+说起来这次电葱的眼睛会微妙的更绿一点但是没给换色饰品  不知道是什么原因还有明明是发量最多的发型但 ...</blockquote>
+确实，而且新发型居然还要占4点装饰点数，以前那三都是0的
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

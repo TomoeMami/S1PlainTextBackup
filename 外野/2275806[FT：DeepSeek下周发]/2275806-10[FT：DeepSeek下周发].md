@@ -6124,3 +6124,11 @@ zcode的周末免费token到底在哪领啊为啥好像大家都有但是就我�
 
 本地部署glm 5.3flash试试，应该比3.8 27b强了，关键是3.8 27b雷霆大考太惊人了
 
+
+*****
+
+####  hugosol  
+##### 13756#       发表于 2026-9-14 19:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">opencode桌面版现在就是我装机第一步，装好就配个API Key（不配也行）然后吭哧吭哧地把npm之类的环境搭好再装其他agent
+
