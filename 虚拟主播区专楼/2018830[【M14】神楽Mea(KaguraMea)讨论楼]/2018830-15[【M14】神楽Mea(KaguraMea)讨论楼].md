@@ -46,3 +46,14 @@
 
  又不是重组BS 就是搞个专门的营业频道，到时候收入应该是平分吧，二创什么的也有专门的存放点，不影响自己主账号
 
+
+*****
+
+####  thisisaspider  
+##### 21097#       发表于 2026-9-15 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236158&amp;ptid=2018830" target="_blank">aisakahammer 发表于 2026-9-14 23:48</a>
+
+又不是重组BS 就是搞个专门的营业频道，到时候收入应该是平分吧，二创什么的也有专门的存放点，不影响自己 ...</blockquote>
+安全隔离魔怔CP人<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
