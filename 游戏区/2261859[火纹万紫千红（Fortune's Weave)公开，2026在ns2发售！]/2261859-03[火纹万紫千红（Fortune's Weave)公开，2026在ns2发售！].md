@@ -6586,3 +6586,16 @@ PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲�
 
 量好大，手慢有
 
+
+*****
+
+####  yasen233  
+##### 3522#       发表于 2026-9-15 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236235&amp;ptid=2261859" target="_blank">trow233 发表于 2026-9-15 00:15</a>
+弄了个320的日本直邮
+
+反正香港直邮我是绝对不碰了</blockquote>
+香港直邮的有什么问题吗？？
+望解惑
+
