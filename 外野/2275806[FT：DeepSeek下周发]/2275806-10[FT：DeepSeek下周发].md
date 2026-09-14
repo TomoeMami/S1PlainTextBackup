@@ -5547,3 +5547,31 @@ GLM-5.3-Flash 对比 Deepseek 0731,还有4.1F，哪个比较强？</blockquote>
 
 印象里上个月中转站就开始被关停了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Ty_cc  
+##### 13706#       发表于 2026-9-14 14:52
+
+挖槽怎么4.1flash用token这么快，随便给了几个任务一中午花了20<img src="https://static.stage1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer"> token数比之前用半天还多
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  serj005  
+##### 13707#       发表于 2026-9-14 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70233541&amp;ptid=2275806" target="_blank">Ty_cc 发表于 2026-9-14 14:52</a>
+挖槽怎么4.1flash用token这么快，随便给了几个任务一中午花了20 token数比之前用半天还多
+
+—— 来自 鹅球  ...</blockquote>
+4.1f思考强度记得开high，目前普遍认为high是质量最高的档位，max有思维链过长的问题
+
+*****
+
+####  Promeus  
+##### 13708#       发表于 2026-9-14 14:57
+
+AI禁令没想的那么多，纯粹二÷搞的恐吓战略已经把美国人整的怒火滔天了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以奶龙立马竟然不许
+
