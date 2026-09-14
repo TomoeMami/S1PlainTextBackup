@@ -1737,3 +1737,14 @@ nga那张吗，说灭火器不是打不开而是坏的<img src="https://static.s
 和小米比起来，这些参赛的才是金主，金主都撤了米蹭这个冠名也没意义了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来一个打不着关系的电车在这蹭油车赛事也就欺负下不懂的人罢了
 
+
+*****
+
+####  隆道.T.高畑  
+##### 132#       发表于 2026-9-14 08:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230614&amp;ptid=2289342" target="_blank">8号鸡 发表于 2026-9-14 00:53</a>
+
+群里看了个图，大爷说没有60，只有48</blockquote>
+那个图还有下文，上面给的预算是安全员3000/天，至于这个大爷算不算是安全员就不知道了
+
