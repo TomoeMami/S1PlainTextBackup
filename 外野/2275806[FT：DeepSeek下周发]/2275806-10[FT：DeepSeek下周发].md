@@ -5266,3 +5266,13 @@ qoder除了免费积分几乎没有外，其他体感还行，比另一个马用
 OpenCode算是什么水平的智能体？</blockquote>
 我用的也是这个，因为当初有免费DS，好像都没怎么看人提过。
 
+
+*****
+
+####  goranger  
+##### 13681#       发表于 2026-9-14 12:01
+
+workbuddy适配国产操作系统了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
