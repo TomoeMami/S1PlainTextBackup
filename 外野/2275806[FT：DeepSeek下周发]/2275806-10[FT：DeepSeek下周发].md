@@ -5808,3 +5808,18 @@ glm5.3flash 绝对智力比起4.1flash有点低了
 
 继续扔给4.1f,又做了10轮后 性能+10%...
 
+
+*****
+
+####  UncleDracula  
+##### 13729#       发表于 2026-9-14 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70233889&amp;ptid=2275806" target="_blank">Baccano 发表于 2026-9-14 15:44</a>
+
+试了下codebuddy上用dp v4.1 flash，太省积分了。
+
+跑了一下codegraph，Serena，grep的A/B/C测。
+
+又是下载， ...</blockquote>
+codebuddy创建API为啥总提示操作失败？大佬指点下？
+
