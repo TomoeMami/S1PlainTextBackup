@@ -5464,3 +5464,21 @@ EAC就是桌面版的啊
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  tonyunreal  
+##### 13699#       发表于 2026-9-14 13:50
+
+ 本帖最后由 tonyunreal 于 2026-9-14 13:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232981&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-9-14 13:10</a>
+
+GLM-5.3-Flash 对比 Deepseek 0731,还有4.1F，哪个比较强？</blockquote>
+0731已经没了
+
+glm思维更严谨，对源代码和提示词遵循度更高（并且有一定拆解提示词歧义的能力），总token消耗也更少，缺点是太慢，订阅套餐和中文提示词可能存在降智
+
+ds4.1速度更快，能力上限更高，缺点是记忆涣散会做错更多小细节，智力忽高忽低（平均水平是较高的），high和max思考等级存在过度思考和过度测试的问题
+
+中转站两个都可能降智，就不算到其中一个了
+
