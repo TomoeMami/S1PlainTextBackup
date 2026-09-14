@@ -4437,3 +4437,41 @@ B站神秘的推荐机制，看完差点没绷住
 
 按照突击步枪打半梭子才能打死幻魔小兵的标准看，武藏破不了防好像又很合理，而且他当天没吃饭<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千本blur  
+##### 1857#       发表于 2026-9-14 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230866&amp;ptid=2210366" target="_blank">say_gg_plz 发表于 2026-9-14 04:13</a>
+主线里真的有强制去解锁一次技能然后告诉你之后解锁技能也要去找地方的
+
+但是这两天看下来反映主线快打完 ...</blockquote>
+大地图上有太多任务解锁的区域了，比如八坂神社，再比如左下角那个墓地，绕了圈不知道怎么进，结果一个支线任务接了门就开了。这些地方都是那种看见了没办法过去的设计，谁知道最重要的支线反而没这么设计呢。
+
+
+*****
+
+####  一见大吉  
+##### 1858#       发表于 2026-9-14 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231778&amp;ptid=2210366" target="_blank">wthall 发表于 2026-9-14 10:14</a>
+
+当时开场看见2个用剑高手被一群杂兵幻魔堆死了就差点没绷住。
+
+明明3代里面攻打本能寺一堆足轻小兵还能喝幻 ...</blockquote>
+单纯小次郎和武藏菜了（虽说是小次郎被偷袭，武藏被围殴），不说小野篁，剧情里岚山有一个武士独自在瘴气里面对一堆幻魔围殴还坚持了很久。
+
+*****
+
+####  乔迪奥  
+##### 1859#       发表于 2026-9-14 11:47
+
+<img src="https://img.stage1st.com/forum/202609/14/114703sjz5z91jc4g6r3mj.jpg" referrerpolicy="no-referrer">
+
+<strong>D3C515C962095AA18AF1B7468625886D.jpg</strong> (174.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 11:47 上传
+

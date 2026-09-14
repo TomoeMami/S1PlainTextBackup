@@ -5255,3 +5255,14 @@ qoder除了免费积分几乎没有外，其他体感还行，比另一个马用
 
 联想隔壁无人机的禁令，说不定明年也会看到类似的AI禁令也有可能。
 
+
+*****
+
+####  halfelf  
+##### 13680#       发表于 2026-9-14 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70229852&amp;ptid=2275806" target="_blank">查内姆 发表于 2026-9-13 22:33</a>
+
+OpenCode算是什么水平的智能体？</blockquote>
+我用的也是这个，因为当初有免费DS，好像都没怎么看人提过。
+
