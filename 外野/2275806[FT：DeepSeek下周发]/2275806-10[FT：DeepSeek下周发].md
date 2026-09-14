@@ -6860,3 +6860,11 @@ DS炸了，大的来了？
 
 大肥鱼已经复活。盲猜是清洁工拔插头或者老鼠咬了网线之类的低级问题
 
+
+*****
+
+####  Promeus  
+##### 13823#       发表于 2026-9-15 07:26
+
+大的不都是在炸了几天后来<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
