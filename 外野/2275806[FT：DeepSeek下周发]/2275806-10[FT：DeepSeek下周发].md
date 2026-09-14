@@ -6193,3 +6193,31 @@ ds4.1写小说感觉都不如元宝了
 opencode桌面功能再少，再vibe，流畅度也比workbuddy高几个量级吧，也不会搞出对话手动终止后实际请求和 ...</blockquote>
 我先用tare再用opencode，前面那是啥玩意……
 
+
+*****
+
+####  相见恨晚  
+##### 13762#       发表于 2026-9-14 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235276&amp;ptid=2275806" target="_blank">cody198879 发表于 2026-9-14 20:09</a>
+
+听楼上的试了下trae  work
+
+怎说呢</blockquote>
+qoder cn也试试吧，我作为新手感觉不出深奥的东西，只觉得比wordbuddy舒服
+
+
+*****
+
+####  AraTurambar  
+##### 13763#       发表于 2026-9-14 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234166&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-9-14 16:25</a>
+
+所以哪个好？现在用codegraph感觉调用频率不高</blockquote>
+我用langfuse手测了codegraph，感觉不如不用。
+
+比astra自己调水平低。
+
+低于astra的模型不清楚。
+
