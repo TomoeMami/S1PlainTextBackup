@@ -4402,3 +4402,38 @@ B站神秘的推荐机制，看完差点没绷住
 
 可能拿棒子的守卫哥能秒杀宫本武藏吧，也真是看不出来到底有啥用<img src="https://static.stage1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我王  
+##### 1854#       发表于 2026-9-14 11:25
+
+辉夜外星人基本是定番了，大神里也这么玩的
+
+*****
+
+####  pzk  
+##### 1855#       发表于 2026-9-14 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231158&amp;ptid=2210366" target="_blank">mai6696 发表于 2026-9-14 08:34</a>
+第一次解锁应该是打完五条大桥弁庆，有一个河中的岛可以进。但是不细看可能会注意不到。
+
+第二次解锁是净化 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是一开始发现岛上那个门被拦住了，当时以为这就是后期才能解锁的地方。直到打道狂前我才意识到那里是可以绕过去的。
+而且前一个鬼门没解决的话后一个就算剧情推到了也不会开启。
+
+
+*****
+
+####  无攻不受鹿  
+##### 1856#       发表于 2026-9-14 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231778&amp;ptid=2210366" target="_blank">wthall 发表于 2026-9-14 10:14</a>
+
+当时开场看见2个用剑高手被一群杂兵幻魔堆死了就差点没绷住。
+
+明明3代里面攻打本能寺一堆足轻小兵还能喝幻 ...</blockquote>
+但是3代全副武装的法国军警被幻魔小兵爆杀
+
+按照突击步枪打半梭子才能打死幻魔小兵的标准看，武藏破不了防好像又很合理，而且他当天没吃饭<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
