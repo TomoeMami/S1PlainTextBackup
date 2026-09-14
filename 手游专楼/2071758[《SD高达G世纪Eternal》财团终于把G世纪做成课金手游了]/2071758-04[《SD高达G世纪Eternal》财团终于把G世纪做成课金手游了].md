@@ -204,3 +204,13 @@ V拆分的话，只有V高达V大叔肯定撑不起</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">ZZ挑战总算打完了，全程只有SSR EXS在输出，太难顶了
 
+
+*****
+
+####  Xekueins  
+##### 4697#       发表于 2026-9-14 23:34
+
+盲猜一手V2，可以换装A或者B，AB等下半
+
+赞斯拜因别丢ult啊，ult现在纯垃圾，可以配G世纪的爱丽丝还能玩下声优梗（啊。。。查了下游戏内发现不是军曹配音了<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">）
+

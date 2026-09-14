@@ -6669,3 +6669,13 @@ https://www.workbuddy.cn/profile/keys
 这是算的折后价格吗？如果是的话25号之后优惠价就没了</blockquote>
 比的是oc，oc也是就2周优惠。
 
+
+*****
+
+####  2035年  
+##### 13803#       发表于 2026-9-14 23:34
+
+[https://mp.weixin.qq.com/s/ieOE4mzyMoa8OVcAOAkhzg](https://mp.weixin.qq.com/s/ieOE4mzyMoa8OVcAOAkhzg)
+
+DSH居然偷偷做了一个官方的客户端
+
