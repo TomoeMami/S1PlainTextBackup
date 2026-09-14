@@ -334,3 +334,23 @@ BanGDream! bilibili官方：@BanGDream_CN
 
        [https://avemujica-movie.bang-dream.com/ticket/](https://avemujica-movie.bang-dream.com/ticket/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42026#       发表于 2026-9-14 17:25
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/14/172458ybzhlwl0yh03rzqh.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-09-14_17-24-11.jpg</strong> (264.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 17:24 上传
+
+       [https://x.com/animateinfo/status/2099423044657971455](https://x.com/animateinfo/status/2099423044657971455)
+
+       [https://www.animate-onlineshop.j ... etail.php?id=116394](https://www.animate-onlineshop.jp/contents/fair_event/detail.php?id=116394)
+

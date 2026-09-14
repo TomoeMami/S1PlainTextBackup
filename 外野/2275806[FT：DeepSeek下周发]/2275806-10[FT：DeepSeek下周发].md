@@ -5856,3 +5856,42 @@ Cursor又全网风控了。。。
 
 4.1之后肥鱼网页版不错了，不说废话，说话能看懂，查资料不错
 
+
+*****
+
+####  相见恨晚  
+##### 13733#       发表于 2026-9-14 17:26
+
+咋还有个千问办公啊，我昨天让deepseek推荐它告诉我去用阿里的qoder，这些大厂工资没地方花吗
+
+*****
+
+####  qwased  
+##### 13734#       发表于 2026-9-14 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234524&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-14 17:20</a>
+
+4.1之后肥鱼网页版不错了，不说废话，说话能看懂，查资料不错</blockquote>
+很多简单任务都能直接扔给网页版做了，能省不少token
+
+
+*****
+
+####  jonarryn  
+##### 13735#       发表于 2026-9-14 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232981&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-9-14 13:10</a>
+
+GLM-5.3-Flash 对比 Deepseek 0731,还有4.1F，哪个比较强？</blockquote>
+这方面正好我最近有一些心得体会，这里分享一下，仅代表我个人感受
+
+我的需求是科研类的，数据处理和轻度编码，需求是提高识别和排序的精确度
+
+原来是用GLM-5.3-Flash周末白嫖的token在zcode上做的，后来到瓶颈期了，我就决定让GLM-5.3-Flash，DeepSeek v4 Pro, 还有4.1F分别出一份下一步的路线图（也就是说，让ai拿主意给点子的任务），用的是同一套提示词，思考强度都开的最高
+
+然后结果是，GLM-5.3-Flash中规中矩的完成了任务，拿出来的东西算是符合需求但也不算出彩
+
+4.1F吭哧吭哧干了十几分钟，把原来的数据重算了一遍，声称挖出来几个重要问题，最后给了一篇细节很多，情感极其丰富的报告——后来证明4.1F确实发现了一个重要问题，给的思路也很出色，但是犯了另外俩ai都没犯的一个口径错误，所以它提的另一个问题是子虚乌有的，也出现了一些幻觉
+
+最让我意外的是v4pro，我原来已经做好它把我钱烧光的准备了，结果它只干了两分钟就交了报告，结果只能说是差强人意，报告质量甚至我觉得是仨ai里最差的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">当然token也没烧多少，不知道这大肥鱼发什么神经搁这摸鱼
+
