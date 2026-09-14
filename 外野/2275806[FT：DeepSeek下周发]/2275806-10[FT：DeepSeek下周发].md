@@ -5644,3 +5644,19 @@ hermes     
 我靠，我要被ds和glm的雷霆大思考气死了，写一个非常简单的启动脚本，thinking开high都想得太多绕不回来， ...</blockquote>
 简单的东西用网页写，然后复制粘贴。用Agent写容易有过度设计的问题。
 
+
+*****
+
+####  绝地潜兵  
+##### 13716#       发表于 2026-9-14 15:28
+
+ 本帖最后由 绝地潜兵 于 2026-9-14 15:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70233173&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-14 13:50</a>
+
+0731已经没了
+
+glm思维更严谨，对源代码和提示词遵循度更高（并且有一定拆解提示词歧义的能力），总token ...</blockquote>
+不是中转，是正经的第三方算力平台，刚上GLM-5.3-Flash，还没上4.1
+
+本来主力用0731（更老的DS R1都还能用），这么看5.3F可以当主力了
+
