@@ -159,3 +159,22 @@ Z挑战HARD2也随便打吧，送的精神病一拳一个小朋友，垃圾SR位
 
 其实赞尼克人气还行，但是实装主线你出个敌方MS百分百是要被喷烂的，所以最后基本还是最没节目效果的V2AB，盲猜限定黄
 
+
+*****
+
+####  highsky  
+##### 4692#       发表于 2026-9-14 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231483&amp;ptid=2071758" target="_blank">西人 发表于 2026-9-14 09:29</a>
+
+V拆分的话，只有V高达V大叔肯定撑不起</blockquote>
+简单，上second v
+
+
+*****
+
+####  西人  
+##### 4693#       发表于 2026-9-14 16:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2V差不多就是V2定位，而且更加少人认识
+

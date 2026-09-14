@@ -5710,3 +5710,38 @@ Deepseek Harness EAC 这个就是客户端，还行滴~
 
 —— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  BarricadeMKXX  
+##### 13721#       发表于 2026-9-14 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70233483&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-14 14:41</a>
+印象里上个月中转站就开始被关停了    Re:Source</blockquote>
+印象里是当时有网安嘉豪拿没甲的中转站满世界日服务器<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  小野賢章  
+##### 13722#       发表于 2026-9-14 16:10
+
+我觉得叫豆包工作，还不如叫飞书工作呢，估计是舍不得豆包的知名度<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/14/161016haoe11fh761kviyh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 16:10 上传
+
+*****
+
+####  奥柏伦亲王  
+##### 13723#       发表于 2026-9-14 16:12
+
+办公室文员类的工作，追求的是稳定易学成本低，现阶段只能看大厂，workbuddy/千问办公/豆包办公三选一咯，用户觉得难用，又能折腾，自然会去学
+
