@@ -1171,3 +1171,26 @@ SIE对中国这边投资倒是出了名的积极，跟大部分国内新兴3A游
 IGN最近是不是在左右互搏，上个月说任天堂失去了传统，这个月说PS没有未来。接下来是不是该说XBOX正在死去 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">世界是一个回合制游戏啊
 
+
+*****
+
+####  纯白花火  
+##### 58#       发表于 2026-9-14 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230105&amp;ptid=2289565" target="_blank">Rowen233 发表于 2026-9-13 23:13</a>
+
+本来pc挺有威胁的 AI直接给消费PC干烂了
+
+明年据说一万以下笔记本都要把3050翻出来了
+
+游戏机再怎么搞涨价也 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不要看看PS5pro现在什么价格
+
+
+*****
+
+####  近战大法师  
+##### 59#       发表于 2026-9-14 15:43
+
+还不如说下代主机还有卖点么，和PC同价却没PC功能，就靠所谓开天辟地的独占大作？
+
