@@ -6072,3 +6072,17 @@ Skill是要占上下文的，你以为Skill多了工作方便，其实是Skill�
 opencode桌面功能再少，再vibe，流畅度也比workbuddy高几个量级，也不会搞出对话手动终止后实际请求和余额依然在消耗这种逆天低级bug<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 而且不是要开箱即用吗，opencode桌面端也是exe安装加附带几个免费模型开箱即用啊
 
+
+*****
+
+####  cody198879  
+##### 13751#       发表于 2026-9-14 18:48
+
+积分：有的送不需要配发或者上来就买
+流畅度：能用够用，太流畅了普通人大脑思维跟不上
+极简：跟普通人没有关系，恨不得所有工具链一键集成
+
+所以其实workbuddy用户广是有原因的，适合没有超能力的普通人轻度接触ai，至于超能力者或者更大规模应用自然会选择更方便的东西
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
