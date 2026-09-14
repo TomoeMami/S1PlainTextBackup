@@ -362,3 +362,13 @@ ns2只有钥匙卡，ns1实体卡，ns1不支持升级ns2。就连美版ns2版�
 ns2只有钥匙卡，ns1实体卡，ns1不支持升级ns2。就连美版ns2版也是钥匙卡。</blockquote>
 有点奇怪，NS2的八方1+2日服明明是有中文的，这个反而没有
 
+
+*****
+
+####  宛若青空  
+##### 252#       发表于 2026-9-14 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235567&amp;ptid=2283081" target="_blank">hkguty 发表于 2026-9-14 21:18</a>
+有点奇怪，NS2的八方1+2日服明明是有中文的，这个反而没有</blockquote>
+因为sb SE又犯病了，浅野组的游戏从八方0开始又全部变成港服独占中文了，简直有病<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6376,3 +6376,25 @@ Code 的额度和 Agent 的额度是一个池子吗？因为这个，我看有�
 自带一堆腾讯搞的办公skill和mcp（质量不一定多好，只能说能用），带一个权限控制沙箱和文件回收站，目前 ...</blockquote>
 感谢，那没啥意义啊，主要就是积分可以免费用5.3
 
+
+*****
+
+####  Milarvoz  
+##### 13778#       发表于 2026-9-14 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235589&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-14 21:24</a>
+大肥鱼的tts竟然能唱歌！朗读音色切换到贝壳，【以防你不知道 DeepSeek网页灰度的朗读功能有概率能唱歌-哔 ...</blockquote>
+我超，复现了一下真的会唱，节拍也是对的。就是几乎没一句在调上。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  serj005  
+##### 13779#       发表于 2026-9-14 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235623&amp;ptid=2275806" target="_blank">halfelf 发表于 2026-9-14 21:31</a>
+
+感谢，那没啥意义啊，主要就是积分可以免费用</blockquote>
+到25号之前能以优惠价积分免费用ds4.1f，估算下来一天能跑10个左右的中型任务，这个还可以，不过workbuddy内置提示词太多有点影响模型智商，我就算把一堆内置功能全关了还是时不时会跳出称呼询问选项。
+
