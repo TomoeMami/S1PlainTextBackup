@@ -227,3 +227,25 @@ FF.jpg
 
 <img src="https://img.stage1st.com/forum/202609/14/091313hpuvy4y8o1493pyr.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑暗之眼  
+##### 239#       发表于 2026-9-14 09:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231311&amp;ptid=2283081" target="_blank">GMJ 发表于 2026-9-14 09:00</a>
+
+这个看着还行，是不是之前作死太多真的快死了，SE激活了背水一战的被动技能。当年FF就这么出来的，也算是保 ...</blockquote>
+说过不是直接搬手游剧情了，是以第一季为底本重新写过，就本作来说是完整的
+
+
+*****
+
+####  GMJ  
+##### 240#       发表于 2026-9-14 09:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231402&amp;ptid=2283081" target="_blank">ParukiaMKII 发表于 2026-9-14 09:14</a>
+
+今天早上支付宝刷到卷了</blockquote>
+你这券有点厉害啊
+

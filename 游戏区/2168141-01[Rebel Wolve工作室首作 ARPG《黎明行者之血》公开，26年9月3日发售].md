@@ -166,3 +166,14 @@ Deck不管怎么调都糊得玩不下去，但是这种rpg游戏不想在电脑�
 
 目前推到把第一个区域安卢修斯杀了，这第一个区域给我的印象感觉还蛮一般 ，架构上像育碧那一套打大 boss 先杀小头目，除了序章没感觉到时间流逝对角色剧情的影响，任务也没感到有多厉害，虽然巫师 味确实有一些，希望后面还有惊喜
 
+
+*****
+
+####  Schwarzess  
+##### 132#       发表于 2026-9-14 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231024&amp;ptid=2168141" target="_blank">アルメリア 发表于 2026-9-14 07:53</a>
+两个女主一个大龄剩女，一个结婚生过孩子的熟女，没一个正常人啊</blockquote>
+说是这么说但两位脸还不错所以我个人没啥意见。安嘉是生理心理二重意味上的妈妈，拉克拉是活了两百岁但性格还是小太妹。
+相比而言秧鸡那个莫名其妙的鞑靼同性恋才是真不正常。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
