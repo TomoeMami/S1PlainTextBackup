@@ -4336,3 +4336,14 @@ B站神秘的推荐机制，看完差点没绷住
 请问有人在风雷同场用出过连锁一闪吗？我试了一会没用出来过，是我操作问题还是机制就不能连锁？ ...</blockquote>
 他们不能连锁一闪。 boss战能连锁的应该也就百秽/怒伐天/双小鵺
 
+
+*****
+
+####  scp073  
+##### 1848#       发表于 2026-9-14 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231886&amp;ptid=2210366" target="_blank">wzh5555 发表于 2026-9-14 10:28</a>
+
+他们不能连锁一闪。 boss战能连锁的应该也就百秽/怒伐天/双小鵺</blockquote>
+其实打小兵也不能连锁到百秽/怒伐天
+
