@@ -1213,3 +1213,31 @@ IGN最近是不是在左右互搏，上个月说任天堂失去了传统，这�
 之前中国之星不是有项目爆出来被吃回扣了吗，要是后续项目拿不出好成绩，SIE想开源节流分分钟的事，小岛都 ...</blockquote>
 之前刷到芒果冰视频，他去采访一些中国之星项目的人。好像说除了第一期有资金支持之外，其他的中国之星都是只给一个名头，然后让游戏制作组自己拿着中国之星的名头去找其他公司拉投资<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rowen233  
+##### 62#       发表于 2026-9-14 16:29
+
+ 本帖最后由 Rowen233 于 2026-9-14 16:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70233838&amp;ptid=2289565" target="_blank">纯白花火 发表于 2026-9-14 15:36</a>
+
+要不要看看PS5pro现在什么价格</blockquote>
+16GB+1TB的5060笔记本基本也都冲五位数去了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说PC这边太逆天 主机和PC谁也别笑谁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rowen233  
+##### 63#       发表于 2026-9-14 16:34
+
+ 本帖最后由 Rowen233 于 2026-9-14 16:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70233885&amp;ptid=2289565" target="_blank">近战大法师 发表于 2026-9-14 15:43</a>
+
+还不如说下代主机还有卖点么，和PC同价却没PC功能，就靠所谓开天辟地的独占大作？ ...</blockquote>
+高估欧美白皮的动手能力了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧洲那边游戏本溢价比国内严重得多 而且现在得考虑硬盘了 游戏本基本默认都是512GB或者1TB的
+
+可能利好老任一点 
+
