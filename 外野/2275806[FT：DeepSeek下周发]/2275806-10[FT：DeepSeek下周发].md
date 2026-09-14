@@ -6152,3 +6152,44 @@ zcode的周末免费token到底在哪领啊为啥好像大家都有但是就我�
 
 —— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cody198879  
+##### 13759#       发表于 2026-9-14 20:09
+
+听楼上的试了下trae  work
+
+怎说呢
+
+界面的确看上去更好更干净
+
+思维链默认不显示，不知道他在干嘛，不安desu
+
+没有4.1 flash，还是自部署的v4 flash，慢
+
+探索型问题想的很简单，同样用v4对比workbuddy
+
+核心，比起workbuddy乱计费，我根本看不懂trae work完成每个问题收了多少积分，这玩意不显示。
+
+下班 ，明天再试
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  svmkty  
+##### 13760#       发表于 2026-9-14 20:12
+
+ds4.1写小说感觉都不如元宝了
+
+
+*****
+
+####  绝地潜兵  
+##### 13761#       发表于 2026-9-14 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234919&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-14 18:35</a>
+opencode桌面功能再少，再vibe，流畅度也比workbuddy高几个量级吧，也不会搞出对话手动终止后实际请求和 ...</blockquote>
+我先用tare再用opencode，前面那是啥玩意……
+
