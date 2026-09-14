@@ -5333,3 +5333,43 @@ ai对信创的移植是极大的加速<img src="https://static.stage1st.com/imag
 
 我问了AI，他们基本都说最好方案就是用grep/rg，不是必须要lsp的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mitzvah  
+##### 13687#       发表于 2026-9-14 12:47
+
+ 本帖最后由 mitzvah 于 2026-9-14 12:49 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232786&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-9-14 12:33</a>
+
+我问了AI，他们基本都说最好方案就是用grep/rg，不是必须要lsp的</blockquote>
+实际执行任务就知道了，当你看到代理在反反复复的grep sed然后出错再grep你就知道这个东西滥用就是祸害
+
+这些模型可能用前几个月的那篇is grep all your need糊弄你，然而这篇文章比较的是grep与向量数据库，文本匹配强于向量数据库早就是公论了看这个
+
+[https://github.com/liatrio-labs/ ... 0as%20last%20resort](https://github.com/liatrio-labs/claude-code-gauntlet/blob/main/docs/research/artifacts/06-lsp-integration-patterns.md#:~:text=LSP%20for%20precision%2C%20tree%2Dsitter%20for%20structure%2C%20grep%20as%20last%20resort)
+
+grep会向代理灌入海量的无关上下文严重降低能力是已经被观察到的现实
+
+llm跑分进步的下一步就是标准化lsp工具将其纳入rl强化学习内化约束了
+
+
+*****
+
+####  cody198879  
+##### 13688#       发表于 2026-9-14 12:52
+
+楼里批判workbuddy的，推荐个办公向的智能体吧，面向非超能力群体的。老实讲需求还是挺大，我等中登对这类东西可是强需求
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  qwased  
+##### 13689#       发表于 2026-9-14 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232742&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-9-14 12:24</a>
+
+火星了，才发现DS会给你算一个任务要用多少token，以前都是思考几秒直接输出，都不知道翻译一部电影字幕要 ...</blockquote>
+实际上他也是瞎蒙的，如果一次输出超长结果还是主动跟他说分段输出避免截断比较好，之前用GLM5.3F不这么说根本用不了
+

@@ -81,3 +81,11 @@
 
 说起来这次电葱的眼睛会微妙的更绿一点但是没给换色饰品  不知道是什么原因还有明明是发量最多的发型但上面的饰品不给拆也很过分
 
+
+*****
+
+####  astrayl  
+##### 2106#       发表于 2026-9-14 12:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">all in了出的唯一一发4星歪了，初音无缘了
+

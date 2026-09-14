@@ -1454,3 +1454,14 @@ sega又怎么撕破脸让2登录其他平台。任天堂不会直接放行，所
 
 SIE今后全资的项目估计都会往真独占方向搞了，现在的经济环境到处都是工作室裁员倒闭，你想捞现成的IP名作难，但找新工作室不是问题的，只是坑也多
 
+
+*****
+
+####  Gigax  
+##### 137#       发表于 2026-9-14 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231625&amp;ptid=2289559" target="_blank">ultraseven 发表于 2026-9-14 09:49</a>
+
+但索尼下世代真能找到给他们做PS6真独占AAA的第三方吗？欧美厂/中韩厂抛弃不了PC，车枪球抛弃不了Xbox， ...</blockquote>
+其他第三方不用从引擎到场地经费全让索尼出啊，签个主机半年一年的独占也就负责下宣发
+

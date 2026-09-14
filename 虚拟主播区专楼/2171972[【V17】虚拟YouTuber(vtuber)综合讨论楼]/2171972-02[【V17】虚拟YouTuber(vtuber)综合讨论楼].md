@@ -194,3 +194,11 @@
 
 而且已经毕业的liver其实也没什么人关心，大家现在更想知道那个跟金鱼在那私底下阴湿口了但还在你虹活动的现役liver是谁<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 2099#       发表于 2026-9-14 12:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">明面上SMC的S跟口了经常一起玩，反而跟金鱼没啥交流呢
+
