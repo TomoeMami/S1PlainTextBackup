@@ -5482,3 +5482,30 @@ ds4.1速度更快，能力上限更高，缺点是记忆涣散会做错更多小
 
 中转站两个都可能降智，就不算到其中一个了
 
+
+*****
+
+####  小野賢章  
+##### 13700#       发表于 2026-9-14 14:00
+
+这位是中科院上海高等研究院的
+
+<img src="https://img.stage1st.com/forum/202609/14/140026wznzn0ur22t6aazc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 14:00 上传
+
+
+*****
+
+####  舞以  
+##### 13701#       发表于 2026-9-14 14:03
+
+估计相关系统有些调查吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+目前看实锤的是中转站卖信息（这还需要实锤吗）
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
