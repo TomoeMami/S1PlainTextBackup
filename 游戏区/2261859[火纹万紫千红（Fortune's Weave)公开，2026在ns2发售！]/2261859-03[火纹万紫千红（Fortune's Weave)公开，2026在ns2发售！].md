@@ -5816,3 +5816,109 @@ dlc会是什么呢，我看猜测要么是4副主角的剧情，要么是红花�
 
 这次这个角色量感觉支援剧情很难写，该不会又没有拉郎配系统了吧
 
+
+*****
+
+####  wly  
+##### 3455#       发表于 2026-9-14 10:27
+
+A少这组关系图也太搞笑了，最上面怪しい和騒がしい就很搞了，没想到下面还有三个ほっとけない
+
+*****
+
+####  Jabeck  
+##### 3456#       发表于 2026-9-14 10:27
+
+新角色太美式milf了吧
+
+*****
+
+####  [SA]KOS-MOS  
+##### 3457#       发表于 2026-9-14 10:29
+
+牛牛说很棒
+
+*****
+
+####  freedom12  
+##### 3458#       发表于 2026-9-14 10:31
+
+明后两天还有最多4个角色
+
+<img src="https://img.stage1st.com/forum/202609/14/102613adz1157l6ede9664.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (2.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 10:26 上传
+
+<img src="https://img.stage1st.com/forum/202609/14/102613r7z2z33o3y3ddqk6.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (2.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 10:26 上传
+
+<img src="https://img.stage1st.com/forum/202609/14/102613ueaoowe58uevosqj.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (2.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 10:26 上传
+
+大概率会有这三个，包括了大家喜爱的大龄山贼
+
+<img src="https://img.stage1st.com/forum/202609/14/103007n3yhmhahv4lw3ixi.png" referrerpolicy="no-referrer">
+
+<strong>7.png</strong> (2.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 10:30 上传
+
+<img src="https://img.stage1st.com/forum/202609/14/103006po48h2zo4evdkkke.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (2.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 10:30 上传
+
+这俩角色感觉会藏到最后
+
+<img src="https://img.stage1st.com/forum/202609/14/103031iisrnrs5rivts6ir.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (2.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 10:30 上传
+
+<img src="https://img.stage1st.com/forum/202609/14/103031qttdtdtkq2q0gkdq.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (2.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 10:30 上传
+
+这两个还不清楚是不是能成为队友
+
+
+*****
+
+####  cox  
+##### 3459#       发表于 2026-9-14 10:34
+
+魔弓肯定要占个名额吧，都上漫画了，到现在没见过全身建模。那个山贼要不别公布了，介绍下女王的死敌面具哥吧，<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  svmkty  
+##### 3460#       发表于 2026-9-14 10:34
+
+据说欧美那边有人玩到了？
+

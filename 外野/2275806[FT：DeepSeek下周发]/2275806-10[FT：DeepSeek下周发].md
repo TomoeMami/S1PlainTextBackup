@@ -5140,3 +5140,37 @@ WorkBuddy的优化非常糟糕，资源占用大得离谱</blockquote>
 
 另外就是自己开发插件的代价很低，让 pi 自己开发扩展，代替 skill 之类的，运行结果稳定，不消耗 token
 
+
+*****
+
+####  来都来了  
+##### 13671#       发表于 2026-9-14 10:32
+
+ 本帖最后由 来都来了 于 2026-9-14 10:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230761&amp;ptid=2275806" target="_blank">小牛无大将 发表于 2026-9-14 01:56</a>
+话说有没有pi布道师能说说好在哪抛开社区插件不谈</blockquote>
+简洁高效，到手后只有最基础的功能，其他需要你自己加。我用了两个月了，全部的工具也只有8个扩展、四五个技能、3个MCP而已。DSH那种，一下载下来就100多个插件，还不分类、不分目录，无法关闭、没说明，看着都窒息。
+
+所有大模型在Pi的上面表现都是最好的。
+
+<img src="https://img.stage1st.com/forum/202609/14/103327ythnn3t0n90hluun.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1789353205317_1.webp</strong> (61.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 10:33 上传
+
+*****
+
+####  cody198879  
+##### 13672#       发表于 2026-9-14 10:32
+
+workbuddy虽然有很多性能上，隔离上的问题。但是开箱即用的能力对于不会编程的普通人还是很友好的。
+
+毕竟很多人的需求是办公和文档处理，你让我用xx code来整我也担心自己玩不来。
+
+不是所有人都懂各种魔法
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -4314,3 +4314,25 @@ B站神秘的推荐机制，看完差点没绷住
 周末通了，这套战斗系统确实牛逼，boss有难度，但主角机体性能更强。
 没有很多动作游戏那种磨过boss的感觉，一旦死几次，能处理那两三个难点后，进心流打出那一两个一闪后，非常快就能过关，非常想去再打第二次
 
+
+*****
+
+####  otakun  
+##### 1846#       发表于 2026-9-14 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231778&amp;ptid=2210366" target="_blank">wthall 发表于 2026-9-14 10:14</a>
+当时开场看见2个用剑高手被一群杂兵幻魔堆死了就差点没绷住。
+
+明明3代里面攻打本能寺一堆足轻小兵还能喝幻 ...</blockquote>
+玩的时候也有类似感觉，印象中一开始左马介是砍不死幻魔，但也不至于被虐杀，还能有来有回，只是无法伤害，想不到新作里头这么惨
+
+*****
+
+####  wzh5555  
+##### 1847#       发表于 2026-9-14 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231828&amp;ptid=2210366" target="_blank">conanoysq 发表于 2026-9-14 10:21</a>
+
+请问有人在风雷同场用出过连锁一闪吗？我试了一会没用出来过，是我操作问题还是机制就不能连锁？ ...</blockquote>
+他们不能连锁一闪。 boss战能连锁的应该也就百秽/怒伐天/双小鵺
+
