@@ -6507,3 +6507,11 @@ PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲�
 一家店卖1.6w，能按时发完吗</blockquote>
 拼多多还是太牛逼了，我在日本能找到的最便宜的还要360rmb<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  血狂毘沙门  
+##### 3513#       发表于 2026-9-14 23:59
+
+最可怕的还是货量很大 从8点到现在没卖完 任天堂定向放货了么<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
