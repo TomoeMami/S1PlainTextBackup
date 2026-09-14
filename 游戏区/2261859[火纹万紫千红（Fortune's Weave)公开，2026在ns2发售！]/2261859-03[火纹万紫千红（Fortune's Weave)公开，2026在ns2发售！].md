@@ -6526,3 +6526,38 @@ PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲�
 最可怕的还是货量很大 从8点到现在没卖完 任天堂定向放货了么</blockquote>
 这个得看pdd和任天堂没关系。游戏本身不缺
 
+
+*****
+
+####  fallout  
+##### 3515#       发表于 2026-9-15 00:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开小号抢到了，大号卡上限了**pdd
+
+*****
+
+####  trow233  
+##### 3516#       发表于 2026-9-15 00:15
+
+弄了个320的日本直邮
+
+反正香港直邮我是绝对不碰了
+
+*****
+
+####  warjuggler  
+##### 3517#       发表于 2026-9-15 00:17
+
+先买了日本直邮了写着五天内发货，按往常经验大概啥时候能收到货啊
+
+
+*****
+
+####  ascomnet  
+##### 3518#       发表于 2026-9-15 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236239&amp;ptid=2261859" target="_blank">warjuggler 发表于 2026-9-15 00:17</a>
+
+先买了日本直邮了写着五天内发货，按往常经验大概啥时候能收到货啊</blockquote>
+看啥时候发货，快的话周末就能收到，
+
