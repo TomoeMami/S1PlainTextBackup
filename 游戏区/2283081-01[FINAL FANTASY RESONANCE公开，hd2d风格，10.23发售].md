@@ -312,3 +312,13 @@ B站IGN转的大招演出视频，播放量最多的就是15的大招，弹幕�
 
 ns2版只有钥匙卡？而且日版限定好像也没中文，港服买数字版似乎是唯一选择
 
+
+*****
+
+####  隔壁老黄  
+##### 248#       发表于 2026-9-14 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232132&amp;ptid=2283081" target="_blank">妄想系同盟 发表于 2026-9-14 10:59</a>
+那后面剧情还出吗   等出完一起买 Re:Source</blockquote>
+出肯定是二代了
+
