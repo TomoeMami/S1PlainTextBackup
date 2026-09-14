@@ -196,3 +196,11 @@ V拆分的话，只有V高达V大叔肯定撑不起</blockquote>
 
 确实，ULT不是2V就是赞斯拜因
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4696#       发表于 2026-9-14 22:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">ZZ挑战总算打完了，全程只有SSR EXS在输出，太难顶了
+
