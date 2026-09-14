@@ -64,3 +64,13 @@
 
 今天小号，也出5星了，是南丁<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 48220#       发表于 2026-9-14 18:59
+
+司马懿领证了，给了个梦火，但是天知道什么时候能收回来
+
+现在还是只有20多个梦火，不是五星肯定不敢给了
+
