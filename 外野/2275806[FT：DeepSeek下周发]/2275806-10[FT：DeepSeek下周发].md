@@ -6727,3 +6727,11 @@ DSH居然偷偷做了一个官方的客户端</blockquote>
 
 抽到了DeepSeek的朗读模式，唱歌非常难绷<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zxtree  
+##### 13809#       发表于 2026-9-15 02:09
+
+k3太慢了，我受不了了
+
