@@ -1249,3 +1249,23 @@ IGN最近是不是在左右互搏，上个月说任天堂失去了传统，这�
 
 索尼专心当平台就行了，别老出那些没品味的播片游戏
 
+
+*****
+
+####  nancygreenlife  
+##### 65#       发表于 2026-9-14 21:48
+
+看了一会儿索尼最新大作金刚狼，的确是MP4的劲敌……
+
+
+*****
+
+####  哎哟卧槽了  
+##### 66#       发表于 2026-9-14 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234257&amp;ptid=2289565" target="_blank">赤井稻妻 发表于 2026-9-14 16:39</a>
+索尼专心当平台就行了，别老出那些没品味的播片游戏</blockquote>
+只當平台的話現在的索尼還有什麼吸引力……？
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

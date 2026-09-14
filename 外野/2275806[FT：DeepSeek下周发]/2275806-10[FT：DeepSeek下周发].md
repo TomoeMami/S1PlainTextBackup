@@ -6398,3 +6398,28 @@ Code 的额度和 Agent 的额度是一个池子吗？因为这个，我看有�
 感谢，那没啥意义啊，主要就是积分可以免费用</blockquote>
 到25号之前能以优惠价积分免费用ds4.1f，估算下来一天能跑10个左右的中型任务，这个还可以，不过workbuddy内置提示词太多有点影响模型智商，我就算把一堆内置功能全关了还是时不时会跳出称呼询问选项。
 
+
+*****
+
+####  tillnight  
+##### 13780#       发表于 2026-9-14 21:48
+
+ 本帖最后由 tillnight 于 2026-9-14 21:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235561&amp;ptid=2275806" target="_blank">halfelf 发表于 2026-9-14 21:18</a>
+
+我没用过workbuddy，这东西跟opencode比起来有啥优势？我看oc办公也挺好用的，也能自己调动工具啊 ...</blockquote>
+workbuddy的dsv4.1f在充值后实际是目前最便宜的api接口，可以接入dsh使用。算上签到积分70块订阅实际用量是oc 10刀额度的1.5倍以上。
+
+好像很多人都不知道Workbuddy付费后就可以自由调用api，而且免费的积分也会算入订阅池，并且他没有周限。
+
+
+*****
+
+####  tillnight  
+##### 13781#       发表于 2026-9-14 21:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235552&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-9-14 21:14</a>
+
+Code 的额度和 Agent 的额度是一个池子吗？因为这个，我看有人说是一个池，有人说是分开的。 ...</blockquote>
+Kimi是所有额度都在一个池子，但是丐版订阅以外，code调用的额度是翻（n）倍的额度，所以你听到的说法既没有说对也没有说错。
+
