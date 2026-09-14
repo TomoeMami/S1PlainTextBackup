@@ -56,3 +56,11 @@
 
 622颗石头了，骑阶还能榨两个10/11，不过要100多W，估计没机会了。剑阶和狂阶还是自回体吧，柱子战肝的有点厉害，苹果不够了。
 
+
+*****
+
+####  khxooo  
+##### 48219#       发表于 2026-9-14 14:15
+
+今天小号，也出5星了，是南丁<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

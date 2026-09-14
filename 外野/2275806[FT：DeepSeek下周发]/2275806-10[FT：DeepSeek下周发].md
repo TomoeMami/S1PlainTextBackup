@@ -5509,3 +5509,23 @@ ds4.1速度更快，能力上限更高，缺点是记忆涣散会做错更多小
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  舞以  
+##### 13702#       发表于 2026-9-14 14:13
+
+现在才一刀切中转站<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  xiaohanne  
+##### 13703#       发表于 2026-9-14 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232981&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-9-14 13:10</a>
+
+GLM-5.3-Flash 对比 Deepseek 0731,还有4.1F，哪个比较强？</blockquote>
+我处理文本任务的时候，感觉ds4.1f的幻觉比glm5.3f多一点，速度快的代价。
+
