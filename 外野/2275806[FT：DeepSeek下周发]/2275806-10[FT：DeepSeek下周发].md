@@ -6551,3 +6551,16 @@ app版本2.5.0
 
 求问一下现在想在zcode里蹬gemini3.8flash怎么弄最好？闲鱼上几块十几块的Pro有 AIstudio的额度吗？
 
+
+*****
+
+####  eno_emos  
+##### 13793#       发表于 2026-9-14 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235681&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-14 21:48</a>
+
+workbuddy的dsv4.1f在充值后实际是目前最便宜的api接口，可以接入dsh使用。算上签到积分70块订阅实际用量 ...</blockquote>
+how？
+
+workbuddy不是不给api吗？
+
