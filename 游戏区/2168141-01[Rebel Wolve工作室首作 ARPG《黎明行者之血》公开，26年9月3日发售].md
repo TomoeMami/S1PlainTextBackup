@@ -330,3 +330,15 @@ Deck不管怎么调都糊得玩不下去，但是这种rpg游戏不想在电脑�
 安嘉真好看啊，第一眼就感觉出来是这个世界里的叶奈法了</blockquote>
 比叶奈法好看！性格也好！（仅序章观感）
 
+
+*****
+
+####  枯风瘦雪  
+##### 145#       发表于 2026-9-14 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232610&amp;ptid=2168141" target="_blank">woshenc 发表于 2026-9-14 11:59</a>
+比叶奈法好看！性格也好！（仅序章观感）</blockquote>
+我也是序章观感，但味道很像（年上女巫+暧昧调情），迷死人了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
