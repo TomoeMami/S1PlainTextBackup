@@ -1283,3 +1283,11 @@ IGN最近是不是在左右互搏，上个月说任天堂失去了传统，这�
 游戏机再怎么搞涨价也 ...</blockquote>
 3050机型现在就有吧，都不需要明年
 
+
+*****
+
+####  dforce  
+##### 68#       发表于 2026-9-15 00:26
+
+索尼除了PS6，还有传了很久的新掌机，估计都是天价，不知道会不会成为末代PS<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
