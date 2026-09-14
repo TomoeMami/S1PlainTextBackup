@@ -5913,3 +5913,65 @@ GLM-5.3-Flash 对比 Deepseek 0731,还有4.1F，哪个比较强？</blockquote>
 咋还有个千问办公啊，我昨天让deepseek推荐它告诉我去用阿里的qoder，这些大厂工资没地方花吗 ...</blockquote>
 都是内部赛马，就像腾讯还有个贾维斯，字节刚刚卷死了前几天还好好的trae，甚至把飞书也划进豆包办公里面。qoderwork应该是被千问办公吃掉了
 
+
+*****
+
+####  serj005  
+##### 13738#       发表于 2026-9-14 17:55
+
+ 本帖最后由 serj005 于 2026-9-14 17:59 编辑 
+
+4.1f时代之后，网页版的干活可靠性也巨幅提升，体感4.1f已经是所有对话llm网页版中体验最好的一个。（主要是速度太快了）
+
+大量需求是单对话直出python脚本的，用网页版是真的爽，免费+速度最快，找脚本bug准，听得懂需求，需求发散补充也到位，从来没体会到过网页版也能这么有实用性。
+
+提一个日常常用的需求点:临时有个网页想做个油猴脚本优化使用体验，不管三七二十一直接f12把网页html全量喂给ds网页版，只要不超出上下文，给它讲需求，直出的油猴脚本基本都能一次跑通。
+
+*****
+
+####  巨魔已被忠诚  
+##### 13739#       发表于 2026-9-14 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234597&amp;ptid=2275806" target="_blank">jonarryn 发表于 2026-9-14 17:36</a>
+
+这方面正好我最近有一些心得体会，这里分享一下，仅代表我个人感受
+
+我的需求是科研类的，数据处理和轻度 ...</blockquote>
+看了几个蒸馏skill都强调要，搜索策略由于处理。温度和思考强度不是越高越好。
+
+幻觉问题只能预设知识库和设定好边界让他优先去查询，思考强度高了反而出问题。
+
+经过多轮讨论后，出的都是简单问题复杂化解决的典型。
+
+首轮回答反而准确度更高。
+
+*****
+
+####  zhongjie  
+##### 13740#       发表于 2026-9-14 17:57
+
+哪个模型适合审阅项目移植和迁移情况，提出意见的？fable用的太快了
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 13741#       发表于 2026-9-14 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234716&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-9-14 17:57</a>
+ 哪个模型适合审阅项目移植和迁移情况，提出意见的？fable用的太快了  —— 来自 HONOR AAP-AN00, Android 1 ...</blockquote>
+让sota指挥低级模型的话还是可以的，之前让opus作为外部模型审阅过sol的屎山，后面astra也做了一遍，都是哈基米做subagent，消耗不算大
+
+*****
+
+####  古畑任三郎2015  
+##### 13742#       发表于 2026-9-14 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234493&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-9-14 17:16</a>
+9月14日，外交部发言人郭嘉昆主持例行记者会。
+
+路透社记者提问，埃隆·马斯克等人上周末呼吁人工智能公司 ...</blockquote>
+这集真看过，美苏核军备竞赛是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

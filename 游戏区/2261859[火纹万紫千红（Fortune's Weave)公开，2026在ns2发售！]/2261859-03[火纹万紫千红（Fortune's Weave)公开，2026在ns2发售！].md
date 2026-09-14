@@ -6147,3 +6147,27 @@ PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲�
 安娜怎么放到重要人物里了，难道这代有强剧情相关。。。</blockquote>
 看描述是索雷尔神殿的神官，这作应该会有更多剧情吧
 
+
+*****
+
+####  freedom12  
+##### 3481#       发表于 2026-9-14 18:06
+
+<img src="https://img.stage1st.com/forum/202609/14/180542xhyo3ahhhut9duhp.png" referrerpolicy="no-referrer">
+
+<strong>02.png</strong> (59.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 18:05 上传
+
+<img src="https://img.stage1st.com/forum/202609/14/180542q8kbqf8e88a8w133.png" referrerpolicy="no-referrer">
+
+<strong>01.png</strong> (203.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 18:05 上传
+
+看官网公布这些角色还不错，可能也是特意隐藏了部分人见人爱的高龄山贼
+
