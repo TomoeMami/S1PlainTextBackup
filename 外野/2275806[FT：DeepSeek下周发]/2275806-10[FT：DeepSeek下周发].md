@@ -5575,3 +5575,55 @@ GLM-5.3-Flash 对比 Deepseek 0731,还有4.1F，哪个比较强？</blockquote>
 
 AI禁令没想的那么多，纯粹二÷搞的恐吓战略已经把美国人整的怒火滔天了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以奶龙立马竟然不许
 
+
+*****
+
+####  Azcarlo  
+##### 13709#       发表于 2026-9-14 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70233541&amp;ptid=2275806" target="_blank">Ty_cc 发表于 2026-9-14 14:52</a>
+挖槽怎么4.1flash用token这么快，随便给了几个任务一中午花了20 token数比之前用半天还多
+
+—— 来自 鹅球  ...</blockquote>
+喜欢我大肥鲸的雷霆大思考吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+不开玩笑，推理挡位开high就够了，high做不出的max大概率也做不出，不如直接换个模型试。
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 13710#       发表于 2026-9-14 14:58
+
+当然马斯克纯凑热闹<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  果壳中的松鼠  
+##### 13711#       发表于 2026-9-14 15:01
+
+我靠，我要被ds和glm的雷霆大思考气死了，写一个非常简单的启动脚本，thinking开high都想得太多绕不回来，最终交出一坨
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  xiaohanne  
+##### 13712#       发表于 2026-9-14 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232705&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-14 12:16</a>
+
+都是Linux也没多难适配吧
+
+最近搞了远控软件容器化，只有asklink和todesk成功了，而且它们每个发行版的elf都 ...</blockquote>
+银河麒麟挺麻烦的，他有不少地方做了特化……
+
+*****
+
+####  来都来了  
+##### 13713#       发表于 2026-9-14 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232894&amp;ptid=2275806" target="_blank">cody198879 发表于 2026-9-14 12:52</a>
+楼里批判workbuddy的，推荐个办公向的智能体吧，面向非超能力群体的。老实讲需求还是挺大，我等中登对这类 ...</blockquote>
+hermes     
+
