@@ -1202,3 +1202,14 @@ IGN最近是不是在左右互搏，上个月说任天堂失去了传统，这�
 
 拿什么开天辟地，sao吗
 
+
+*****
+
+####  M乔梦  
+##### 61#       发表于 2026-9-14 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231780&amp;ptid=2289565" target="_blank">1aVa 发表于 2026-9-14 10:14</a>
+
+之前中国之星不是有项目爆出来被吃回扣了吗，要是后续项目拿不出好成绩，SIE想开源节流分分钟的事，小岛都 ...</blockquote>
+之前刷到芒果冰视频，他去采访一些中国之星项目的人。好像说除了第一期有资金支持之外，其他的中国之星都是只给一个名头，然后让游戏制作组自己拿着中国之星的名头去找其他公司拉投资<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

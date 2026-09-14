@@ -5745,3 +5745,27 @@ Deepseek Harness EAC 这个就是客户端，还行滴~
 
 办公室文员类的工作，追求的是稳定易学成本低，现阶段只能看大厂，workbuddy/千问办公/豆包办公三选一咯，用户觉得难用，又能折腾，自然会去学
 
+
+*****
+
+####  Azcarlo  
+##### 13724#       发表于 2026-9-14 16:23
+
+办公这块难道要让老头老太从0手搓框架吗？不就是workbuddy，千问，豆包三选一。
+目前来看workbuddy用户量是断档的。
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  scikirbypoke  
+##### 13725#       发表于 2026-9-14 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70233889&amp;ptid=2275806" target="_blank">Baccano 发表于 2026-9-14 15:44</a>
+试了下codebuddy上用dp v4.1 flash，太省积分了。
+
+跑了一下codegraph，Serena，grep的A/B/C测。
+
+又是下载， ...</blockquote>
+所以哪个好？现在用codegraph感觉调用频率不高
+
