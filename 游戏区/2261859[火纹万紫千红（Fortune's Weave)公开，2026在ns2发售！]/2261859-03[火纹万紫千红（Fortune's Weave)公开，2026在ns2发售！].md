@@ -6032,3 +6032,20 @@ heaven and hell<img src="https://static.stage1st.com/image/smiley/face2017/047.p
 
 曙光女神之宽恕
 
+
+*****
+
+####  cox  
+##### 3471#       发表于 2026-9-14 17:12
+
+原来女娲是黄金舰队。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cobymar  
+##### 3472#       发表于 2026-9-14 17:17
+
+订了限定版，不知道啥时候能拿到<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony SOG10, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

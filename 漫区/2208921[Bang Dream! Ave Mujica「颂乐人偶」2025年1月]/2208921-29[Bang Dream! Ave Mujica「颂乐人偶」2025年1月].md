@@ -250,3 +250,50 @@ BanGDream! bilibili官方：@BanGDream_CN
 ✦・━━━━━━━━━━━━━━━ ・✦⁡⁡"</blockquote>
        [https://www.bilibili.com/video/BV1xtYC6UEwN](https://www.bilibili.com/video/BV1xtYC6UEwN)
 
+
+*****
+
+####  Piano-Forest  
+##### 42021#       发表于 2026-9-14 17:11
+
+【剧场版「BanG Dream! Ave Mujica prima aurora」主PV】 
+[https://b23.tv/F2uHO5h](https://b23.tv/F2uHO5h)
+
+剧场版「BanG Dream! Ave Mujica prima aurora」2026年10月16日(周五)公开
+
+「BanG Dream! It's MyGO!!!!! / Ave Mujica」续篇TV动画将于2027年1月起在日本电视台系全国30家电视台播出
+
+*****
+
+####  堀内爱里衣  
+##### 42022#       发表于 2026-9-14 17:11
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/14/171156iwpe0g0csapcebpw.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-09-14_17-11-01.jpg</strong> (195.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 17:11 上传
+
+       [https://x.com/bang_dream_info/status/2099423710625267905](https://x.com/bang_dream_info/status/2099423710625267905)
+
+*****
+
+####  堀内爱里衣  
+##### 42023#       发表于 2026-9-14 17:12
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/14/171240crfgn0e6r036e00g.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-09-14_17-11-02.jpg</strong> (212.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 17:12 上传
+
+       [https://x.com/bang_dream_info/status/2099423703448817776](https://x.com/bang_dream_info/status/2099423703448817776)
+
