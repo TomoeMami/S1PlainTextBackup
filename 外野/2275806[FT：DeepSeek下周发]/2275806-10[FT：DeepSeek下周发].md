@@ -5841,3 +5841,18 @@ codebuddy创建API为啥总提示操作失败？大佬指点下？
 
 明明就是A÷带的头，马厂公和奥特曼跟贴点赞，到了路透社嘴里就成马厂公挑头了，真是新闻学魅力时刻。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darktide  
+##### 13731#       发表于 2026-9-14 17:19
+
+Cursor又全网风控了。。。
+
+*****
+
+####  CCauchy  
+##### 13732#       发表于 2026-9-14 17:20
+
+4.1之后肥鱼网页版不错了，不说废话，说话能看懂，查资料不错
+

@@ -6049,3 +6049,11 @@ heaven and hell<img src="https://static.stage1st.com/image/smiley/face2017/047.p
 
 —— 来自 Sony SOG10, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  巴尔干炮  
+##### 3473#       发表于 2026-9-14 17:19
+
+官网更新了人物介绍，提前把玛利亚、安娜和教团老大公布了。
+

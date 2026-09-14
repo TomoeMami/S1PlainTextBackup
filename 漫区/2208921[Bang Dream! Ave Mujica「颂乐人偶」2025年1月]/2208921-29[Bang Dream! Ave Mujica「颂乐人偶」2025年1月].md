@@ -297,3 +297,40 @@ BanGDream! bilibili官方：@BanGDream_CN
 
        [https://x.com/bang_dream_info/status/2099423703448817776](https://x.com/bang_dream_info/status/2099423703448817776)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42024#       发表于 2026-9-14 17:14
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/14/171430gz96hd990ft6phth.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-09-14_17-13-51.jpg</strong> (273.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 17:14 上传
+
+       [https://x.com/bang_dream_info/status/2099424162137731288](https://x.com/bang_dream_info/status/2099424162137731288)
+
+*****
+
+####  堀内爱里衣  
+##### 42025#       发表于 2026-9-14 17:15
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/14/171545r79354yy747z03ot.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-09-14_17-14-56.jpg</strong> (253.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 17:15 上传
+
+       [https://x.com/bang_dream_info/status/2099424413452021992](https://x.com/bang_dream_info/status/2099424413452021992)
+
+       [https://avemujica-movie.bang-dream.com/ticket/](https://avemujica-movie.bang-dream.com/ticket/)
+
