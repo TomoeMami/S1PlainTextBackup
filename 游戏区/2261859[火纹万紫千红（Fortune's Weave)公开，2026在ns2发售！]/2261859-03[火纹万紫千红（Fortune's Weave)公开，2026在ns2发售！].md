@@ -6515,3 +6515,14 @@ PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲�
 
 最可怕的还是货量很大 从8点到现在没卖完 任天堂定向放货了么<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ascomnet  
+##### 3514#       发表于 2026-9-15 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236189&amp;ptid=2261859" target="_blank">血狂毘沙门 发表于 2026-9-14 23:59</a>
+
+最可怕的还是货量很大 从8点到现在没卖完 任天堂定向放货了么</blockquote>
+这个得看pdd和任天堂没关系。游戏本身不缺
+

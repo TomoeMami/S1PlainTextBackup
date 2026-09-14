@@ -243,3 +243,14 @@
 
 第三个是黑X账号叫“柚希”的人，身份全程不明，曾声称梦月强迫雪城修改说话口音。
 
+
+*****
+
+####  noHentai  
+##### 2103#       发表于 2026-9-15 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232902&amp;ptid=2171972" target="_blank">艾特娜 发表于 2026-9-14 12:53</a>
+
+明面上SMC的S跟口了经常一起玩，反而跟金鱼没啥交流呢</blockquote>
+说是roa当时把和S的联动录播的删了（）
+
