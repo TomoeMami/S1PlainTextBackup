@@ -6679,3 +6679,43 @@ https://www.workbuddy.cn/profile/keys
 
 DSH居然偷偷做了一个官方的客户端
 
+
+*****
+
+####  果壳中的松鼠  
+##### 13804#       发表于 2026-9-14 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235963&amp;ptid=2275806" target="_blank">第七博物馆 发表于 2026-9-14 22:56</a>
+各位老哥，国内咋买gpt plus会员呀？</blockquote>
+只需要买plus的话，最简单的办法是搞个美区apple id 或者google play id，买礼品卡在app里充值。Pro就比较难了，需要代充
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  serj005  
+##### 13805#       发表于 2026-9-14 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236106&amp;ptid=2275806" target="_blank">2035年 发表于 2026-9-14 23:34</a>
+https://mp.weixin.qq.com/s/ieOE4mzyMoa8OVcAOAkhzg
+
+DSH居然偷偷做了一个官方的客户端</blockquote>
+不算是偷偷，上上周的时候就已经在提交electron内容了
+
+*****
+
+####  nxmonitor  
+##### 13806#       发表于 2026-9-14 23:43
+
+我还看到V4.1Flash疑似还要准备上新版本，估计到时候会和V4.1Pro一起出
+
+
+*****
+
+####  王兰花秀丽  
+##### 13807#       发表于 2026-9-14 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236145&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-14 23:43</a>
+我还看到V4.1Flash疑似还要准备上新版本，估计到时候会和V4.1Pro一起出</blockquote>
+这是在哪看见的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

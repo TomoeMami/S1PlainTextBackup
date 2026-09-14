@@ -30,3 +30,11 @@
 
 早知道，还是六字母<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋游刃  
+##### 21095#       发表于 2026-9-14 23:46
+
+两人团也算小团体吗
+
