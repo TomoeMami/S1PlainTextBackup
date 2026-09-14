@@ -6646,3 +6646,26 @@ https://www.workbuddy.cn/profile/keys
 
 各位老哥，国内咋买gpt plus会员呀？
 
+
+*****
+
+####  tillnight  
+##### 13801#       发表于 2026-9-14 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235941&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-9-14 22:51</a>
+
+？
+
+不是，70都不配阿</blockquote>
+70就可以，你看看登陆了没
+
+*****
+
+####  tillnight  
+##### 13802#       发表于 2026-9-14 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235940&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-14 22:51</a>
+
+这是算的折后价格吗？如果是的话25号之后优惠价就没了</blockquote>
+比的是oc，oc也是就2周优惠。
+
