@@ -5071,3 +5071,33 @@ anyrouter这个edu邮箱门槛居然连学生邮箱都不行<img src="https://st
 
 但是我觉得最根本的还是代码库的架构设计，不能放任ai slop增长，这是当前阶段程序员最核心的能力了
 
+
+*****
+
+####  xiaohanne  
+##### 13665#       发表于 2026-9-14 10:00
+
+ 本帖最后由 xiaohanne 于 2026-9-14 10:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70229633&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-13 22:00</a>
+
+dario马上就要ipo，这个时候喊停就很神奇
+
+—— 来自 HONOR AAK-AN00, Android 16, 鹅球 v3.5.99 ...</blockquote>
+按照我对A/的认识，A/搞这个声明的目的是最好大家都信了声明停止训练，然后自己私下狠狠开训……
+
+当然O/和X/大概率也是这么想的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+“骗一骗，又不花钱，万一真有傻子信了呢？”
+
+*****
+
+####  xiaohanne  
+##### 13666#       发表于 2026-9-14 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225610&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-13 00:51</a>
+
+我在本楼里呼吁过好几次 Work Buddy 是流氓软件了，但是坛友就是不听，还是孜孜不倦地给新人推荐 Work Bu ...</blockquote>
+只要白嫖，怎么着都不会亏。
+
+另外对老登同事非常好用。
+
