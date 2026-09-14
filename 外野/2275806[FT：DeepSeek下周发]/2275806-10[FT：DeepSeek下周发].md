@@ -6316,3 +6316,33 @@ Deepseek TTS全量开放了。
 kimi code 里面的 api key 用量是按照 token 算钱的，有5小时额度和周额度，理论上还有月额度，但是月额 ...</blockquote>
 Code 的额度和 Agent 的额度是一个池子吗？因为这个，我看有人说是一个池，有人说是分开的。
 
+
+*****
+
+####  halfelf  
+##### 13773#       发表于 2026-9-14 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234148&amp;ptid=2275806" target="_blank">Azcarlo 发表于 2026-9-14 16:23</a>
+
+办公这块难道要让老头老太从0手搓框架吗？不就是workbuddy，千问，豆包三选一。
+
+目前来看workbuddy用户量是 ...</blockquote>
+我没用过workbuddy，这东西跟opencode比起来有啥优势？我看oc办公也挺好用的，也能自己调动工具啊
+
+
+*****
+
+####  德尔惠净水器  
+##### 13774#       发表于 2026-9-14 21:24
+
+大肥鱼的tts竟然能唱歌！朗读音色切换到贝壳，【以防你不知道 DeepSeek网页灰度的朗读功能有概率能唱歌-哔哩哔哩】 https://b23.tv/L8HJZ2A
+
+<img src="https://img.stage1st.com/forum/202609/14/212355zud6cdde39y22oya.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260914_212348.jpg</strong> (129.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-14 21:23 上传
+

@@ -351,3 +351,14 @@ ns2只有钥匙卡，ns1实体卡，ns1不支持升级ns2。就连美版ns2版�
 
 比FF7好玩，想预购，忍住了
 
+
+*****
+
+####  hkguty  
+##### 251#       发表于 2026-9-14 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234781&amp;ptid=2283081" target="_blank">h122h 发表于 2026-9-14 18:08</a>
+
+ns2只有钥匙卡，ns1实体卡，ns1不支持升级ns2。就连美版ns2版也是钥匙卡。</blockquote>
+有点奇怪，NS2的八方1+2日服明明是有中文的，这个反而没有
+
