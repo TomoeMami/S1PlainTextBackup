@@ -6086,3 +6086,23 @@ opencode桌面功能再少，再vibe，流畅度也比workbuddy高几个量级�
 
 —— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  冤枉呐  
+##### 13752#       发表于 2026-9-14 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234697&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-14 17:55</a>
+4.1f时代之后，网页版的干活可靠性也巨幅提升，体感4.1f已经是所有对话llm网页版中体验最好的一个。（主要 ...</blockquote>
+视觉上来以后挺方便的
+有啥问题截图给他，他告诉我怎么操作
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  requiem116  
+##### 13753#       发表于 2026-9-14 19:15
+
+zcode的周末免费token到底在哪领啊为啥好像大家都有但是就我没有的样子
+

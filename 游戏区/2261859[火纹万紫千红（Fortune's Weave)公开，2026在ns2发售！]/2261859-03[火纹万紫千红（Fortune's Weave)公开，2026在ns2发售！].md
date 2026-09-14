@@ -6292,3 +6292,13 @@ PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">还有几天就能玩到了，激动
 
+
+*****
+
+####  freedom12  
+##### 3491#       发表于 2026-9-14 19:10
+
+还能解释为什么“地底人”要躲到地底
+
+因为整个地表都在轨道炮的火力覆盖范围内
+
