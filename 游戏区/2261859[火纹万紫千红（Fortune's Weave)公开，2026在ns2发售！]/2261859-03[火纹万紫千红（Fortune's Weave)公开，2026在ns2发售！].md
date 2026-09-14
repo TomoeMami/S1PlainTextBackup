@@ -6457,3 +6457,27 @@ PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲�
 乐，那家写的日本直邮海外版中文，不知道是不是日版，而且说是海外版 是指 日版 港版 美版 等 随机发出 不 ...</blockquote>
 日本直邮一般是日版..别的版本应该价格都比日版高<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 3508#       发表于 2026-9-14 23:08
+
+一家店卖1.6w，能按时发完吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/14/230833bzh9i9hlx8hivthv.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260914_230744.jpg</strong> (335.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 23:08 上传
+
+
+*****
+
+####  u2deack  
+##### 3509#       发表于 2026-9-14 23:16
+
+感觉是除了别的平台抽到什么券的所有要买卡带的都在等这个，早几天出我可能还买，现在这个感觉周末也送不到
+
