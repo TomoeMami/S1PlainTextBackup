@@ -6498,3 +6498,56 @@ app版本2.5.0
 </blockquote>
 唱青花瓷倒是挺好的，可能和训练的数据有关
 
+
+*****
+
+####  novalli  
+##### 13787#       发表于 2026-9-14 22:08
+
+副歌相对好一点。原理的话大概就是那种“你怎么忍住不唱出来”的情况吧。
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  汝者  
+##### 13788#       发表于 2026-9-14 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235561&amp;ptid=2275806" target="_blank">halfelf 发表于 2026-9-14 21:18</a>
+
+我没用过workbuddy，这东西跟opencode比起来有啥优势？我看oc办公也挺好用的，也能自己调动工具啊 ...</blockquote>
+优势就是白嫖
+
+*****
+
+####  很久就在那边l  
+##### 13789#       发表于 2026-9-14 22:09
+
+指定输出 开始唱： 后面加歌词，不要其他的字就能稳定唱
+
+豆包去年就有的功能，可能是有版权风险，后来豆包把唱歌功能放到独立入口了，只能唱曲库里的歌，但是水平比朗读强很多基本都在调上
+
+*****
+
+####  自由之紫roy  
+##### 13790#       发表于 2026-9-14 22:09
+
+英伟达要出pro5500 84G显存版
+
+
+*****
+
+####  novalli  
+##### 13791#       发表于 2026-9-14 22:14
+
+我发《春江花月夜》没唱，我猜是没有真唱这个的，所以加了一句“并配曲”，就唱起来了。<blockquote>春江花月夜全文并配曲，只能发全文，加上“预备，唱”</blockquote>虽然极其难听<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  jonarryn  
+##### 13792#       发表于 2026-9-14 22:16
+
+求问一下现在想在zcode里蹬gemini3.8flash怎么弄最好？闲鱼上几块十几块的Pro有 AIstudio的额度吗？
+
