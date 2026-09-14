@@ -6221,3 +6221,53 @@ qoder cn也试试吧，我作为新手感觉不出深奥的东西，只觉得比
 
 低于astra的模型不清楚。
 
+
+*****
+
+####  小野賢章  
+##### 13764#       发表于 2026-9-14 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235240&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-9-14 20:00</a>
+
+那天想了解一下kimi订阅，发现我都看不懂他的额度是怎么算的</blockquote>
+kimi code 里面的 api key 用量是按照 token 算钱的，有5小时额度和周额度，理论上还有月额度，但是月额度据说有5周，实际上用不完。直接通过kimi-code-cli使用，还可能会调用kimi的云端tool-call，这个也有额外消耗。
+
+除了kimi code之外，其他的用法，消耗的是 agent 额度，包括网页版、app、kimi work 这些，这个用的快得多。
+
+但是具体每次消耗多少，以及倍数关系，kimi 是故意模糊的。
+
+*****
+
+####  CCauchy  
+##### 13765#       发表于 2026-9-14 20:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234565&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-14 17:28</a>
+很多简单任务都能直接扔给网页版做了，能省不少token</blockquote>
+那还是不太行，我让它找一个gnome shell的css选择器，死活找不到，最后还是找了sonnet5 max
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  serj005  
+##### 13766#       发表于 2026-9-14 20:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235276&amp;ptid=2275806" target="_blank">cody198879 发表于 2026-9-14 20:09</a>
+听楼上的试了下trae  work
+
+怎说呢</blockquote>
+trae work快成弃子了，要合并到豆包里，trae code应该还是会继续独立。
+
+
+*****
+
+####  xiaohanne  
+##### 13767#       发表于 2026-9-14 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235276&amp;ptid=2275806" target="_blank">cody198879 发表于 2026-9-14 20:09</a>
+
+听楼上的试了下trae  work
+
+怎说呢</blockquote>
+trae的问题是据说要被合并到豆包办公？不知道后续还会不会继续更新。
+
