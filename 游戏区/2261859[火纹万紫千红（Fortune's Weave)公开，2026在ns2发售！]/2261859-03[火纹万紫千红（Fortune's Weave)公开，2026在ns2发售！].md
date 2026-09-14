@@ -6446,3 +6446,14 @@ PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲�
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  血狂毘沙门  
+##### 3507#       发表于 2026-9-14 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235924&amp;ptid=2261859" target="_blank">navarra 发表于 2026-9-14 22:47</a>
+
+乐，那家写的日本直邮海外版中文，不知道是不是日版，而且说是海外版 是指 日版 港版 美版 等 随机发出 不 ...</blockquote>
+日本直邮一般是日版..别的版本应该价格都比日版高<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
