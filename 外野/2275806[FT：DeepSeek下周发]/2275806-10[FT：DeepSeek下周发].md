@@ -5769,3 +5769,42 @@ Deepseek Harness EAC 这个就是客户端，还行滴~
 又是下载， ...</blockquote>
 所以哪个好？现在用codegraph感觉调用频率不高
 
+
+*****
+
+####  Baccano  
+##### 13726#       发表于 2026-9-14 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234166&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-9-14 16:25</a>
+
+所以哪个好？现在用codegraph感觉调用频率不高</blockquote>
+Serena，不过跟我项目主要是拿java写的也有关系。
+
+你最好也让AI跑下A/B测试，看下哪个LSP比较适配。
+
+*****
+
+####  蛋黄酱Release  
+##### 13727#       发表于 2026-9-14 16:48
+
+最近偶尔在单位电脑上用workbuddy免费积分有一点体会。这东西虽然使用体验远不如正经的agent，但是有几个点对于轻度办公用户来说很好用的点。
+一是给它个任务，每次都会自动生成一个skill，一开始我完全无法理解批量替换pdf中的某个词也写个skill是何意味。后来看同事使用的时候感觉到，很多白领工作的重复性确实很高，多用一阵子基本上生成的skill就能覆盖相当一部分的工作场景了。
+二是一大堆乱七八糟的什么专家和模式，虽然大部分都是心里安慰，甚至对于如今的大模型来说重提示词甚至经常起到副作用，但正好安慰到了一般不敢上来就用的小白。
+
+
+*****
+
+####  phorcys02  
+##### 13728#       发表于 2026-9-14 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70233780&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-9-14 15:28</a>
+
+不是中转，是正经的第三方算力平台，刚上GLM-5.3-Flash，还没上4.1
+
+本来主力用0731（更老的DS R1都还能用 ...</blockquote>
+glm5.3flash 绝对智力比起4.1flash有点低了
+
+一个asm/C优化任务，glm5.3f 做了30轮以后说改无可改了
+
+继续扔给4.1f,又做了10轮后 性能+10%...
+

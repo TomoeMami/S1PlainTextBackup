@@ -5970,3 +5970,49 @@ A少这组关系图也太搞笑了，最上面怪しい和騒がしい就很搞�
 
 最后这视角上太空了吧。<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 3467#       发表于 2026-9-14 16:48
+
+<img src="https://img.stage1st.com/forum/202609/14/164746esx1jtszk7ks17i7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260914_164508.jpg</strong> (188.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 16:47 上传
+
+看来老太婆很有来头。
+
+
+*****
+
+####  蓮華  
+##### 3468#       发表于 2026-9-14 16:56
+
+<img src="https://img.stage1st.com/forum/202609/14/165614z9m2u21hmi294hn9.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5332.png</strong> (300.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 16:56 上传
+
+<img src="https://img.stage1st.com/forum/202609/14/165615ohda6ftmzjdfhmmz.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5333.png</strong> (285.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 16:56 上传
+
+<img src="https://img.stage1st.com/forum/202609/14/165615syusc48gzaasj8si.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5335.png</strong> (279.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 16:56 上传
+
