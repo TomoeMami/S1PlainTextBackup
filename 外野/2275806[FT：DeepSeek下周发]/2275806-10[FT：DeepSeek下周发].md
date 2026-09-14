@@ -6006,3 +6006,36 @@ GLM-5.3-Flash 对比 Deepseek 0731,还有4.1F，哪个比较强？</blockquote>
 
 阿里云打电话让我试试他们的千问办公，晚点试试看。
 
+
+*****
+
+####  zhongjie  
+##### 13745#       发表于 2026-9-14 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234749&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-9-14 18:03</a>
+让sota指挥低级模型的话还是可以的，之前让opus作为外部模型审阅过sol的屎山，后面astra也做了一遍，都是 ...</blockquote>
+哈基米3.8flash？买的API还是怎么薅的？不知道ds4.1flash可不可以
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  此誓的守望  
+##### 13746#       发表于 2026-9-14 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232916&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-14 12:57</a>
+trae在软件质量和流畅度上比workbuddy好很多，开箱即用方面是一个等级的。
+还有opencode桌面版也行，就是 ...</blockquote>
+不是，为了踩workbuddy你连opencode桌面版都讲的出来了吗？你这家伙<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  来都来了  
+##### 13747#       发表于 2026-9-14 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234320&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-9-14 16:48</a>
+最近偶尔在单位电脑上用workbuddy免费积分有一点体会。这东西虽然使用体验远不如正经的agent，但是有几个点 ...</blockquote>
+Skill是要占上下文的，你以为Skill多了工作方便，其实是Skill多了，你的花费越来越高，效率越来越低。
+

@@ -6186,3 +6186,71 @@ PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲�
 
 我们火纹也有自己的塞壬了
 
+
+*****
+
+####  黛冬優子  
+##### 3483#       发表于 2026-9-14 18:19
+
+是不是你们风花雪月每个物理角色都先转土匪导致的<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  freedom12  
+##### 3484#       发表于 2026-9-14 18:22
+
+<img src="https://img.stage1st.com/forum/202609/14/182119qibi80bzkgzdd9k7.png" referrerpolicy="no-referrer">
+
+<strong>333278911088924C9E5C6DB00034D5F5.png</strong> (61.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 18:21 上传
+
+这个视角应该就是在太空中的“卫星”，所以月亮才这么大这么亮
+
+*****
+
+####  ミズタ  
+##### 3485#       发表于 2026-9-14 18:23
+
+游戏下好了，但是强迫症犯了，咱中文就非要加个B英文副标题嘛
+
+<img src="https://img.stage1st.com/forum/202609/14/181758du8fw3esf8cfsu8h.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260914181524_48_56.jpg</strong> (186.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 18:17 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+很多游戏中文title命名方式不统一也是个历史遗留问题了
+
+作为对比，我把主机语言切成日文，这title这图标，瞬间舒服了
+
+<img src="https://img.stage1st.com/forum/202609/14/182238hai0siqcwscs1vfq.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260914182221_49_56.jpg</strong> (182.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 18:22 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  巴尔干炮  
+##### 3486#       发表于 2026-9-14 18:26
+
+<blockquote>freedom12 发表于 2026-9-14 18:10
+看起来像是老太婆拥有和轨道卫星通信能力
+
+而轨道卫星里应该就是苏堤斯，双手握拳发射轨道炮
+
+我们火纹也有 ...</blockquote>
+所以当年大洪水的真相就是大苏使用轨道炮炮击星球引发的？如果是真的确实能解释。
+
