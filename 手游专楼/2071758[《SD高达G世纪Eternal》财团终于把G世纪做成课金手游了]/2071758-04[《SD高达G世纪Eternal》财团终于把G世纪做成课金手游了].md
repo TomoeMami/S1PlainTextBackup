@@ -178,3 +178,13 @@ V拆分的话，只有V高达V大叔肯定撑不起</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2V差不多就是V2定位，而且更加少人认识
 
+
+*****
+
+####  ティグル  
+##### 4694#       发表于 2026-9-14 19:53
+
+2V在冷门机里面算人气高的了，HG再版了好几次
+
+目前设定算是MDU的技术验证机，感觉会跟赞斯拜因选一个塞ult
+
