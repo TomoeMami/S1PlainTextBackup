@@ -442,3 +442,14 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 这集观感又拉回来点 看看能否平安落地
 话说bd最后一话之后才出真是好文明 完全不急着预订等完结再说
 
+
+*****
+
+####  ulir  
+##### 528#       发表于 2026-9-14 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230982&amp;ptid=2183857" target="_blank">Graduation 发表于 2026-9-14 07:26</a>
+
+这集作为解密回里面人物对话有点裹脚布又臭又长了，里面很多设定也没解清楚。演出如果能更舞台剧化，像企鹅 ...</blockquote>
+讲真这集光是魔女没有复读寻找真实的爱就已经比前面几集好很多了，换成菈菈的部分只会是各种人问她"菈菈你到底有什么心事能不能好好跟我说明白"接着菈菈半天憋不出一句完整的话（莫里店长卢卡etc.），全靠戏里戏外的人类帮她补完<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

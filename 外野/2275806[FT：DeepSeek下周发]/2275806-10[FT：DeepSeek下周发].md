@@ -5276,3 +5276,22 @@ workbuddy适配国产操作系统了<img src="https://static.stage1st.com/image/
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  小野賢章  
+##### 13682#       发表于 2026-9-14 12:08
+
+ai对信创的移植是极大的加速<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CCauchy  
+##### 13683#       发表于 2026-9-14 12:16
+
+ 本帖最后由 CCauchy 于 2026-9-14 12:17 编辑 
+
+都是Linux也没多难适配吧
+最近搞了远控软件容器化，只有asklink和todesk成功了，而且它们每个发行版的elf都是一样的
+
