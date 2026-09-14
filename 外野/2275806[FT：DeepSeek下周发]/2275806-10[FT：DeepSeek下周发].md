@@ -5434,3 +5434,15 @@ gpt的思维链跟DS R1一模一样，一眼下去和国模完全没区别
 
 没少蒸啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  孤灯蓝影  
+##### 13696#       发表于 2026-9-14 13:25
+
+<blockquote>cody198879 发表于 2026-9-14 13:06
+dsh连个桌面版安装包都没有，还要装插件。没法给下面人推广啊
+
+</blockquote>
+EAC就是桌面版的啊
+
