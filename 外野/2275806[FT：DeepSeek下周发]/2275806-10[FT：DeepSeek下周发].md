@@ -5672,3 +5672,14 @@ glm思维更严谨，对源代码和提示词遵循度更高（并且有一定�
 
 又是下载，又是出题，又是出对比报告。跑了30分钟只花了5积分。100积分一天都蹬不完。
 
+
+*****
+
+####  Baccano  
+##### 13718#       发表于 2026-9-14 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70225501&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-13 00:27</a>
+cli没法签到，workbuddy都是看着有免费积分捏着鼻子用的
+另外cli近期更新也挺难绷的，一两个就把版本web ...</blockquote>
+有自动签到的脚本的，我是部署到云服务器上每天自动签到。让ai搜下GitHub就行了。
+
