@@ -1160,3 +1160,14 @@ SIE对中国这边投资倒是出了名的积极，跟大部分国内新兴3A游
 游戏机再怎么搞涨价也 ...</blockquote>
 为什么不会那么凶呢？游戏机难道不是由各种内存显卡pcb电路板组成的东西吗？ 为什么pc组件会涨，游戏机的就不会？ 难道几大内存池放着高利润的ai硬件不做，和你签这个长协低价游戏机硬件合同？
 
+
+*****
+
+####  karastar  
+##### 57#       发表于 2026-9-14 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223645&amp;ptid=2289565" target="_blank">鹅大人 发表于 2026-9-12 15:18</a>
+
+IGN最近是不是在左右互搏，上个月说任天堂失去了传统，这个月说PS没有未来。接下来是不是该说XBOX正在死去 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">世界是一个回合制游戏啊
+
