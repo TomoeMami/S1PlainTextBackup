@@ -5394,3 +5394,43 @@ dsh eac不行吗
 trae在软件质量和流畅度上比workbuddy好很多，开箱即用方面是一个等级的。
 还有opencode桌面版也行，就是api得自己配一下（只用那几个免费模型那当我没说）
 
+
+*****
+
+####  cody198879  
+##### 13692#       发表于 2026-9-14 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232915&amp;ptid=2275806" target="_blank">孤灯蓝影 发表于 2026-9-14 12:56</a>
+dsh eac不行吗</blockquote>
+dsh连个桌面版安装包都没有，还要装插件。没法给下面人推广啊
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  olo12138  
+##### 13693#       发表于 2026-9-14 13:09
+
+小白听到什么什么流氓还不如小白听到一通各式各样下载链接头大，对小白最重要的是交互界面易懂，流畅度流氓这些都是其次的，ai之前就有压缩包都解不明白的，各位推荐的一堆各式各样harness有人有耐心或者有信心让小白拿到安装包就能明白怎么用的吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绝地潜兵  
+##### 13694#       发表于 2026-9-14 13:10
+
+GLM-5.3-Flash 对比 Deepseek 0731,还有4.1F，哪个比较强？
+
+*****
+
+####  qwased  
+##### 13695#       发表于 2026-9-14 13:12
+
+[https://chatgpt.com/share/6a4473c4-143c-83ea-ba00-8638a7728540](https://chatgpt.com/share/6a4473c4-143c-83ea-ba00-8638a7728540)
+
+脏token导致gpt的思维链溢出到正文
+
+gpt的思维链跟DS R1一模一样，一眼下去和国模完全没区别
+
+没少蒸啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
