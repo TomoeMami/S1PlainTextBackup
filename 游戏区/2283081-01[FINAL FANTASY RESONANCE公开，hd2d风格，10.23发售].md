@@ -278,3 +278,11 @@ B站IGN转的大招演出视频，播放量最多的就是15的大招，弹幕�
 
 看到有人用直接把手游其他角色幻兵素材替换进游戏了，像素小人都正常但是3D动画就没有了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想系同盟  
+##### 244#       发表于 2026-9-14 10:59
+
+那后面剧情还出吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

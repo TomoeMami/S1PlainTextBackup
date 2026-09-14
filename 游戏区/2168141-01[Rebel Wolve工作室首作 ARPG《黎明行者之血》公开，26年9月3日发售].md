@@ -294,3 +294,16 @@ Deck不管怎么调都糊得玩不下去，但是这种rpg游戏不想在电脑�
 一开始我 ...</blockquote>
 救磨坊主是限时任务，过时间会死
 
+
+*****
+
+####  枯风瘦雪  
+##### 142#       发表于 2026-9-14 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70223932&amp;ptid=2168141" target="_blank">woshenc 发表于 2026-9-12 18:34</a>
+
+今天开玩，一下午打了个序章
+
+安嘉好看！</blockquote>
+安嘉真好看啊，第一眼就感觉出来是这个世界里的叶奈法了
+

@@ -5200,3 +5200,41 @@ workbuddy问题再多也是国内比较便利的开箱即用的软件的，不�
 
 只要还没进入无良应用开始无脑跳广告啥的时代，目前阶段用肯定是能用的
 
+
+*****
+
+####  mitzvah  
+##### 13675#       发表于 2026-9-14 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232050&amp;ptid=2275806" target="_blank">痴货 发表于 2026-9-14 10:49</a>
+
+这么异口同声地说要放缓AI研究，感觉一个内部原因是靠原先堆参数量已经很难再提升模型的智力水准了，而且 ...</blockquote>
+最新的gpt6，dsflashv4.1已经可以用其强大的多模态视觉能力作为机器人大脑自主操纵机器人了
+
+【ClawSpine：DeepSeek Harness控制机器人，瘫坐在DS v4.1上，仿佛看到GPT6爆炸！-哔哩哔哩】 [https://b23.tv/ASEsSuu](https://b23.tv/ASEsSuu)
+
+以这个标准五年内人形机器人最后的瓶颈就会消失
+
+*****
+
+####  xiaohanne  
+##### 13676#       发表于 2026-9-14 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232050&amp;ptid=2275806" target="_blank">痴货 发表于 2026-9-14 10:49</a>
+
+这么异口同声地说要放缓AI研究，感觉一个内部原因是靠原先堆参数量已经很难再提升模型的智力水准了，而且 ...</blockquote>
+不我觉得就是这群人又戏精发作了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  bartholo4  
+##### 13677#       发表于 2026-9-14 10:57
+
+只要中国不附和
+
+想停难道真的敢停吗
+
+如果中国真的附和了
+
+说明我们也看到那堵墙了
+
