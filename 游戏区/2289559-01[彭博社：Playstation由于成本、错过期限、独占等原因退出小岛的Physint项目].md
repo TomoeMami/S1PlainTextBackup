@@ -1346,3 +1346,14 @@ DS能让人再次相信游戏作为真正的艺术品的存在价值。
 
 品了下正文，感觉大头是独占策略没谈拢，索尼应该没法接受仅主机平台的独占了，但也拿不出能让双方都ok的条件
 
+
+*****
+
+####  ultraseven  
+##### 127#       发表于 2026-9-14 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231505&amp;ptid=2289559" target="_blank">Fuero 发表于 2026-9-14 09:32</a>
+
+品了下正文，感觉大头是独占策略没谈拢，索尼应该没法接受仅主机平台的独占了，但也拿不出能让双方都ok的条 ...</blockquote>
+但索尼下世代真能找到给他们做PS6真独占AAA的第三方吗？欧美厂/中韩厂抛弃不了PC，车枪球抛弃不了Xbox，日厂抛弃不了NS2。
+

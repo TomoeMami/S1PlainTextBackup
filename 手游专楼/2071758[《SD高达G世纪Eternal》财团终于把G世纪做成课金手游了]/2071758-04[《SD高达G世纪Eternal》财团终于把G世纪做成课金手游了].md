@@ -88,3 +88,15 @@ v冲感觉撑不起1.5周年的份量
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是只有z的高难打不过，zz都过了，z的人和机体是真菜啊
 
+
+*****
+
+####  acg_gyanc  
+##### 4685#       发表于 2026-9-14 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231528&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-9-14 09:36</a>
+还是只有z的高难打不过，zz都过了，z的人和机体是真菜啊</blockquote>
+z挑战没那么难吧，现在不是有mkv么，另外300w红蛇没升的话推荐直接升了，ult现在看来并不值钱，该用就用
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

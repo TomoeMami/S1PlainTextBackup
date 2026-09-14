@@ -5058,3 +5058,16 @@ anyrouter这个edu邮箱门槛居然连学生邮箱都不行<img src="https://st
 我的用法一般是一开始跟它说要改xx功能，先用codebase-memory-mcp理解代 ...</blockquote>
 原则上上下文注入越少越好，不过现在的模型自己也足够聪明让其研究一下最优的按需注入渐进性披露的写法，它们就能展开的非常好
 
+
+*****
+
+####  hugosol  
+##### 13664#       发表于 2026-9-14 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231538&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-14 09:37</a>
+
+原则上上下文注入越少越好，不过现在的模型自己也足够聪明让其研究一下最优的按需注入渐进性披露的写法， ...</blockquote>
+同意，一开始我的思路是用文档当作索引，后面发现有代码库索引这一类工具似乎也能缓解这个问题
+
+但是我觉得最根本的还是代码库的架构设计，不能放任ai slop增长，这是当前阶段程序员最核心的能力了
+
