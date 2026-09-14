@@ -5683,3 +5683,30 @@ cli没法签到，workbuddy都是看着有免费积分捏着鼻子用的
 另外cli近期更新也挺难绷的，一两个就把版本web ...</blockquote>
 有自动签到的脚本的，我是部署到云服务器上每天自动签到。让ai搜下GitHub就行了。
 
+
+*****
+
+####  sennheiser  
+##### 13719#       发表于 2026-9-14 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232969&amp;ptid=2275806" target="_blank">cody198879 发表于 2026-9-14 13:06</a>
+
+dsh连个桌面版安装包都没有，还要装插件。没法给下面人推广啊</blockquote>
+Deepseek Harness EAC 这个就是客户端，还行滴~
+
+
+*****
+
+####  cody198879  
+##### 13720#       发表于 2026-9-14 16:00
+
+ 本帖最后由 cody198879 于 2026-9-14 16:05 编辑 
+
+看了下，eac，大型重构中，v5不更新了，直接等v6
+
+字节的traework被豆包工作合并了，也是一头包
+
+就这种东西你怎么让一堆普通人在工作环境用
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
