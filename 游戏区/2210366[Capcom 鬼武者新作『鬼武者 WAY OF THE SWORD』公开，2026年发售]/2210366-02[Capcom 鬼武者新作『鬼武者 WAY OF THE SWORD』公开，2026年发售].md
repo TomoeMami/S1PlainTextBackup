@@ -4389,3 +4389,16 @@ B站神秘的推荐机制，看完差点没绷住
 他俩启动第一闪可以，所以类似百鬼夜行里面那种又有杂兵又有他们的就可以通过闪他们来启动。反过来应该是 ...</blockquote>
 是的，拿完比沙门剑我去试过
 
+
+*****
+
+####  scp073  
+##### 1853#       发表于 2026-9-14 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70232182&amp;ptid=2210366" target="_blank">大喇叭花田 发表于 2026-9-14 11:05</a>
+
+所以这个世界就靠那么一两个人也太说不过去了，总不能全日本就一个桥有幻魔入侵，只要堵路口就能维护世界 ...</blockquote>
+游戏里确实是有人在堵路口，但凡幻魔和居民的街道交界处就会有个拿棒子的守卫
+
+可能拿棒子的守卫哥能秒杀宫本武藏吧，也真是看不出来到底有啥用<img src="https://static.stage1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+

@@ -307,3 +307,15 @@ Deck不管怎么调都糊得玩不下去，但是这种rpg游戏不想在电脑�
 安嘉好看！</blockquote>
 安嘉真好看啊，第一眼就感觉出来是这个世界里的叶奈法了
 
+
+*****
+
+####  Schwarzess  
+##### 143#       发表于 2026-9-14 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231696&amp;ptid=2168141" target="_blank">woshenc 发表于 2026-9-14 10:01</a>
+感谢解惑，戒指这条很有用耶
+
+下落攻击我看到这个技能了，但是暂时没学习，毕竟学习要（时间）成本 ...</blockquote>
+对了再补充一点，面对多人的情况，从侧面过来的攻击几乎都是人所在那个方向的。比如敌人在左面，那他的攻击极大概率是需要摇杆向左的指向性格挡。反过来也可以利用走位让大部分敌人只在自己身体一边，那他们的攻击几乎只会从一个方向过来。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
