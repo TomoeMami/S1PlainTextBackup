@@ -5895,3 +5895,21 @@ GLM-5.3-Flash 对比 Deepseek 0731,还有4.1F，哪个比较强？</blockquote>
 
 最让我意外的是v4pro，我原来已经做好它把我钱烧光的准备了，结果它只干了两分钟就交了报告，结果只能说是差强人意，报告质量甚至我觉得是仨ai里最差的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">当然token也没烧多少，不知道这大肥鱼发什么神经搁这摸鱼
 
+
+*****
+
+####  lilod  
+##### 13736#       发表于 2026-9-14 17:39
+
+我现在高强度使用 ds 4.1 f，基本上在后端开发上，已经完全满足了我对干活儿模型的诉求（如果未来不降速的话），价格也 ok 了
+
+*****
+
+####  奥柏伦亲王  
+##### 13737#       发表于 2026-9-14 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234554&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-9-14 17:26</a>
+
+咋还有个千问办公啊，我昨天让deepseek推荐它告诉我去用阿里的qoder，这些大厂工资没地方花吗 ...</blockquote>
+都是内部赛马，就像腾讯还有个贾维斯，字节刚刚卷死了前几天还好好的trae，甚至把飞书也划进豆包办公里面。qoderwork应该是被千问办公吃掉了
+

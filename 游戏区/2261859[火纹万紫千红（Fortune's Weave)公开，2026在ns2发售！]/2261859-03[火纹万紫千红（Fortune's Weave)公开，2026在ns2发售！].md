@@ -6065,3 +6065,65 @@ heaven and hell<img src="https://static.stage1st.com/image/smiley/face2017/047.p
 
 又来一个和杂队声优重复的，可能除了苏谛斯命运神的重复外，其他声优都是随便重的
 
+
+*****
+
+####  kltsgjy  
+##### 3475#       发表于 2026-9-14 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234579&amp;ptid=2261859" target="_blank">406 发表于 2026-9-14 17:31</a>
+又来一个和杂队声优重复的，可能除了苏谛斯命运神的重复外，其他声优都是随便重的 ...</blockquote>
+火纹是喜欢一作内用重复声优，我记得觉醒有个没存在感的眯眯眼胖子和暗愚王同cv
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cox  
+##### 3476#       发表于 2026-9-14 17:40
+
+安娜怎么放到重要人物里了，难道这代有强剧情相关。。。
+
+*****
+
+####  Beaverfan01  
+##### 3477#       发表于 2026-9-14 17:43
+
+PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲价格了。天卓是港邮。
+
+<img src="https://img.stage1st.com/forum/202609/14/174310cl5hoo1x5gcqfcxo.jpg" referrerpolicy="no-referrer">
+
+<strong>6095.jpg</strong> (123.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 17:43 上传
+
+
+*****
+
+####  freedom12  
+##### 3478#       发表于 2026-9-14 17:46
+
+纯粹做个梦吧，希望贝老师也能登场
+
+昏迷的5年间就是被命运女神拉过来帮忙
+
+贝老师和救世主一黑一白的设计太适合放在一起了
+
+<img src="https://img.stage1st.com/forum/202609/14/174647c3zt1t1qpz56twdl.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (47.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 17:46 上传
+
+<img src="https://img.stage1st.com/forum/202609/14/174647w5o5r6b6z6pyiwfc.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (58.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 17:46 上传
+
