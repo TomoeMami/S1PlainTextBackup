@@ -6579,3 +6579,62 @@ workbuddy不是不给api吗？</blockquote>
 
 充钱就给
 
+
+*****
+
+####  wlhlz  
+##### 13795#       发表于 2026-9-14 22:43
+
+终于有语音了，拿了一个回答涵盖中日英三语的试了一下，结果大概是混乱了甚至念错几个字，日语中间还奇怪的连音色都变了，最后要她唱歌还直接来一句跑调预警<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 13796#       发表于 2026-9-14 22:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235681&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-14 21:48</a>
+
+workbuddy的dsv4.1f在充值后实际是目前最便宜的api接口，可以接入dsh使用。算上签到积分70块订阅实际用量 ...</blockquote>
+但是今天用下来感觉是量化过的或者内嵌了什么奇怪的promot cot看着和原厂的完全不一样特别容易崩溃
+
+
+*****
+
+####  阿刚  
+##### 13797#       发表于 2026-9-14 22:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你别说ds网页这个tts语调还挺自然的
+
+*****
+
+####  serj005  
+##### 13798#       发表于 2026-9-14 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235681&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-14 21:48</a>
+
+workbuddy的dsv4.1f在充值后实际是目前最便宜的api接口，可以接入dsh使用。算上签到积分70块订阅实际用量 ...</blockquote>
+这是算的折后价格吗？如果是的话25号之后优惠价就没了
+
+*****
+
+####  eno_emos  
+##### 13799#       发表于 2026-9-14 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235853&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-9-14 22:29</a>
+
+https://www.workbuddy.cn/profile/keys
+
+充钱就给</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/14/224938gpd09pxdg5kfpx49.png" referrerpolicy="no-referrer">
+
+<strong>IA24F)1DDD(1HX3`~%NEEQB.png</strong> (8.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 22:49 上传
+
+？
+
+不是，70都不配阿
+

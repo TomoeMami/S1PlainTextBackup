@@ -6436,3 +6436,13 @@ PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲�
 
 成功上车日本直邮的并夕夕了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  navarra  
+##### 3506#       发表于 2026-9-14 22:47
+
+乐，那家写的日本直邮海外版中文，不知道是不是日版，而且说是海外版 是指 日版 港版 美版 等 随机发出 不可以指定的
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
