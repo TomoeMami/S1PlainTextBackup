@@ -80,3 +80,11 @@ v冲感觉撑不起1.5周年的份量
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">V拆分的话，只有V高达V大叔肯定撑不起
 
+
+*****
+
+####  洛克萨斯  
+##### 4684#       发表于 2026-9-14 09:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是只有z的高难打不过，zz都过了，z的人和机体是真菜啊
+

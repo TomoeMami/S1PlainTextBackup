@@ -5038,3 +5038,23 @@ rsi最好是一种越用越强的，一个模型推理，并持续学习，能�
 —— 来自 S1Fun ...</blockquote>
 Grok 4.7该有了吧，然后说不定kimi 3.1和opus 5.1，听说还有GPT6-Sol
 
+
+*****
+
+####  jasoncoop  
+##### 13662#       发表于 2026-9-14 09:36
+
+anyrouter这个edu邮箱门槛居然连学生邮箱都不行<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mitzvah  
+##### 13663#       发表于 2026-9-14 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230983&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-14 07:26</a>
+
+我用的也是codebase-memory-mcp
+
+我的用法一般是一开始跟它说要改xx功能，先用codebase-memory-mcp理解代 ...</blockquote>
+原则上上下文注入越少越好，不过现在的模型自己也足够聪明让其研究一下最优的按需注入渐进性披露的写法，它们就能展开的非常好
+
