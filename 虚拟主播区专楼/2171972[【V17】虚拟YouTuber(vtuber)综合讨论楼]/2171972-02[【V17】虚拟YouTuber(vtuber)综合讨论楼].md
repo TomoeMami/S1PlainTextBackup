@@ -202,3 +202,17 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">明面上SMC的S跟口了经常一起玩，反而跟金鱼没啥交流呢
 
+
+*****
+
+####  sekai2014  
+##### 2100#       发表于 2026-9-14 14:44
+
+匿名でANYCOLOR株式会社の内部情報として、虚偽の事実を吹き込んだ一部Vtuber
+
+这个原来是推测出来的啊,
+
+只能说真狠
+
+现在都在猜是郡道,不服只能起诉自证清白,要么这口锅无论是不是你都得背上了.
+
