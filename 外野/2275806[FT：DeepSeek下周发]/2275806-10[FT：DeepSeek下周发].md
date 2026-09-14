@@ -6132,3 +6132,23 @@ zcode的周末免费token到底在哪领啊为啥好像大家都有但是就我�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">opencode桌面版现在就是我装机第一步，装好就配个API Key（不配也行）然后吭哧吭哧地把npm之类的环境搭好再装其他agent
 
+
+*****
+
+####  xiaohanne  
+##### 13757#       发表于 2026-9-14 20:00
+
+那天想了解一下kimi订阅，发现我都看不懂他的额度是怎么算的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zy450  
+##### 13758#       发表于 2026-9-14 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235240&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-9-14 20:00</a>
+那天想了解一下kimi订阅，发现我都看不懂他的额度是怎么算的</blockquote>
+不要奇怪，别人也看不懂
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
