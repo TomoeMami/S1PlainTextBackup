@@ -322,3 +322,24 @@ ns2版只有钥匙卡？而且日版限定好像也没中文，港服买数字�
 那后面剧情还出吗   等出完一起买 Re:Source</blockquote>
 出肯定是二代了
 
+
+*****
+
+####  h122h  
+##### 249#       发表于 2026-9-14 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70233791&amp;ptid=2283081" target="_blank">hkguty 发表于 2026-9-14 15:29</a>
+
+ns2版只有钥匙卡？而且日版限定好像也没中文，港服买数字版似乎是唯一选择 ...</blockquote>
+ns2只有钥匙卡，ns1实体卡，ns1不支持升级ns2。就连美版ns2版也是钥匙卡。
+
+<img src="https://img.stage1st.com/forum/202609/14/180300ef45vctdff7f5bnm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (251.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-14 18:03 上传
+
+不懂为什么发行商都是SE自己，还能在2026整出来港区锁简中，繁中和韩语。
+
