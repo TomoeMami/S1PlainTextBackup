@@ -6735,3 +6735,16 @@ DSH居然偷偷做了一个官方的客户端</blockquote>
 
 k3太慢了，我受不了了
 
+
+*****
+
+####  claymorep  
+##### 13810#       发表于 2026-9-15 02:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235681&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-14 21:48</a>
+workbuddy的dsv4.1f在充值后实际是目前最便宜的api接口，可以接入dsh使用。算上签到积分70块订阅实际用量 ...</blockquote>
+workbuddy的4.1是动了手脚的，上下文被砍了，所以文本一长就降智或者崩溃。
+前几天我看L站看到讨论的，说是这个限制是服务端加的，还绕不过去
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
