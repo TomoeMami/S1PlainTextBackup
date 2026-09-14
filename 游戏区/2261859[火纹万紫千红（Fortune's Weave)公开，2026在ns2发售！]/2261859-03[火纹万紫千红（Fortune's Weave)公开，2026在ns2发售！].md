@@ -6496,3 +6496,14 @@ PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲�
 
 看泥潭这个热度真有一种要不是装机量差点，必定要创新高的感觉😂😂
 
+
+*****
+
+####  The_Ether_  
+##### 3512#       发表于 2026-9-14 23:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236019&amp;ptid=2261859" target="_blank">墨染白泉 发表于 2026-9-14 23:08</a>
+
+一家店卖1.6w，能按时发完吗</blockquote>
+拼多多还是太牛逼了，我在日本能找到的最便宜的还要360rmb<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
