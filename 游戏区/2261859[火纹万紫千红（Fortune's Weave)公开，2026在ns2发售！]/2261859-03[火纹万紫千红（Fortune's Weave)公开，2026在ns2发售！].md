@@ -6599,3 +6599,39 @@ PDD华越那家是日邮但目前还没上百补，等日邮的可以准备蹲�
 香港直邮的有什么问题吗？？
 望解惑
 
+
+*****
+
+####  椎名mahuyo  
+##### 3523#       发表于 2026-9-15 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236305&amp;ptid=2261859" target="_blank">yasen233 发表于 2026-9-15 00:47</a>
+
+香港直邮的有什么问题吗？？
+
+望解惑</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">清关太慢了，至少2周，等得焦心啊。甚至因为这个反哺出，港任的B站帐号宣传视频都是要清关过来的梗。
+
+*****
+
+####  trow233  
+##### 3524#       发表于 2026-9-15 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236305&amp;ptid=2261859" target="_blank">yasen233 发表于 2026-9-15 00:47</a>
+
+香港直邮的有什么问题吗？？
+
+望解惑</blockquote>
+慢啊，我买过最慢的一个多月才到
+
+
+*****
+
+####  mull132  
+##### 3525#       发表于 2026-9-15 01:02
+
+百亿补贴的销量会合并同类项，我8点半买的时候销量是9千左右，现在1w3+了还有货
+这家店这么厉害的吗<img src="https://static.stage1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

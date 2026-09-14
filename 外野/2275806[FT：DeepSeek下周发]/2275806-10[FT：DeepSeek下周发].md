@@ -6719,3 +6719,11 @@ DSH居然偷偷做了一个官方的客户端</blockquote>
 我还看到V4.1Flash疑似还要准备上新版本，估计到时候会和V4.1Pro一起出</blockquote>
 这是在哪看见的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  makourisu-2  
+##### 13808#       发表于 2026-9-15 00:55
+
+抽到了DeepSeek的朗读模式，唱歌非常难绷<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
