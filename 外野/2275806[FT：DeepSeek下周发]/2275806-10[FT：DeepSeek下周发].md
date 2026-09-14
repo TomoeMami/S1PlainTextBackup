@@ -6346,3 +6346,33 @@ Code 的额度和 Agent 的额度是一个池子吗？因为这个，我看有�
 由手机上传
 2026-9-14 21:23 上传
 
+
+*****
+
+####  serj005  
+##### 13775#       发表于 2026-9-14 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235561&amp;ptid=2275806" target="_blank">halfelf 发表于 2026-9-14 21:18</a>
+我没用过workbuddy，这东西跟opencode比起来有啥优势？我看oc办公也挺好用的，也能自己调动工具啊 ...</blockquote>
+自带一堆腾讯搞的办公skill和mcp（质量不一定多好，只能说能用），带一个权限控制沙箱和文件回收站，目前每天有签到积分可以免费用点高级付费模型
+
+
+*****
+
+####  novalli  
+##### 13776#       发表于 2026-9-14 21:30
+
+不是，workbuddy还分国内国外版本啊？
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  halfelf  
+##### 13777#       发表于 2026-9-14 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235600&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-14 21:26</a>
+
+自带一堆腾讯搞的办公skill和mcp（质量不一定多好，只能说能用），带一个权限控制沙箱和文件回收站，目前 ...</blockquote>
+感谢，那没啥意义啊，主要就是积分可以免费用5.3
+
