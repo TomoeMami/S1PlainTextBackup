@@ -6764,3 +6764,13 @@ DS炸了，大的来了？
 
 半夜起来确认DS炸了
 
+
+*****
+
+####  cankao  
+##### 13813#       发表于 2026-9-15 02:56
+
+刚在用workbuddy的ds4.1f，显示了老长一段时间“等待模型响应”，还以为是workbuddy问题
+
+原来是梁子炸了么，那没事了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（bushi
+
