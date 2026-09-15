@@ -7566,3 +7566,18 @@ mc官推没发文猜评分，那就是明天了。
 —— 来自 S1Fun</blockquote>
 前期摄像头，后期工具人<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 3623#       发表于 2026-9-15 22:39
+
+开发者访谈在哪看啊
+
+*****
+
+####  孔方兄  
+##### 3624#       发表于 2026-9-15 22:43
+
+那这样后期还有啥难度，都是小绿人
+
