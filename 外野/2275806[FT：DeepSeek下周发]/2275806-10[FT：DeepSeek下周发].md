@@ -7405,3 +7405,22 @@ ds code 2.0这个消息真奇怪
 感觉就像是大肥鱼在屏幕上戳戳一样，可爱捏。</blockquote>
 这是直接看不了所以用的视觉来读？
 
+
+*****
+
+####  serj005  
+##### 13869#       发表于 2026-9-15 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237879&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-9-15 11:53</a>
+笑死，DS总结网页文章原来是滑动浏览这么古法的吗？
+
+感觉就像是大肥鱼在屏幕上戳戳一样，可爱捏。</blockquote>
+要应对充满不确定性的动态js网页现状，最通用的爬取方式当然是模拟人工操作<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 13870#       发表于 2026-9-15 12:03
+
+动态网页或者反爬了，用无头浏览器读的网页吧
+
