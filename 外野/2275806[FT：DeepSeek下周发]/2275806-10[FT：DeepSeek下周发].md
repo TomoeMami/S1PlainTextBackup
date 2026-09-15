@@ -7073,3 +7073,30 @@ B站评论区抄的，可以替换任何中文歌词，基本100%成功。但是
 真的只有贝壳会唱，其他仨都唱不出来</blockquote>
 贝壳才是肥鱼本鱼<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tillnight  
+##### 13841#       发表于 2026-9-15 09:30
+
+<blockquote>Hyst3r1a 发表于 2026-9-15 09:14
+哇，这个key在其他harness也可以用吗</blockquote>
+Dsh中使用dsh-llm-workbuddy这个插件，就可以在模型供应商里选择workbuddy中国区填入api直接使用，其他harness我不清楚。
+
+*****
+
+####  2017.05.04  
+##### 13842#       发表于 2026-9-15 09:35
+
+宝说大料是sb
+
+很难想象他竟然能做出这么准确的判断
+
+
+*****
+
+####  绝地潜兵  
+##### 13843#       发表于 2026-9-15 09:36
+
+有没有坛友对比Zcode国内和国外账号的差异？免费额度有区别吗？
+
