@@ -7867,3 +7867,18 @@ DSH居然偷偷做了一个官方的客户端</blockquote>
 
 0.5tflash 3tpro 15t大魔😡
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 13916#       发表于 2026-9-15 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70239782&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-15 17:12</a>
+他认为AI发展最后会把社会引向communism或者极端寡头垄断资本主义，我也持相同看法。
+
+原文：https://mp. ...</blockquote>
+Claude达到agi先把a畜炸了
+逼小作文发给claude，claude都骂
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
