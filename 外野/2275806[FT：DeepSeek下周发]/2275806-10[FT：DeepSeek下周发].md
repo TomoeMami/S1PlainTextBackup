@@ -7479,3 +7479,27 @@ https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA
 
 不过这个刘胜与居然是今年才加入DS的，而且是21级本科生
 
+
+*****
+
+####  yy77  
+##### 13876#       发表于 2026-9-15 13:34
+
+deepseek深度思考还是会时不时自己绕进去，不停地反复。
+
+*****
+
+####  施人诚  
+##### 13877#       发表于 2026-9-15 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237978&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-15 12:09</a>
+
+https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA
+
+另外这是ds工程师的自白，支撑ds的还是理想和信念 ...</blockquote>
+刚看完这文章，突然想到一点
+
+或许我们都没意识到“我们是**的接班人”这句话有多沉重和重要
+
+如作者所说，AI如果不开源，只会加速阶级的固化和财富/权力的进一步集中，变成小部分人长时间吸血大部分人。
+
