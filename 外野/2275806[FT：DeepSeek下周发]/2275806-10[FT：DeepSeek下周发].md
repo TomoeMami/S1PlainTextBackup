@@ -7033,3 +7033,14 @@ codebuddy创建API为啥总提示操作失败？大佬指点下？</blockquote>
 
 又在和web2api搏斗吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hyst3r1a  
+##### 13837#       发表于 2026-9-15 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236050&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-14 23:15</a>
+
+70就可以，你看看登陆了没</blockquote>
+哇，这个key在其他harness也可以用吗
+
