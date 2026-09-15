@@ -7146,3 +7146,17 @@ pdd买的显示已发出了，中通国际不知道今天能不能出物流信�
 才看到微博上有偷跑，是不是ns三作里偷跑最慢的一次
 结合的这个时候已经被破解糊脸了
 
+
+*****
+
+####  kltsgjy  
+##### 3577#       发表于 2026-9-15 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70238289&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-9-15 13:04</a>
+接近游戏发售，什么都不想干的心情又爆发了
+
+想起苍炎，重复看最后的CG怎么看都要成一对，晓之女神里艾克和 ...</blockquote>
+苍晓故意专心推给佬那能咋办呢（悲）
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
