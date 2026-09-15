@@ -7748,3 +7748,21 @@ deepseek一个工程师公开发文喷anthropic要是提前掌握agi等于希xx�
 
 原文：[https://mp.weixin.qq.com/s/zk0Kx ... OhEdD65nl-jg7QW_Xuw](https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA?poc_token=HOgLqWqjULTfZyi5srChyOhEdD65nl-jg7QW_Xuw)
 
+
+*****
+
+####  Promeus  
+##### 13903#       发表于 2026-9-15 17:16
+
+老钟不赢的前提下极端寡头资本主义已经是乌托邦了好么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 13904#       发表于 2026-9-15 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70239794&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-15 17:16</a>
+
+老钟不赢的前提下极端寡头资本主义已经是乌托邦了好么为什么会认为在西方树叶爽的硅谷新贵眼里还让p民继续 ...</blockquote>
+我觉得ai发展上有竞争对全人类是好事，不管是谁形成绝对技术优势甚至垄断都有巨大风险
+

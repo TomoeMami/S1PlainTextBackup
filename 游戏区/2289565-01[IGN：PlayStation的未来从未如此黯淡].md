@@ -1333,3 +1333,15 @@ IGN最近是不是在左右互搏，上个月说任天堂失去了传统，这�
 —— 來自 Google Pixel 2, Android 11, 鵝球 v3.5.99 ...</blockquote>
 北美cod，gta默认机
 
+
+*****
+
+####  鹅大人  
+##### 73#       发表于 2026-9-15 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236665&amp;ptid=2289565" target="_blank">卡拉德利姆 发表于 2026-9-15 08:29</a>
+无人在意的角落 marathon第三季延期 已经进icu了</blockquote>
+棒鸡究竟是出于什么压力还是什么自信，停更土命2，全力去搞马拉松的。
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
