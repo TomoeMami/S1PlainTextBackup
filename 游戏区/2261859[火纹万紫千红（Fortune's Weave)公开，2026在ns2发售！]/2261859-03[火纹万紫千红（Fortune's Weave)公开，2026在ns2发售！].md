@@ -7666,3 +7666,31 @@ mc官推没发文猜评分，那就是明天了。
 
 dy有个在直播偷跑的，名字叫致哥。
 
+
+*****
+
+####  巨馍蘸酱  
+##### 3636#       发表于 2026-9-15 23:31
+
+ 本帖最后由 巨馍蘸酱 于 2026-9-15 23:34 编辑 
+
+人设难绷、主角摄像头，走的是和三房完全不同的路子，卖点完全不一样，不知道那些冲着三房世界观来玩的新玩家会不会感觉被骗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这作我还是把期待放在玩法上吧
+
+*****
+
+####  kalavinka  
+##### 3637#       发表于 2026-9-15 23:32
+
+4线合并全员小绿人怎么办<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">后续更新极难难度 对标觉醒l+
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  无辄辄  
+##### 3638#       发表于 2026-9-15 23:34
+
+人设难绷在哪里，目前看来人设不是挺好的，各种各样的人都有，比结合那种千篇一律的好太多了。
+
