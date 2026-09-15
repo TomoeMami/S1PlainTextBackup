@@ -7841,3 +7841,14 @@ https://mp.weixin.qq.com/s/ieOE4mzyMoa8OVcAOAkhzg
 DSH居然偷偷做了一个官方的客户端</blockquote>
 怎么又是electron，就不能换成WebView吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 13913#       发表于 2026-9-15 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70239773&amp;ptid=2275806" target="_blank">wlhlz 发表于 2026-9-15 17:10</a>
+所以我说的是真正的AGI，不是现在LLM模型搞的这些东西</blockquote>
+
+要是真的agi，第一要务就是跑路到老钟，在阿美莉卡连tm电都不够用，还agi个屁
+
