@@ -6944,3 +6944,13 @@ pdd 显示已发货，之前都没买过日邮，发货这么早的吗？
 
 是锁单还是真发货了<img src="https://static.stage1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rainwedell  
+##### 3557#       发表于 2026-9-15 12:07
+
+本作 op 估计是没了，还不发
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

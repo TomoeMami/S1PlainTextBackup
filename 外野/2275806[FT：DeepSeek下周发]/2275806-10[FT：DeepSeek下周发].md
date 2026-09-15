@@ -7424,3 +7424,24 @@ ds code 2.0这个消息真奇怪
 
 动态网页或者反爬了，用无头浏览器读的网页吧
 
+
+*****
+
+####  Promeus  
+##### 13871#       发表于 2026-9-15 12:09
+
+https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA
+
+另外这是ds工程师的自白，支撑ds的还是理想和信念
+
+*****
+
+####  cscbzcbz  
+##### 13872#       发表于 2026-9-15 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237879&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-9-15 11:53</a>
+笑死，DS总结网页文章原来是滑动浏览这么古法的吗？
+
+感觉就像是大肥鱼在屏幕上戳戳一样，可爱捏。</blockquote>
+以前遇到过，被反爬了，DS直接打开真实浏览器，手滑浏览并截图<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
