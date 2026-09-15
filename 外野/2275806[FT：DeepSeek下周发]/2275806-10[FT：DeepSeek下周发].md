@@ -7108,3 +7108,74 @@ Dsh中使用dsh-llm-workbuddy这个插件，就可以在模型供应商里选择
 
 为什么鬼佬又在嚷嚷什么deepseekcode2.0啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  misuzu0723  
+##### 13845#       发表于 2026-9-15 10:16
+
+deepseekcodeV2不是2年前的东西么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还有所有DS的预测一律都可以视为烂炒，4.1flash有谁能预测到9月初就能出
+
+更何况DS自己的预估时间都没准过
+
+*****
+
+####  lactone  
+##### 13846#       发表于 2026-9-15 10:20
+
+其实很难理解dario这波行为艺术
+
+关键是altmann谷歌响应了不难理解，马斯克这个和dario不对付的也响应了
+
+很难不认为是有什么共同的诉求
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  mitzvah  
+##### 13847#       发表于 2026-9-15 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237237&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-15 10:20</a>
+
+其实很难理解dario这波行为艺术
+
+关键是altmann谷歌响应了不难理解，马斯克这个和dario不对付的也响应了</blockquote>
+马斯克的服务器都租给Anthropic了，哪有啥不对付
+
+
+*****
+
+####  Promeus  
+##### 13848#       发表于 2026-9-15 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237237&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-15 10:20</a>
+其实很难理解dario这波行为艺术
+
+关键是altmann谷歌响应了不难理解，马斯克这个和dario不对付的也响应了</blockquote>
+<img src="https://p.sda1.dev/35/655de573ca5e3b5ddf00cffb2f1d6f7c/image.jpg" referrerpolicy="no-referrer">
+桑德斯已经放话谁开发超级AI谁就判20年了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">除了蜥蜴人这种**谁不怕
+
+*****
+
+####  Promeus  
+##### 13849#       发表于 2026-9-15 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237260&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-15 10:24</a>
+马斯克的服务器都租给Anthropic了，哪有啥不对付</blockquote>
+马斯克真正不对付的是奥特曼啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 13850#       发表于 2026-9-15 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237260&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-15 10:24</a>
+马斯克的服务器都租给Anthropic了，哪有啥不对付</blockquote>
+给A畜的服务器的租金是XAI最大的现金流收入<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

@@ -6797,3 +6797,17 @@ pdd 显示已发货，之前都没买过日邮，发货这么早的吗？
 
 这发型，赛亚人么。<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 3542#       发表于 2026-9-15 10:19
+
+<blockquote>flyingover 发表于 2026-9-15 10:00
+【キャラクター】イニオニ（CV：三輪夏紀）
+
+「魔弓のイニオニ」と呼ばれ、巷で話題を集める弓の名手。
+
+幼 ...</blockquote>
+目前最神秘的角色，pv和直面会都没有出现过。
+
