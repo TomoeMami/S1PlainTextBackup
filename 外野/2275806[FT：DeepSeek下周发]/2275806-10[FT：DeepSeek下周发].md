@@ -7503,3 +7503,13 @@ https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA
 
 如作者所说，AI如果不开源，只会加速阶级的固化和财富/权力的进一步集中，变成小部分人长时间吸血大部分人。
 
+
+*****
+
+####  lactone  
+##### 13878#       发表于 2026-9-15 13:53
+
+如果v4.1pro有4.1flash的速度，哪怕性能和k3接近，都是非常好用的了
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
