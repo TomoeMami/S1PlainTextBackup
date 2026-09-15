@@ -7513,3 +7513,17 @@ https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Promeus  
+##### 13879#       发表于 2026-9-15 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70238421&amp;ptid=2275806" target="_blank">施人诚 发表于 2026-9-15 13:34</a>
+刚看完这文章，突然想到一点
+
+或许我们都没意识到“我们是**的接班人”这句话有多沉重和重要
+
+如作者所说， ...</blockquote>
+我一直是这个观点，在硅谷右翼规划的未来里，赛博朋克2077属于乌托邦级别的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
