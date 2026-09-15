@@ -7210,3 +7210,11 @@ mc官推没发文猜评分，那就是明天了。
 
 想问问看日本直邮一般多久能送到呀，24号出去旅游，如果来不及就还是买数字版了
 
+
+*****
+
+####  jockeyjoestar  
+##### 3583#       发表于 2026-9-15 18:39
+
+显示发货了  一直揽收中 感觉像是锁单 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">  
+
