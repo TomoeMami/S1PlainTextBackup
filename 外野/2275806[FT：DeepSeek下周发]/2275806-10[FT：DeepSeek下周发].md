@@ -7959,3 +7959,25 @@ deepseek pro服务出现性能下降
 
 又有大的了嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ttoady  
+##### 13924#       发表于 2026-9-15 20:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">大的快点来
+
+
+*****
+
+####  杀人鲸  
+##### 13925#       发表于 2026-9-15 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240393&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-15 19:26</a>
+什么意思？是谁加了甲了？</blockquote>
+客户端和网页端最近三合一以后，发现没甲结果可以说是狂写一些不堪入目的东西。昨晚上不是突然崩溃了吗？修复好以后，就有了“超绝敏感肌”：一提到**或者敏感的东西就直接撤回。
+
+以前撤回的时候，起码还有那么几秒给你复制的时间；现在生成的速度太快了，快到你根本反应不过来。结果就开始大规模抱怨。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
