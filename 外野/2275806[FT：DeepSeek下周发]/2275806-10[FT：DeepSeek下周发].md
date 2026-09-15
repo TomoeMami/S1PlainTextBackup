@@ -8202,3 +8202,18 @@ arxiv有论文指出教师模型提供的全是噪声，所有涨点其实全部
 
 当然这是个极其古怪的地方，因为I'm doing怎么看都是摘要思维链，这东西怎么会蒸馏进去的？除非灰测的I'm doing是真实思维链，但这又不符合顿一下出一段的特征。
 
+
+*****
+
+####  舞以  
+##### 13947#       发表于 2026-9-15 21:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240813&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-15 21:01</a>
+arxiv有论文指出教师模型提供的全是噪声，所有涨点其实全部来自对推理结构词的奖罚
+
+前沿实验室很可能根本 ...</blockquote>
+训练模型可能是更大更重更稠密的模型呗，做做研究可以，可以用来当做生产设施，但是不能被当做一个ds的产品模型发布。
+而且教师模型本身可能就是个纯不说人话的模型。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
