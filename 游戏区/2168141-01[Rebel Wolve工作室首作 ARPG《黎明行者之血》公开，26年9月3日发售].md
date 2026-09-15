@@ -402,3 +402,25 @@ Deck不管怎么调都糊得玩不下去，但是这种rpg游戏不想在电脑�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  Schwarzess  
+##### 151#       发表于 2026-9-15 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237168&amp;ptid=2168141" target="_blank">blue321 发表于 2026-9-15 10:09</a>
+没记错的话
+我的动脉斩击是欧恰任务做完之后，买书学了两级然后瞎子战友那学的第三级</blockquote>
+我的意思其实是我觉得理想的设计是只能通过战友任务才能学动脉斩击，而不是路边箱子里随便捡书就能学。
+就像我觉得要通过吸三侯爵的血才能学他们的技能这个设计很好，然后获得他们的血液可以通过直接击败他们，也可以通过一些特殊途径（比如去大教堂偷或者打完特定几个任务掉落）获得。但赞茜的血卫任务直接给三瓶这个设计就很平庸。
+但为了提高自由度和易获取度做成这样也没办法。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Schwarzess  
+##### 152#       发表于 2026-9-15 11:13
+
+劫狱那个任务如果要完成对应的安布卢斯宫廷任务一定要把几个精英全干掉。
+我是晚上爬塔潜入先嘬了典狱官但没嘬死，然后救完人显示没完成。<img src="https://static.stage1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+

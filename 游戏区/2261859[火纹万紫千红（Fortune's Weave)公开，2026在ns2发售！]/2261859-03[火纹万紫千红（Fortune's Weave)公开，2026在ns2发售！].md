@@ -6928,3 +6928,19 @@ pdd 显示已发货，之前都没买过日邮，发货这么早的吗？
 
 头盔男真的没被白发鬼一斧子劈死么，怎么在各种PV里完全没有存在感。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 3555#       发表于 2026-9-15 11:08
+
+昨晚怎么没人通知我买<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黛冬優子  
+##### 3556#       发表于 2026-9-15 11:14
+
+是锁单还是真发货了<img src="https://static.stage1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
