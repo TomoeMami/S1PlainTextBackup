@@ -33,3 +33,22 @@ s3延期到12月<img src="https://static.stage1st.com/image/smiley/carton2017/24
 
 有点搞笑了，大本营命运 2 都丢了马拉松嗨更新 pve 呢，pve 再在命运 2 都没更新明白
 
+
+*****
+
+####  nightshade037  
+##### 297#       发表于 2026-9-15 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236809&amp;ptid=2135998" target="_blank">Ai_shuang 发表于 2026-9-15 09:06</a></blockquote>
+快进到Marathon: Age of Triumph<img src="https://static.stage1st.com/image/smiley/face2017/200.png" referrerpolicy="no-referrer">
+
+*****
+
+####  otaku21126  
+##### 298#       发表于 2026-9-15 12:18
+
+ 本帖最后由 otaku21126 于 2026-9-15 12:19 编辑 
+
+终于能说出来了
+丑死了，这种游戏除了清华美院的学生还有谁会喜欢，幸好玩家们的眼睛是雪亮的
+
