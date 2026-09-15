@@ -7753,3 +7753,11 @@ dy有个在直播偷跑的，名字叫致哥。
 
 只要有部分角色能磕，而且角色写得有魅力，当恋爱养成来玩那群人很快就能自适应的
 
+
+*****
+
+####  duraa  
+##### 3645#       发表于 2026-9-16 00:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">is+任天堂要是不敌光荣那真要丢大人了哦
+
