@@ -7445,3 +7445,17 @@ https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA
 感觉就像是大肥鱼在屏幕上戳戳一样，可爱捏。</blockquote>
 以前遇到过，被反爬了，DS直接打开真实浏览器，手滑浏览并截图<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 13873#       发表于 2026-9-15 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237978&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-15 12:09</a>
+https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA
+
+另外这是ds工程师的自白，支撑ds的还是理想和信念 ...</blockquote>
+能感觉到，昨天刷到的视频
+
+【我发现了DeepSeek隐藏在安装包里的……-哔哩哔哩】 [https://b23.tv/88krBMQ](https://b23.tv/88krBMQ)
+
