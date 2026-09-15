@@ -7334,3 +7334,21 @@ AI已成为中期选举中日益受关注的议题。两党候选人都利用了
 
 装了，官方的dsh客户端，终于折腾完毕了，应该不再考虑折腾换哪个客户端的问题了吧，嘻嘻
 
+
+*****
+
+####  cyberalogo  
+##### 13864#       发表于 2026-9-15 11:23
+
+老黄还要乐此不疲地在 all-in 峰会跟懂王唱双簧。
+
+美国现在连数据中心都 all-in 不了，AI还能怎么个 all-in 法啊？
+
+<img src="https://img.stage1st.com/forum/202609/15/112303uanboparepe7fk8p.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260915_111932.jpg</strong> (126.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 11:23 上传
+
