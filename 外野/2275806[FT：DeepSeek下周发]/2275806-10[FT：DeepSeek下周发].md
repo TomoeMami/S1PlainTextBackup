@@ -7527,3 +7527,11 @@ https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA
 如作者所说， ...</blockquote>
 我一直是这个观点，在硅谷右翼规划的未来里，赛博朋克2077属于乌托邦级别的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Cloude_L  
+##### 13880#       发表于 2026-9-15 14:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我为了应对反爬直接配置了让dsh调用真实浏览器的mcp，然后它就不分场合的用
+

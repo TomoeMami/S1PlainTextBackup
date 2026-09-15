@@ -4591,3 +4591,14 @@ B站神秘的推荐机制，看完差点没绷住
 
 二周目不小心开成剑戟难度了，玩了一会儿才发现不对劲，真是艹蛋，之前保存还把通关存档覆盖了，鬼杀没有继承存档了.....
 
+
+*****
+
+####  乔迪奥  
+##### 1871#       发表于 2026-9-15 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236473&amp;ptid=2210366" target="_blank">acropolis 发表于 2026-9-15 05:15</a>
+
+这游戏的美术怎么这么难受，re引擎在我印象里画面做的挺干净的，这次感觉整个pipeline都是个半成品，脏糊黑 ...</blockquote>
+和忍者组学到真和风了
+
