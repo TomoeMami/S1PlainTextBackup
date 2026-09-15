@@ -513,3 +513,31 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 
 所以这片实际上并没有什么一瞬间回收主题的能力，它只有靠演出把你灌到不能思考，然后给它过度解读的能力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 534#         楼主| 发表于 2026-9-15 15:36
+
+[https://x.com/sunny_Al_/status/2099545824367915424](https://x.com/sunny_Al_/status/2099545824367915424)
+
+『さよならララ』第11話で原画を担当しました！！
+
+コンセプトトレーラーの頃からずっと大ファンだった作品なので、この作品に参加できたことを本当に光栄に思います。
+
+この作品に参加する機会をくださった友人のJorgeさん、濱本さん、佐藤さんに心から感謝しています！！
+<img src="https://p.sda1.dev/35/0423f3c29c22dc488282a4c317cf2f5c/HSMVkj9awAAYrd8.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Miyaso040105/status/2099499325269414189](https://x.com/Miyaso040105/status/2099499325269414189)
+<img src="https://p.sda1.dev/35/520d565b54fccb3899d37e38f5dfd3a8/HSLrgfObcAAd04M.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/shioritani7/status/2099479308490457486](https://x.com/shioritani7/status/2099479308490457486)
+<img src="https://p.sda1.dev/35/2bdb161ecb91e7a4d200608b99b7a437/HSLZJSwbAAAp_2O.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/wi_st_a/status/2099567563420356995](https://x.com/wi_st_a/status/2099567563420356995)
+
+さよララ#6、#11 原画でお手伝いしてました。
+
+泡とか魚描けて楽しい仕事でした！何卒。
+<img src="https://p.sda1.dev/35/eddab1778ceb8bdc92a7d36ea09d17ab/HSMpkhQa4AAerTT.jpg" referrerpolicy="no-referrer">
+
