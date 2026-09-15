@@ -8312,3 +8312,44 @@ Astra做的缺了要素，作为一个需要体现速度感的游戏，赛车尾
 甲厚那就想办法，而不是光明正大地表示要给我输出违规内容。这事实上可以说是最搞笑的是自己心里面没点逼 ...</blockquote>
 一根筋两头堵了，某社区把这群人赶走过，至于为什么赶走<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lly778  
+##### 13956#       发表于 2026-9-15 22:08
+
+opus5.2灰测了，按道理4.1pro要狙击了
+
+*****
+
+####  弗里德里希大帝  
+##### 13957#       发表于 2026-9-15 22:09
+
+不会真有人在app上直接发给我生成黄文...balabala...吧？
+
+过于弱智了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  tillnight  
+##### 13958#       发表于 2026-9-15 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240813&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-15 21:01</a>
+
+arxiv有论文指出教师模型提供的全是噪声，所有涨点其实全部来自对推理结构词的奖罚
+
+前沿实验室很可能根本 ...</blockquote>
+V4.1F的论文里明确提到训练中有几十个教师模型参与。除非你觉得DS故意在论文里误导。
+
+*****
+
+####  间宮夏生  
+##### 13959#       发表于 2026-9-15 22:13
+
+如果是人类可控的 AGI，肯定是政府控制下的闭源模型啊，如果人类不可控，那不都是看 AI 大人脸色，这里就没有 GC 主义和 2077 的事（本来这两个也是没有良定义的玩意）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
