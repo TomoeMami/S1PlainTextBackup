@@ -8489,3 +8489,39 @@ V4.1F的论文里明确提到训练中有几十个教师模型参与。除非你
 
 为啥雷达站上的high会比max分数高这么多？
 
+
+*****
+
+####  RookieTnT  
+##### 13973#       发表于 2026-9-16 01:15
+
+devin 搞了免费SWE-2(基于K3微调) 活动.  爽蹬了
+
+*****
+
+####  阿刚  
+##### 13974#       发表于 2026-9-16 01:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241639&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-16 00:36</a>
+
+为啥雷达站上的high会比max分数高这么多？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">max有问题有时候会卡住然后不停地嗯嗯嗯嗯嗯跟闪灵男主发疯写出来的东西一样
+
+
+*****
+
+####  RookieTnT  
+##### 13975#       发表于 2026-9-16 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241729&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-16 01:15</a>
+
+devin 搞了免费SWE-2(基于K3微调) 活动.  爽蹬了</blockquote>
+没忍住 开了一个月的 pro (20$) 能用fable5.1 感觉还可以 缓解一下 gpt-6-sol没出来前的空窗期
+
+*****
+
+####  lly778  
+##### 13976#       发表于 2026-9-16 01:21
+
+max现在有bug，会路由到摘要思维链
+
