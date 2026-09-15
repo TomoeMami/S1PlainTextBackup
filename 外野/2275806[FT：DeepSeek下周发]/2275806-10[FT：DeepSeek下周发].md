@@ -8525,3 +8525,14 @@ devin 搞了免费SWE-2(基于K3微调) 活动.  爽蹬了</blockquote>
 
 max现在有bug，会路由到摘要思维链
 
+
+*****
+
+####  真红之闪电  
+##### 13977#       发表于 2026-9-16 07:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241261&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-9-15 23:02</a>
+
+我就搞不懂了，api几乎跟裸奔一样又是白菜价，怎么就跟个炫压抑智障一样在这说这种屁话都不肯稍微学一下 ...</blockquote>
+嗯，去小红书搜，一眼就知道这帮人就是想白嫖的
+
