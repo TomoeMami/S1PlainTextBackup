@@ -236,3 +236,24 @@ Z挑战就是URzeta体验关，空中图太多，UR穿波机911基本都是一�
 ZZ挑战总算打完了，全程只有SSR EXS在输出，太难顶了</blockquote>
 单眼你怎么打的
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4700#       发表于 2026-9-15 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237166&amp;ptid=2071758" target="_blank">kenqqex 发表于 2026-9-15 10:09</a>
+
+单眼你怎么打的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">可能我没说清楚，只是挑战关卡打完了，任务没做，就奖励一些狗粮实在没有做的心思
+
+
+*****
+
+####  白猫MKII  
+##### 4701#       发表于 2026-9-15 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237341&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-9-15 10:39</a>
+可能我没说清楚，只是挑战关卡打完了，任务没做，就奖励一些狗粮实在没有做的心思 ...</blockquote>
+不做使命的话ZZ不是简单的一批，无脑复制ZZ就完事了，不像z能飞的关卡都没机体可以用
+

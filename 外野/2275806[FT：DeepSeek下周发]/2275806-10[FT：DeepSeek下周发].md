@@ -7230,3 +7230,14 @@ deepseekcodeV2不是2年前的东西么<img src="https://static.stage1st.com/ima
 关键是altmann谷歌响应了不难理解，马斯克这个和dario不对付的也响应了</blockquote>
 可能是提前准备中期选举dem大获全胜的剧本了。
 
+
+*****
+
+####  mitzvah  
+##### 13856#       发表于 2026-9-15 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237275&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-15 10:26</a>
+
+桑德斯已经放话谁开发超级AI谁就判20年了除了蜥蜴人这种**谁不怕</blockquote>
+桑德斯自己就是鱿鱼吧，一贯的两面下注不是东西
+
