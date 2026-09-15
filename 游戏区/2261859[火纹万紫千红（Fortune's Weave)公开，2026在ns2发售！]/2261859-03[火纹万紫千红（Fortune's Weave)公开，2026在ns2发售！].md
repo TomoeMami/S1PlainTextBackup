@@ -6730,3 +6730,53 @@ mc搞还没出啊？不是很早就送测了吗
 
 凯伊父亲倒是初期就登场了，感觉后面应该是跟女神老婆过小日子去了吧，放儿子去拯救世界。A少妹妹那不就是另一个奔驰姐么，手游都认错人了，但感觉不好出场啊，总不会来一波飘洋过海寻兄吧。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  为了mf注册  
+##### 3535#       发表于 2026-9-15 10:00
+
+pdd 显示已发货，之前都没买过日邮，发货这么早的吗？
+
+*****
+
+####  flyingover  
+##### 3536#       发表于 2026-9-15 10:00
+
+<img src="https://img.stage1st.com/forum/202609/15/100020ykdhtvkkhtdele8z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 10:00 上传
+
+【キャラクター】イニオニ（CV：三輪夏紀）
+
+「魔弓のイニオニ」と呼ばれ、巷で話題を集める弓の名手。
+
+幼い頃から弓の才能を発揮していたが、近頃は別人のような活躍ぶりを見せ、急速にその名が知れ渡るようになった。
+
+●好きなもの：家族、故郷、狩猟、畑仕事、弓の手入れ、弓の鍛錬
+
+*****
+
+####  neokirin  
+##### 3537#       发表于 2026-9-15 10:02
+
+我昨天在拼豆豆上买的日版日本直邮刚才发货了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无缥缈的分身  
+##### 3538#       发表于 2026-9-15 10:03
+
+话说我记得风花雪月和engage不一样，主角结婚对象的性别受限的吧。这一作算风花雪月续作，而且很多角色的介绍都写明了喜欢男人/女人。那是不是本作很多队友也是恋爱限定性别，看来想谈美女的话没法像engage那样无脑选女主开荒一周目了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  28201  
+##### 3539#       发表于 2026-9-15 10:06
+
+有什么角色都已经在内封面还要藏吗，难道是贝老师<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

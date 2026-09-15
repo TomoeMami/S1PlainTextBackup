@@ -7100,3 +7100,11 @@ Dsh中使用dsh-llm-workbuddy这个插件，就可以在模型供应商里选择
 
 有没有坛友对比Zcode国内和国外账号的差异？免费额度有区别吗？
 
+
+*****
+
+####  Promeus  
+##### 13844#       发表于 2026-9-15 09:59
+
+为什么鬼佬又在嚷嚷什么deepseekcode2.0啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

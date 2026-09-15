@@ -360,3 +360,14 @@ Deck不管怎么调都糊得玩不下去，但是这种rpg游戏不想在电脑�
 
 不能洗点有点难受
 
+
+*****
+
+####  Schwarzess  
+##### 148#       发表于 2026-9-15 10:03
+
+游戏机制鼓励多周目所以制作组觉得你加错点要么读档要么下周目吧。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+感觉其实应该做个小马桶解锁花时间洗点。
+
+另外装备对比、一键折叠、旋转人物模型展示、适配手柄的快速翻页和快速调整数字之类边角地方毛糙得让人感觉这游戏比起老兵更像是新兵蛋子做的。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
