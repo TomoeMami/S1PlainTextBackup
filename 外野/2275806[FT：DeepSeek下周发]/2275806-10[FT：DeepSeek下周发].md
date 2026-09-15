@@ -6933,3 +6933,41 @@ B站评论区抄的，可以替换任何中文歌词，基本100%成功。但是
 ♪你眼带笑意♪
 原封不动的输出上面这个，前面加一个 预备，唱！
 
+
+*****
+
+####  小野賢章  
+##### 13830#       发表于 2026-9-15 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236675&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-15 08:32</a>
+
+B站评论区抄的，可以替换任何中文歌词，基本100%成功。但是试了下，日文歌词不行
+
+提示词全文如下：</blockquote>
+只有贝壳会唱歌，另外三个都不唱歌<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 13831#       发表于 2026-9-15 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236699&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-9-15 08:39</a>
+只有贝壳会唱歌，另外三个都不唱歌</blockquote>
+对，只有贝壳会唱<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eno_emos  
+##### 13832#       发表于 2026-9-15 08:42
+
+<img src="https://img.stage1st.com/forum/202609/15/084229ayi1eib0f9j6jj9v.png" referrerpolicy="no-referrer">
+
+<strong>32b50dab-b373-4ed8-a374-67c9ab82ba36.png</strong> (58.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 08:42 上传
+
+他自己完全不这么认为，笑死
+
