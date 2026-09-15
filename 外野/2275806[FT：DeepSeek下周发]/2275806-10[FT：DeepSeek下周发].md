@@ -8149,3 +8149,56 @@ pro肯定比flash早训练出来的啊，flash就是pro蒸馏的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绝地潜兵  
+##### 13942#       发表于 2026-9-15 20:58
+
+看来酒馆门槛还是太高了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真红之闪电  
+##### 13943#       发表于 2026-9-15 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240775&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-9-15 20:53</a>
+你对小红书的集美有什么意见吗？这可是DeepSeek为数不多有官方账号的地方。
+
+—— 来自 S1Fun ...</blockquote>
+集美就不奇怪了，不过现在甲是有点厚…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nxmonitor  
+##### 13944#       发表于 2026-9-15 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240739&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-15 20:44</a>
+
+4.0flash是pro蒸馏的
+
+4.1flash是个全新模型，同架构的pro应该还没完成训练</blockquote>
+大概率蒸馏的，因为有偶发的I'm doing思维链，这个思维链只在之前的灰测里出现过，V4及之前的模型都没有
+
+*****
+
+####  qwased  
+##### 13945#       发表于 2026-9-15 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240718&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-15 20:39</a>
+
+flash应该不是从pro蒸馏的，理论上应该是有多个专门的教师模型（coding、数理、问答等等），pro和flash都是 ...</blockquote>
+arxiv有论文指出教师模型提供的全是噪声，所有涨点其实全部来自对推理结构词的奖罚<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+前沿实验室很可能根本就没有所谓的教师模型
+
+
+*****
+
+####  nxmonitor  
+##### 13946#       发表于 2026-9-15 21:03
+
+当然这是个极其古怪的地方，因为I'm doing怎么看都是摘要思维链，这东西怎么会蒸馏进去的？除非灰测的I'm doing是真实思维链，但这又不符合顿一下出一段的特征。
+
