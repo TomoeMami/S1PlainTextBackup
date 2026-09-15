@@ -573,3 +573,15 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 
 感觉还是日本动画原创的老问题，到原创就想搞一些不同的东西，就想多堆自己想到东西，实际整体故事和展现方式完全没有打磨好
 
+
+*****
+
+####  Piano-Forest  
+##### 538#         楼主| 发表于 2026-9-16 00:51
+
+[https://x.com/shioritani7/status/2099789462146523258](https://x.com/shioritani7/status/2099789462146523258)
+<img src="https://p.sda1.dev/35/e2ddbd6ae11d1d68288cf753c1515158/HSPzL4QbEAA1bqw.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/warder2013/status/2099843436421751129](https://x.com/warder2013/status/2099843436421751129)
+<img src="https://p.sda1.dev/35/be44f3fa973c5ccedca1497b7f296233/HSQkea8bAAAPipT.jpg" referrerpolicy="no-referrer">
+
