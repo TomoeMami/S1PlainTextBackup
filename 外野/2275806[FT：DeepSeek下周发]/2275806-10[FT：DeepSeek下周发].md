@@ -7363,3 +7363,45 @@ AI已成为中期选举中日益受关注的议题。两党候选人都利用了
 装了，官方的dsh客户端，终于折腾完毕了，应该不再考虑折腾换哪个客户端的问题了吧，嘻嘻 ...</blockquote>
 装DSH还是学习为主，不适合真的做事，毕竟1.0都没有。
 
+
+*****
+
+####  lactone  
+##### 13866#       发表于 2026-9-15 11:50
+
+ds code 2.0这个消息真奇怪
+
+一般烂炒也会炒4.1pro吧
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  cyberalogo  
+##### 13867#       发表于 2026-9-15 11:53
+
+笑死，DS总结网页文章原来是滑动浏览这么古法的吗？
+
+感觉就像是大肥鱼在屏幕上戳戳一样，可爱捏。
+
+<img src="https://img.stage1st.com/forum/202609/15/115306t1z21hp2ponp2y02.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260915_115056.jpg</strong> (138.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 11:53 上传
+
+*****
+
+####  沙发沙发  
+##### 13868#       发表于 2026-9-15 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237879&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-9-15 11:53</a>
+
+笑死，DS总结网页文章原来是滑动浏览这么古法的吗？
+
+感觉就像是大肥鱼在屏幕上戳戳一样，可爱捏。</blockquote>
+这是直接看不了所以用的视觉来读？
+
