@@ -8095,3 +8095,57 @@ pro肯定比flash早训练出来的啊，flash就是pro蒸馏的
 
 4.1flash是个全新模型，同架构的pro应该还没完成训练
 
+
+*****
+
+####  Promeus  
+##### 13937#       发表于 2026-9-15 20:48
+
+4.1pro我怀疑还是有一些技术没完成，比如多模特结合之类的，灰测那个4fve少了4.1f的超高速
+
+*****
+
+####  绝地潜兵  
+##### 13938#       发表于 2026-9-15 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240682&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-9-15 20:31</a>
+
+是啊，API 那边虽然现在也有点儿严，想办法破了以后还是可以写很多东西的，但就想赖在免费的这边。
+
+对了 ...</blockquote>
+这不是二游话术么，果然是个乙游大世界呀
+
+
+*****
+
+####  杀人鲸  
+##### 13939#       发表于 2026-9-15 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240698&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-9-15 20:34</a>
+这哪里来的弱智发言……</blockquote>
+你对小红书的集美有什么意见吗？这可是DeepSeek为数不多有官方账号的地方。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  杀人鲸  
+##### 13940#       发表于 2026-9-15 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240725&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-15 20:42</a>
+这不就是梁子说的赶都赶不走的用户吗？难怪他想赶这些人。</blockquote>
+那确实，这群人看了我都觉得还赶不走，那的确太慈悲了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  杀人鲸  
+##### 13941#       发表于 2026-9-15 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240755&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-9-15 20:49</a>
+这不是二游话术么，果然是个乙游大世界呀</blockquote>
+只能说，看到这回复的时候，真的给我看笑了，我靠。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
