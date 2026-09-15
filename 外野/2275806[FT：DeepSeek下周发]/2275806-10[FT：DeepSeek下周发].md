@@ -7882,3 +7882,25 @@ Claude达到agi先把a畜炸了
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  来都来了  
+##### 13917#       发表于 2026-9-15 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70239628&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-9-15 16:50</a>
+看小红书上一众同人女哀嚎崩溃以后，超绝敏感肌的防护甲总算是加上了。
+这话真的是给我整笑了，看来基本上 ...</blockquote>
+什么意思？是谁加了甲了？
+
+
+*****
+
+####  serj005  
+##### 13918#       发表于 2026-9-15 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240260&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-9-15 18:50</a>
+怎么又是electron，就不能换成WebView吗</blockquote>
+electron没问题，生态好兼容强，隔壁reasonix用了半天Wails最后还是换回electron。
+dsh本身没有性能要求，兼容和稳定就是第一位，用Tauri能省个webview打包体积但是省不了实际内存占用，后端node也体现不出rust性能优势，不同机器的webview版本无法预料，electron做外壳直接复用dsh web就是省开发的最优解。
+
