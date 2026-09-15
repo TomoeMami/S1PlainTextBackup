@@ -7801,3 +7801,23 @@ deepseek一个工程师公开发文喷anthropic要是提前掌握agi等于希xx�
 
 当下只有算力限制是确实有效的，其他都没啥用，就算闭源也拦不住挖人啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根本不可能保持代差
 
+
+*****
+
+####  未知伤亡  
+##### 13909#       发表于 2026-9-15 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70239890&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-9-15 17:31</a>
+
+当下只有算力限制是确实有效的，其他都没啥用，就算闭源也拦不住挖人啊根本不可能保持代差 ...</blockquote>
+可以把东大的AI实验室都炸掉啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  simonouozy  
+##### 13910#       发表于 2026-9-15 17:45
+
+先明确下所谓agi的ai能做到什么吧，现在的llm越来越coding特化了，输出的内容人也读不懂了
+别搞到最后既不通用，也不人工，更不智能
+
