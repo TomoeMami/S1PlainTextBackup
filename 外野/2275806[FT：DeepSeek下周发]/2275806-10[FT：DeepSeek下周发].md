@@ -7681,3 +7681,14 @@ V4.1P估计真不会很慢，之前灰测正好是极简标准和PTC都来过一
 感觉就像是大肥鱼在屏幕上戳戳一样，可爱捏。</blockquote>
 可能是按需加载的网页，不滑就看不到了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀人鲸  
+##### 13896#       发表于 2026-9-15 16:50
+
+看小红书上一众同人女哀嚎崩溃以后，超绝敏感肌的防护甲总算是加上了。
+这话真的是给我整笑了，看来基本上是连防撤回的插件都没装。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

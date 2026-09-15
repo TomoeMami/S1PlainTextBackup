@@ -257,3 +257,14 @@ ZZ挑战总算打完了，全程只有SSR EXS在输出，太难顶了</blockquot
 可能我没说清楚，只是挑战关卡打完了，任务没做，就奖励一些狗粮实在没有做的心思 ...</blockquote>
 不做使命的话ZZ不是简单的一批，无脑复制ZZ就完事了，不像z能飞的关卡都没机体可以用
 
+
+*****
+
+####  dfdddfdd  
+##### 4702#       发表于 2026-9-15 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237166&amp;ptid=2071758" target="_blank">kenqqex 发表于 2026-9-15 10:09</a>
+
+单眼你怎么打的</blockquote>
+我sp了奥伯隆然后还上了卡池的两台ssr过的，奥伯隆sp的很不情愿<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
