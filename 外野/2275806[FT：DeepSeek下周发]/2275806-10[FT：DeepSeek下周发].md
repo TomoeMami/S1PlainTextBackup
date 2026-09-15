@@ -8256,3 +8256,38 @@ arxiv有论文指出教师模型提供的全是噪声，所有涨点其实全部
 
 推上老外做的测试，很有趣。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 13951#       发表于 2026-9-15 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240718&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-15 20:39</a>
+flash应该不是从pro蒸馏的，理论上应该是有多个专门的教师模型（coding、数理、问答等等），pro和flash都是 ...</blockquote>
+不是，你说的这个就是moe这套技术
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  halfelf  
+##### 13952#       发表于 2026-9-15 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240930&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-9-15 21:33</a>
+
+https://x.com/superalesha/status/2099836448044175427
+
+“我给 DeepSeek 分配了一个 Astra 子代理。然后我 ...</blockquote>
+Astra做的缺了要素，作为一个需要体现速度感的游戏，赛车尾焰都不明显，而且视野范围内的赛道元素颜色都不够鲜亮对比，从远中近景到穿过屏幕时的视觉效果也差很多，进一步削弱速度感。
+
+*****
+
+####  秦南心  
+##### 13953#       发表于 2026-9-15 21:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240930&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-9-15 21:33</a>
+[https://x.com/superalesha/status/2099836448044175427](https://x.com/superalesha/status/2099836448044175427)
+
+“我给 DeepSeek 分配了一个 Astra 子代理。然后我 ...</blockquote>
+他说的挺对的，ds确实更有生命力一些，之前灰测也可以看出来同样的表现：ds做的demo不管是控制器操纵手感还是射击手感、摄像机运动等都有一个不错的水准
+
