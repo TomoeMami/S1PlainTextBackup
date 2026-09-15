@@ -8472,3 +8472,12 @@ V4.1F的论文里明确提到训练中有几十个教师模型参与。除非你
 
 这可是擅长仅退款和拒绝吊牌羞耻的新时代女性，用你一个破APP咋啦？
 
+
+*****
+
+####  qwased  
+##### 13971#       发表于 2026-9-16 00:28
+
+哈基米好像完全没有训练过怎么调llamacpp，给了他模型和说明，他跑了20分钟还在调查llamacpp有什么参数，跑都没跑起来
+换回大肥鱼填参数都不带想的，感觉有针对性训练过<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
