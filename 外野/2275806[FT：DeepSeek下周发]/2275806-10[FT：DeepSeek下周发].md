@@ -7707,3 +7707,44 @@ deepseek一个工程师公开发文喷anthropic要是提前掌握agi等于希xx�
 
 真能有AGI的话，这个比喻恐怕是低估了结果的恶劣程度
 
+
+*****
+
+####  未知伤亡  
+##### 13899#       发表于 2026-9-15 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70239721&amp;ptid=2275806" target="_blank">wlhlz 发表于 2026-9-15 17:02</a>
+
+真能有AGI的话，这个比喻恐怕是低估了结果的恶劣程度</blockquote>
+我觉得他这个论断有点激进了，AGI再强也无法突破生产力的局限性，人类历史上有诸多天才，最后还不是尘归尘土归土。A÷大搞AGI圣杯叙事是吹牛逼没错，这个ds员工的观点也中二了点
+
+*****
+
+####  nxmonitor  
+##### 13900#       发表于 2026-9-15 17:08
+
+确实是恶劣结果，但是我觉得A÷的技术力嘛…
+
+
+*****
+
+####  wlhlz  
+##### 13901#       发表于 2026-9-15 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70239744&amp;ptid=2275806" target="_blank">未知伤亡 发表于 2026-9-15 17:07</a>
+
+我觉得他这个论断有点激进了，AGI再强也无法突破生产力的局限性，人类历史上有诸多天才，最后还不是尘归 ...</blockquote>
+所以我说的是真正的AGI，不是现在LLM模型搞的这些东西
+
+*****
+
+####  andychen  
+##### 13902#       发表于 2026-9-15 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70239744&amp;ptid=2275806" target="_blank">未知伤亡 发表于 2026-9-15 17:07</a>
+
+我觉得他这个论断有点激进了，AGI再强也无法突破生产力的局限性，人类历史上有诸多天才，最后还不是尘归 ...</blockquote>
+他认为AI发展最后会把社会引向communism或者极端寡头垄断资本主义，我也持相同看法。
+
+原文：[https://mp.weixin.qq.com/s/zk0Kx ... OhEdD65nl-jg7QW_Xuw](https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA?poc_token=HOgLqWqjULTfZyi5srChyOhEdD65nl-jg7QW_Xuw)
+
