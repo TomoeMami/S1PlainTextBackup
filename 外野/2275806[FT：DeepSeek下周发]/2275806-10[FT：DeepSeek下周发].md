@@ -7621,3 +7621,42 @@ dsh 0.1.6 alpha更新了，加了实验性computer use 还有几个主流浏览�
 
 如果我没理解错的话，V4.1F本质上的参数只有纸面上的一半，只不过P和D的神经网络不一样，那拿出一个3T模型也很正常，就是把V4Pro翻倍
 
+
+*****
+
+####  Promeus  
+##### 13889#       发表于 2026-9-15 15:43
+
+之前黑鸭评论区看到一人说9月出2t+1tengram的4.1pro，然后没有4.24.3直接到春节出自学习的v5，不知道是不是这个流言的源头<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 13890#       发表于 2026-9-15 15:47
+
+自学习先不说怎么实现，要怎么开源部署呢？
+
+*****
+
+####  小野賢章  
+##### 13891#       发表于 2026-9-15 15:48
+
+又到了上半年每周预测一次ds发布时间的时候了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 13892#       发表于 2026-9-15 15:52
+
+V4.1P估计真不会很慢，之前灰测正好是极简标准和PTC都来过一次，估计等桌面版DSH一起更新了…
+
+*****
+
+####  小野賢章  
+##### 13893#       发表于 2026-9-15 15:53
+
+[https://github.com/TencentCloud/Octop](https://github.com/TencentCloud/Octop)
+
+这又是什么，企鹅还在搞赛马吗
+
