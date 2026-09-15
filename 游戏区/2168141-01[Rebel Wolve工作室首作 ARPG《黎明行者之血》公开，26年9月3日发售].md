@@ -387,3 +387,18 @@ Deck不管怎么调都糊得玩不下去，但是这种rpg游戏不想在电脑�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  blue321  
+##### 150#       发表于 2026-9-15 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231601&amp;ptid=2168141" target="_blank">woshenc 发表于 2026-9-14 09:47</a>
+一个周末，玩得非常非常慢，就出新手村，逛了几个神龛，杀了一个运血的队伍，哦，还玩了逃跑结局
+
+一开始我 ...</blockquote>
+监狱出来后，塔旁边有一道后门可以用监狱钥匙打开溜走的
+我也是试了一次屠光之后觉得应该有另一种解法，然后读档绕了一圈才发现的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

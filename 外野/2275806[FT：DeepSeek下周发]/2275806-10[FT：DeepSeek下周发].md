@@ -7241,3 +7241,31 @@ deepseekcodeV2不是2年前的东西么<img src="https://static.stage1st.com/ima
 桑德斯已经放话谁开发超级AI谁就判20年了除了蜥蜴人这种**谁不怕</blockquote>
 桑德斯自己就是鱿鱼吧，一贯的两面下注不是东西
 
+
+*****
+
+####  lactone  
+##### 13857#       发表于 2026-9-15 10:52
+
+ 本帖最后由 lactone 于 2026-9-15 10:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237313&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-15 10:32</a>
+美国现在无论左中右选民的态度就是谁管你这的那的，最好开发ai的统统20年只有奶龙把ai当救命稻草 ...</blockquote>
+ykw的加速是民族主义叙事
+
+但是dario这个主张根本没啥意义吧
+这个减速技术上怎么搞？
+国会老爷有能力审查ai吗
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Promeus  
+##### 13858#       发表于 2026-9-15 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237436&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-15 10:52</a>
+ykw的加速是民族主义叙事
+
+但是dario这个主张根本没啥意义吧</blockquote>
+Dario只是试图显示一个自己不是硅谷右的态度，寄希望于民主党中期选举大胜以后揍他别揍的那么狠，能不能做，怎么做没什么意义<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -6857,3 +6857,28 @@ pdd 显示已发货，之前都没买过日邮，发货这么早的吗？
 
 应该还有鲁智深一样的、佩佩没发预告吧，剩下一个估计玛丽亚？
 
+
+*****
+
+####  Beaverfan01  
+##### 3549#       发表于 2026-9-15 10:46
+
+<img src="https://img.stage1st.com/forum/202609/15/104629sghtm0s22222tgta.jpg" referrerpolicy="no-referrer">
+
+<strong>6096.jpg</strong> (339.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 10:46 上传
+
+*****
+
+####  血狂毘沙门  
+##### 3550#       发表于 2026-9-15 10:48
+
+我chovy，昨天刷到的日邮用家人号没抽到福袋好券，怕后边短期不上货就先340买了先锁一单
+
+今早一看显示已发货等待物流取件，我成被锁的了
+
+你最好真的发货那样贵点早拿到我也能接受了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
