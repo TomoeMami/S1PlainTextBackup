@@ -7179,3 +7179,54 @@ deepseekcodeV2不是2年前的东西么<img src="https://static.stage1st.com/ima
 
 —— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  2017.05.04  
+##### 13851#       发表于 2026-9-15 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237279&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-15 10:27</a>
+马斯克真正不对付的是奥特曼啊</blockquote>
+谁更能恶心奥特曼，谁更能爆米，他就支持谁
+要不然他是首富呢，同时支持A畜和开源ai，国内这帮马孝子都领会不到精神只能选一边站<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  cscbzcbz  
+##### 13852#       发表于 2026-9-15 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237275&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-15 10:26</a>
+桑德斯已经放话谁开发超级AI谁就判20年了除了蜥蜴人这种**谁不怕</blockquote>
+超级ai如何界定，谁来界定<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Promeus  
+##### 13853#       发表于 2026-9-15 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237297&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-15 10:30</a>
+超级ai如何界定，谁来界定</blockquote>
+美国现在无论左中右选民的态度就是谁管你这的那的，最好开发ai的统统20年<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有奶龙把ai当救命稻草
+
+*****
+
+####  LANGWANG  
+##### 13854#       发表于 2026-9-15 10:32
+
+桑德斯已经老成这样了啊
+
+*****
+
+####  lostfile  
+##### 13855#       发表于 2026-9-15 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237237&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-15 10:20</a>
+
+其实很难理解dario这波行为艺术
+
+关键是altmann谷歌响应了不难理解，马斯克这个和dario不对付的也响应了</blockquote>
+可能是提前准备中期选举dem大获全胜的剧本了。
+
