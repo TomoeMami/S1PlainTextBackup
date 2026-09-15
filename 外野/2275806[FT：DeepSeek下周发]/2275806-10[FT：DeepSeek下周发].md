@@ -8422,3 +8422,11 @@ pro永久下架就算了，flash也开始赶人
 
 不要刚在聊弱智集美后就突然像反串一样发一个赶不走的c端用户发言啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 13966#       发表于 2026-9-15 23:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你别说贝壳姐能唱的歌还挺多，就是调子不太准
+
