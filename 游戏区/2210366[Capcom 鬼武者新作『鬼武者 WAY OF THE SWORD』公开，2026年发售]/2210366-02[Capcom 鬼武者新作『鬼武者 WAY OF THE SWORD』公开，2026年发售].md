@@ -4690,3 +4690,21 @@ B站神秘的推荐机制，看完差点没绷住
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  ZOHAR=往世之痕  
+##### 1878#       发表于 2026-9-16 00:20
+
+哪里刷魂比较快？不升满级就不想往前推
+
+*****
+
+####  黑暗之眼  
+##### 1879#       发表于 2026-9-16 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236473&amp;ptid=2210366" target="_blank">acropolis 发表于 2026-9-15 05:15</a>
+
+这游戏的美术怎么这么难受，re引擎在我印象里画面做的挺干净的，这次感觉整个pipeline都是个半成品，脏糊黑 ...</blockquote>
+就一条，开HDR
+
