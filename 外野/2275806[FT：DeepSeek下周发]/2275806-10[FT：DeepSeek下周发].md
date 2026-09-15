@@ -7543,3 +7543,32 @@ https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA
 
 一直用的chrome-devtools-mcp，autoConnect模式，基本完美，就是有点耗token
 
+
+*****
+
+####  heemoon  
+##### 13882#       发表于 2026-9-15 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70238492&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-15 13:53</a>
+如果v4.1pro有4.1flash的速度，哪怕性能和k3接近，都是非常好用的了
+
+—— 来自 HONOR AAK-AN00, Android 1 ...</blockquote>
+我在dsh上接k3 max 平均50 tok/s不到。v4.1f平均300 tok/s上下
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 13883#       发表于 2026-9-15 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234827&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-9-14 18:18</a>
+
+哈基米3.8flash？买的API还是怎么薅的？不知道ds4.1flash可不可以
+
+—— 来自 HONOR AAP-AN00, Android 1 ...</blockquote>
+ds应该比哈基米听话很多，效果会更好
+
+哈基米是十几块一年半的印度羊毛所以能用为啥不用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我个人是建了两个小号薅羊毛，都是被秒封后申诉复活，第一个号顺利使用agy，第二个号被锁定成香港地区，agy就寄了
+
