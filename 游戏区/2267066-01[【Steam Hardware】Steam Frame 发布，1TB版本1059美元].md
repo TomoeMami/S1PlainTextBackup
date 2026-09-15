@@ -4405,3 +4405,16 @@ steam frame 已发布
 
 SD/SM/SF, 只有SD的性能是个刚出性能在第一梯队的.
 
+
+*****
+
+####  RTLordCaptain  
+##### 418#       发表于 2026-9-15 08:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236378&amp;ptid=2267066" target="_blank">GrayishWh0 发表于 2026-9-15 01:48</a>
+
+送的这个alyx不知道是配套的一体机版还是pc版（）</blockquote>
+有评测说有arm原生版
+
+不过估计商店端应该还是同一个电子版吧，下载时候根据设备下不同版本
+

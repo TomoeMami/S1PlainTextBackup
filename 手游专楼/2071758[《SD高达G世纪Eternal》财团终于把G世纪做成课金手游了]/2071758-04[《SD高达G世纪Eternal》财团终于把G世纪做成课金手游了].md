@@ -214,3 +214,14 @@ V拆分的话，只有V高达V大叔肯定撑不起</blockquote>
 
 赞斯拜因别丢ult啊，ult现在纯垃圾，可以配G世纪的爱丽丝还能玩下声优梗（啊。。。查了下游戏内发现不是军曹配音了<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  电脑死机  
+##### 4698#       发表于 2026-9-15 08:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70231862&amp;ptid=2071758" target="_blank">西人 发表于 2026-9-14 10:26</a>
+
+Z挑战就是URzeta体验关，空中图太多，UR穿波机911基本都是一下一个</blockquote>
+初登场30发摸不到，现在复刻30发还是摸不到，只能再见
+
