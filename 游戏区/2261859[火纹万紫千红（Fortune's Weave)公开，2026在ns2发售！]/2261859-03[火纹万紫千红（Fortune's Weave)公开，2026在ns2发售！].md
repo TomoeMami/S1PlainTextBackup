@@ -6954,3 +6954,47 @@ pdd 显示已发货，之前都没买过日邮，发货这么早的吗？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hl氏  
+##### 3558#       发表于 2026-9-15 13:04
+
+ 本帖最后由 hl氏 于 2026-9-15 13:07 编辑 
+
+接近游戏发售，什么都不想干的心情又爆发了
+
+想起苍炎，重复看最后的CG怎么看都要成一对，晓之女神里艾克和女王没有结婚结局是我一生的痛，十几年过去我一想起来还是很愤恨
+
+<img src="https://img.stage1st.com/forum/202609/15/130600ujjrhfllhzr7hj6s.png" referrerpolicy="no-referrer">
+
+<strong>2GD$VL6@@((ITI(BM1UC2GR.png</strong> (564.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 13:06 上传
+
+<img src="https://img.stage1st.com/forum/202609/15/130606htsjc6mrnjrlotj3.png" referrerpolicy="no-referrer">
+
+<strong>S5YA9}AWXMCJWAX`ZT4RW5S.png</strong> (586.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 13:06 上传
+
+<img src="https://img.stage1st.com/forum/202609/15/130612fw619oewwqqqr0wa.png" referrerpolicy="no-referrer">
+
+<strong>D_A53L6BYR)}~WLVMR(HETK.png</strong> (583.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 13:06 上传
+
+<img src="https://img.stage1st.com/forum/202609/15/130616gridz7j555d1344o.png" referrerpolicy="no-referrer">
+
+<strong>OM82E%9$CDP$NP950@N1R_T.png</strong> (470.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 13:06 上传
+

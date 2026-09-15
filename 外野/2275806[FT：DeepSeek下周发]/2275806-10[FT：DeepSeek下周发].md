@@ -7459,3 +7459,11 @@ https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA
 
 【我发现了DeepSeek隐藏在安装包里的……-哔哩哔哩】 [https://b23.tv/88krBMQ](https://b23.tv/88krBMQ)
 
+
+*****
+
+####  bartholo4  
+##### 13874#       发表于 2026-9-15 13:01
+
+有没有什么all-in-one的给DSH能用，改一改CODEX也能用的，查询小红书 抖音 b站这些网站的工具？
+
