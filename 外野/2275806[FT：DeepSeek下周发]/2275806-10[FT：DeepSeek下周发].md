@@ -7535,3 +7535,11 @@ https://mp.weixin.qq.com/s/zk0KxuLzhmMJ4LPYW_OHMA
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我为了应对反爬直接配置了让dsh调用真实浏览器的mcp，然后它就不分场合的用
 
+
+*****
+
+####  小野賢章  
+##### 13881#       发表于 2026-9-15 14:51
+
+一直用的chrome-devtools-mcp，autoConnect模式，基本完美，就是有点耗token
+
