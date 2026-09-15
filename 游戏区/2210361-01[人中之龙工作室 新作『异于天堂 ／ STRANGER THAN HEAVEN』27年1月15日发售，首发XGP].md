@@ -20,3 +20,20 @@
 感觉白金难度很友好啊</blockquote>
 要看有没有小游戏和爬塔吧，如龙系列白金麻烦就麻烦在小游戏或者爬塔...
 
+
+*****
+
+####  Piano-Forest  
+##### 282#         楼主| 发表于 2026-9-15 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236296&amp;ptid=2210361" target="_blank">Piano-Forest 发表于 2026-9-15 00:43</a>
+
+真人电影（世嘉与Netflix合作项目）
+
+‘Crazy Taxi’ Comedy Movie Coming From Netflix and Sega, New ‘S ...</blockquote>
+『STRANGER THAN HEAVEN』×Netflix
+
+　　　　　実写映画化決定！
+
+詳細は続報をお待ちください。
+

@@ -7011,3 +7011,25 @@ B站评论区抄的，可以替换任何中文歌词，基本100%成功。但是
 
 只要用这个格式就会唱歌，这个是让deepseek自己写的，也能唱出来
 
+
+*****
+
+####  Baccano  
+##### 13835#       发表于 2026-9-15 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70234408&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-9-14 17:03</a>
+
+codebuddy创建API为啥总提示操作失败？大佬指点下？</blockquote>
+不知道诶，没碰到过这个问题<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+你要不先试试把权限模式开到“完全访问”
+
+*****
+
+####  knnknn  
+##### 13836#       发表于 2026-9-15 08:57
+
+网页deepseek怎么一直在掉登录
+
+又在和web2api搏斗吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
