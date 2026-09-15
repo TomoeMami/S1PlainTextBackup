@@ -7503,3 +7503,66 @@ mc官推没发文猜评分，那就是明天了。
 
 仔细一想也没那么容易，这作大概率能力上限是很高的，40级哪怕每级都是全能力+1都绿不了
 
+
+*****
+
+####  hl氏  
+##### 3616#       发表于 2026-9-15 22:28
+
+我认为职业也是角色的特性，任何游戏我都不喜欢自由转
+
+*****
+
+####  纪寞  
+##### 3617#       发表于 2026-9-15 22:30
+
+这开发者日志看得我有点难受了，真主角是半路加进来的，甚至5年后是合成数值怪，特技、熟练度、战技这些全继承的话，感觉5年后的真主角数值相比会很搞笑。这真主角40级的数值也看起来不是很高啊
+
+*****
+
+####  thecatnie  
+##### 3618#       发表于 2026-9-15 22:30
+
+感觉就是放弃后期平衡了，普通难度后期就是无双，高难度后期就是互秒
+
+*****
+
+####  血狂毘沙门  
+##### 3619#       发表于 2026-9-15 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241140&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-9-15 22:28</a>
+
+我认为职业也是角色的特性，任何游戏我都不喜欢自由转</blockquote>
+自由转是对的
+
+就得让几个山贼哥们转舞者去跳舞（
+
+*****
+
+####  纪寞  
+##### 3620#       发表于 2026-9-15 22:32
+
+这作数值比风花雪月还难绷的话，草木原真有了
+
+
+*****
+
+####  Edvinno  
+##### 3621#       发表于 2026-9-15 22:35
+
+真主角是开发半途加进来的，感觉有点不妙啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  thecatnie  
+##### 3622#       发表于 2026-9-15 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241170&amp;ptid=2261859" target="_blank">Edvinno 发表于 2026-9-15 22:35</a>
+
+真主角是开发半途加进来的，感觉有点不妙啊
+
+—— 来自 S1Fun</blockquote>
+前期摄像头，后期工具人<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
