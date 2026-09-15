@@ -6882,3 +6882,49 @@ pdd 显示已发货，之前都没买过日邮，发货这么早的吗？
 
 你最好真的发货那样贵点早拿到我也能接受了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小学生把持不住  
+##### 3551#       发表于 2026-9-15 10:55
+
+那个目前只有头像立绘的深蓝色头发，很有嘴臭剑痴味的帅锅这么没存在感吗
+
+*****
+
+####  黑酒杯  
+##### 3552#       发表于 2026-9-15 10:55
+
+昨天晚上买的发现已经发货了
+
+
+*****
+
+####  freedom12  
+##### 3553#       发表于 2026-9-15 11:00
+
+<img src="https://img.stage1st.com/forum/202609/15/105953gumuettisxvbf6jv.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (25.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 10:59 上传
+
+<img src="https://img.stage1st.com/forum/202609/15/105953fpp6eusz370w0338.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (18.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 10:59 上传
+
+还有这俩人应该也是有戏份的角色
+
+*****
+
+####  cox  
+##### 3554#       发表于 2026-9-15 11:04
+
+头盔男真的没被白发鬼一斧子劈死么，怎么在各种PV里完全没有存在感。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

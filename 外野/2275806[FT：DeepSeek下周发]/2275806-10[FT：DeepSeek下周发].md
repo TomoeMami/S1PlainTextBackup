@@ -7269,3 +7269,21 @@ ykw的加速是民族主义叙事
 但是dario这个主张根本没啥意义吧</blockquote>
 Dario只是试图显示一个自己不是硅谷右的态度，寄希望于民主党中期选举大胜以后揍他别揍的那么狠，能不能做，怎么做没什么意义<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 13859#       发表于 2026-9-15 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237480&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-15 10:56</a>
+Dario只是试图显示一个自己不是硅谷右的态度，寄希望于民主党中期选举大胜以后揍他别揍的那么狠，能不能 ...</blockquote>
+这倒是有点春江水暖鸭先知
+
+难道ykw真的中期选举危了？
+
+不过民主党上台也未必真会限制ai吧
+
+半导体禁令就是民主党开始搞的
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
