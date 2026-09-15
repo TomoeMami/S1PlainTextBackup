@@ -1345,3 +1345,18 @@ IGN最近是不是在左右互搏，上个月说任天堂失去了传统，这�
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Marro  
+##### 74#       发表于 2026-9-15 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230105&amp;ptid=2289565" target="_blank">Rowen233 发表于 2026-9-13 23:13</a>
+
+本来pc挺有威胁的 AI直接给消费PC干烂了
+
+明年据说一万以下笔记本都要把3050翻出来了
+
+游戏机再怎么搞涨价也 ...</blockquote>
+ps5pro已经10000元以上了，跟pc消费一起死了。
+
