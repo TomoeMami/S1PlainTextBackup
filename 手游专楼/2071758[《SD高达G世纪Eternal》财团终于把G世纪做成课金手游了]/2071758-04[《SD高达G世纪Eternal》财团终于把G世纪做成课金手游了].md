@@ -268,3 +268,13 @@ ZZ挑战总算打完了，全程只有SSR EXS在输出，太难顶了</blockquot
 单眼你怎么打的</blockquote>
 我sp了奥伯隆然后还上了卡池的两台ssr过的，奥伯隆sp的很不情愿<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 4703#       发表于 2026-9-15 18:07
+
+怎么正义女神也是盾机，太奇怪了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
