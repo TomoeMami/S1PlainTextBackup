@@ -7981,3 +7981,22 @@ deepseek pro服务出现性能下降
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  wasian  
+##### 13926#       发表于 2026-9-15 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240581&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-9-15 20:10</a>
+
+客户端和网页端最近三合一以后，发现没甲结果可以说是狂写一些不堪入目的东西。昨晚上不是突然崩溃了吗？ ...</blockquote>
+太寒碜了，好歹花点呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 13927#       发表于 2026-9-15 20:20
+
+大模型最诡异的30*24h
+
