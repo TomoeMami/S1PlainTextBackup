@@ -8353,3 +8353,31 @@ V4.1F的论文里明确提到训练中有几十个教师模型参与。除非你
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  杀人鲸  
+##### 13960#       发表于 2026-9-15 22:18
+
+ 本帖最后由 杀人鲸 于 2026-9-15 22:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241048&amp;ptid=2275806" target="_blank">弗里德里希大帝 发表于 2026-9-15 22:09</a>
+不会真有人在app上直接发给我生成黄文...balabala...吧？
+
+过于弱智了</blockquote>
+我感觉你高估人类的平均下限了，你只要去小红书上稍微搜索一下，就会发现这种人简直可以说层出不穷。同时，上面又猛烈批判：你们臭男人怎么那么喜欢用 AI 生成 Diffusion 的女仆形象？
+哎，太野蛮落后，满脑子黄色幻想了，还不如我们手画出来的。我只能说，女人真的是时刻都想着踩头。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  杀人鲸  
+##### 13961#       发表于 2026-9-15 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241006&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-9-15 21:56</a>
+一根筋两头堵了，某社区把这群人赶走过，至于为什么赶走</blockquote>
+也不知道旅程现在发展得怎么样了，祝她们安好吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
