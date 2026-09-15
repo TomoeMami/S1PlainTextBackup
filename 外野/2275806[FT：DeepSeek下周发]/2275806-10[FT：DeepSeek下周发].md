@@ -7601,3 +7601,23 @@ dsh 0.1.6 alpha更新了，加了实验性computer use 还有几个主流浏览�
 
 现在的4.1F的Computer use能力就很强了，靠Astra起头然后给4.1F做，这个东西真价值是机器人
 
+
+*****
+
+####  UncleDracula  
+##### 13887#       发表于 2026-9-15 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236763&amp;ptid=2275806" target="_blank">Baccano 发表于 2026-9-15 08:56</a>
+
+不知道诶，没碰到过这个问题
+
+你要不先试试把权限模式开到“完全访问”</blockquote>
+我在网页版操作的，国际版pro试用，你是国内版？都能用DSF4.1吗？
+
+*****
+
+####  nxmonitor  
+##### 13888#       发表于 2026-9-15 15:29
+
+如果我没理解错的话，V4.1F本质上的参数只有纸面上的一半，只不过P和D的神经网络不一样，那拿出一个3T模型也很正常，就是把V4Pro翻倍
+

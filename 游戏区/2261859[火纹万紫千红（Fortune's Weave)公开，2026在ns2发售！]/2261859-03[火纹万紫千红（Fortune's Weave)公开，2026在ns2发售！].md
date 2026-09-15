@@ -7077,3 +7077,20 @@ pdd买的显示已发出了，中通国际不知道今天能不能出物流信�
 
 连个偷跑信息都没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hl氏  
+##### 3569#       发表于 2026-9-15 15:29
+
+我只刷到一家500多的日本直邮
+
+*****
+
+####  ranapocket  
+##### 3570#       发表于 2026-9-15 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70239014&amp;ptid=2261859" target="_blank">reficul 发表于 2026-9-15 15:17</a>
+用的是什么券，怎么能这么便宜啊我去</blockquote>
+今天抽到了福袋80的券，本来已经不想买准备观望发售后的风评
+
