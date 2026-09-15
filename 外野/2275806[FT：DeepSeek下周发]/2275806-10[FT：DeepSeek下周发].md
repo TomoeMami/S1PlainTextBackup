@@ -8217,3 +8217,17 @@ arxiv有论文指出教师模型提供的全是噪声，所有涨点其实全部
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  杀人鲸  
+##### 13948#       发表于 2026-9-15 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240808&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-9-15 20:59</a>
+集美就不奇怪了，不过现在甲是有点厚…
+
+—— 来自 S1Fun</blockquote>
+甲厚那就想办法，而不是光明正大地表示要给我输出违规内容。这事实上可以说是最搞笑的是自己心里面没点逼数吗？内容为什么会违规？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
