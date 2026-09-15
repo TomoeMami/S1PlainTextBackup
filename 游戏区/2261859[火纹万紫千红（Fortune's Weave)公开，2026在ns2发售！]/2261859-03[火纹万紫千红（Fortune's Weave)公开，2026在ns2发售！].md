@@ -6704,3 +6704,21 @@ mc搞还没出啊？不是很早就送测了吗
 
 关系图张张有活啊，波拿巴怎么还催生hhhhh
 
+
+*****
+
+####  freedom12  
+##### 3533#       发表于 2026-9-15 09:20
+
+<img src="https://img.stage1st.com/forum/202609/15/092006k3j23w6xl36hn2r8.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>first-look-at-the-inside-box-art-for-fire-emblem-fortunes-v0-bxuk8bp1pjph1.webp</strong> (201.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 09:20 上传
+
+封面内衬
+
+还是不太理解为什么凯伊和A少队要少一个人
+

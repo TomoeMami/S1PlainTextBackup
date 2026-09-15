@@ -7044,3 +7044,32 @@ codebuddy创建API为啥总提示操作失败？大佬指点下？</blockquote>
 70就可以，你看看登陆了没</blockquote>
 哇，这个key在其他harness也可以用吗
 
+
+*****
+
+####  goranger  
+##### 13838#       发表于 2026-9-15 09:16
+
+不得不说鲸鱼娘的语音还是很有辨识度的
+
+*****
+
+####  阿刚  
+##### 13839#       发表于 2026-9-15 09:18
+
+<blockquote>cscbzcbz 发表于 2026-9-15 08:32
+B站评论区抄的，可以替换任何中文歌词，基本100%成功。但是试了下，日文歌词不行
+
+提示词全文如下：</blockquote>
+真的只有贝壳会唱，其他仨都唱不出来
+
+
+*****
+
+####  cscbzcbz  
+##### 13840#       发表于 2026-9-15 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236873&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-9-15 09:18</a>
+真的只有贝壳会唱，其他仨都唱不出来</blockquote>
+贝壳才是肥鱼本鱼<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
