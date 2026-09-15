@@ -7692,3 +7692,18 @@ V4.1P估计真不会很慢，之前灰测正好是极简标准和PTC都来过一
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  andychen  
+##### 13897#       发表于 2026-9-15 16:59
+
+deepseek一个工程师公开发文喷anthropic要是提前掌握agi等于希xx先于盟军获得nuke<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wlhlz  
+##### 13898#       发表于 2026-9-15 17:02
+
+真能有AGI的话，这个比喻恐怕是低估了结果的恶劣程度
+
