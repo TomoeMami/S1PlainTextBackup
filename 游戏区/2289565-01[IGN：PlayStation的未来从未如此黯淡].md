@@ -1320,3 +1320,16 @@ IGN最近是不是在左右互搏，上个月说任天堂失去了传统，这�
 
 无人在意的角落 marathon第三季延期 已经进icu了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 72#       发表于 2026-9-15 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235711&amp;ptid=2289565" target="_blank">哎哟卧槽了 发表于 2026-9-14 21:56</a>
+
+只當平台的話現在的索尼還有什麼吸引力……？
+
+—— 來自 Google Pixel 2, Android 11, 鵝球 v3.5.99 ...</blockquote>
+北美cod，gta默认机
+
