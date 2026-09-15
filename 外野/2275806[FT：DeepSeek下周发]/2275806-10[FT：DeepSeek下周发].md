@@ -8391,3 +8391,34 @@ V4.1F的论文里明确提到训练中有几十个教师模型参与。除非你
 
 然后发现有人做了个客户端，还能联动steam的壁纸引擎本地文件作为聊天背景。
 
+
+*****
+
+####  阿刚  
+##### 13963#       发表于 2026-9-15 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240682&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-9-15 20:31</a>
+
+是啊，API 那边虽然现在也有点儿严，想办法破了以后还是可以写很多东西的，但就想赖在免费的这边。
+
+对了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">我就搞不懂了，api几乎跟裸奔一样又是白菜价，怎么就跟个炫压抑智障一样在这说这种屁话都不肯稍微学一下……这种c端用户赶走都是仁慈的了，得用枪打了
+
+*****
+
+####  novem  
+##### 13964#       发表于 2026-9-15 23:03
+
+只用deepseek网页版问一些简单问题的我竟然被封号4天
+
+太迷了吧
+
+pro永久下架就算了，flash也开始赶人
+
+*****
+
+####  GJRstone  
+##### 13965#       发表于 2026-9-15 23:07
+
+不要刚在聊弱智集美后就突然像反串一样发一个赶不走的c端用户发言啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
