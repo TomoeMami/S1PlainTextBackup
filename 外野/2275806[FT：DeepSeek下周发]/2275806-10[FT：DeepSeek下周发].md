@@ -8301,3 +8301,14 @@ Astra做的缺了要素，作为一个需要体现速度感的游戏，赛车尾
 
 估计有Engram在世界知识大幅提升，前面灰测的也是表现力可能不如Fable，建模比较粗糙而且存在偏色，但是物理逻辑显然更强
 
+
+*****
+
+####  绝地潜兵  
+##### 13955#       发表于 2026-9-15 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240876&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-9-15 21:17</a>
+
+甲厚那就想办法，而不是光明正大地表示要给我输出违规内容。这事实上可以说是最搞笑的是自己心里面没点逼 ...</blockquote>
+一根筋两头堵了，某社区把这群人赶走过，至于为什么赶走<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
