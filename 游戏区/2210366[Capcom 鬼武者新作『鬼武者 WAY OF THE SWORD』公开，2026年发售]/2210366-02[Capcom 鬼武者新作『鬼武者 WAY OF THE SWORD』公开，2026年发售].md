@@ -4708,3 +4708,15 @@ B站神秘的推荐机制，看完差点没绷住
 这游戏的美术怎么这么难受，re引擎在我印象里画面做的挺干净的，这次感觉整个pipeline都是个半成品，脏糊黑 ...</blockquote>
 就一条，开HDR
 
+
+*****
+
+####  隔壁老黄  
+##### 1880#       发表于 2026-9-16 00:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241551&amp;ptid=2210366" target="_blank">kuarwbwe 发表于 2026-9-16 00:13</a>
+打完了。
+最大的优点不用说了。
+其他满意的点，剧情我挺喜欢的。简单的好人杀恶人的剧情，同时收获成长的故 ...</blockquote>
+阿国看久了还行，静御前实在丑得太离谱，好歹三大美女之一，跟路人大妈比也强不到哪里去
+
