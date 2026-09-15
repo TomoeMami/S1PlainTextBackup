@@ -7582,3 +7582,22 @@ ds应该比哈基米听话很多，效果会更好
 
 dsh 0.1.6 alpha更新了，加了实验性computer use 还有几个主流浏览器控制mcp（web界面都看不到相关选项，得等未来启用）,另外模式切换功能做成beta开关了，默认无任何提示启用标准模式，极简之类的模式需要在设置开启选项后才能切换，应该是未来桌面端要推向大众用户，默认只启用标准模式。
 
+
+*****
+
+####  lactone  
+##### 13885#       发表于 2026-9-15 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70238952&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-15 15:09</a>
+dsh 0.1.6 alpha更新了，加了实验性computer use 还有几个主流浏览器控制mcp（web界面都看不到相关选项，得 ...</blockquote>
+难道传ds code 2.0聚焦computer use是真的<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  nxmonitor  
+##### 13886#       发表于 2026-9-15 15:17
+
+现在的4.1F的Computer use能力就很强了，靠Astra起头然后给4.1F做，这个东西真价值是机器人
+

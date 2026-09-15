@@ -7052,3 +7052,28 @@ pdd买的显示已发出了，中通国际不知道今天能不能出物流信�
 
 反正不是今晚就是明晚，
 
+
+*****
+
+####  gambleman  
+##### 3566#       发表于 2026-9-15 15:19
+
+看到有 80 福袋可以最低到 300，把 342 的退了，但刷了三天，福袋就是刷不到 80 的 ，被大数据算的明明白白<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neokirin  
+##### 3567#       发表于 2026-9-15 15:24
+
+之前有80%-80券拿来买300块的pro2手柄了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这两天死活刷不出，拿个V3券328下单了
+
+
+*****
+
+####  thecatnie  
+##### 3568#       发表于 2026-9-15 15:24
+
+连个偷跑信息都没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
