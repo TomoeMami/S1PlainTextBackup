@@ -7829,3 +7829,15 @@ deepseek一个工程师公开发文喷anthropic要是提前掌握agi等于希xx�
 
 最可能的博弈结果是某种备案制度，超过一定规模的模型只能在公权力的监督下部署
 
+
+*****
+
+####  蜇灵  
+##### 13912#       发表于 2026-9-15 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236106&amp;ptid=2275806" target="_blank">2035年 发表于 2026-9-14 23:34</a>
+https://mp.weixin.qq.com/s/ieOE4mzyMoa8OVcAOAkhzg
+
+DSH居然偷偷做了一个官方的客户端</blockquote>
+怎么又是electron，就不能换成WebView吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
