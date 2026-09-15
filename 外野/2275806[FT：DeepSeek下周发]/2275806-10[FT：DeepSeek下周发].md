@@ -8231,3 +8231,28 @@ arxiv有论文指出教师模型提供的全是噪声，所有涨点其实全部
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwased  
+##### 13949#       发表于 2026-9-15 21:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240847&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-15 21:09</a>
+
+训练模型可能是更大更重更稠密的模型呗，做做研究可以，可以用来当做生产设施，但是不能被当做一个ds的产 ...</blockquote>
+那直接训练一个更大的模型不就可以了吗，没必要脱裤子放屁<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一般市民  
+##### 13950#       发表于 2026-9-15 21:33
+
+[https://x.com/superalesha/status/2099836448044175427](https://x.com/superalesha/status/2099836448044175427)
+
+“我给 DeepSeek 分配了一个 Astra 子代理。然后我给 Astra 分配了一个 DeepSeek 子代理。
+
+然后我让它们两个单独工作，因为显然我需要 4 个版本的马里奥赛车。”
+
+推上老外做的测试，很有趣。
+
