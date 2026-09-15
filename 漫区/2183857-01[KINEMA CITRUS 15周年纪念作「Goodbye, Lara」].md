@@ -541,3 +541,19 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 泡とか魚描けて楽しい仕事でした！何卒。
 <img src="https://p.sda1.dev/35/eddab1778ceb8bdc92a7d36ea09d17ab/HSMpkhQa4AAerTT.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 535#         楼主| 发表于 2026-9-15 16:07
+
+第12話「さよならララ」
+
+ララが家族を救う唯一の方法、それは「愛する者を殺す」こと。
+
+ララの脳裏に思い浮かぶのは他でもない、茉里だった。
+
+琵琶湖での異常気象が行く手を阻むなか、茉里はララに会いにいく。
+
+[https://youtu.be/to_k0tOsgSI](https://youtu.be/to_k0tOsgSI)
+
