@@ -7191,3 +7191,22 @@ pdd买的显示已发出了，中通国际不知道今天能不能出物流信�
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  巴尔干炮  
+##### 3581#       发表于 2026-9-15 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240103&amp;ptid=2261859" target="_blank">woaimiyabi 发表于 2026-9-15 18:11</a>
+
+什么时候出分 明天？</blockquote>
+mc官推没发文猜评分，那就是明天了。
+
+
+*****
+
+####  jst-11  
+##### 3582#       发表于 2026-9-15 18:33
+
+想问问看日本直邮一般多久能送到呀，24号出去旅游，如果来不及就还是买数字版了
+
