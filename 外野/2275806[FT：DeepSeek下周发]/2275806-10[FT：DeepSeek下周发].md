@@ -7660,3 +7660,24 @@ V4.1P估计真不会很慢，之前灰测正好是极简标准和PTC都来过一
 
 这又是什么，企鹅还在搞赛马吗
 
+
+*****
+
+####  qwased  
+##### 13894#       发表于 2026-9-15 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70238722&amp;ptid=2275806" target="_blank">Cloude_L 发表于 2026-9-15 14:35</a>
+我为了应对反爬直接配置了让dsh调用真实浏览器的mcp，然后它就不分场合的用 ...</blockquote>
+我装了playwright之后ds特别喜欢用edge，给反重力装了哈基米就非常不爱用必须显式指定，也算是模型个性差异了
+
+*****
+
+####  qwased  
+##### 13895#       发表于 2026-9-15 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237879&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-9-15 11:53</a>
+笑死，DS总结网页文章原来是滑动浏览这么古法的吗？
+
+感觉就像是大肥鱼在屏幕上戳戳一样，可爱捏。</blockquote>
+可能是按需加载的网页，不滑就看不到了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
