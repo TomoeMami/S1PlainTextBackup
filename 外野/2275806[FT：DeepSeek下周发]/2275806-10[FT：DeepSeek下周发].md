@@ -8043,3 +8043,55 @@ flash刚出 pro训练肯定没那么快（
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lly778  
+##### 13932#       发表于 2026-9-15 20:34
+
+pro肯定比flash早训练出来的啊，flash就是pro蒸馏的
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  真红之闪电  
+##### 13933#       发表于 2026-9-15 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240682&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-9-15 20:31</a>
+
+是啊，API 那边虽然现在也有点儿严，想办法破了以后还是可以写很多东西的，但就想赖在免费的这边。
+
+对了 ...</blockquote>
+这哪里来的弱智发言……
+
+*****
+
+####  舞以  
+##### 13934#       发表于 2026-9-15 20:39
+
+flash应该不是从pro蒸馏的，理论上应该是有多个专门的教师模型（coding、数理、问答等等），pro和flash都是学生。
+
+
+*****
+
+####  来都来了  
+##### 13935#       发表于 2026-9-15 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240581&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-9-15 20:10</a>
+客户端和网页端最近三合一以后，发现没甲结果可以说是狂写一些不堪入目的东西。昨晚上不是突然崩溃了吗？ ...</blockquote>
+这不就是梁子说的赶都赶不走的用户吗？难怪他想赶这些人。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 13936#       发表于 2026-9-15 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240694&amp;ptid=2275806" target="_blank">lly778 发表于 2026-9-15 20:34</a>
+pro肯定比flash早训练出来的啊，flash就是pro蒸馏的
+
+—— 来自 Xiaomi 2211133C, Android 15, 鹅球 v4.0-a ...</blockquote>
+4.0flash是pro蒸馏的
+
+4.1flash是个全新模型，同架构的pro应该还没完成训练
+
