@@ -7352,3 +7352,14 @@ AI已成为中期选举中日益受关注的议题。两党候选人都利用了
 
 2026-9-15 11:23 上传
 
+
+*****
+
+####  sellboy  
+##### 13865#       发表于 2026-9-15 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70237597&amp;ptid=2275806" target="_blank">sennheiser 发表于 2026-9-15 11:12</a>
+
+装了，官方的dsh客户端，终于折腾完毕了，应该不再考虑折腾换哪个客户端的问题了吧，嘻嘻 ...</blockquote>
+装DSH还是学习为主，不适合真的做事，毕竟1.0都没有。
+
