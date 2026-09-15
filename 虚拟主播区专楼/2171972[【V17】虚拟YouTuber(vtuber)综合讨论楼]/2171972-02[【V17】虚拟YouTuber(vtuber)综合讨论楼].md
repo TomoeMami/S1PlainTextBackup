@@ -272,3 +272,16 @@
 
 第三弹
 
+
+*****
+
+####  高等黑暗  
+##### 2106#       发表于 2026-9-15 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241316&amp;ptid=2171972" target="_blank">sekai2014 发表于 2026-9-15 23:15</a>
+
+https://note.com/toudaikun/n/n593206183d47
+
+第三弹</blockquote>
+看喷了 这金鱼简直是真假千金AI文里的假千金
+
