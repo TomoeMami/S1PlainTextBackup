@@ -8430,3 +8430,14 @@ pro永久下架就算了，flash也开始赶人
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你别说贝壳姐能唱的歌还挺多，就是调子不太准
 
+
+*****
+
+####  qwased  
+##### 13967#       发表于 2026-9-15 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241059&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-15 22:11</a>
+
+V4.1F的论文里明确提到训练中有几十个教师模型参与。除非你觉得DS故意在论文里误导。 ...</blockquote>
+那这种教师模型是“更大更重更稠密运行成本更高”的吗，我就是很怀疑这点
+

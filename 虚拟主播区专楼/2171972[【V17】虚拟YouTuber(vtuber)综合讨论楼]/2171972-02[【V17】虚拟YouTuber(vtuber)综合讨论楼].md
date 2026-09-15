@@ -262,3 +262,13 @@
 
 [記事第２弾「夢月ロアは金魚坂めいろから何を守りたかったのか」](https://note.com/toudaikun/n/n2668ed71e101)
 
+
+*****
+
+####  sekai2014  
+##### 2105#       发表于 2026-9-15 23:15
+
+[https://note.com/toudaikun/n/n593206183d47](https://note.com/toudaikun/n/n593206183d47)
+
+第三弹
+

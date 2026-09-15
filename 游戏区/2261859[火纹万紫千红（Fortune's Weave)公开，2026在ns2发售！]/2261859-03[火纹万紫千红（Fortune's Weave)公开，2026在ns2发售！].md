@@ -7656,3 +7656,13 @@ mc官推没发文猜评分，那就是明天了。
 
 反正火纹中后期加入的角色大概率比不过已经转几次的老角色。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Beaverfan01  
+##### 3635#       发表于 2026-9-15 23:16
+
+ 本帖最后由 Beaverfan01 于 2026-9-15 23:17 编辑 
+
+dy有个在直播偷跑的，名字叫致哥。
+
