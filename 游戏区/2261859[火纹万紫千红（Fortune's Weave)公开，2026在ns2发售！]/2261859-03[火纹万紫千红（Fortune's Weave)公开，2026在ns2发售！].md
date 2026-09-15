@@ -6780,3 +6780,20 @@ pdd 显示已发货，之前都没买过日邮，发货这么早的吗？
 
 有什么角色都已经在内封面还要藏吗，难道是贝老师<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罐子  
+##### 3540#       发表于 2026-9-15 10:06
+
+哦草，竟然还有300块的卡带<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+昨天已经购入数字版了，感觉亏了一个亿
+
+*****
+
+####  cox  
+##### 3541#       发表于 2026-9-15 10:07
+
+这发型，赛亚人么。<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

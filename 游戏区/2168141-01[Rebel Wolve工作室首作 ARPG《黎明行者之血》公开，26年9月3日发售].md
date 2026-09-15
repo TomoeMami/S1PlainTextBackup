@@ -371,3 +371,19 @@ Deck不管怎么调都糊得玩不下去，但是这种rpg游戏不想在电脑�
 
 另外装备对比、一键折叠、旋转人物模型展示、适配手柄的快速翻页和快速调整数字之类边角地方毛糙得让人感觉这游戏比起老兵更像是新兵蛋子做的。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 149#       发表于 2026-9-15 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70220898&amp;ptid=2168141" target="_blank">Schwarzess 发表于 2026-9-11 19:18</a>
+确实，技能需要书+技能点+时间三种资源就很离谱。
+几种重要的主动技能做个独立小任务花时间就挺好的，比 ...</blockquote>
+没记错的话
+我的动脉斩击是欧恰任务做完之后，买书学了两级然后瞎子战友那学的第三级
+
+这游戏自由度还算可以的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

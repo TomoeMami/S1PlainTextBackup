@@ -225,3 +225,14 @@ V拆分的话，只有V高达V大叔肯定撑不起</blockquote>
 Z挑战就是URzeta体验关，空中图太多，UR穿波机911基本都是一下一个</blockquote>
 初登场30发摸不到，现在复刻30发还是摸不到，只能再见
 
+
+*****
+
+####  kenqqex  
+##### 4699#       发表于 2026-9-15 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70235907&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-9-14 22:43</a>
+
+ZZ挑战总算打完了，全程只有SSR EXS在输出，太难顶了</blockquote>
+单眼你怎么打的
+
