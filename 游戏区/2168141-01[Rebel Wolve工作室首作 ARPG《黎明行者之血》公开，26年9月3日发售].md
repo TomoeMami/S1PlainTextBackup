@@ -472,3 +472,37 @@ Deck不管怎么调都糊得玩不下去，但是这种rpg游戏不想在电脑�
 打完投降线和自由人路线。结局大方向都是统一的？只有不同支线人物差分？就算投降还是让科恩去卖命。支线看 ...</blockquote>
 后手就是兰嘉嘛，摧毁了科恩拯救家人的目标，也给续作铺垫。结局感觉也是续作大方向已经定好了，所以没有做不同走向。还有科恩的黎明行者身份，仲裁官套是全面加成还挺合理的。
 
+
+*****
+
+####  安瓦尔阿明  
+##### 157#       发表于 2026-9-15 19:41
+
+哈基亨吸血鬼时候：https://www.nexusmods.com/thebloodofdawnwalker/mods/425?tab=description
+
+<img src="https://img.stage1st.com/forum/202609/15/194059qgve9vj9gbrebvt9.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1789472449805_223.jpg</strong> (63.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 19:40 上传
+
+<img src="https://img.stage1st.com/forum/202609/15/194059lt2zvzs7dgngnzdt.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1789472448607_598.jpg</strong> (161.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 19:40 上传
+
+<img src="https://img.stage1st.com/forum/202609/15/194059ap5zww6o0h1kwzhi.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1789472447254_693.jpg</strong> (261.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-15 19:40 上传
+
+比较变态的还有把秧鸡的模型换成安布卢斯的，这练习时长不足两年半的吸血鬼小伙好像很受欢迎。
+

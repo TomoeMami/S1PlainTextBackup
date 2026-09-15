@@ -7904,3 +7904,42 @@ Claude达到agi先把a畜炸了
 electron没问题，生态好兼容强，隔壁reasonix用了半天Wails最后还是换回electron。
 dsh本身没有性能要求，兼容和稳定就是第一位，用Tauri能省个webview打包体积但是省不了实际内存占用，后端node也体现不出rust性能优势，不同机器的webview版本无法预料，electron做外壳直接复用dsh web就是省开发的最优解。
 
+
+*****
+
+####  Baccano  
+##### 13919#       发表于 2026-9-15 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70239081&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-9-15 15:29</a>
+
+我在网页版操作的，国际版pro试用，你是国内版？都能用DSF4.1吗？</blockquote>
+国内版能用4.1啊，跟官方api同一天上线的。
+
+你的创建API失败是什么意思？官网生成API密钥失败吗？
+
+那我真不知道了，我没充钱，没创建过。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 13920#       发表于 2026-9-15 19:40
+
+deepseek pro服务出现性能下降
+
+是大的要来了，还是小的（0813）要走了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+更新：刷新一下显示绿了
+
+
+*****
+
+####  serj005  
+##### 13921#       发表于 2026-9-15 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240452&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-15 19:40</a>
+deepseek pro服务出现性能下降
+
+是大的要来了，还是小的（0813）要走了</blockquote>
+刚刚网页版炸了一会儿
+
