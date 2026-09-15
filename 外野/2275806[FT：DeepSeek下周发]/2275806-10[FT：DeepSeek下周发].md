@@ -6876,3 +6876,30 @@ DS炸了，大的来了？
 
 昨天晚上炸了吗，没看到邮件<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小野賢章  
+##### 13825#       发表于 2026-9-15 08:20
+
+我就试出来一次唱歌，后面都是念歌词
+
+*****
+
+####  neptunehs  
+##### 13826#       发表于 2026-9-15 08:22
+
+本月不是进入低潮期了吗 为啥会有大的
+pro的训练也不可能那么快啊
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  misuzu0723  
+##### 13827#       发表于 2026-9-15 08:25
+
+估计和 0731 一样，用量多了所以开始不稳定了？别又整的过段时间撑不住了要涨价
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
