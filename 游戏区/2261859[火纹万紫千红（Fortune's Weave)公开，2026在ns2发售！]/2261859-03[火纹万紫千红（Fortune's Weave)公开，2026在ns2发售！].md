@@ -7112,3 +7112,28 @@ pdd买的显示已发出了，中通国际不知道今天能不能出物流信�
 
 395买了日服数字版的只能自我安慰好歹能第一时间玩
 
+
+*****
+
+####  喵咪咪格勒  
+##### 3573#       发表于 2026-9-15 16:29
+
+冲动了  不该退340的日本邮的 没刷出300 还只刷到香港邮的340<img src="https://static.stage1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hl氏  
+##### 3574#       发表于 2026-9-15 16:31
+
+刷不到便宜的日本直邮，放弃了，打算买399兑换码，早爽一晚值100
+
+
+*****
+
+####  黑上シグマ  
+##### 3575#       发表于 2026-9-15 16:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海淘限定版的一边喝茶一边看着你们，表示情绪稳定，不过EMS回来一个礼拜应该也够了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
