@@ -7104,3 +7104,11 @@ pdd买的显示已发出了，中通国际不知道今天能不能出物流信�
 
 顺手看了一下19年买风花雪月花了我350块钱，万紫千红才302<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  feizong  
+##### 3572#       发表于 2026-9-15 16:25
+
+395买了日服数字版的只能自我安慰好歹能第一时间玩
+
