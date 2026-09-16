@@ -412,3 +412,17 @@
 比傻卵泳装强就是赢</blockquote>
 纲哥在挑衅库库尔坎的时候我就笑了，谁给你的胆量的<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 21604#       发表于 2026-9-16 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248322&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-9-16 22:40</a>
+
+纲哥在挑衅库库尔坎的时候我就笑了，谁给你的胆量的</blockquote>
+毕竟剧情给你按头上限制了
+
+硬要说只能算加勒底员工培训不到位，完全不了解鸟头ort的危险性
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
