@@ -8845,3 +8845,14 @@ dsh本身没有性能要求 ...</blockquote>
 
 下载的大模型已经有2T多了，换着玩<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 14006#       发表于 2026-9-16 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244178&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-16 12:17</a>
+
+x上说openai和a/各自抢了几十万台mac来给内部做推理算力</blockquote>
+那个用来后训练 computer use 的
+

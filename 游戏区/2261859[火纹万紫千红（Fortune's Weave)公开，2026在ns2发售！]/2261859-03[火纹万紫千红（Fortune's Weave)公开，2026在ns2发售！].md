@@ -8590,3 +8590,13 @@ eshop不让用外国信用卡，头回在日亚买数字版，先弹了安全警
 都偷跑这么多天了，有人能用最直接、最干脆、最不废话、最不绕弯子的方式评价一下吗 ...</blockquote>
 偷跑的全在前期。
 
+
+*****
+
+####  bbluekid  
+##### 3703#       发表于 2026-9-16 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244799&amp;ptid=2261859" target="_blank">zzzplht 发表于 2026-9-16 13:38</a>
+都偷跑这么多天了，有人能用最直接、最干脆、最不废话、最不绕弯子的方式评价一下吗 ...</blockquote>
+料太足了，偷跑玩了十个小时四条线都刚开个头
+
