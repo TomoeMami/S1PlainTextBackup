@@ -30,3 +30,22 @@ HM新作感觉应该放弃这种RogueLite的路线了，尝试更传统的宽线
 
 2026-9-16 11:30 上传
 
+
+*****
+
+####  黑猫软  
+##### 815#       发表于 2026-9-16 13:36
+
+<blockquote>SergeGlenn 发表于 2026-9-16 11:31
+顽皮狗一个招聘经理的履历信息里显示25年的时候顽皮狗的已经达到了600+人规模，星际单项目的制作不会有这么 ...</blockquote>
+21年就有传在做神海
+
+<img src="https://img.stage1st.com/forum/202609/16/133656plajkt77f6bjfxya.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1789536913365_999.jpg</strong> (254.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-16 13:36 上传
+
