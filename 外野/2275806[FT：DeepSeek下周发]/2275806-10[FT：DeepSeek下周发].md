@@ -9140,3 +9140,19 @@ psp跑ai？
 
 deepseek的c端真的是越来越好用，新功能加的也快，真的让人期待后面的更新
 
+
+*****
+
+####  奈落的孤火花  
+##### 14033#       发表于 2026-9-16 18:03
+
+这就是deepseek v4.1 flash high啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">气死我了 不想用了。max更是超级雷霆
+
+<img src="https://img.stage1st.com/forum/202609/16/180309kc99kmvovyckc6v9.png" referrerpolicy="no-referrer">
+
+<strong>CleanShot 2026-09-16 at 18.02.25@2x.png</strong> (272.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 18:03 上传
+
