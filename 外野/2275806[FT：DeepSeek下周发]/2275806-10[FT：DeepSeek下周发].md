@@ -8856,3 +8856,34 @@ dsh本身没有性能要求 ...</blockquote>
 x上说openai和a/各自抢了几十万台mac来给内部做推理算力</blockquote>
 那个用来后训练 computer use 的
 
+
+*****
+
+####  lactone  
+##### 14007#       发表于 2026-9-16 14:06
+
+gpt6sol或者luna可能这周发
+
+luna有没有可能打fable
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  tonyunreal  
+##### 14008#       发表于 2026-9-16 14:06
+
+[https://benchmark.meowllm.top/](https://benchmark.meowllm.top/)
+
+L论坛看来的，蛮好玩
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  crow_wine  
+##### 14009#       发表于 2026-9-16 14:11
+
+有点麻烦，不知道为什么一个任务频繁触发大鲸鱼let me go的唱歌，妨碍的开发就有点不好笑了
+

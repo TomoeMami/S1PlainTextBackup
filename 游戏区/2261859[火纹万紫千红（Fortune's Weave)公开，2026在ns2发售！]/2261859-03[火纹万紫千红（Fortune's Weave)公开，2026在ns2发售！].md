@@ -8608,3 +8608,23 @@ eshop不让用外国信用卡，头回在日亚买数字版，先弹了安全警
 
 偷跑的都多久进第一次走格子战斗
 
+
+*****
+
+####  mull132  
+##### 3705#       发表于 2026-9-16 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244930&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-9-16 13:59</a>
+偷跑的都多久进第一次走格子战斗</blockquote>
+一进去就是教学关走格子，给你从1级叮到40级
+然后过剧情，剧情完了和红花两个人走格子
+
+—— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a3a4sc  
+##### 3706#       发表于 2026-9-16 14:11
+
+媒体评价是今晚解禁吗？会赢吗？
+
