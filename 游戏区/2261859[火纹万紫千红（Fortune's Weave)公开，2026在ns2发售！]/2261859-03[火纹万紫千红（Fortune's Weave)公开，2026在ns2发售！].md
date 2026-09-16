@@ -8572,3 +8572,21 @@ eshop不让用外国信用卡，头回在日亚买数字版，先弹了安全警
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  zzzplht  
+##### 3701#       发表于 2026-9-16 13:38
+
+都偷跑这么多天了，有人能用最直接、最干脆、最不废话、最不绕弯子的方式评价一下吗
+
+*****
+
+####  巴尔干炮  
+##### 3702#       发表于 2026-9-16 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244799&amp;ptid=2261859" target="_blank">zzzplht 发表于 2026-9-16 13:38</a>
+
+都偷跑这么多天了，有人能用最直接、最干脆、最不废话、最不绕弯子的方式评价一下吗 ...</blockquote>
+偷跑的全在前期。
+

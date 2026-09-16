@@ -8826,3 +8826,22 @@ A处最大的问题是，它的算力与成本不成比例。它现在的算力�
 
 现在连接近20年前的psp都能跑ai了
 
+
+*****
+
+####  蜇灵  
+##### 14004#       发表于 2026-9-16 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70240418&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-15 19:31</a>
+electron没问题，生态好兼容强，隔壁reasonix用了半天Wails最后还是换回electron。
+
+dsh本身没有性能要求 ...</blockquote>
+一想到电脑里面几十个electron应用，占一大堆硬盘空间我就浑身难受<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  自由之紫roy  
+##### 14005#       发表于 2026-9-16 13:39
+
+下载的大模型已经有2T多了，换着玩<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
