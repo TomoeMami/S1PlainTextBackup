@@ -8644,3 +8644,18 @@ PDD终于搞到了8-80，买了个港版305，能接受。
 开发者访谈
 [https://www.nintendo.com/hk/interview/aacsa/index.html](https://www.nintendo.com/hk/interview/aacsa/index.html)
 
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 3709#       发表于 2026-9-16 14:28
+
+充满300块卡带的世界到底在哪里<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伽拉忒亚i  
+##### 3710#       发表于 2026-9-16 14:33
+
+前天晚上华越那批日邮的已经在称重了，希望中秋能玩上
+

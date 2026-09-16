@@ -57,3 +57,14 @@ HM新作感觉应该放弃这种RogueLite的路线了，尝试更传统的宽线
 
 PULSE系列又出新耳机了，Edge感觉不错啊，对比Elite把头梁改了也不知道耐用度怎样。explore也不知道能不能出个改款，我的一只耳坏了，刚好日本降价想换新，替代的inzonebuds实在不好用
 
+
+*****
+
+####  ybfelix  
+##### 817#       发表于 2026-9-16 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70219290&amp;ptid=2173605" target="_blank">clover293 发表于 2026-9-11 10:55</a>
+
+赫尔曼大概没资格去动战神的。。。本身就是靠吉姆上位的，地平线初代那个实绩哪里比的过tlou1。真要提也是 ...</blockquote>
+那到底索尼现在的终极幕后黑手是谁，怎么谁都没有实权
+
