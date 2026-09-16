@@ -8495,3 +8495,34 @@ eshop不让用外国信用卡，头回在日亚买数字版，先弹了安全警
 —— 来自 Sony XQ-EC72, Android 16上的 S1Next-鹅版 v2. ...</blockquote>
 去年老号，但只买过几个苹果充值卡
 
+
+*****
+
+####  火山野牛  
+##### 3694#       发表于 2026-9-16 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244200&amp;ptid=2261859" target="_blank">PigMourne 发表于 2026-9-16 12:20</a>
+
+eshop不让用外国信用卡，头回在日亚买数字版，先弹了安全警告，好不容易恢复账号了，信用卡死活不扣钱，日 ...</blockquote>
+好像说可以用日本paypal绑信用卡就可以在日本eshop买了
+
+*****
+
+####  创始’’’天翔  
+##### 3695#       发表于 2026-9-16 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244054&amp;ptid=2261859" target="_blank">Asukalangley33 发表于 2026-9-16 12:03</a>
+
+目前PDD只能刷到380的，是不是只能含泪买了
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, 鹅球 v4.0-alpha ...</blockquote>
+380这个价本来就不亏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，300出头那个叫血赚
+
+
+*****
+
+####  摸鱼玩家  
+##### 3696#       发表于 2026-9-16 12:55
+
+日服直接咸鱼买兑换卡不就行了
+

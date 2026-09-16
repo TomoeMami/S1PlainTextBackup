@@ -8813,3 +8813,16 @@ A处最大的问题是，它的算力与成本不成比例。它现在的算力�
 
 而你梁叔叔就能基本上只收你一个电费，让全世界敞开了蹬，自然也就不用天天在社交网络上发癫了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mitzvah  
+##### 14003#       发表于 2026-9-16 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244347&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-16 12:38</a>
+
+A处最大的问题是，它的算力与成本不成比例。它现在的算力就这么多，收入也就这么多。它想要获得更高的收入 ...</blockquote>
+保持对本地消费级顶尖ai六个月优势的ai成本正指数式的增长，但是本地ai的同智力成本反而在快速下降
+
+现在连接近20年前的psp都能跑ai了
+
