@@ -374,3 +374,13 @@
 那萌新才是欧狗，我这只是还了黑花的债</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">你俩半斤八俩
 
+
+*****
+
+####  jackyhuang  
+##### 21601#       发表于 2026-9-16 21:26
+
+满破图扔去洛克人zero当个BOSS都不奇怪
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
