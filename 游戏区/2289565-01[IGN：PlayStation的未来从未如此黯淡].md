@@ -1360,3 +1360,14 @@ IGN最近是不是在左右互搏，上个月说任天堂失去了传统，这�
 游戏机再怎么搞涨价也 ...</blockquote>
 ps5pro已经10000元以上了，跟pc消费一起死了。
 
+
+*****
+
+####  Rowen233  
+##### 75#       发表于 2026-9-16 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241467&amp;ptid=2289565" target="_blank">Marro 发表于 2026-9-15 23:48</a>
+
+ps5pro已经10000元以上了，跟pc消费一起死了。</blockquote>
+ps5 pro好歹有2Tb 而且比5060笔记本强吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
