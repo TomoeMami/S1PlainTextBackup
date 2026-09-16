@@ -8934,3 +8934,26 @@ astra这个幽默感牛逼
 
 刚才用 dsh  的标准模式触发了 workflow 插件，直接把我干欠费了。。。 简直是预算刺客啊，里面的默认配置太离谱了
 
+
+*****
+
+####  love4aids  
+##### 14014#       发表于 2026-9-16 16:00
+
+<img src="https://img.stage1st.com/forum/202609/16/160015sdyvagr7h2ztsdvv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 16:00 上传
+
+什么时候再重置下，没收到任务
+
+*****
+
+####  nxmonitor  
+##### 14015#       发表于 2026-9-16 16:01
+
+DSH的子代理开启没有控制好，甚至能开到曾孙代理……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

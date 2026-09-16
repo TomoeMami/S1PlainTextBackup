@@ -8884,3 +8884,19 @@ PDD终于搞到了8-80，买了个港版305，能接受。
 
 同天发售隔壁有个92，会赢吗火纹<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  freedom12  
+##### 3730#       发表于 2026-9-16 15:59
+
+<img src="https://img.stage1st.com/forum/202609/16/155919n9lj6lstj6lh9c3x.png" referrerpolicy="no-referrer">
+
+<strong>截图20260916155714.png</strong> (53.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 15:59 上传
+
+拿ai自己做假药
+
