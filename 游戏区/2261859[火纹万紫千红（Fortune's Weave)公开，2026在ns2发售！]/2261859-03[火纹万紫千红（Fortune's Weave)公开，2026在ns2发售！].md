@@ -8984,3 +8984,18 @@ DLC一点消息都没有，是不是涉及剧透或者终盘内容了
 不过，是零点还是十一点啊？</blockquote>
 日服北京11点，港服北京0点~
 
+
+*****
+
+####  qiyu1234  
+##### 3740#       发表于 2026-9-16 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70243031&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-9-16 10:32</a>
+
+【キャラクター】ラクシャ導師（CV：大久保藍子）
+
+ダグザ神殿に属する謎多き組織「ミトラス修道会」の頂点 ...</blockquote>
+真容应该就是预告片片头的抱婴绿发女了
+
+她的英文CV 与 欧美玩家之前根据声音猜测的片头绿发女巫的英文版CAST一致（当然也跟日文CV一样同时配音了前几天公布的贾思敏）
+
