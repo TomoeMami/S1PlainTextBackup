@@ -4770,3 +4770,27 @@ B站神秘的推荐机制，看完差点没绷住
 
 难绷
 
+
+*****
+
+####  windlikeman  
+##### 1886#       发表于 2026-9-16 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236473&amp;ptid=2210366" target="_blank">acropolis 发表于 2026-9-15 05:15</a>
+
+这游戏的美术怎么这么难受，re引擎在我印象里画面做的挺干净的，这次感觉整个pipeline都是个半成品，脏糊黑 ...</blockquote>
+比起半成品我感觉像是投入真的很有限或者立项早很多技术都没利用进去
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">过场没对口型+支线和闲聊这种非过场对话不是全语音真的太出戏了 
+
+
+*****
+
+####  Firvox  
+##### 1887#       发表于 2026-9-16 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70245294&amp;ptid=2210366" target="_blank">nancygreenlife 发表于 2026-9-16 14:53</a>
+难绷</blockquote>
+帮你补一个链接<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+【【鬼武者大雄】无伤速通胖虎小夫-哔哩哔哩】 [https://b23.tv/zts1H6l](https://b23.tv/zts1H6l)
+

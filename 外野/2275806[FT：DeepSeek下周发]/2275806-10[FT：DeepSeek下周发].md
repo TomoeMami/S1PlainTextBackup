@@ -9065,3 +9065,32 @@ Pro没下架啊，不是保留了吗</blockquote>
 我说的是网页版UI已经没有PRO的位置了，未来PRO参数量增大推理成本增加更不可能给人免费用了 ...</blockquote>
 哦，网页版确实没了，也许后面4.1p出来了会加上？
 
+
+*****
+
+####  overflowal  
+##### 14026#       发表于 2026-9-16 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70246092&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-9-16 16:47</a>
+哦，网页版确实没了，也许后面4.1p出来了会加上？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  love4aids  
+##### 14027#       发表于 2026-9-16 16:54
+
+跟gpt学就行了，网页版花钱才给pro用
+
+*****
+
+####  德尔惠净水器  
+##### 14028#       发表于 2026-9-16 16:57
+
+<blockquote>mitzvah 发表于 2026-9-16 12:51
+保持对本地消费级顶尖ai六个月优势的ai成本正指数式的增长，但是本地ai的同智力成本反而在快速下降
+
+现在 ...</blockquote>
+psp跑ai？
+
