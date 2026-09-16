@@ -10915,3 +10915,27 @@ FC时代的外传都能大地图和战斗分开存档吧</blockquote>
 
 掌机版开主机强化多少帧，不能也是30吧
 
+
+*****
+
+####  onlv星骸  
+##### 3950#       发表于 2026-9-17 07:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249429&amp;ptid=2261859" target="_blank">awy002 发表于 2026-9-17 07:13</a>
+掌机版开主机强化多少帧，不能也是30吧</blockquote>
+这是ns2原生游戏啊，哪有主机强化
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  awy002  
+##### 3951#       发表于 2026-9-17 07:20
+
+<blockquote>onlv星骸 发表于 2026-9-17 07:15
+这是ns2原生游戏啊，哪有主机强化
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+难受了，还不如有主机强化呢，我寻思降分辨率加帧数也行
+
