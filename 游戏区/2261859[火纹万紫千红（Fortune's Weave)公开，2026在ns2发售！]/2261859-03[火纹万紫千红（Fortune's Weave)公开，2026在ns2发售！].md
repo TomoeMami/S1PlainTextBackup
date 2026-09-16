@@ -10575,3 +10575,45 @@ live2d 做挺好的，以后多做（
 
 喜欢蕾达 选了蕾达线 
 
+
+*****
+
+####  新HGCG  
+##### 3914#       发表于 2026-9-17 01:29
+
+天龙八音断魂奏！
+
+*****
+
+####  lancelotezio  
+##### 3915#       发表于 2026-9-17 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249046&amp;ptid=2261859" target="_blank">忧蓝 发表于 2026-9-17 00:53</a>
+选了女王+1，女主可爱，部下的插科打诨也很有趣</blockquote>
+两个真是左膀右臂，怪不得关系图里面整得像监护人一样<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，猫猫就更可爱了
+
+
+*****
+
+####  新HGCG  
+##### 3916#       发表于 2026-9-17 01:33
+
+这家伙是坏人吧最后会被西瓜冰戳死 ​​​
+
+<img src="https://img.stage1st.com/forum/202609/17/013239yiunksxnkndquq4r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (303.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 01:32 上传
+
+*****
+
+####  hl氏  
+##### 3917#       发表于 2026-9-17 01:34
+
+选了雷达，CV喜欢，但是她的故事一眼看起来可能是最烂的
+
+还在犹豫的时候雷达的初期成员假小子穆很可爱，于是决定了
+

@@ -18,3 +18,11 @@
 
 —— 来自 realme RMX3708, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  医生狼多  
+##### 54#         楼主| 发表于 2026-9-17 01:27
+
+才看到有五个角色包，每个两人，现在有第一二个，其他的一个月一包 一直到 12 月推完<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
