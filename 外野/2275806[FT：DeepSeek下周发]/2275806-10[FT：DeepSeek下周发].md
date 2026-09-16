@@ -8766,3 +8766,16 @@ agent环境其实mac的算力是够用的，基本全程都在缓存里面
 —— 来 ...</blockquote>
 我看loclllam老哥跑出了40 tps tg ，800prefill的速度，配合提示缓存秒出还是能用的
 
+
+*****
+
+####  mitzvah  
+##### 13999#       发表于 2026-9-16 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244067&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-16 12:05</a>
+
+算力决定prefill，带宽决定decode
+
+agent环境其实mac的算力是够用的，基本全程都在缓存里面 ...</blockquote>
+ds4模型大多数情况下就是个无情的带宽机器，因为提示缓存命中率被优化得太好了，动不动99% 每一轮的新增对话都只要prefill几十个token，其它全部复用，mac算力低也不怕
+
