@@ -8156,3 +8156,184 @@ IS这是在？
 
 大幅强化个人技的独特性，像结合那样某些神技在某些fw手里就开心了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  freedom12  
+##### 3680#       发表于 2026-9-16 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70243220&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-16 10:51</a>
+
+说起纸娃娃。
+
+三房本体和无双，步兵的时候可以换成个人服装，但是只要转职骑乘类的，铠甲都会变强制变为兵 ...</blockquote>
+因为像裙子之类的私服不好做骑马动画
+
+
+*****
+
+####  freedom12  
+##### 3681#       发表于 2026-9-16 11:11
+
+<img src="https://img.stage1st.com/forum/202609/16/110944y1r21ei2bn9s197h.png" referrerpolicy="no-referrer">
+
+<strong>badge_0.png</strong> (19.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/110945dggnszg55jgubjns.png" referrerpolicy="no-referrer">
+
+<strong>badge_1.png</strong> (17.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/110945wlqolxduui9xw95q.png" referrerpolicy="no-referrer">
+
+<strong>badge_2.png</strong> (14.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/110948rulwlsz9tlm7c2mc.png" referrerpolicy="no-referrer">
+
+<strong>badge_3.png</strong> (16.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/110948n999yt7yvvpxwa96.png" referrerpolicy="no-referrer">
+
+<strong>badge_4.png</strong> (16.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/110948ma2t53cchtrdtxk2.png" referrerpolicy="no-referrer">
+
+<strong>badge_5.png</strong> (13.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/110949nrh91gup52hhcqwe.png" referrerpolicy="no-referrer">
+
+<strong>badge_6.png</strong> (14.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/110950ldmar06t7zzmmstd.png" referrerpolicy="no-referrer">
+
+<strong>badge_8.png</strong> (17.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/110949lenggorfprxfvkvm.png" referrerpolicy="no-referrer">
+
+<strong>badge_7.png</strong> (15.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/110958wt4222ptn332an2n.png" referrerpolicy="no-referrer">
+
+<strong>badge_10.png</strong> (11.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/110958nnwcyqq274bwvz76.png" referrerpolicy="no-referrer">
+
+<strong>badge_11.png</strong> (16.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/110958fqkn3wkgqmxk3xee.png" referrerpolicy="no-referrer">
+
+<strong>badge_9.png</strong> (14.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:09 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/111012cd1ixt64zs41sidt.png" referrerpolicy="no-referrer">
+
+<strong>badge_14.png</strong> (6.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:10 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/111011cceck63kkdtkjzkk.png" referrerpolicy="no-referrer">
+
+<strong>badge_12.png</strong> (10.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:10 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/111011gfy9ckdcbdcdqcq9.png" referrerpolicy="no-referrer">
+
+<strong>badge_13.png</strong> (16.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:10 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/111019o1kgm2gsxataojok.png" referrerpolicy="no-referrer">
+
+<strong>badge_17.png</strong> (9.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:10 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/111019pe01bvn1ppcffec2.png" referrerpolicy="no-referrer">
+
+<strong>badge_16.png</strong> (12.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:10 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/111019x1wwc39woym11b6m.png" referrerpolicy="no-referrer">
+
+<strong>badge_15.png</strong> (11.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:10 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/111020w3zr2eo0rcaaye3i.png" referrerpolicy="no-referrer">
+
+<strong>badge_19.png</strong> (16 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:10 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/111020hfl4ce166ncoodcr.png" referrerpolicy="no-referrer">
+
+<strong>badge_18.png</strong> (13.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:10 上传
+
+扣了一套队伍徽章，我是很喜欢本作的这套设计
+

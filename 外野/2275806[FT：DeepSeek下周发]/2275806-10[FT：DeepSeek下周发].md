@@ -8633,3 +8633,15 @@ jev 发布了. 好像是 Diffusion 模型. 100亿 token /42美元 输出免费. 
 
 4.1F能在单a3上部署吗，两台搞不起啊<img src="https://static.stage1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 13987#       发表于 2026-9-16 11:09
+
+jev这个模型我看了一下，感觉这玩意儿能够用的地方有限啊
+
+这个得你自己问问题，然后自己给选项，他还只能打分，没法告诉你为啥选这个
+
+—— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
