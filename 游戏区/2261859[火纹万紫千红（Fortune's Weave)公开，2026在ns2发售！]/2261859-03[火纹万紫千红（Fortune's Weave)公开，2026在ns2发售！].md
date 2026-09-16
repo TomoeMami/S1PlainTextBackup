@@ -9043,3 +9043,16 @@ DLC一点消息都没有，是不是涉及剧透或者终盘内容了
 同天发售隔壁有个92，会赢吗火纹</blockquote>
 十个媒体92分，火纹估计近百个媒体评分 有什么可比性吗？
 
+
+*****
+
+####  cox  
+##### 3745#       发表于 2026-9-16 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70246532&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-9-16 17:49</a>
+
+访谈指的非正派角色大概是之前介绍的可招募盗贼众，里面确实大部分角色不是什么好鸟
+
+真正意义上的剧情对 ...</blockquote>
+我感觉玛丽亚这种不好说，也许能入队，君子兰不指望了，一眼坏透了。。。<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
