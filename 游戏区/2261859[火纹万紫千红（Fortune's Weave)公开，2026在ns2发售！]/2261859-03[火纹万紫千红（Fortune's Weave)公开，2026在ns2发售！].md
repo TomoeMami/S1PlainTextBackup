@@ -9800,3 +9800,37 @@ IS就是怕重复才给四个人设置了四个特色系统吧
 
 看了一下问题还是风花雪月的问题，过多的重复内容填充战役间的时间，以及需要做太多无聊枯燥的日常据点内容来获取角色成长资源
 
+
+*****
+
+####  Troywest  
+##### 3823#       发表于 2026-9-16 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248119&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-9-16 22:01</a>
+看到佩佩五年后造型了
+
+不是8个主要队伍里的人，看来真是大部分角色都有新造型 ...</blockquote>
+你得考虑到is在给手游攒素材这层深谋远虑<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">万一这个四房过了，feh玩家可就有的抽了
+
+—— 来自 OnePlus PJZ110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hiro123  
+##### 3824#       发表于 2026-9-16 22:08
+
+看ign的评测第三幕有地域压制要素？
+
+*****
+
+####  freedom12  
+##### 3825#       发表于 2026-9-16 22:11
+
+一款上百小时的(j)rpg，肯定有垃圾时间
+
+无论是四条线中的部分同质内容，还是养成刷级等重复作业
+
+发上就要解锁了，现在纠结这个没什么必要
+
+就算xb/p系列以及隔壁轨迹不也一样，但让我真正喜欢上它们不是因为它们没短板，而是长板足够打动我
+

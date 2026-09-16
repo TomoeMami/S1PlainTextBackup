@@ -4804,3 +4804,21 @@ B站神秘的推荐机制，看完差点没绷住
 鬼杀难度真值得一玩，boss 数值高了之后会倒逼玩家思考每一步最优解（全一闪的高手除外），哪一招好闪的尽量拿下，拿不下的就用格挡用闪避求稳。
 一切皆苦，但我乐在其中，这剑之道我悟了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  astrayveller  
+##### 1889#       发表于 2026-9-16 22:16
+
+再见了马桶 鬼杀复战算是我玩的最爽的部分了 有续作我还买
+
+<img src="https://img.stage1st.com/forum/202609/16/221552s3dgmzwimymm9cm4.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1789568151842_1.webp</strong> (32.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 22:15 上传
+
+— from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

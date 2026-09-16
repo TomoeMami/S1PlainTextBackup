@@ -9202,3 +9202,11 @@ https://www.reddit.com/r/LocalLL ... ational_llm_on_the/
 
 https://github.com/thatblend/LLMPSP
 
+
+*****
+
+####  UncleDracula  
+##### 14037#       发表于 2026-9-16 22:09
+
+gpt plus只用Astra做规划，一次大概能用多少百分比额度？
+
