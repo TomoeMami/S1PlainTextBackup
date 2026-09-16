@@ -585,3 +585,15 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 [https://x.com/warder2013/status/2099843436421751129](https://x.com/warder2013/status/2099843436421751129)
 <img src="https://p.sda1.dev/35/be44f3fa973c5ccedca1497b7f296233/HSQkea8bAAAPipT.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wolf1997  
+##### 539#       发表于 2026-9-16 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70238235&amp;ptid=2183857" target="_blank">leitingkai 发表于 2026-9-15 12:53</a>
+因为你如果看过访谈就知道很多你以为制作组思考或者有隐喻的地方他们其实都什么也没想
+
+作为监督的小出在 ...</blockquote>
+是这样的，这片子一直在重复一个套路，前20分钟讲些有的没有，最后几分钟把演出拉上来表演一个大的要来了，然后下一集继续演有的没的，每一集在内容上没有承接关系。像是拉拉在ep8结尾说再也不急了，ep9却急了一整集。
+
