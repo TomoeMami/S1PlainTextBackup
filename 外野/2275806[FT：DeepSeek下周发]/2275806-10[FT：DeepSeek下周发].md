@@ -8779,3 +8779,13 @@ agent环境其实mac的算力是够用的，基本全程都在缓存里面
 agent环境其实mac的算力是够用的，基本全程都在缓存里面 ...</blockquote>
 ds4模型大多数情况下就是个无情的带宽机器，因为提示缓存命中率被优化得太好了，动不动99% 每一轮的新增对话都只要prefill几十个token，其它全部复用，mac算力低也不怕
 
+
+*****
+
+####  qwased  
+##### 14000#       发表于 2026-9-16 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244104&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-9-16 12:09</a>
+ds4模型大多数情况下就是个无情的带宽机器，因为提示缓存命中率被优化得太好了，动不动99% 每一轮的新增 ...</blockquote>
+x上说openai和a/各自抢了几十万台mac来给内部做推理算力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

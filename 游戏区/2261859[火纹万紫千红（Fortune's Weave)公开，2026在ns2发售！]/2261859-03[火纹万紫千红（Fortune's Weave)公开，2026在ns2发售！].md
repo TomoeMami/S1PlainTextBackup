@@ -8444,3 +8444,54 @@ IS这是在？
 
 —— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  PigMourne  
+##### 3689#       发表于 2026-9-16 12:20
+
+eshop不让用外国信用卡，头回在日亚买数字版，先弹了安全警告，好不容易恢复账号了，信用卡死活不扣钱，日亚里只剩一个神必订单，不能取消不能兑换甚至在客户服务里都选取不了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyzsuper  
+##### 3690#       发表于 2026-9-16 12:21
+
+今晚港服几点能玩？ 不知道11点能玩上不 _(:з」∠)_
+
+*****
+
+####  DarkDawn  
+##### 3691#       发表于 2026-9-16 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70243743&amp;ptid=2261859" target="_blank">黑卷轴陶德传 发表于 2026-9-16 11:35</a>
+
+没事，现在成长率直接显示了，适合什么一看便知道了</blockquote>
+那个看起来是加上了职业以后现有的情况，还是得分析一下
+
+当然这个不难分析就是了
+
+
+*****
+
+####  slime7  
+##### 3692#       发表于 2026-9-16 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244200&amp;ptid=2261859" target="_blank">PigMourne 发表于 2026-9-16 12:20</a>
+eshop不让用外国信用卡，头回在日亚买数字版，先弹了安全警告，好不容易恢复账号了，信用卡死活不扣钱，日 ...</blockquote>
+新号还是老号啊，我本来也打算日亚买数字版的
+
+—— 来自 Sony XQ-EC72, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  PigMourne  
+##### 3693#       发表于 2026-9-16 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244212&amp;ptid=2261859" target="_blank">slime7 发表于 2026-9-16 12:22</a>
+
+新号还是老号啊，我本来也打算日亚买数字版的
+
+—— 来自 Sony XQ-EC72, Android 16上的 S1Next-鹅版 v2. ...</blockquote>
+去年老号，但只买过几个苹果充值卡
+
