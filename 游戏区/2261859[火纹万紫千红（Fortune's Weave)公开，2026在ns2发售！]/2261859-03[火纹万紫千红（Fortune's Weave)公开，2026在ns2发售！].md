@@ -8667,3 +8667,63 @@ PDD终于搞到了8-80，买了个港版305，能接受。
 
 所以是锁30帧吗？340已经买了
 
+
+*****
+
+####  PigMourne  
+##### 3712#       发表于 2026-9-16 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244571&amp;ptid=2261859" target="_blank">bbluekid 发表于 2026-9-16 13:07</a>
+
+一般是等 24 小时再买就行</blockquote>
+确实，重买一份就正常了
+
+*****
+
+####  移除参数  
+##### 3713#       发表于 2026-9-16 14:49
+
+我怎么看到的都是420起步，300多的店铺在哪里
+
+
+*****
+
+####  slime7  
+##### 3714#       发表于 2026-9-16 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244415&amp;ptid=2261859" target="_blank">火山野牛 发表于 2026-9-16 12:47</a>
+好像说可以用日本paypal绑信用卡就可以在日本eshop买了</blockquote>
+问题是国际版paypal确认国籍需要那个国家手机号，要是有国外esim确实可以
+
+—— 来自 Sony XQ-EC72, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  小学生把持不住  
+##### 3715#       发表于 2026-9-16 14:51
+
+表面上关注媒体评分，实则不就是想看媒体给90分以下然后名正言顺发泄情绪，所谓低分就媒体有说服力，高分就媒体没存在必要，真觉得有潜力的都不用看媒体和问人了，早在专直就get到了。 三房恨、LGBT恨、NS2恨这三个群体真不要太明显<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ cox + 1好评加鹅
+
+查看全部评分
+
+*****
+
+####  取名真是难  
+##### 3716#       发表于 2026-9-16 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70245277&amp;ptid=2261859" target="_blank">小学生把持不住 发表于 2026-9-16 14:51</a>
+
+表面上关注媒体评分，实则不就是想看媒体给90分以下然后名正言顺发泄情绪，所谓低分就媒体有说服力，高分就 ...</blockquote>
+有一说一我还是巴不得这作给他打个95分的，连暗喻幻想这种货色都能打94，媒体早就失去公信力了，打个高分对火纹这个ip起码还是更大的正面作用。
+
