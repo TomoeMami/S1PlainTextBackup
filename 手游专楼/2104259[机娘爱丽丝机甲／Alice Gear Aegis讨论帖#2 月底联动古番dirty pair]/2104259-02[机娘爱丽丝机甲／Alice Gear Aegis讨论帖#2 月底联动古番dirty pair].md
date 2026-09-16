@@ -133,3 +133,11 @@
 
 没出过AN的还有几个都在排队呢。ST和FA都还有大把呢就急着出第二AN了我看你游要完<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 2112#         楼主| 发表于 2026-9-16 19:12
+
+不出或慢出新人可以理解，但开这么多个换皮gear一点都不更新就过分了
+

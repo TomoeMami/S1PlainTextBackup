@@ -154,3 +154,71 @@
 
 代达罗斯四星我能接受，现在这不论卡面还是宝具都不太配说是五星吧
 
+
+*****
+
+####  zore  
+##### 21582#       发表于 2026-9-16 19:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本体是手吧大概
+
+*****
+
+####  qixinno1  
+##### 21583#       发表于 2026-9-16 19:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">满破还算能看 前两张卡面你跟我说是开服1星我都信
+
+*****
+
+####  alucardcz  
+##### 21584#       发表于 2026-9-16 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70246916&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-9-16 19:05</a>
+
+出了 抽泳装时怎么不是这出货率</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">这就是欧皇吗
+
+
+*****
+
+####  alucardcz  
+##### 21585#       发表于 2026-9-16 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70246916&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-9-16 19:05</a>
+
+出了 抽泳装时怎么不是这出货率</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/16/191222zs8yy415vdfiyd0s.png" referrerpolicy="no-referrer">
+
+<strong>333333333333333.png</strong> (603.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 19:12 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">为什么萌新抽出来的和你卡面不一样 
+
+*****
+
+####  qixinno1  
+##### 21586#       发表于 2026-9-16 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70246964&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-9-16 19:12</a>
+
+为什么萌新抽出来的和你卡面不一样</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">狗萌新又是五星NEW 欧羡慕 
+
+*****
+
+####  Jamaisvu  
+##### 21587#       发表于 2026-9-16 19:16
+
+<blockquote>angelooo 发表于 2026-9-16 19:05
+代达罗斯四星我能接受，现在这不论卡面还是宝具都不太配说是五星吧
+
+性别是男……你这卡面上只有手算是男人 ...</blockquote>
+因为抽的卡是代达罗斯而非瑙克拉特吧，以灵基名为主。
+
+就像泳装小町，基本上是小野篁代打，但因为爹只是灵基附属品，所以性别是女而非其他...
+

@@ -809,3 +809,14 @@ VFXスーパーバイザー：加藤道哉
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">24集就结束？这中坚战也没结果啊
 
+
+*****
+
+####  KDConan  
+##### 71#       发表于 2026-9-16 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70245387&amp;ptid=2258779" target="_blank">镜hinata 发表于 2026-9-16 15:06</a>
+
+24集就结束？这中坚战也没结果啊</blockquote>
+全季26吧<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">这集确实断得讨厌
+
