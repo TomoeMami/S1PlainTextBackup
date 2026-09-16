@@ -8,3 +8,13 @@
 
 这玩意简直路边一条了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名mahuyo  
+##### 53#       发表于 2026-9-16 23:51
+
+玩上ns2版了，60帧真舒服啊，想不到巴西服居然能同步解锁。
+
+—— 来自 realme RMX3708, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

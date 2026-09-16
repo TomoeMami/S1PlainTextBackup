@@ -10076,3 +10076,30 @@ eurogamer满分：[https://www.eurogamer.net/fire-emblem-fortunes-weave-review](
 
 非常希望能后面更新一个 40fps + VRR
 
+
+*****
+
+####  纯夏  
+##### 3853#       发表于 2026-9-16 23:46
+
+序章这主角的圣焰技也太imba了吧 十字星地图炮 直接是远程 还能秒一片 
+
+虽然烧HP是弊端 不能无脑用 但有这技能完全不怕围攻啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  meltingwhite  
+##### 3854#       发表于 2026-9-16 23:50
+
+问下你们40级属性是多少，这初始属性是固定的吗
+
+*****
+
+####  微尘众  
+##### 3855#       发表于 2026-9-16 23:52
+
+怎么感觉帧数不太好，稳不住30？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
