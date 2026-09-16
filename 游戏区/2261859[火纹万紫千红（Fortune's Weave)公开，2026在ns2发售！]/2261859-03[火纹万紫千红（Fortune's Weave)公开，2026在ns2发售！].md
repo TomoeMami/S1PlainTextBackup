@@ -9339,3 +9339,99 @@ opencritic是91  不过目前只有15家。
 
 5.最终幕的故事的反派从故事角度来说比较无趣
 
+
+*****
+
+####  woaimiyabi  
+##### 3776#       发表于 2026-9-16 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247006&amp;ptid=2261859" target="_blank">djw1984 发表于 2026-9-16 19:19</a>
+
+照你这么说，时之笛N64的MC99只有22个媒体评分，是不是可参考性也不高？</blockquote>
+放到现在参考性确实不高 在当时时代确实高。
+
+*****
+
+####  karastar  
+##### 3777#       发表于 2026-9-16 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247533&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-9-16 20:34</a>
+看了下评分较低的媒体的提出的问题
+
+1.流程过长，前期尚可，后期故事悬念已经基本没有，但是流程还需要重复 ...</blockquote>
+125三点感觉是可以预期的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 3778#       发表于 2026-9-16 20:39
+
+流程重复打什么意思，后面不是汇成单线了吗？是指五年前部分存在后期关卡重复的问题吗？
+
+*****
+
+####  thecatnie  
+##### 3779#       发表于 2026-9-16 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247533&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-9-16 20:34</a>
+
+看了下评分较低的媒体的提出的问题
+
+1.流程过长，前期尚可，后期故事悬念已经基本没有，但是流程还需要重复 ...</blockquote>
+怎么感觉像自己选的高难度，结果打不过去，恼羞成怒了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">“我没问题，是游戏做的有问题”
+
+*****
+
+####  bbluekid  
+##### 3780#       发表于 2026-9-16 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247575&amp;ptid=2261859" target="_blank">苍蓝之枪 发表于 2026-9-16 20:39</a>
+
+流程重复打什么意思，后面不是汇成单线了吗？是指五年前部分存在后期关卡重复的问题吗？ ...</blockquote>
+汇成单线四个主角得打4遍的意思
+
+*****
+
+####  u2deack  
+##### 3781#       发表于 2026-9-16 20:40
+
+虽然看到主角能有地图炮技能就想到堆怪和增援不会少，但是再来很多那种无限增援的关卡我真的不想打高难度
+
+*****
+
+####  nancygreenlife  
+##### 3782#       发表于 2026-9-16 20:40
+
+<blockquote>thecatnie 发表于 2026-9-16 20:39
+怎么感觉像自己选的高难度，结果打不过去，恼羞成怒了“我没问题，是游戏做的有问题” ...</blockquote>
+相当于风花雪月里面直接托管养成，连着托管了几个章节发现水温不对了
+
+
+*****
+
+####  Jabeck  
+##### 3783#       发表于 2026-9-16 20:42
+
+这次还能S结局吗？
+
+*****
+
+####  Edvinno  
+##### 3784#       发表于 2026-9-16 20:42
+
+虽然评分参考性有限，但永远忘不了冲了engage数字版之后看见GS 7分的心情<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 3785#       发表于 2026-9-16 20:43
+
+IGN 10
+[https://www.ign.com/articles/fire-emblem-fortunes-weave-review](https://www.ign.com/articles/fire-emblem-fortunes-weave-review)
+
+GS 9
+[https://www.gamespot.com/reviews ... he-series-new-peak/](https://www.gamespot.com/reviews/fire-emblem-fortunes-weave-is-the-series-new-peak/)
+
+MC
+[https://www.metacritic.com/game/fire-emblem-fortunes-weave/](https://www.metacritic.com/game/fire-emblem-fortunes-weave/)
+
