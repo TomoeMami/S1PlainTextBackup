@@ -9404,3 +9404,17 @@ aa是个不停拉屎，试图通过用自己屎糊满墙的作坊么？</blockqu
 codex cli真的不会动态路由到低消耗模型吗，试了下20x，因为生成速度太慢额度几乎不动，而且初始化询问知识 ...</blockquote>
 codex工具的自带的上下文压缩有问题，压缩完以后要让会话手动重载一次记忆
 
+
+*****
+
+####  BarricadeMKXX  
+##### 14056#       发表于 2026-9-17 02:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249029&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-17 00:48</a>
+不知道真假
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+我找了半天v4f在哪里合着是没放
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -10729,3 +10729,13 @@ FC时代的外传都能大地图和战斗分开存档吧</blockquote>
 
 别人说这作是像宝可梦和动森一样有啥机制 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  索非亚  
+##### 3930#       发表于 2026-9-17 02:36
+
+难受了，雷达线矿山的宝箱只开了一个就触发剧情进战斗，不知道后面能不能补。
+
+另外掌机逛洞穴真是晃的眼睛疼
+
