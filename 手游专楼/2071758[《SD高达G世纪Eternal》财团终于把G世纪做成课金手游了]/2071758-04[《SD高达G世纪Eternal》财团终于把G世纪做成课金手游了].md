@@ -296,3 +296,15 @@ ZZ挑战总算打完了，全程只有SSR EXS在输出，太难顶了</blockquot
 
 zz的独眼6台机体就行了
 
+
+*****
+
+####  jackyhuang  
+##### 4706#       发表于 2026-9-16 15:30
+
+GUNDAMRO
+
+厕纸券一张
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
