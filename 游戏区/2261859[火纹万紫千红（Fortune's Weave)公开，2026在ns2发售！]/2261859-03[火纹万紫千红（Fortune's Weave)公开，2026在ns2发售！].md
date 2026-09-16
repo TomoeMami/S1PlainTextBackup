@@ -8386,3 +8386,61 @@ IS这是在？
 
 偷跑直播玩的简单难度，就这还一直翻车重开，菜的没眼看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lbj5454  
+##### 3687#       发表于 2026-9-16 12:00
+
+老任最新的官方视频里泄露了几个主角5年后的样子，小孩哥变帅了，阿鲁卡多留了个奔驰姐的发型，柯南不带皇冠了，蕾拉变成大波浪了
+
+<img src="https://img.stage1st.com/forum/202609/16/115055ukwf52gwb7wk3kx2.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260916113419_125_2.jpg</strong> (323.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:50 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/115055ggbcwqxkc4bs4z04.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260916113420_126_2.jpg</strong> (258.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:50 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/115156c4gda8jt11148t1e.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260916113420_127_2.jpg</strong> (263.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:51 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/115159wwoccwnyq2cwb2c5.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260916113421_128_2.jpg</strong> (347.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:51 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/115201a7ak8kbwhpiwphz7.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260916113422_129_2.jpg</strong> (223.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 11:52 上传
+
+
+*****
+
+####  Asukalangley33  
+##### 3688#       发表于 2026-9-16 12:03
+
+目前PDD只能刷到380的，是不是只能含泪买了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

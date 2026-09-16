@@ -8732,3 +8732,37 @@ https://www.modelscope.cn/models/pfeifferj/Qwen3.8-Flash-Next-GSQ-RCO-GGUF/files
 
 必须瞄准更大更离谱经费更多的目标...
 
+
+*****
+
+####  retp  
+##### 13996#       发表于 2026-9-16 12:02
+
+想买苹果M5U 512g部署4.1F玩，不过看到现在苹果都没有fp4加速？那岂不是部署了那速度也没有可玩性
+
+—— 来自 vivo V2547A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 13997#       发表于 2026-9-16 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244044&amp;ptid=2275806" target="_blank">retp 发表于 2026-9-16 12:02</a>
+想买苹果M5U 512g部署4.1F玩，不过看到现在苹果都没有fp4加速？那岂不是部署了那速度也没有可玩性
+
+—— 来 ...</blockquote>
+算力决定prefill，带宽决定decode
+agent环境其实mac的算力是够用的，基本全程都在缓存里面
+
+*****
+
+####  mitzvah  
+##### 13998#       发表于 2026-9-16 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244044&amp;ptid=2275806" target="_blank">retp 发表于 2026-9-16 12:02</a>
+
+想买苹果M5U 512g部署4.1F玩，不过看到现在苹果都没有fp4加速？那岂不是部署了那速度也没有可玩性
+
+—— 来 ...</blockquote>
+我看loclllam老哥跑出了40 tps tg ，800prefill的速度，配合提示缓存秒出还是能用的
+
