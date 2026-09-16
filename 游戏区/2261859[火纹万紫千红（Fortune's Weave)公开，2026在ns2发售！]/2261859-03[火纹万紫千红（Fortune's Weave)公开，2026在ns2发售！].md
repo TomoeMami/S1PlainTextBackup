@@ -9605,3 +9605,38 @@ MC
 
 所以首发到底几个难度啊
 
+
+*****
+
+####  spiritlancer  
+##### 3803#       发表于 2026-9-16 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247861&amp;ptid=2261859" target="_blank">nancygreenlife 发表于 2026-9-16 21:17</a>
+所以首发到底几个难度啊</blockquote>
+只有普通和困难两个难度
+
+*****
+
+####  Beaverfan01  
+##### 3804#       发表于 2026-9-16 21:19
+
+按照RPG Site的编辑的说法，第二部分有重复，不过可以跳过。
+
+<img src="https://img.stage1st.com/forum/202609/16/211717x2s2volzllroyizr.jpg" referrerpolicy="no-referrer">
+
+<strong>6111.jpg</strong> (181.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 21:17 上传
+
+
+*****
+
+####  spieler  
+##### 3805#       发表于 2026-9-16 21:25
+
+不要说300了连320都刷不到，信一下评分380上了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

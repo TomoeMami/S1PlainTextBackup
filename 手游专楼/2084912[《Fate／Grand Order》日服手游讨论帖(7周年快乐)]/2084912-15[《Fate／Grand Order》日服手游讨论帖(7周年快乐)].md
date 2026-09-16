@@ -363,3 +363,14 @@
 欧狗又豹跳了</blockquote>
 那萌新才是欧狗，我这只是还了黑花的债<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 21600#       发表于 2026-9-16 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247790&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-9-16 21:06</a>
+
+那萌新才是欧狗，我这只是还了黑花的债</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">你俩半斤八俩
+
