@@ -8701,3 +8701,34 @@ jev这个模型我看了一下，感觉这玩意儿能够用的地方有限啊
 
 等待qwen4发布，不知道能不能比27B和flashnext强多少
 
+
+*****
+
+####  qwased  
+##### 13994#       发表于 2026-9-16 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70243404&amp;ptid=2275806" target="_blank">kyonmoe 发表于 2026-9-16 11:07</a>
+4.1F能在单a3上部署吗，两台搞不起啊</blockquote>
+https://www.modelscope.cn/models/pfeifferj/Qwen3.8-Flash-Next-GSQ-RCO-GGUF/files
+
+来试试这个
+
+
+*****
+
+####  phorcys02  
+##### 13995#       发表于 2026-9-16 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70243614&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-16 11:27</a>
+
+怎么可能盈利，ARR这个指标也是很搞笑，理发店年底集中充一波卡，就能说自己的ARR按照这波算了？ ...</blockquote>
+比ARR更离谱的还有SPV呢...
+
+只要不是我直接买的卡就不算我的成本，至于具体成本谁付，那你别管...
+
+反正全世界程序员每人都给O/和A/每年各缴纳1000美元，都不够他们填现在的ARR的
+
+这也是O/狂吹AI4S的原因， 全世界程序员都当韭菜理论上都不够一家割了，
+
+必须瞄准更大更离谱经费更多的目标...
+
