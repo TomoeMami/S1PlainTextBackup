@@ -10029,3 +10029,50 @@ engage都直接unity了，很怀疑是不是直接抛弃自研引擎了。可能
 这成长是不是太变态了？</blockquote>
 我是主角！！<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiaohao123  
+##### 3848#       发表于 2026-9-16 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248600&amp;ptid=2261859" target="_blank">GuardHei 发表于 2026-9-16 23:21</a>
+
+engage都直接unity了，很怀疑是不是直接抛弃自研引擎了。可能只有芝麻还在用了 ...</blockquote>
+我也有点好奇这次的引擎，有没有玩上的坛友主菜单按+键看看版权信息<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  撒撒  
+##### 3849#       发表于 2026-9-16 23:36
+
+eurogamer满分：[https://www.eurogamer.net/fire-emblem-fortunes-weave-review](https://www.eurogamer.net/fire-emblem-fortunes-weave-review) <blockquote>A synergy of everything that has made the series great for generations, Fire Emblem: Fortune's Weave hits the pinnacle of combat design, and is a sumptuous feast of a game.
+
+一个协同的一切，使该系列伟大的几代人，火徽：财富的编织击中战斗设计的顶峰，是一个豪华的盛宴的游戏。</blockquote>
+
+*****
+
+####  医生狼多  
+##### 3850#         楼主| 发表于 2026-9-16 23:37
+
+ 本帖最后由 医生狼多 于 2026-9-16 23:39 编辑 
+
+怎么就女娲了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+以及这个除了对话外其他的文字大小，掌机玩略难受
+
+*****
+
+####  巨馍蘸酱  
+##### 3851#       发表于 2026-9-16 23:38
+
+除了主角和四级长还有哪些角色能用圣焰技？
+
+
+*****
+
+####  lilod  
+##### 3852#       发表于 2026-9-16 23:43
+
+虽然是30fps的，但是菜单响应迅速，场景转换都非常流畅
+
+非常希望能后面更新一个 40fps + VRR
+

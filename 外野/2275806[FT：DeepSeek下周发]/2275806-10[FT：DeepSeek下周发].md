@@ -9260,3 +9260,30 @@ codex cli真的不会动态路由到低消耗模型吗，试了下20x，因为�
 
 下面破防/辟谣的点进去基本都是中文账号，太搞笑了
 
+
+*****
+
+####  lactone  
+##### 14042#       发表于 2026-9-16 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248617&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-9-16 23:24</a>
+下面破防/辟谣的点进去基本都是中文账号，太搞笑了</blockquote>
+这还能咋辟谣，这不是真的吗<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+现在自己部署模型，除了⏰的，只有nv的可以选
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  The_Ether_  
+##### 14043#       发表于 2026-9-16 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248697&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-16 23:40</a>
+
+这还能咋辟谣，这不是真的吗
+
+现在自己部署模型，除了⏰的，只有nv的可以选</blockquote>
+胡搅蛮缠式的，把老外都整无语了
+

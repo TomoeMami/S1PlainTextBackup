@@ -597,3 +597,17 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 作为监督的小出在 ...</blockquote>
 是这样的，这片子一直在重复一个套路，前20分钟讲些有的没有，最后几分钟把演出拉上来表演一个大的要来了，然后下一集继续演有的没的，每一集在内容上没有承接关系。像是拉拉在ep8结尾说再也不急了，ep9却急了一整集。
 
+
+*****
+
+####  ArthurDent  
+##### 540#       发表于 2026-9-16 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70242469&amp;ptid=2183857" target="_blank">wolf1997 发表于 2026-9-16 09:22</a>
+是这样的，这片子一直在重复一个套路，前20分钟讲些有的没有，最后几分钟把演出拉上来表演一个大的要来了 ...</blockquote>
+新时代契丹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+怎么bgm评价还这么高啊……
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
