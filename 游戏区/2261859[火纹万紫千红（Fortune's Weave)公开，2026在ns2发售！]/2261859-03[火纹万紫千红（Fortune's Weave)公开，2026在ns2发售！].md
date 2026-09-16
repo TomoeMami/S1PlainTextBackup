@@ -9056,3 +9056,14 @@ DLC一点消息都没有，是不是涉及剧透或者终盘内容了
 真正意义上的剧情对 ...</blockquote>
 我感觉玛丽亚这种不好说，也许能入队，君子兰不指望了，一眼坏透了。。。<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  djw1984  
+##### 3746#       发表于 2026-9-16 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70246543&amp;ptid=2261859" target="_blank">woaimiyabi 发表于 2026-9-16 17:50</a>
+
+十个媒体92分，火纹估计近百个媒体评分 有什么可比性吗？</blockquote>
+照你这么说，时之笛N64的MC99只有22个媒体评分，是不是可参考性也不高？
+
