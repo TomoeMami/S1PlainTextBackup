@@ -9728,3 +9728,26 @@ VGC的评测倒是写了第二部分的大概内容，不怕剧透的可以去�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  qiyu1234  
+##### 3815#       发表于 2026-9-16 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248020&amp;ptid=2261859" target="_blank">Beaverfan01 发表于 2026-9-16 21:44</a>
+
+感觉还是第一部分重复的问题，至少RPG Site编辑觉得可以接受。</blockquote>
+我觉得游戏确实是需要一定设计冗余，确实需要预估有人跳的太多导致没法完成一些事情的情况
+
+所以他全扫图的情况下到后期才无聊已经算还行的了
+
+当然也有评测者第一幕后期就有点受不了了（可能是个人问题）
+
+
+*****
+
+####  thecatnie  
+##### 3816#       发表于 2026-9-16 21:54
+
+IS就是怕重复才给四个人设置了四个特色系统吧
+
