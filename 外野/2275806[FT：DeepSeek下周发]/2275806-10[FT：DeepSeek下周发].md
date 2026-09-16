@@ -9021,3 +9021,47 @@ PSP也行？
 16，17年时候，AI刚刚火。我一个搞炼丹的同学跟我过现在模型的参数量已经比大脑神经元都多了，但是智能还 ...</blockquote>
 参数量和算法是模型的压缩方式，本质是一个中文屋，跟人脑天差地别的玩意怎么可能模拟出意识智能
 
+
+*****
+
+####  CCauchy  
+##### 14022#       发表于 2026-9-16 16:36
+
+<img src="https://img.stage1st.com/forum/202609/16/163619fa5qjff55jyarrfm.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (95.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 16:36 上传
+
+无敌了
+
+
+*****
+
+####  novem  
+##### 14023#       发表于 2026-9-16 16:43
+
+<blockquote>蜇灵 发表于 2026-9-16 16:12
+Pro没下架啊，不是保留了吗</blockquote>
+我说的是网页版UI已经没有PRO的位置了，未来PRO参数量增大推理成本增加更不可能给人免费用了
+
+*****
+
+####  overflowal  
+##### 14024#       发表于 2026-9-16 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70246012&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-16 16:36</a>
+无敌了</blockquote>
+欢迎重新认识AI时代的sla<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 14025#       发表于 2026-9-16 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70246064&amp;ptid=2275806" target="_blank">novem 发表于 2026-9-16 16:43</a>
+我说的是网页版UI已经没有PRO的位置了，未来PRO参数量增大推理成本增加更不可能给人免费用了 ...</blockquote>
+哦，网页版确实没了，也许后面4.1p出来了会加上？
+
