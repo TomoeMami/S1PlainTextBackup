@@ -9166,3 +9166,16 @@ deepseek的c端真的是越来越好用，新功能加的也快，真的让人�
 这就是deepseek v4.1 flash high啊气死我了 不想用了。max更是超级雷霆</blockquote>
 现在ds也进入到gpt同款不说人话阶段了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mitzvah  
+##### 14035#       发表于 2026-9-16 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70246156&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-16 16:57</a>
+
+psp跑ai？</blockquote>
+[https://www.reddit.com/r/LocalLL ... ational_llm_on_the/](https://www.reddit.com/r/LocalLLaMA/comments/1w78ztg/you_can_now_run_a_90m_conversational_llm_on_the/)
+
+真的是psp，90M大模型，我看表现比gpt3不差，去年还是psv呢
+
