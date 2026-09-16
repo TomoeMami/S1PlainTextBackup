@@ -1371,3 +1371,13 @@ ps5pro已经10000元以上了，跟pc消费一起死了。
 ps5pro已经10000元以上了，跟pc消费一起死了。</blockquote>
 ps5 pro好歹有2Tb 而且比5060笔记本强吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2014720  
+##### 76#       发表于 2026-9-16 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70242218&amp;ptid=2289565" target="_blank">Rowen233 发表于 2026-9-16 08:44</a>
+ps5 pro好歹有2Tb 而且比5060笔记本强吧</blockquote>
+现在1w还能买到5060笔记本吧，买个时代末期的主机何意味
+

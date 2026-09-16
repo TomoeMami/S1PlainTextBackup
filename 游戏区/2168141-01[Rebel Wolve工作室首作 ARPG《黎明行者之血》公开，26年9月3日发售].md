@@ -572,3 +572,16 @@ Deck不管怎么调都糊得玩不下去，但是这种rpg游戏不想在电脑�
 
 今晚去做安嘉的任务，好耶！
 
+
+*****
+
+####  Schwarzess  
+##### 162#       发表于 2026-9-16 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70243041&amp;ptid=2168141" target="_blank">woshenc 发表于 2026-9-16 10:34</a>
+昨晚第5夜，开启瞎子老头的任务了，把他的可选都给做了，现在等待第3天对话
+
+终于到了都城，没想到是那个最 ...</blockquote>
+其实可能没有什么领地的说法，地图就一个山谷太小了。虽然兴趣点分布基本是北边安布卢斯，西南巴基尔，东南赞茜。主城里三侯爵的产业也都有。
+卫兵都穿安布卢斯的衣服感觉其实是因为他是保安队长。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
