@@ -8645,3 +8645,40 @@ jev这个模型我看了一下，感觉这玩意儿能够用的地方有限啊
 
 —— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mitzvah  
+##### 13988#       发表于 2026-9-16 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70243308&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-9-16 10:59</a>
+
+现在搞嵌入和重排的模型有推荐吗
+
+还是这个概念本身已经开始过时了</blockquote>
+向量模型远不如文本匹配，说真的意义不大
+
+
+*****
+
+####  Baccano  
+##### 13989#       发表于 2026-9-16 11:25
+
+我才知道原来A\的盈利是靠着剔除掉训练新模型的成本才盈利的，不然还是年亏几百亿。
+
+难怪达里奥三番五次说要减速。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UmarIbnLaAhad  
+##### 13990#       发表于 2026-9-16 11:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">无人在意的角落，谷谷歌歌给了一次额度重置
+
+*****
+
+####  nxmonitor  
+##### 13991#       发表于 2026-9-16 11:27
+
+怎么可能盈利，ARR这个指标也是很搞笑，理发店年底集中充一波卡，就能说自己的ARR按照这波算了？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

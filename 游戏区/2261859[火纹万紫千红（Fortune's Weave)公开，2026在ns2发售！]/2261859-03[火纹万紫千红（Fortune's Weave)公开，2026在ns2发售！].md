@@ -8337,3 +8337,14 @@ IS这是在？
 
 扣了一套队伍徽章，我是很喜欢本作的这套设计
 
+
+*****
+
+####  妮贝雅  
+##### 3682#       发表于 2026-9-16 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70243440&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-9-16 11:11</a>
+
+扣了一套队伍徽章，我是很喜欢本作的这套设计</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">快上头像商店
+
