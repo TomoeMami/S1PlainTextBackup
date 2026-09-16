@@ -9560,3 +9560,48 @@ MC
 1.流程过长，前期尚可，后期故事悬念已经基本没有，但是流程还需要重复 ...</blockquote>
 第三点自己说出来不觉得好笑吗，选了高难度还想着一路托管
 
+
+*****
+
+####  cloudys  
+##### 3798#       发表于 2026-9-16 21:11
+
+有些评价怎么感觉像是在说机战……
+
+*****
+
+####  反方向的波  
+##### 3799#       发表于 2026-9-16 21:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些地方的实机帧数有点变态了，is搞个补丁吧
+
+*****
+
+####  诡计  
+##### 3800#       发表于 2026-9-16 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247736&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-9-16 20:59</a>
+
+评测者他个人建议每个故事在完成第一幕以后再切换到另一个故事打
+
+原因是游戏里有个类似于奖杯/内部成就的 ...</blockquote>
+哈哈哈哈哈这
+
+
+*****
+
+####  bbluekid  
+##### 3801#       发表于 2026-9-16 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247778&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-16 21:04</a>
+
+所以媒体评测说的流程重复打真是汇成单线四个主角得打4遍的意思？</blockquote>
+重复的部分可以跳过，但是跳过就要损失练度和一些特定的人物或者宝物
+
+*****
+
+####  nancygreenlife  
+##### 3802#       发表于 2026-9-16 21:17
+
+所以首发到底几个难度啊
+
