@@ -9394,3 +9394,13 @@ aa是个不停拉屎，试图通过用自己屎糊满墙的作坊么？</blockqu
 
 重预设都破不开甲了 这哈基米起外审不耗资源的吗 老老实实早点认清自己的地位没人拿你办正经任务的<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer"> 玛德最近几天每到这个点当个打标器和反推机连擦边都不行
 
+
+*****
+
+####  andychen  
+##### 14055#       发表于 2026-9-17 02:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248594&amp;ptid=2275806" target="_blank">Mirathel 发表于 2026-9-16 23:20</a>
+codex cli真的不会动态路由到低消耗模型吗，试了下20x，因为生成速度太慢额度几乎不动，而且初始化询问知识 ...</blockquote>
+codex工具的自带的上下文压缩有问题，压缩完以后要让会话手动重载一次记忆
+
