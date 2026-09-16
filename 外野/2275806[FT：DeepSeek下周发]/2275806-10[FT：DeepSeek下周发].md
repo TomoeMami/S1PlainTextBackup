@@ -8591,3 +8591,15 @@ jev 发布了. 好像是 Diffusion 模型. 100亿 token /42美元 输出免费. 
 
 预约地址:[https://typesafe.ai/](https://typesafe.ai/)
 
+
+*****
+
+####  serj005  
+##### 13983#       发表于 2026-9-16 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70242585&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-16 09:38</a>
+jev 发布了. 好像是 Diffusion 模型. 100亿 token /42美元 输出免费. 智力比luna相对高一点.
+
+不过不能聊天 ...</blockquote>
+这个不能生成代码，应该是只能生成决策结果，输入问题和结果选项，输出各个结果的概率值
+
