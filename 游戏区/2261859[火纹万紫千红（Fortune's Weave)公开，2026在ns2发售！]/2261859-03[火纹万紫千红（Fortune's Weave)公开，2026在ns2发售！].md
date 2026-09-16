@@ -10749,3 +10749,11 @@ FC时代的外传都能大地图和战斗分开存档吧</blockquote>
 
 放火自焚其实是偷偷逃跑的掩护，被烧死的不是他本人
 
+
+*****
+
+####  牛肉粉小煎包  
+##### 3932#       发表于 2026-9-17 02:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看以后谁还敢说火纹不是JRPG
+
