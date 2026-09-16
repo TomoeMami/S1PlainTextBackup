@@ -308,3 +308,11 @@ GUNDAMRO
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  blue321  
+##### 4707#       发表于 2026-9-16 18:16
+
+须佐这技能有点强啊，就看数值了
+
