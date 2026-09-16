@@ -254,3 +254,25 @@
 我是石头不多扔着玩 你图啥</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">想抽个陪所长玩玩  狐师傅快16羁绊了
 
+
+*****
+
+####  qixinno1  
+##### 21591#       发表于 2026-9-16 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247057&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-9-16 19:26</a>
+
+想抽个陪所长玩玩  狐师傅快16羁绊了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大梦火竟然给了狐狸吗
+
+
+*****
+
+####  alucardcz  
+##### 21592#       发表于 2026-9-16 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247074&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-9-16 19:31</a>
+
+大梦火竟然给了狐狸吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个所长一个杀狐啊
+
