@@ -8957,3 +8957,25 @@ astra这个幽默感牛逼
 
 DSH的子代理开启没有控制好，甚至能开到曾孙代理……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 14016#       发表于 2026-9-16 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241267&amp;ptid=2275806" target="_blank">novem 发表于 2026-9-15 23:03</a>
+只用deepseek网页版问一些简单问题的我竟然被封号4天
+
+太迷了吧
+
+pro永久下架就算了，flash也开始赶人 ...</blockquote>
+Pro没下架啊，不是保留了吗
+
+*****
+
+####  serj005  
+##### 14017#       发表于 2026-9-16 16:15
+
+dsh这个子代理依然没有ui层面的关闭或者代理数量/层数调整选项<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+标准模式现在就是个定时炸弹，随机时间清空一个用户的余额
+
