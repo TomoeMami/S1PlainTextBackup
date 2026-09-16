@@ -8555,3 +8555,25 @@ max现在有bug，会路由到摘要思维链
 我就搞不懂了，api几乎跟裸奔一样又是白菜价，怎么就跟个炫压抑智障一样在这说这种屁话都不肯稍微学一下 ...</blockquote>
 就我在小红书经常能刷到的帖子来看，这些人最统一的说法是“API不好聊冷冰冰的”我怀疑是这帮集美温度没调试或者其他原因，反正是一群只会抠欢乐豆的蠢货
 
+
+*****
+
+####  lactone  
+##### 13980#       发表于 2026-9-16 09:30
+
+刘胜与的文章转到外网了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Promeus  
+##### 13981#       发表于 2026-9-16 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70242519&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-16 09:30</a>
+刘胜与的文章转到外网了
+
+—— 来自 HONOR AAK-AN00, Android 16, 鹅球 v3.5.99</blockquote>
+就是外网火了才被国内注意的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
