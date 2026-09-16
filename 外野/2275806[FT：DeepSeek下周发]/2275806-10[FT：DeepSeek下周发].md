@@ -9094,3 +9094,19 @@ Pro没下架啊，不是保留了吗</blockquote>
 现在 ...</blockquote>
 psp跑ai？
 
+
+*****
+
+####  小ghoul  
+##### 14029#       发表于 2026-9-16 17:02
+
+<img src="https://img.stage1st.com/forum/202609/16/170150cwsssbt7b1k3qe3t.jpg" referrerpolicy="no-referrer">
+
+<strong>捕获.JPG</strong> (64.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 17:01 上传
+
+就这么顺着我演起来了
+
