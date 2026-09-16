@@ -10876,3 +10876,11 @@ FC时代的外传都能大地图和战斗分开存档吧</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">舞娘打狂犬这还非得摁头逃跑....明明敌人也不强，给你来个boss锁血和无限增援
 
+
+*****
+
+####  夜_乌鸦  
+##### 3946#       发表于 2026-9-17 06:20
+
+大家选什么难度啊？
+
