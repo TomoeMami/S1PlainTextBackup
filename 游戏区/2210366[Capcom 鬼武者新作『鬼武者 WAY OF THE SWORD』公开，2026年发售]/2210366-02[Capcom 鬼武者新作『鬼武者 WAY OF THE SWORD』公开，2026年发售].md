@@ -4794,3 +4794,13 @@ B站神秘的推荐机制，看完差点没绷住
 
 【【鬼武者大雄】无伤速通胖虎小夫-哔哩哔哩】 [https://b23.tv/zts1H6l](https://b23.tv/zts1H6l)
 
+
+*****
+
+####  otakun  
+##### 1888#       发表于 2026-9-16 21:56
+
+赶在直面会开播之前干掉了锁60帧的鬼杀难度源神，刺激又爽快<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">。
+鬼杀难度真值得一玩，boss 数值高了之后会倒逼玩家思考每一步最优解（全一闪的高手除外），哪一招好闪的尽量拿下，拿不下的就用格挡用闪避求稳。
+一切皆苦，但我乐在其中，这剑之道我悟了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
