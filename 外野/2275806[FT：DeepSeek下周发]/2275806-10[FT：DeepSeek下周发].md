@@ -8789,3 +8789,15 @@ ds4模型大多数情况下就是个无情的带宽机器，因为提示缓存�
 ds4模型大多数情况下就是个无情的带宽机器，因为提示缓存命中率被优化得太好了，动不动99% 每一轮的新增 ...</blockquote>
 x上说openai和a/各自抢了几十万台mac来给内部做推理算力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 14001#       发表于 2026-9-16 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244044&amp;ptid=2275806" target="_blank">retp 发表于 2026-9-16 12:02</a>
+想买苹果M5U 512g部署4.1F玩，不过看到现在苹果都没有fp4加速？那岂不是部署了那速度也没有可玩性
+
+—— 来 ...</blockquote>
+估计也就60tps 这样的感觉，参考4 x DGX Spark，prefill 可能还输点。 4.1f 如果没有4 x pro 6000或者破限要求感觉还是官方 API 吧，速度体验好很多。
+
