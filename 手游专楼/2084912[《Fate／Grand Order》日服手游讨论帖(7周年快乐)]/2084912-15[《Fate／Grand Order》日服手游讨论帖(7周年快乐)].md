@@ -384,3 +384,31 @@
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  exiaexa  
+##### 21602#       发表于 2026-9-16 22:36
+
+虽然有一种“你们打包一起上能扛得住库小姐一巴掌吗”的生草感
+
+但开局还算有点意思
+
+比傻卵泳装强就是赢
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 21603#       发表于 2026-9-16 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248300&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-9-16 22:36</a>
+
+虽然有一种“你们打包一起上能扛得住库小姐一巴掌吗”的生草感
+
+但开局还算有点意思
+
+比傻卵泳装强就是赢</blockquote>
+纲哥在挑衅库库尔坎的时候我就笑了，谁给你的胆量的<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
