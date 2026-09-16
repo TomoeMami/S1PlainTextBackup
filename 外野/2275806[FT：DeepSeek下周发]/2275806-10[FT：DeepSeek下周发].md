@@ -9329,3 +9329,26 @@ Union Alpha 会是 Kimi 3.1吗？</blockquote>
 
 看起来是智谱？这是flash x flash路线被ds 4.1斩杀了之后改走根号flash路线吗
 
+
+*****
+
+####  lactone  
+##### 14049#       发表于 2026-9-17 00:40
+
+说这个union alpha吃智谱的脏token？
+
+那我不太能看懂智谱想干嘛了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 14050#       发表于 2026-9-17 00:43
+
+搞不好是智谱自己的持续学习demo？那样的话，慢或者性能不稳定就可以理解了
+
+唐杰现在也all in自我迭代了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

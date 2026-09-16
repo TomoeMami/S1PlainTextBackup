@@ -611,3 +611,18 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  湖静欲成冰  
+##### 541#       发表于 2026-9-17 00:38
+
+ 本帖最后由 湖静欲成冰 于 2026-9-17 00:40 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248672&amp;ptid=2183857" target="_blank">ArthurDent 发表于 2026-9-16 23:35</a>
+
+新时代契丹</blockquote>
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不如契丹，辽还为这个世界留了点东西，普通观众看完能留点对死本能抗拒的印象，之后奇蛋之魂在孤独摇滚兑现。拉拉能为普通观众留下什么，真实之爱？赛璐珞以后还有人做吗？
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">更变态的是小出还是叛忍，几原徒孙居然能搞出个自我放大导致主体空洞无力的主角，这复古复了个寂寞。
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 仔细一想最后一集大概率想搞自我献祭，那才真的是烂完了。
+

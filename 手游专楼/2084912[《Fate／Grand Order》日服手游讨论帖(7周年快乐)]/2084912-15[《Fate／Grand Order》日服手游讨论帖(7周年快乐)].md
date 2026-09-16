@@ -426,3 +426,13 @@
 硬要说只能算加勒底员工培训不到位，完全不了解鸟头ort的危险性
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 21605#       发表于 2026-9-17 00:43
+
+带LOOP的狼人游戏，也太舒适区了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
