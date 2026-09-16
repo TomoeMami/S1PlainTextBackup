@@ -8910,3 +8910,19 @@ L论坛看来的，蛮好玩
 
 现在回头看原来硬件早就达标了，只是模型结构不对。
 
+
+*****
+
+####  小止  
+##### 14012#       发表于 2026-9-16 15:42
+
+<img src="https://img.stage1st.com/forum/202609/16/154143bb5fkbb29pm65lmi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 15:41 上传
+
+astra这个幽默感牛逼
+
