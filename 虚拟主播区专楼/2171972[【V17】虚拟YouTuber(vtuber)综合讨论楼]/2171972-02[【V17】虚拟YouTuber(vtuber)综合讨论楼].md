@@ -293,3 +293,56 @@ https://note.com/toudaikun/n/n593206183d47
 
 [記事第４弾（最後の記事）残りの未公開事実まとめ](https://note.com/toudaikun/n/na9f9f428cec7)
 
+
+*****
+
+####  sekai2014  
+##### 2108#       发表于 2026-9-15 23:15
+
+[https://note.com/toudaikun/n/n593206183d47](https://note.com/toudaikun/n/n593206183d47)
+
+第三弹
+
+*****
+
+####  高等黑暗  
+##### 2109#       发表于 2026-9-15 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241316&amp;ptid=2171972" target="_blank">sekai2014 发表于 2026-9-15 23:15</a>
+
+https://note.com/toudaikun/n/n593206183d47
+
+第三弹</blockquote>
+看喷了 这金鱼简直是真假千金AI文里的假千金
+
+*****
+
+####  noHentai  
+##### 2110#       发表于 2026-9-16 03:54
+
+ 本帖最后由 noHentai 于 2026-9-16 04:51 编辑 
+
+[記事第４弾（最後の記事）残りの未公開事実まとめ](https://note.com/toudaikun/n/na9f9f428cec7)
+
+看完了，把撕逼原文放出来还是看的爽，如果内容保真的话这瓜主能处，虽说途中感觉站队口了那边去了，中立性有待商榷。
+
+不得不说，这种当事各方因为种种原因不断加深矛盾和误会的戏码，对吃瓜来说是挺上头的。
+
+对口了和金鱼的看法，吃完瓜后我个人没什么改变，事情的走向基本还是在预料之内。
+
+话说回来，结果上看裁作为物申す系的最后一舞还是太成功了，前无古人后无来者的挑拨离间，虽说是最后一舞但刻进了V圈史书，从这点上看或许他才是最大赢家<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  高等黑暗  
+##### 2111#       发表于 2026-9-16 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241854&amp;ptid=2171972" target="_blank">noHentai 发表于 2026-9-16 03:54</a>
+
+記事第４弾（最後の記事）残りの未公開事実まとめ
+
+看完了，把撕逼原文放出来还是看的爽，如果内容保真的话 ...</blockquote>
+看完还是感觉各种难蚌
+
+不说这个人的立场 单从这个人贴出来的各种金鱼发的文，真有种女频真假千金AI文感，<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">说实话我感觉这么降智的玩意我感觉一个巴掌是拍不响的，估计没贴出来的口了的那些内容大概也不会差多少
+

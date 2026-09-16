@@ -9210,3 +9210,15 @@ https://github.com/thatblend/LLMPSP
 
 gpt plus只用Astra做规划，一次大概能用多少百分比额度？
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 14038#       发表于 2026-9-16 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248161&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-9-16 22:09</a>
+gpt plus只用Astra做规划，一次大概能用多少百分比额度？</blockquote>
+三四轮对话五小时额度就没了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
