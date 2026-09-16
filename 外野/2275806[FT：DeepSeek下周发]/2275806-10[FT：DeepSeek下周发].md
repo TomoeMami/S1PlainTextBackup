@@ -8577,3 +8577,17 @@ max现在有bug，会路由到摘要思维链
 —— 来自 HONOR AAK-AN00, Android 16, 鹅球 v3.5.99</blockquote>
 就是外网火了才被国内注意的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RookieTnT  
+##### 13982#       发表于 2026-9-16 09:38
+
+jev 发布了. 好像是 Diffusion 模型. 100亿 token /42美元 输出免费. 智力比luna相对高一点.
+
+不过不能聊天 只能输出代码. 
+
+感觉还可以啊. 量大管饱 速度还快.
+
+预约地址:[https://typesafe.ai/](https://typesafe.ai/)
+
