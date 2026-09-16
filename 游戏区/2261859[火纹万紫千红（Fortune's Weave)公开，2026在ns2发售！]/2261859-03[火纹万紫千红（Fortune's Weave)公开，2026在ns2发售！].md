@@ -10264,3 +10264,85 @@ eurogamer满分：[https://www.eurogamer.net/fire-emblem-fortunes-weave-review](
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没绷住，宇宙飞船激光炮冥王，这是什么穿越大杂烩吗
 
+
+*****
+
+####  谢云流  
+##### 3876#       发表于 2026-9-17 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248875&amp;ptid=2261859" target="_blank">虚无缥缈的分身 发表于 2026-9-17 00:12</a>
+华夏风➕远古超级科技➕外太空星海➕神族，我懂了昆仑就是伪史论里的大明啊
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  谢云流  
+##### 3877#       发表于 2026-9-17 00:26
+
+序章走完切换4主角bgm的主旋律不变配器会切换，还挺有心的        [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  古畑任三郎2015  
+##### 3878#       发表于 2026-9-17 00:30
+
+开头这剧情编排不如风花雪月一根吧，玩的一头雾水<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苏西踩我了  
+##### 3879#       发表于 2026-9-17 00:30
+
+话说主角建议捏男的还是女的？
+
+*****
+
+####  u2deack  
+##### 3880#       发表于 2026-9-17 00:31
+
+打完了序章，红花可爱奶奶的枪有点出戏，这帧数是真的有点拉，战斗力震动也是乱震我直接关了。
+纠结一下明天先从哪条线开始吧，狄特里希和蕾达选一个
+
+
+*****
+
+####  索非亚  
+##### 3881#       发表于 2026-9-17 00:31
+
+序章这自捏强度，根本不用回去找救援吧，配个奶妈就能平推了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  谢云流  
+##### 3882#       发表于 2026-9-17 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248961&amp;ptid=2261859" target="_blank">苏西踩我了 发表于 2026-9-17 00:30</a>
+话说主角建议捏男的还是女的？</blockquote>
+女主可以选透肚脐的小腹黑丝装        [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  凉良  
+##### 3883#       发表于 2026-9-17 00:32
+
+探索里的杂兵一刀囊死是不是有点太白给了
+
+*****
+
+####  新HGCG  
+##### 3884#       发表于 2026-9-17 00:33
+
+莫非后期会有我方巨大机器人！
+
+<img src="https://img.stage1st.com/forum/202609/17/003303tosldldi8iydl8lf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (255.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 00:33 上传
+
