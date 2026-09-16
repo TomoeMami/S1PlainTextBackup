@@ -322,3 +322,21 @@
 
 话说樱井光是不是交代中原掺点卖CP的私货2333
 
+
+*****
+
+####  希望之花  
+##### 21596#       发表于 2026-9-16 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247123&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2026-9-16 19:40</a>
+
+这立绘特么找的10年前的ZUN画的吗</blockquote>
+是GBA洛克人Z系列的画师，要说画风确实和十几年前没变化<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 21597#       发表于 2026-9-16 20:56
+
+弗莉多那张礼装原来是Redrop画的吗，难怪在我XP上跳舞<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

@@ -9435,3 +9435,78 @@ GS 9
 MC
 [https://www.metacritic.com/game/fire-emblem-fortunes-weave/](https://www.metacritic.com/game/fire-emblem-fortunes-weave/)
 
+
+*****
+
+####  thecatnie  
+##### 3786#       发表于 2026-9-16 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247593&amp;ptid=2261859" target="_blank">nancygreenlife 发表于 2026-9-16 20:40</a>
+
+相当于风花雪月里面直接托管养成，连着托管了几个章节发现水温不对了</blockquote>
+感觉测评可能就没去探地图，就在旅馆嗯睡觉，做测评的不能这么干吧，不会连剧情都跳了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a3a4sc  
+##### 3787#       发表于 2026-9-16 20:48
+
+声势那么大感觉是今年JRPG必玩的，看了眼媒体评语总结，大概预期是一个4线合一的波澜壮阔史诗故事。
+
+这个多线合一的剧情系统基本是好评的
+
+起码比engage高不少，大概清楚在媒体眼里是什么评价了。
+
+*****
+
+####  SAKURAJIMAI  
+##### 3788#       发表于 2026-9-16 20:50
+
+161小时说是<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 3789#       发表于 2026-9-16 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247652&amp;ptid=2261859" target="_blank">thecatnie 发表于 2026-9-16 20:48</a>
+
+感觉测评可能就没去探地图，就在旅馆嗯睡觉，做测评的不能这么干吧，不会连剧情都跳了吧 ...</blockquote>
+评测者说他们花了120小时完成了蕾达和迪特里希的故事（当然还有后半和结局）
+
+赛伊和提奥多拉只看了开局部分
+
+*****
+
+####  真田源次郎信繁  
+##### 3790#       发表于 2026-9-16 20:52
+
+不太相信IS能做好剧情，这些编辑一个个都在说故事，太哈人了
+
+*****
+
+####  thecatnie  
+##### 3791#       发表于 2026-9-16 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247684&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-9-16 20:52</a>
+
+评测者说他们花了120小时完成了蕾达和迪特里希的故事（当然还有后半和结局）
+
+赛伊和提奥多拉只看了开局部 ...</blockquote>
+那应该玩的挺细的，也可能是卡关卡的<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 3792#       发表于 2026-9-16 20:55
+
+我目前倾向于这个时长就是同时玩四线带来的，我看了下我三房超难单线就要60小时了，那么低难度又不太在乎rpg要素的单线40小时也合理
+
+*****
+
+####  spiritlancer  
+##### 3793#       发表于 2026-9-16 20:57
+
+看了会游戏直播，至少剧情演出方面比嗯给鸡好太多
+
