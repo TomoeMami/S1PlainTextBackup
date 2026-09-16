@@ -276,3 +276,49 @@
 大梦火竟然给了狐狸吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个所长一个杀狐啊
 
+
+*****
+
+####  里村紅葉  
+##### 21593#       发表于 2026-9-16 19:40
+
+这立绘特么找的10年前的ZUN画的吗<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno1  
+##### 21594#       发表于 2026-9-16 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247099&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-9-16 19:35</a>
+
+一个所长一个杀狐啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一个给了所长一个给了玛头
+
+*****
+
+####  Jamaisvu  
+##### 21595#       发表于 2026-9-16 19:45
+
+化身博士这两身衣服挺好看嘛，小红帽和大灰狼：
+
+<img src="https://img.stage1st.com/forum/202609/16/194438fdkmd6zhftufht8m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260916_194337_com.aniplex.fategrandorder.jpg</strong> (187.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-16 19:44 上传
+
+<img src="https://img.stage1st.com/forum/202609/16/194439wtq5nvdd7t3djjgh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260916_194356_com.aniplex.fategrandorder.jpg</strong> (183.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-16 19:44 上传
+
+话说樱井光是不是交代中原掺点卖CP的私货2333
+

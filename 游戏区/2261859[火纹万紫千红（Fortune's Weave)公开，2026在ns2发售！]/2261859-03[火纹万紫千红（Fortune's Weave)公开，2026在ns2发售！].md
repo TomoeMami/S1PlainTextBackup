@@ -9102,3 +9102,30 @@ DLC一点消息都没有，是不是涉及剧透或者终盘内容了
 
 看到一个提前放出来的，但已经404了看不了了。
 
+
+*****
+
+####  lolozp  
+##### 3750#       发表于 2026-9-16 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70246536&amp;ptid=2261859" target="_blank">ミズタ 发表于 2026-9-16 17:49</a>
+
+我记得第一方港服很早就和日服同步23点解锁了</blockquote>
+不行的吧 就是0点后 我记得好多次都是好几分钟才可以
+
+*****
+
+####  克里斯蒂娜  
+##### 3751#       发表于 2026-9-16 19:38
+
+有偷跑直播了
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3752#       发表于 2026-9-16 19:40
+
+盲猜一个87
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
