@@ -9129,3 +9129,14 @@ DLC一点消息都没有，是不是涉及剧透或者终盘内容了
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ミズタ  
+##### 3753#       发表于 2026-9-16 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247101&amp;ptid=2261859" target="_blank">lolozp 发表于 2026-9-16 19:36</a>
+
+不行的吧 就是0点后 我记得好多次都是好几分钟才可以</blockquote>
+一会试试<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">我就是港服账号买的，用日服大号玩
+
