@@ -9110,3 +9110,15 @@ psp跑ai？
 
 就这么顺着我演起来了
 
+
+*****
+
+####  舞以  
+##### 14030#       发表于 2026-9-16 17:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梁叔叔应该不想搞订阅这类业务，太麻烦了，api平台统一管理方便得很。
+
+最近招人也没看要这方面做啥扩张和改变
+
+估计以后要给就给，不给就不给了估计。
+
