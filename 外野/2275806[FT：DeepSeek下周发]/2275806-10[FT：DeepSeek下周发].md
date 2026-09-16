@@ -8979,3 +8979,34 @@ Pro没下架啊，不是保留了吗
 dsh这个子代理依然没有ui层面的关闭或者代理数量/层数调整选项<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 标准模式现在就是个定时炸弹，随机时间清空一个用户的余额
 
+
+*****
+
+####  小野賢章  
+##### 14018#       发表于 2026-9-16 16:18
+
+现在其他部门同事、产品、业务问我问题，都是直接让AI看代码，然后写一个长篇大论的直接回复给他们<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  coldhot3  
+##### 14019#       发表于 2026-9-16 16:21
+
+<blockquote>mitzvah 发表于 2026-9-16 12:51
+保持对本地消费级顶尖ai六个月优势的ai成本正指数式的增长，但是本地ai的同智力成本反而在快速下降
+
+现在 ...</blockquote>
+PSP也行？
+
+*****
+
+####  果壳中的松鼠  
+##### 14020#       发表于 2026-9-16 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70245164&amp;ptid=2275806" target="_blank">Baccano 发表于 2026-9-16 14:34</a>
+16，17年时候，AI刚刚火。我一个搞炼丹的同学跟我过现在模型的参数量已经比大脑神经元都多了，但是智能还 ...</blockquote>
+16，17年的时候，模型参数确实很小，18年的bert也才0.5b，已经被惊呼为大模型了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
