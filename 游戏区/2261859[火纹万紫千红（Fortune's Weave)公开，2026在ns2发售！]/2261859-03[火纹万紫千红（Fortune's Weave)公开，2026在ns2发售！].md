@@ -10157,3 +10157,66 @@ eurogamer满分：[https://www.eurogamer.net/fire-emblem-fortunes-weave-review](
 
 红花他们5年前那帮人里有几个明显不是好鸟，应该就是他们组织搞出来的5年前事件但是其中可能有些人觉得自己是被坑了
 
+
+*****
+
+####  从不黑妹子  
+##### 3863#       发表于 2026-9-17 00:05
+
+开篇就是宇宙飞船，给我干哪里来了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParukiaMKII  
+##### 3864#       发表于 2026-9-17 00:05
+
+这地图炮给的好慷慨，威力也高，掉血就是无消耗啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无缥缈的分身  
+##### 3865#       发表于 2026-9-17 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248799&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-9-17 00:00</a>
+红花900岁了~</blockquote>
+不止她，这批人大部分都是三位数起步的年龄，还有几个四位数的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  trow233  
+##### 3866#       发表于 2026-9-17 00:07
+
+所以这部可以不看攻略自由游玩吗
+
+会遗漏什么重要内容或奖励么
+
+*****
+
+####  哈之分舍瓦  
+##### 3867#       发表于 2026-9-17 00:08
+
+开场这两……这老红和姥姥绿是吧
+
+*****
+
+####  纯夏  
+##### 3868#       发表于 2026-9-17 00:08
+
+连荷电粒子炮都来了 这FE是科幻游戏吧 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+不过红花这个造型我还挺喜欢的
+
+
+*****
+
+####  虚无缥缈的分身  
+##### 3869#       发表于 2026-9-17 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248826&amp;ptid=2261859" target="_blank">从不黑妹子 发表于 2026-9-17 00:05</a>
+开篇就是宇宙飞船，给我干哪里来了</blockquote>
+华夏风➕远古超级科技➕外太空星海➕神族，我懂了昆仑就是伪史论里的大明啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

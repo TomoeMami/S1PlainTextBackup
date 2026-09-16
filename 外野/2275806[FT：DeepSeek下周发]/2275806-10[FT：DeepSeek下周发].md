@@ -9287,3 +9287,45 @@ codex cli真的不会动态路由到低消耗模型吗，试了下20x，因为�
 现在自己部署模型，除了⏰的，只有nv的可以选</blockquote>
 胡搅蛮缠式的，把老外都整无语了
 
+
+*****
+
+####  nxmonitor  
+##### 14044#       发表于 2026-9-17 00:04
+
+有个非常非常慢的免费模型上线了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 14045#       发表于 2026-9-17 00:08
+
+话说如果ds之前真的没有关注多模态，那么之前的ds4flash多模态和ds4.1flash多模态是短期内搞出来的两次迭代，那开发速度还是很强了
+
+—— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  startraveller  
+##### 14046#       发表于 2026-9-17 00:10
+
+Union Alpha 会是 Kimi 3.1吗？
+
+*****
+
+####  qwased  
+##### 14047#       发表于 2026-9-17 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248867&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-9-17 00:10</a>
+Union Alpha 会是 Kimi 3.1吗？</blockquote>
+不可能，非常蠢
+看智力表现甚至有可能是什么本地小模型
+
+*****
+
+####  tonyunreal  
+##### 14048#       发表于 2026-9-17 00:15
+
+看起来是智谱？这是flash x flash路线被ds 4.1斩杀了之后改走根号flash路线吗
+
