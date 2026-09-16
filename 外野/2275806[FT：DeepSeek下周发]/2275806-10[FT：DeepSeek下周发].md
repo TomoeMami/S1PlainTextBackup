@@ -9418,3 +9418,128 @@ codex工具的自带的上下文压缩有问题，压缩完以后要让会话手
 
 —— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  startraveller  
+##### 14057#       发表于 2026-9-17 00:10
+
+Union Alpha 会是 Kimi 3.1吗？
+
+*****
+
+####  qwased  
+##### 14058#       发表于 2026-9-17 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248867&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-9-17 00:10</a>
+Union Alpha 会是 Kimi 3.1吗？</blockquote>
+不可能，非常蠢
+看智力表现甚至有可能是什么本地小模型
+
+*****
+
+####  tonyunreal  
+##### 14059#       发表于 2026-9-17 00:15
+
+ 本帖最后由 tonyunreal 于 2026-9-17 00:26 编辑 
+
+看起来是智谱？这是flash x flash路线被ds 4.1斩杀了之后改走根号flash路线吗
+
+编辑：
+据说发挥非常不稳定
+疑似日本那个路由模型
+
+*****
+
+####  lactone  
+##### 14060#       发表于 2026-9-17 00:40
+
+说这个union alpha吃智谱的脏token？
+
+那我不太能看懂智谱想干嘛了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 14061#       发表于 2026-9-17 00:43
+
+搞不好是智谱自己的持续学习demo？那样的话，慢或者性能不稳定就可以理解了
+
+唐杰现在也all in自我迭代了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 14062#       发表于 2026-9-17 00:48
+
+不知道真假<img src="https://p.sda1.dev/35/fd65a0f378f9178eec6e42afbc56c50e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  phorcys02  
+##### 14063#       发表于 2026-9-17 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249029&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-17 00:48</a>
+
+不知道真假
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+aa是个不停拉屎，试图通过用自己屎糊满墙的作坊么？
+
+*****
+
+####  lactone  
+##### 14064#       发表于 2026-9-17 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249077&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-9-17 01:02</a>
+aa是个不停拉屎，试图通过用自己屎糊满墙的作坊么？</blockquote>
+我其实也不知道为啥aa现在成为最出名的bench网站<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  squallx  
+##### 14065#       发表于 2026-9-17 01:07
+
+重预设都破不开甲了 这哈基米起外审不耗资源的吗 老老实实早点认清自己的地位没人拿你办正经任务的<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer"> 玛德最近几天每到这个点当个打标器和反推机连擦边都不行
+
+*****
+
+####  andychen  
+##### 14066#       发表于 2026-9-17 02:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248594&amp;ptid=2275806" target="_blank">Mirathel 发表于 2026-9-16 23:20</a>
+codex cli真的不会动态路由到低消耗模型吗，试了下20x，因为生成速度太慢额度几乎不动，而且初始化询问知识 ...</blockquote>
+codex工具的自带的上下文压缩有问题，压缩完以后要让会话手动重载一次记忆
+
+*****
+
+####  BarricadeMKXX  
+##### 14067#       发表于 2026-9-17 02:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249029&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-17 00:48</a>
+不知道真假
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+我找了半天v4f在哪里合着是没放
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  andychen  
+##### 14068#       发表于 2026-9-17 06:17
+
+小米在网站上直播mimo2.6的强化学习后训练
+
+https://mimo.xiaomi.com/rl/#overview
+
+目前烧掉80w刀<img src="https://static.stage1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
