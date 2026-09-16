@@ -7820,3 +7820,13 @@ syl，突然发现PDD有一家上了日邮限定版，不知道会不会上百�
 
 有直接打五年后的吗
 
+
+*****
+
+####  bad_alloc  
+##### 3652#       发表于 2026-9-16 07:50
+
+直接买数字版了，今晚11点开冲
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
