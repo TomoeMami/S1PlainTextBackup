@@ -8603,3 +8603,14 @@ jev 发布了. 好像是 Diffusion 模型. 100亿 token /42美元 输出免费. 
 不过不能聊天 ...</blockquote>
 这个不能生成代码，应该是只能生成决策结果，输入问题和结果选项，输出各个结果的概率值
 
+
+*****
+
+####  eno_emos  
+##### 13984#       发表于 2026-9-16 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70241639&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-16 00:36</a>
+
+为啥雷达站上的high会比max分数高这么多？</blockquote>
+前面几页有人提到了，他的训练甜点区就是high，max反而会陷入雷霆大思考
+
