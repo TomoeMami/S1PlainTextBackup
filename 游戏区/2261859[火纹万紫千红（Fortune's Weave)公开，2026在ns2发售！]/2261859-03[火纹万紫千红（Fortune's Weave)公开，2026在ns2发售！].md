@@ -8562,3 +8562,13 @@ slime7 发表于 2026-9-16 12:22新号还是老号啊，我本来也打算日亚
 eshop不让用外国信用卡，头回在日亚买数字版，先弹了安全警告，好不容易恢复账号了，信用卡死活不扣钱，日 ...</blockquote>
 一般是等 24 小时再买就行
 
+
+*****
+
+####  kalavinka  
+##### 3700#       发表于 2026-9-16 13:14
+
+看偷跑蕾妲纯纯魔怔人啊 有望接替红秋裤位置<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
