@@ -9985,3 +9985,47 @@ IS就是怕重复才给四个人设置了四个特色系统吧
 玩到了，真的只有30帧啊，而且看评测有些地方是连30帧都稳不住。这画面在NS2上也没多好吧，火纹这几作优化 ...</blockquote>
 engage都直接unity了，很怀疑是不是直接抛弃自研引擎了。可能只有芝麻还在用了
 
+
+*****
+
+####  Aresu  
+##### 3843#       发表于 2026-9-16 23:24
+
+切回合也搞震动啊
+
+*****
+
+####  u2deack  
+##### 3844#       发表于 2026-9-16 23:29
+
+攻击命中不震动切回合搁那狂震也是有点神秘，难道要ct才震么
+
+
+*****
+
+####  绕指流光  
+##### 3845#       发表于 2026-9-16 23:30
+
+这序章剧情好无力啊，不知道从哪里开始吐槽<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">跟预想的完全不一样
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  yangchunsiyue  
+##### 3846#       发表于 2026-9-16 23:30
+
+玩上了，这不百日战记吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  thecatnie  
+##### 3847#       发表于 2026-9-16 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248593&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-16 23:20</a>
+
+这成长是不是太变态了？</blockquote>
+我是主角！！<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
