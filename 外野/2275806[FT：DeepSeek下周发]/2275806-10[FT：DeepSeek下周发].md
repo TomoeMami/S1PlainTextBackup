@@ -8614,3 +8614,22 @@ jev 发布了. 好像是 Diffusion 模型. 100亿 token /42美元 输出免费. 
 为啥雷达站上的high会比max分数高这么多？</blockquote>
 前面几页有人提到了，他的训练甜点区就是high，max反而会陷入雷霆大思考
 
+
+*****
+
+####  库德里尔  
+##### 13985#       发表于 2026-9-16 10:59
+
+现在搞嵌入和重排的模型有推荐吗
+还是这个概念本身已经开始过时了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  kyonmoe  
+##### 13986#       发表于 2026-9-16 11:07
+
+4.1F能在单a3上部署吗，两台搞不起啊<img src="https://static.stage1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+

@@ -8148,3 +8148,11 @@ IS这是在？
 
 贝尔的狙击手是特殊服装，转职成弓骑就只能换成通用铠甲了。
 
+
+*****
+
+####  Jabeck  
+##### 3679#       发表于 2026-9-16 10:57
+
+大幅强化个人技的独特性，像结合那样某些神技在某些fw手里就开心了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
