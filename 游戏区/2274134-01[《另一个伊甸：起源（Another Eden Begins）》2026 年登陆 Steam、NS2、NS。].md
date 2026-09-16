@@ -26,3 +26,13 @@
 
 才看到有五个角色包，每个两人，现在有第一二个，其他的一个月一包 一直到 12 月推完<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  谢枫华  
+##### 55#       发表于 2026-9-17 01:58
+
+往年的9月也是这样的JRPG大月吗？每个星期都在出想玩的游戏，根本玩不过来。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
