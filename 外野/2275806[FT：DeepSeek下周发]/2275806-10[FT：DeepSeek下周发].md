@@ -9362,3 +9362,27 @@ Union Alpha 会是 Kimi 3.1吗？</blockquote>
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  phorcys02  
+##### 14052#       发表于 2026-9-17 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249029&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-17 00:48</a>
+
+不知道真假
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+aa是个不停拉屎，试图通过用自己屎糊满墙的作坊么？
+
+*****
+
+####  lactone  
+##### 14053#       发表于 2026-9-17 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249077&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-9-17 01:02</a>
+aa是个不停拉屎，试图通过用自己屎糊满墙的作坊么？</blockquote>
+我其实也不知道为啥aa现在成为最出名的bench网站<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
