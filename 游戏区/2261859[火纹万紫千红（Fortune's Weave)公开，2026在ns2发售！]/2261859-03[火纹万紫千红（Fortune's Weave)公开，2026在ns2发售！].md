@@ -9949,3 +9949,39 @@ IS就是怕重复才给四个人设置了四个特色系统吧
 玩到了，真的只有30帧啊，而且看评测有些地方是连30帧都稳不住。这画面在NS2上也没多好吧，火纹这几作优化 ...</blockquote>
 风花雪月那么糟糕的表现都玩过来了，这次应该算比较好啃的了
 
+
+*****
+
+####  nancygreenlife  
+##### 3840#       发表于 2026-9-16 23:19
+
+<img src="https://img.stage1st.com/forum/202609/16/231912dlx7sa7bs313lbps.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260916_231842.jpg</strong> (904.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 23:19 上传
+
+你们知道吗？
+
+
+*****
+
+####  纯夏  
+##### 3841#       发表于 2026-9-16 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248589&amp;ptid=2261859" target="_blank">nancygreenlife 发表于 2026-9-16 23:19</a>
+
+你们知道吗？</blockquote>
+这成长是不是太变态了？<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GuardHei  
+##### 3842#       发表于 2026-9-16 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248533&amp;ptid=2261859" target="_blank">巨馍蘸酱 发表于 2026-9-16 23:11</a>
+玩到了，真的只有30帧啊，而且看评测有些地方是连30帧都稳不住。这画面在NS2上也没多好吧，火纹这几作优化 ...</blockquote>
+engage都直接unity了，很怀疑是不是直接抛弃自研引擎了。可能只有芝麻还在用了
+

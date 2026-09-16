@@ -9234,3 +9234,29 @@ gpt plus只用Astra做规划，一次大概能用多少百分比额度？</block
 
 —— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Mirathel  
+##### 14040#       发表于 2026-9-16 23:20
+
+codex cli真的不会动态路由到低消耗模型吗，试了下20x，因为生成速度太慢额度几乎不动，而且初始化询问知识截止日期会随机回答去年12月份，使用API的速度倒是正常......
+
+感觉Astra能力也就那么回事，实验性任务没有初试A家和早期Gemini那时候的启发性还有六七月份大肥鱼的简单高效，而且个人体感很容易出现理解偏差和规划漂移，好在彻底跑偏之前知道停下把责任丢回给我<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">，总感觉上下文注意力哪里不太对劲。
+
+
+*****
+
+####  The_Ether_  
+##### 14041#       发表于 2026-9-16 23:24
+
+<img src="https://img.stage1st.com/forum/202609/16/232346isjsuqd3ljpyzy2q.png" referrerpolicy="no-referrer">
+
+<strong>99F14995EB79764E8D01B3956763D0B0.png</strong> (162.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-16 23:23 上传
+
+下面破防/辟谣的点进去基本都是中文账号，太搞笑了
+
