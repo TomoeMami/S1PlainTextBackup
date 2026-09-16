@@ -8628,3 +8628,19 @@ eshop不让用外国信用卡，头回在日亚买数字版，先弹了安全警
 
 媒体评价是今晚解禁吗？会赢吗？
 
+
+*****
+
+####  Alaaddin1013  
+##### 3707#       发表于 2026-9-16 14:23
+
+PDD终于搞到了8-80，买了个港版305，能接受。
+
+*****
+
+####  Piano-Forest  
+##### 3708#       发表于 2026-9-16 14:26
+
+开发者访谈
+[https://www.nintendo.com/hk/interview/aacsa/index.html](https://www.nintendo.com/hk/interview/aacsa/index.html)
+
