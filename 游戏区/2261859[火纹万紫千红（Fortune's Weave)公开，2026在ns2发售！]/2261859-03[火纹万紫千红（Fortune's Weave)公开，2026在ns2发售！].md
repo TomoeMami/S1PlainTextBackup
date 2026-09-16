@@ -8348,3 +8348,26 @@ IS这是在？
 扣了一套队伍徽章，我是很喜欢本作的这套设计</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">快上头像商店
 
+
+*****
+
+####  DarkDawn  
+##### 3683#       发表于 2026-9-16 11:30
+
+我不喜欢横转的其中一个点是，配套一些反直觉设计
+
+典型比如engage小绿初始法师其实适合物理职业，安娜初始物理但其实适合法师……
+
+
+*****
+
+####  黑卷轴陶德传  
+##### 3684#       发表于 2026-9-16 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70243663&amp;ptid=2261859" target="_blank">DarkDawn 发表于 2026-9-16 11:30</a>
+
+我不喜欢横转的其中一个点是，配套一些反直觉设计
+
+典型比如engage小绿初始法师其实适合物理职业，安娜初始 ...</blockquote>
+没事，现在成长率直接显示了，适合什么一看便知道了
+

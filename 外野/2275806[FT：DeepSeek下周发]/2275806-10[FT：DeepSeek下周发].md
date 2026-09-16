@@ -8682,3 +8682,14 @@ jev这个模型我看了一下，感觉这玩意儿能够用的地方有限啊
 
 怎么可能盈利，ARR这个指标也是很搞笑，理发店年底集中充一波卡，就能说自己的ARR按照这波算了？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  matthewsteel  
+##### 13992#       发表于 2026-9-16 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70243610&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-9-16 11:27</a>
+
+无人在意的角落，谷谷歌歌给了一次额度重置</blockquote>
+而tibo已经四天没有按reset按钮了
+
