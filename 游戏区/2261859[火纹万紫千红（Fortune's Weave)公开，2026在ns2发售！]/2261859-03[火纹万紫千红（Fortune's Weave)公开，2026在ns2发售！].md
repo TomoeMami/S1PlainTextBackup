@@ -10518,3 +10518,42 @@ live2d 做挺好的，以后多做（
 
 选了雷达线，良成长的小朋友和主角升级给我跳2点低保，气笑了，睡觉
 
+
+*****
+
+####  苏西踩我了  
+##### 3907#       发表于 2026-9-17 01:07
+
+设置里有个调节游戏速度，可以调整成“快”
+
+*****
+
+####  kalavinka  
+##### 3908#       发表于 2026-9-17 01:11
+
+凯伊十五岁第一次见老母亲打了个招呼就被打发走了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  医生狼多  
+##### 3909#         楼主| 发表于 2026-9-17 01:14
+
+迷宫地图攻击队友还会格挡<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hl氏  
+##### 3910#       发表于 2026-9-17 01:14
+
+这种矫情啰嗦以及带点不合时宜的幼稚岔话的台词……没错，是円给几的感觉<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 3911#       发表于 2026-9-17 01:15
+
+啊这四个焰将都有各自的特色啊要我怎么选
+
