@@ -9179,3 +9179,26 @@ psp跑ai？</blockquote>
 
 真的是psp，90M大模型，我看表现比gpt3不差，去年还是psv呢
 
+
+*****
+
+####  德尔惠净水器  
+##### 14036#       发表于 2026-9-16 18:42
+
+<blockquote>mitzvah 发表于 2026-9-16 18:29
+https://www.reddit.com/r/LocalLL ... ational_llm_on_the/
+
+真的是psp，90M大模型，我看表现比gpt3不差 ...</blockquote>
+我去，太离谱了，人类还能从psp身上开发出多少玩意…
+
+<img src="https://img.stage1st.com/forum/202609/16/184218pwl3y222l947yqyy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260916_184105.jpg</strong> (216.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-16 18:42 上传
+
+https://github.com/thatblend/LLMPSP
+
