@@ -8526,3 +8526,39 @@ eshop不让用外国信用卡，头回在日亚买数字版，先弹了安全警
 
 日服直接咸鱼买兑换卡不就行了
 
+
+*****
+
+####  黑上シグマ  
+##### 3697#       发表于 2026-9-16 13:02
+
+ 本帖最后由 黑上シグマ 于 2026-9-16 13:03 编辑 
+<blockquote>引用第3688楼PigMourne于2026-09-16 12:20发表的  :
+
+eshop不让用外国信用卡，头回在日亚买数字版，先弹了安全警告，好不容易恢复账号了，信用卡死活不扣钱......</blockquote>
+弹安全警告了你这单应该就是直接被系统取消掉了，不放心可以去找客服聊聊，跟他说是你本人购买，让他帮你找技术部把风控状态解除掉
+顺带客户服务里都是显示普通订单不显示数字商品订单的，我记得在另外的哪里挺难找的，直接想办法找到人工客服可能还比较快
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+*****
+
+####  黑上シグマ  
+##### 3698#       发表于 2026-9-16 13:05
+
+<blockquote>引用第3692楼PigMourne于2026-09-16 12:25发表的  :
+
+slime7 发表于 2026-9-16 12:22新号还是老号啊，我本来也打算日亚买数字版的—— ......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年的号算什么老号，还只买过充值卡，在他们看来你这号属于极其可疑那类的好吧
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+*****
+
+####  bbluekid  
+##### 3699#       发表于 2026-9-16 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70244200&amp;ptid=2261859" target="_blank">PigMourne 发表于 2026-9-16 12:20</a>
+eshop不让用外国信用卡，头回在日亚买数字版，先弹了安全警告，好不容易恢复账号了，信用卡死活不扣钱，日 ...</blockquote>
+一般是等 24 小时再买就行
+
