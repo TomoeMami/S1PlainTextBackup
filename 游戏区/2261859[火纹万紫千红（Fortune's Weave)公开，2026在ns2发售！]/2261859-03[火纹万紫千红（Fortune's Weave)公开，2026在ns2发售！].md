@@ -10714,3 +10714,18 @@ live2d 做挺好的，以后多做（
 
 FC时代的外传都能大地图和战斗分开存档吧
 
+
+*****
+
+####  纯夏  
+##### 3929#       发表于 2026-9-17 02:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249237&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-17 02:03</a>
+
+等等，只能存一个档？
+
+FC时代的外传都能大地图和战斗分开存档吧</blockquote>
+1个月前我就吐槽过了 只有一个存档 
+
+别人说这作是像宝可梦和动森一样有啥机制 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
