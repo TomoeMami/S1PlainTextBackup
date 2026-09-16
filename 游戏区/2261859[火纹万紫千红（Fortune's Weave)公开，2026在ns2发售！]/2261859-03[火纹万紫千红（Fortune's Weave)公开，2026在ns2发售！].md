@@ -10776,3 +10776,33 @@ FC时代的外传都能大地图和战斗分开存档吧</blockquote>
 
 正中午的幽灵马车有点绷不住，话说这不是狂猎吗
 
+
+*****
+
+####  索非亚  
+##### 3935#       发表于 2026-9-17 03:13
+
+主线战斗都改黑白棋了，√RPG的垃圾小游戏也不会放主线啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 3936#       发表于 2026-9-17 03:18
+
+下棋我蕾达就盯着金毛打，等级升得超快
+
+
+*****
+
+####  夜留歌  
+##### 3937#       发表于 2026-9-17 03:21
+
+ 本帖最后由 夜留歌 于 2026-9-17 03:23 编辑 
+
+<img src="https://p.sda1.dev/35/cc23d0d59d40faaae99ef96d8f1f96ce/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/75eecd67b1f109a14ed0d2dba01c0354/image.jpg" referrerpolicy="no-referrer">
+
+女儿控
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
