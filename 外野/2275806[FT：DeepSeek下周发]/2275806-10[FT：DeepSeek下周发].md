@@ -9222,3 +9222,15 @@ gpt plus只用Astra做规划，一次大概能用多少百分比额度？</block
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 14039#       发表于 2026-9-16 22:28
+
+话说kimi是不是在等gpt6sol或者luna出来
+
+如果gpt6luna能够接近k3或者fable，保持价格不变，那开源模型压力会挺大
+
+—— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
