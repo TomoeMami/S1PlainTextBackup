@@ -8927,3 +8927,20 @@ DLC一点消息都没有，是不是涉及剧透或者终盘内容了
 4条线的存档是独立的，读档只能选当前进度和重头开始。</blockquote>
 上面访谈说的树状存档是这样的？
 
+
+*****
+
+####  椎名mahuyo  
+##### 3734#       发表于 2026-9-16 16:33
+
+听说是30帧，is得技术力这么烂么<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3708, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  richardkisser  
+##### 3735#       发表于 2026-9-16 16:34
+
+还在30帧，不爽别玩
+

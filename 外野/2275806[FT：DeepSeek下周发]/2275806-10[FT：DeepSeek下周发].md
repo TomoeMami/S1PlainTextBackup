@@ -9010,3 +9010,14 @@ PSP也行？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  秦南心  
+##### 14021#       发表于 2026-9-16 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70245164&amp;ptid=2275806" target="_blank">Baccano 发表于 2026-9-16 14:34</a>
+
+16，17年时候，AI刚刚火。我一个搞炼丹的同学跟我过现在模型的参数量已经比大脑神经元都多了，但是智能还 ...</blockquote>
+参数量和算法是模型的压缩方式，本质是一个中文屋，跟人脑天差地别的玩意怎么可能模拟出意识智能
+
