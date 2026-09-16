@@ -340,3 +340,26 @@
 
 弗莉多那张礼装原来是Redrop画的吗，难怪在我XP上跳舞<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 21598#       发表于 2026-9-16 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247718&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-9-16 20:56</a>
+
+弗莉多那张礼装原来是Redrop画的吗，难怪在我XP上跳舞
+
+180石头，我真的只想抽弗莉多的礼装</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧狗又豹跳了
+
+*****
+
+####  khxooo  
+##### 21599#       发表于 2026-9-16 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247769&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-9-16 21:03</a>
+
+欧狗又豹跳了</blockquote>
+那萌新才是欧狗，我这只是还了黑花的债<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

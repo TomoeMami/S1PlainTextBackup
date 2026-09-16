@@ -9510,3 +9510,53 @@ MC
 
 看了会游戏直播，至少剧情演出方面比嗯给鸡好太多
 
+
+*****
+
+####  qiyu1234  
+##### 3794#       发表于 2026-9-16 20:59
+
+ 本帖最后由 qiyu1234 于 2026-9-16 21:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247698&amp;ptid=2261859" target="_blank">thecatnie 发表于 2026-9-16 20:53</a>
+
+那应该玩的挺细的，也可能是卡关卡的</blockquote>
+评测者他个人建议每个故事在完成第一幕以后再切换到另一个故事打
+
+原因是游戏里有个类似于奖杯/内部成就的累计行为奖励系统，可以换取增益/经验值奖励/以及主城的商店折扣等等，其中的很多奖励会在该角色完成第一幕以后提供给玩家，如果你同时推进四个角色故事，那么你就无法在完成第一个角色的第一幕以后，让第二个角色的第一幕享受这种增益
+
+
+*****
+
+####  thecatnie  
+##### 3795#       发表于 2026-9-16 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247736&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-9-16 20:59</a>
+
+评测者他个人建议每个故事在完成第一幕以后再切换到另一个故事打
+
+原因是游戏里有个类似于奖杯/内部成就的 ...</blockquote>
+那看来系统上是鼓励同时推四条线的
+
+*****
+
+####  纯夏  
+##### 3796#       发表于 2026-9-16 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70247736&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-9-16 20:59</a>
+
+评测者他个人建议每个故事在完成第一幕以后再切换到另一个故事打
+
+原因是游戏里有个类似于奖杯/内部成就的 ...</blockquote>
+所以媒体评测说的流程重复打真是汇成单线四个主角得打4遍的意思？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RαPβiT  
+##### 3797#       发表于 2026-9-16 21:07
+
+<blockquote>qiyu1234 发表于 2026-9-16 20:34
+看了下评分较低的媒体的提出的问题
+
+1.流程过长，前期尚可，后期故事悬念已经基本没有，但是流程还需要重复 ...</blockquote>
+第三点自己说出来不觉得好笑吗，选了高难度还想着一路托管
+
