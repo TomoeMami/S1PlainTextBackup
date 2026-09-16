@@ -8999,3 +8999,47 @@ DLC一点消息都没有，是不是涉及剧透或者终盘内容了
 
 她的英文CV 与 欧美玩家之前根据声音猜测的片头绿发女巫的英文版CAST一致（当然也跟日文CV一样同时配音了前几天公布的贾思敏）
 
+
+*****
+
+####  cox  
+##### 3741#       发表于 2026-9-16 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70246329&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-9-16 17:21</a>
+
+这作基本上一眼无法加入队伍的角色（一些女NPC/女敌役）的CV，好像都有同时配音佣兵团的可招募角色
+
+而且是 ...</blockquote>
+昨晚开发者访谈也说有些反派是可以入队的，但这东西来一两个就行了，有些人肯定是注定要被砍死的。<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qiyu1234  
+##### 3742#       发表于 2026-9-16 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70246519&amp;ptid=2261859" target="_blank">cox 发表于 2026-9-16 17:46</a>
+
+昨晚开发者访谈也说有些反派是可以入队的，但这东西来一两个就行了，有些人肯定是注定要被砍死的。 ...</blockquote>
+访谈指的非正派角色大概是之前介绍的可招募盗贼众，里面确实大部分角色不是什么好鸟
+
+真正意义上的剧情对立敌人应该多数是无法招募的（特别是已经确定有同时担任可招募多役CV的）
+
+*****
+
+####  ミズタ  
+##### 3743#       发表于 2026-9-16 17:49
+
+<blockquote>bsdlxy 发表于 2026-9-16 17:25
+日服北京11点，港服北京0点~</blockquote>
+我记得第一方港服很早就和日服同步23点解锁了
+
+*****
+
+####  woaimiyabi  
+##### 3744#       发表于 2026-9-16 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70245654&amp;ptid=2261859" target="_blank">duraa 发表于 2026-9-16 15:43</a>
+
+同天发售隔壁有个92，会赢吗火纹</blockquote>
+十个媒体92分，火纹估计近百个媒体评分 有什么可比性吗？
+
