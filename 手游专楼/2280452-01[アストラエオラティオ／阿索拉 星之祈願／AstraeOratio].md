@@ -87,3 +87,13 @@ kv死了之后，制作组被内裤松死对头公司收购后做的新作</bloc
 kv死了之后，制作组被内裤松死对头公司收购后做的新作</blockquote>
 怪不得，风格这么像，我还以为是ba那个新作呢
 
+
+*****
+
+####  jiangyou  
+##### 53#       发表于 2026-9-17 19:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这波中门对狙明显是这边口碑更强点，再加上先发优势，叛忍的帽子怕是要摘掉了
+
