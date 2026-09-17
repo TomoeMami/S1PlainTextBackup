@@ -10497,3 +10497,17 @@ dsh 0.1.6 alpha2更新，加了官方插件管理、子代理数量和层数控�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 14138#       发表于 2026-9-18 06:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254313&amp;ptid=2275806" target="_blank">jonarryn 发表于 2026-9-18 01:44</a>
+话说新上的那个匿名模型 union 阿尔法怎么样？我今天试了一下 感觉还可以
+
+—— 来自 鹅球 v4.0 ...</blockquote>
+本质路由器，路由到astra就转了，路由到别的就亏了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
