@@ -11658,3 +11658,11 @@ IS下一作可以去找MONO合作了。
 回溯能换主角性别吗，自选的四个发型都很一言难尽</blockquote>
 标题再降临可以重开序章捏人，到了方尖碑之间后会继承回原来的属性和进度
 
+
+*****
+
+####  66367749  
+##### 4032#       发表于 2026-9-17 10:30
+
+反正最后都是小绿人的吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
