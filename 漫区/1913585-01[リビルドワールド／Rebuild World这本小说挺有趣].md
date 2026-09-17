@@ -6,3 +6,15 @@
 
 15卷怎么又捏个由米娜说事，这陀螺真是好用啊
 
+
+*****
+
+####  topia  
+##### 561#       发表于 2026-9-17 11:11
+
+毕竟上一卷就已经犯罪预告过了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+虽说这本超薄，但整整一本阿尔法都没戏份
+
+不过整个故事背景又感觉处处在点阿尔法
+

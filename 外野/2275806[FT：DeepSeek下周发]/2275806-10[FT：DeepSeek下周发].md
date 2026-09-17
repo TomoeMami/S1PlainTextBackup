@@ -9682,3 +9682,19 @@ cloudflare认领了，路由模型
 不是，小米这模型现在才后训练，那之前测的那一坨又是啥</blockquote>
 挽尊的说法，所有模型都必须有后训练才能用，只不过质量差异而已
 
+
+*****
+
+####  肆拾肆  
+##### 14082#       发表于 2026-9-17 11:11
+
+感谢罗圣开源
+
+<img src="https://img.stage1st.com/forum/202609/17/111118t6lzrz12k6uc2w4z.jpg" referrerpolicy="no-referrer">
+
+<strong>21787.jpg</strong> (1003.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 11:11 上传
+
