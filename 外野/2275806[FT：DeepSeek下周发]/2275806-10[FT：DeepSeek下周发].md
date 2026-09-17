@@ -10462,3 +10462,28 @@ dsh 0.1.6 alpha2更新，加了官方插件管理、子代理数量和层数控�
 
 dsh 0.1.6 alpha2更新，加了官方插件管理、子代理数量和层数控制、office文件预览
 
+
+*****
+
+####  CCauchy  
+##### 14135#       发表于 2026-9-18 01:18
+
+<img src="https://img.stage1st.com/forum/202609/18/011811qjrjyzjrllfdvajw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (176.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-18 01:18 上传
+
+这么便宜真的是astra吗
+
+*****
+
+####  med  
+##### 14136#       发表于 2026-9-18 01:19
+
+一个任务了，dsh派了100多个sub-agent，codex报错，难顶，许愿明早能搞好，睡觉去了。<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+ <blockquote>stream disconnected before completion: Transport error: network error: error decoding response body</blockquote>
+<blockquote>Error running remote compact task: stream disconnected before completion: Transport error: network error: error decoding response body</blockquote>
+

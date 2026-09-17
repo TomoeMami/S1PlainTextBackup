@@ -77,3 +77,21 @@ NS2版居然不是钥匙卡？</blockquote>
 
 —— 来自 OnePlus PKX110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  DARK_HGCG  
+##### 60#       发表于 2026-9-18 01:22
+
+<blockquote>炯Ⅺ 发表于 2026-9-17 20:47
+那是不是等它全部更新完了再打更好？那我就不急着玩了
+
+—— 来自 OnePlus PKX110, Android 16, 鹅球 v3. ...</blockquote>
+反正我自己是没时间玩
+
+先打火纹
+
+下个月还有太空战士
+
+都打完差不多季票出全
+

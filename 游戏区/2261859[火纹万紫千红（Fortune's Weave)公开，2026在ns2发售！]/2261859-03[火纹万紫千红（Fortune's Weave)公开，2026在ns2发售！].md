@@ -14022,3 +14022,11 @@ nga游综是索索已经疯魔了，小岛倒戈微软+第一方大作评分被�
 
 掌机模式和电视模式差距大么？
 
+
+*****
+
+####  saintgory  
+##### 4212#       发表于 2026-9-18 01:17
+
+问下，一周目一开始不去做4主角的主线直接打boss有可能打过吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下想去打，会不会有什么隐藏剧情。虽然一上来确实战力堪忧，队友一直劝
+
