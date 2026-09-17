@@ -27,3 +27,17 @@ pv和战斗演出看着就是比Fareidolia好，虽然这既视感也太强了
 
 之前kv不是被告了吗？这次这个游戏又是谁做的？还是kv那个组？
 
+
+*****
+
+####  blue321  
+##### 49#       发表于 2026-9-17 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251528&amp;ptid=2280452" target="_blank">tigs1 发表于 2026-9-17 13:15</a>
+之前kv不是被告了吗？这次这个游戏又是谁做的？还是kv那个组？</blockquote>
+就是同一个组做的
+
+kv死了之后，制作组被内裤松死对头公司收购后做的新作
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
