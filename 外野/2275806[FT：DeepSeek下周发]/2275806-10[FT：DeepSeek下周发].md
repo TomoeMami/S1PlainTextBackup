@@ -10446,3 +10446,11 @@ PromptGenerator.zip
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  serj005  
+##### 14134#       发表于 2026-9-17 23:23
+
+dsh 0.1.6 alpha2更新，加了官方插件管理、子代理数量和层数控制、office文件预览
+
