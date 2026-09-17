@@ -12770,3 +12770,76 @@ https://www.rpgsite.net/guide/21391-fire-emblem-fortunes-weave-recruitment-guide
 
 2026-9-17 17:35 上传
 
+
+*****
+
+####  lurenjia  
+##### 4128#       发表于 2026-9-17 17:48
+
+刚开始玩，问一下，是可以分开存档的吧？我和我儿子同台机分开玩。怎么开头退出再进入就只有一个继续游戏一个存档
+
+*****
+
+####  qiyu1234  
+##### 4129#       发表于 2026-9-17 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252722&amp;ptid=2261859" target="_blank">leove25 发表于 2026-9-17 17:18</a>
+
+我在era上看一个评测人说建议先打完一条线再开别的，这样重复的任务都可以跳过。 ...</blockquote>
+攻略说 世界地图探索 通用支线 支援等级 成就 这些是全局继承项目（第一幕之后）
+
+玩家用第一个角色在第一幕把地图探索了一大半以后，第二个角色的第一幕会继承前个角色的探图解锁进度，以此类推
+
+*****
+
+####  bbluekid  
+##### 4130#       发表于 2026-9-17 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252836&amp;ptid=2261859" target="_blank">lurenjia 发表于 2026-9-17 17:48</a>
+刚开始玩，问一下，是可以分开存档的吧？我和我儿子同台机分开玩。怎么开头退出再进入就只有一个继续游戏一 ...</blockquote>
+多开一个账号吧
+
+
+*****
+
+####  lurenjia  
+##### 4128#       发表于 2026-9-17 17:48
+
+刚开始玩，问一下，是可以分开存档的吧？我和我儿子同台机分开玩。怎么开头退出再进入就只有一个继续游戏一个存档
+
+*****
+
+####  qiyu1234  
+##### 4129#       发表于 2026-9-17 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252722&amp;ptid=2261859" target="_blank">leove25 发表于 2026-9-17 17:18</a>
+
+我在era上看一个评测人说建议先打完一条线再开别的，这样重复的任务都可以跳过。 ...</blockquote>
+攻略说 世界地图探索 通用支线 支援等级 成就 这些是全局继承项目（第一幕之后）
+
+玩家用第一个角色在第一幕把地图探索了一大半以后，第二个角色的第一幕会继承前个角色的探图解锁进度，以此类推
+
+*****
+
+####  bbluekid  
+##### 4130#       发表于 2026-9-17 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252836&amp;ptid=2261859" target="_blank">lurenjia 发表于 2026-9-17 17:48</a>
+刚开始玩，问一下，是可以分开存档的吧？我和我儿子同台机分开玩。怎么开头退出再进入就只有一个继续游戏一 ...</blockquote>
+多开一个账号吧
+
+
+*****
+
+####  kuarwbwe  
+##### 4131#       发表于 2026-9-17 17:56
+
+帧数被人带节奏不纯自己作的。我是理解不了为啥这画面只能跑30帧。尤其是9月时之笛刚秀过肌肉，更让我觉得火纹这表现很神奇了。
+
+*****
+
+####  cox  
+##### 4132#       发表于 2026-9-17 17:58
+
+贴吧一个兄弟下午连发两个贴，虽然他抱怨帧数我可以理解，但是一转就开始只配70分我就知道什么情况了。
+
