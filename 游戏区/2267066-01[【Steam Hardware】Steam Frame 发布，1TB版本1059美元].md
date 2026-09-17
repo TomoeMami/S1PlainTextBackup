@@ -4430,3 +4430,11 @@ SD/SM/SF, 只有SD的性能是个刚出性能在第一梯队的.
 SD/SM/SF, 只有SD的性能是个刚出性能在第一梯队的.</blockquote>
 V社这种产多少买多少的模式，在高通那边和寨厂一桌，Odin3 都能拿 8e
 
+
+*****
+
+####  GrayishWh0  
+##### 420#       发表于 2026-9-17 14:37
+
+这次v社竟然还有给国内自媒体送steam frame测试机，笔吧测试6ghz适配器在国内用不了，frame一大卖点就这么无了<img src="https://static.stage1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+

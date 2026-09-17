@@ -126,3 +126,16 @@ https://mp1st.com/news/report-media-molecule-new-game-release-2027-first-info-le
 那到底索尼现在的终极幕后黑手是谁，怎么谁都没有实权</blockquote>
 十时裕树<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，西野目前权力如何暂时也看不太出来，赫尔曼近一年肯定是失势了，发布会都没她了，小岛也被踢走了
 
+
+*****
+
+####  ybfelix  
+##### 822#       发表于 2026-9-17 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251840&amp;ptid=2173605" target="_blank">医生狼多 发表于 2026-9-17 14:21</a>
+
+开普勒
+
+传闻：索尼的下一代掌上游戏机「PSP3」搭载最新上采样技术PSSR3.0，性能超越PS5，最大14TFLOPS的性 ...</blockquote>
+这不得卖一台全价主机的钱
+
