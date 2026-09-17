@@ -115,3 +115,14 @@ https://mp1st.com/news/report-media-molecule-new-game-release-2027-first-info-le
 - RDNA5 16CUs
 - 24GB LPDDR5X
 
+
+*****
+
+####  ナルバレック  
+##### 821#       发表于 2026-9-17 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70245127&amp;ptid=2173605" target="_blank">ybfelix 发表于 2026-9-16 14:29</a>
+
+那到底索尼现在的终极幕后黑手是谁，怎么谁都没有实权</blockquote>
+十时裕树<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，西野目前权力如何暂时也看不太出来，赫尔曼近一年肯定是失势了，发布会都没她了，小岛也被踢走了
+

@@ -9892,3 +9892,38 @@ AI芯片真赚钱，难怪华子车都不想造
 
 4.1flash无论是token消耗还是不说人话方面都在向SOTA模型靠拢，唯一的优势就是成本了
 
+
+*****
+
+####  DLAN  
+##### 14102#       发表于 2026-9-17 14:25
+
+英文输出其实还行（或者是我看不出来），中文输出全是黑话，看得脑壳痛
+
+—— 来自 Google Pixel 7 Pro, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 14103#       发表于 2026-9-17 14:29
+
+41f拿来改文其实还行
+
+
+*****
+
+####  serj005  
+##### 14104#       发表于 2026-9-17 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251731&amp;ptid=2275806" target="_blank">Cloude_L 发表于 2026-9-17 14:01</a>
+干苦力活只要返回结果和说明的场合都能明显看出来41f越来越不说人话（越来越像gpt），写文的不要用了 ...</blockquote>
+gpt那套特色文法是越看越恶心<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在一堆洗稿ai号也是这个恶心的不讲人话味了，github上的国产vibe软件更新日志全都没眼看，又费眼又费脑
+
+<img src="https://img.stage1st.com/forum/202609/17/143016hivhfx5oo1vhoyvf.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1789626615233_1.webp</strong> (170.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 14:30 上传
+
