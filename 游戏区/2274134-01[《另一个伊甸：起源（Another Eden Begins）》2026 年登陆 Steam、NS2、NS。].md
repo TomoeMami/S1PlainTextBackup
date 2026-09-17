@@ -36,3 +36,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  新HGCG  
+##### 56#       发表于 2026-9-17 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69441917&amp;ptid=2274134" target="_blank">夜天光 发表于 2026-4-5 07:35</a>
+
+NS2版居然不是钥匙卡？</blockquote>
+拿到了实体卡
+
+确认不是钥匙卡
+
