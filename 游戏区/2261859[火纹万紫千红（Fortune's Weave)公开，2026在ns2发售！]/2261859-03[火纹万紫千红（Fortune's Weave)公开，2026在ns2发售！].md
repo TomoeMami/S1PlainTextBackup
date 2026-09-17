@@ -12628,3 +12628,41 @@ Tahonia/Klapka这俩不知道是 ...</blockquote>
 https://www.rpgsite.net/guide/21391-fire-emblem-fortunes-weave-recruitment-guide-all-characters-in-g ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">怎么动不动都要6+声望的。。这作声望很好刷吗
 
+
+*****
+
+####  妮贝雅  
+##### 4115#       发表于 2026-9-17 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252127&amp;ptid=2261859" target="_blank">流连成双 发表于 2026-9-17 15:19</a>
+
+https://www.rpgsite.net/guide/21391-fire-emblem-fortunes-weave-recruitment-guide-all-characters-in-g ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">怎么动不动都要6+声望的。。这作声望很好刷吗
+
+
+*****
+
+####  创始’’’天翔  
+##### 4116#       发表于 2026-9-17 16:50
+
+这作转职去哪转来着
+
+*****
+
+####  空气先生  
+##### 4117#       发表于 2026-9-17 16:50
+
+<blockquote>妮贝雅 发表于 2026-9-17 16:45
+怎么动不动都要6+声望的。。这作声望很好刷吗</blockquote>
+主线给声望，到第九关大概清一下支线就4级声望了，多周目共用存档估计还有声望继承机制，问题不大
+
+
+*****
+
+####  空气先生  
+##### 4118#       发表于 2026-9-17 16:53
+
+<blockquote>创始’’’天翔 发表于 2026-9-17 16:50
+这作转职去哪转来着</blockquote>
+主线推进会有考试证教程（主角队大概在平均9级左右）
+
