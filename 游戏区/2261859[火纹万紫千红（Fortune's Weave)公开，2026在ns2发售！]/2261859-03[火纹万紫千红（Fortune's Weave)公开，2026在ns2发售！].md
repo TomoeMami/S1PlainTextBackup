@@ -12450,3 +12450,13 @@ Tahonia/Klapka这俩不知道是谁
 
 凯爹/龙/玛丽亚以及各反派/所有神也都没提
 
+
+*****
+
+####  bbluekid  
+##### 4102#       发表于 2026-9-17 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251797&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-9-17 14:15</a>
+1.从属国在宗主国的首都立挡路者必杀的规矩就有点搞笑，哪个皇家贵族的眷属孩子不小心挡个路也这么直接杀 ...</blockquote>
+你看整个国家对于规矩是特别在意的。而且小兵的剑都提起来了，砍归砍。砍错了那也是砍完以后的事。
+

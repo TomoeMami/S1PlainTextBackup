@@ -4460,3 +4460,14 @@ V社这种产多少买多少的模式，在高通那边和寨厂一桌，Odin3 �
 这次v社竟然还有给国内自媒体送steam frame测试机，笔吧测试6ghz适配器在国内用不了，frame一大卖点就这么 ...</blockquote>
 这个属于意料之中，国内6Ghz频段全给了未来的移动网络
 
+
+*****
+
+####  woodey  
+##### 421#       发表于 2026-9-17 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251924&amp;ptid=2267066" target="_blank">GrayishWh0 发表于 2026-9-17 14:37</a>
+
+这次v社竟然还有给国内自媒体送steam frame测试机，笔吧测试6ghz适配器在国内用不了，frame一大卖点就这么 ...</blockquote>
+这个属于意料之中，国内6Ghz频段全给了未来的移动网络
+

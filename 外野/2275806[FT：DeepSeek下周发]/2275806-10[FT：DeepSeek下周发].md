@@ -10020,3 +10020,57 @@ gpt那套特色文法是越看越恶心现在一堆洗稿ai号也是这个恶心
 现在4.1f的破甲难度是不是高了很多啊</blockquote>
 除了铜矿和强迫,其他的尺度再大都没问题.问题是写出来的文根本没眼看
 
+
+*****
+
+####  未知伤亡  
+##### 14108#       发表于 2026-9-17 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251897&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-17 14:30</a>
+
+gpt那套特色文法是越看越恶心现在一堆洗稿ai号也是这个恶心的不讲人话味了，github上的国产vibe软件更新 ...</blockquote>
+上下文太长了吧，模型注意力被分散了以后就容易说这种词不达意的话
+
+*****
+
+####  坛子漆黑  
+##### 14109#       发表于 2026-9-17 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251641&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-9-17 13:37</a>
+
+现在4.1f的破甲难度是不是高了很多啊</blockquote>
+除了铜矿和强迫,其他的尺度再大都没问题.问题是写出来的文根本没眼看
+
+
+*****
+
+####  serj005  
+##### 14110#       发表于 2026-9-17 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252232&amp;ptid=2275806" target="_blank">未知伤亡 发表于 2026-9-17 15:41</a>
+上下文太长了吧，模型注意力被分散了以后就容易说这种词不达意的话</blockquote>
+不完全是词不达意，gpt现在的中文就是经常用一些莫名其妙的单字动词还有乱打比喻来描述它做的工作还要记录日志，然后逻辑又很跳跃，不用塞多少上下文，单纯直出一个日志很大概率就已经是这种文本风格了。
+现在最大的问题是这种风格开始扩散，越来越多的模型都开始这样不讲人话。
+
+
+*****
+
+####  serj005  
+##### 14110#       发表于 2026-9-17 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252232&amp;ptid=2275806" target="_blank">未知伤亡 发表于 2026-9-17 15:41</a>
+上下文太长了吧，模型注意力被分散了以后就容易说这种词不达意的话</blockquote>
+不完全是词不达意，gpt现在的中文就是经常用一些莫名其妙的单字动词还有乱打比喻来描述它做的工作还要记录日志，然后逻辑又很跳跃，不用塞多少上下文，单纯直出一个日志很大概率就已经是这种文本风格了。
+现在最大的问题是这种风格开始扩散，越来越多的模型都开始这样不讲人话。
+
+
+*****
+
+####  serj005  
+##### 14110#       发表于 2026-9-17 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252232&amp;ptid=2275806" target="_blank">未知伤亡 发表于 2026-9-17 15:41</a>
+上下文太长了吧，模型注意力被分散了以后就容易说这种词不达意的话</blockquote>
+不完全是词不达意，gpt现在的中文就是经常用一些莫名其妙的单字动词还有乱打比喻来描述它做的工作还要记录日志，然后逻辑又很跳跃，不用塞多少上下文，单纯直出一个日志很大概率就已经是这种文本风格了。
+现在最大的问题是这种风格开始扩散，越来越多的模型都开始这样不讲人话。
+
