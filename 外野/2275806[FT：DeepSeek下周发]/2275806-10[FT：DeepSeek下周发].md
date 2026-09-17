@@ -10103,3 +10103,34 @@ gpt那套特色文法是越看越恶心现在一堆洗稿ai号也是这个恶心
 
 现在各家模型厂开始卷harness就是这个原因
 
+
+*****
+
+####  大暴死  
+##### 14113#       发表于 2026-9-17 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249751&amp;ptid=2275806" target="_blank">处男鉴黄师 发表于 2026-9-17 08:52</a>
+试过了，大概两年前suno水平</blockquote>
+那minimax music3作为DiT模型连两年前的suno都不如吗，有点拉了...反正YuE2我随便玩了玩感觉效果能接受了
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  phorcys02  
+##### 14114#       发表于 2026-9-17 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251813&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-17 14:17</a>
+
+4.1flash无论是token消耗还是不说人话方面都在向SOTA模型靠拢，唯一的优势就是成本了 ...</blockquote>
+上下文长度的问题，上下文长度超过50%，输出的中文就开始有点问题了
+
+大于70%就开始说胡话， 如果保持在 10-40%基本还是很正常的。
+
+*****
+
+####  wlhlz  
+##### 14115#       发表于 2026-9-17 16:22
+
+4.1f写文完全没法用，大概也是pro回归的重要原因，等下版本吧
+

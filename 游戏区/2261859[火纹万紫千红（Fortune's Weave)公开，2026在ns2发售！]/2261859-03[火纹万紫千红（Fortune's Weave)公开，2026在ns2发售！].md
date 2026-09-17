@@ -12552,3 +12552,40 @@ Tahonia/Klapka这俩不知道是 ...</blockquote>
 
 问下大家，迪托利希的安萨拉能修理吗？
 
+
+*****
+
+####  Bani82  
+##### 4108#       发表于 2026-9-17 16:16
+
+有在线攻略了么？这作能不能成长选择和契约一样的固定成长，非常不想凹点
+
+*****
+
+####  bbluekid  
+##### 4109#       发表于 2026-9-17 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252339&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-9-17 16:00</a>
+在宗主国领土上行自己的规矩？</blockquote>
+那你继续玩下去看啊
+
+*****
+
+####  巴尔干炮  
+##### 4110#       发表于 2026-9-17 16:21
+
+<blockquote>达达达达葱 发表于 2026-9-17 14:21
+啥原因呢？女王中途换人了？</blockquote>
+涉及第二部，还远未打到那里无法确认。
+
+
+*****
+
+####  Jabeck  
+##### 4111#       发表于 2026-9-17 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252421&amp;ptid=2261859" target="_blank">Bani82 发表于 2026-9-17 16:16</a>
+
+有在线攻略了么？这作能不能成长选择和契约一样的固定成长，非常不想凹点 ...</blockquote>
+这作就是固定成长
+
