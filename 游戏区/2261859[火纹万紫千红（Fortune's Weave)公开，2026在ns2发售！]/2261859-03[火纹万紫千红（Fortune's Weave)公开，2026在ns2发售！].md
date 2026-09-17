@@ -11944,3 +11944,25 @@ ns2游戏没法拆包，现在连五年后的形象都有一大堆没透露
 
 吐槽的是剧情也太琼瑶了，三小只，从小就三角恋...大人超威一群烂裤裆
 
+
+*****
+
+####  厄斯沃穆  
+##### 4063#       发表于 2026-9-17 12:47
+
+开局玩着还挺爽的，玩了三小时察觉怎么下棋部分这么少，打到解锁逛街看着满地图马桶感觉节奏整个垮掉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+得放一放了，等一个通马桶和挖角攻略
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  厄斯沃穆  
+##### 4063#       发表于 2026-9-17 12:47
+
+开局玩着还挺爽的，玩了三小时察觉怎么下棋部分这么少，打到解锁逛街看着满地图马桶感觉节奏整个垮掉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+得放一放了，等一个通马桶和挖角攻略
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

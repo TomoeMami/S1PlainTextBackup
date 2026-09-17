@@ -9818,3 +9818,27 @@ Union Alpha你们都是哪个平台的
 
 gpt是不是只给中文区降智啊
 
+
+*****
+
+####  平贺才人  
+##### 14096#       发表于 2026-9-17 12:51
+
+<img src="https://img.stage1st.com/forum/202609/17/125120lnsku8szilfrlfoc.jpg" referrerpolicy="no-referrer">
+
+<strong>006tvJhcly1ih6hbwvv8jj335s2dcnpd.jpg</strong> (343.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 12:51 上传
+
+- 昇腾960DT 提前至2027Q1上市
+
+- 昇腾960PR 提前至2027Q3上市
+
+- Atlas 960 风冷超节点 2027Q2上市
+
+- Atlas 960 液冷超节点 2027Q3上市
+
+梁子：ntmd...
+
