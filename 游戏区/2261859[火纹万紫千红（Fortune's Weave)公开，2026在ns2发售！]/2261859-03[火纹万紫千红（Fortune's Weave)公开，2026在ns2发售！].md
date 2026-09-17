@@ -12228,3 +12228,131 @@ ns2游戏没法拆包，现在连五年后的形象都有一大堆没透露
 
 这地图是真难用，为什么要在地图这种地方复杂化啊
 
+
+*****
+
+####  liliguo1  
+##### 4089#       发表于 2026-9-17 14:46
+
+<blockquote>cloudztj 发表于 2026-9-17 14:30
+打到凯伊摔倒在女王车队前那一幕的剧情有点难绷
+
+对一般平民这么耍威风实在有点形象扣分 ...</blockquote>
+其实你看女王的反应，看见是小孩就立马从轿子上蹦下来了
+
+后面预赛跟女王组队的时候会有解释，女王不这么处理手底下的人就给他砍了
+
+*****
+
+####  chaosp  
+##### 4090#       发表于 2026-9-17 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251833&amp;ptid=2261859" target="_blank">ascomnet 发表于 2026-9-17 14:19</a>
+
+我的还再成田出库</blockquote>
+掌上海关查到了，下午2点半放行的
+
+
+*****
+
+####  ナルバレック  
+##### 4091#       发表于 2026-9-17 14:51
+
+看了几眼泄漏图，昆仑人和弟弟人同源但敌对啊，年纪大的吓死人
+
+*****
+
+####  mai6696  
+##### 4092#       发表于 2026-9-17 14:51
+
+那弟弟人也是外星来客？
+
+*****
+
+####  cloudztj  
+##### 4093#       发表于 2026-9-17 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251959&amp;ptid=2261859" target="_blank">liliguo1 发表于 2026-9-17 14:46</a>
+
+其实你看女王的反应，看见是小孩就立马从轿子上蹦下来了
+
+后面预赛跟女王组队的时候会有解释，女王不这么 ...</blockquote>
+这个一般猜也猜出来了，不过女王那么大力扇飞出去一个小孩也挺难绷的
+
+*****
+
+####  nancygreenlife  
+##### 4094#       发表于 2026-9-17 14:54
+
+还有抽卡，这下二游了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+2026091714512400_c.jpg
+(218.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 14:54 上传
+
+<img src="https://img.stage1st.com/forum/202609/17/145411m8mlbn40439n34f4.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cloudztj  
+##### 4095#       发表于 2026-9-17 14:55
+
+看到NGA有个讨论贴里有人**方方说engage都是60帧带打击感的战斗动画没绷住
+
+网上发出声音的人里只玩过模拟器的哥们有点多了
+
+
+*****
+
+####  ナルバレック  
+##### 4091#       发表于 2026-9-17 14:51
+
+看了几眼泄漏图，昆仑人和弟弟人同源但敌对啊，年纪大的吓死人
+
+*****
+
+####  mai6696  
+##### 4092#       发表于 2026-9-17 14:51
+
+那弟弟人也是外星来客？
+
+*****
+
+####  cloudztj  
+##### 4093#       发表于 2026-9-17 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251959&amp;ptid=2261859" target="_blank">liliguo1 发表于 2026-9-17 14:46</a>
+
+其实你看女王的反应，看见是小孩就立马从轿子上蹦下来了
+
+后面预赛跟女王组队的时候会有解释，女王不这么 ...</blockquote>
+这个一般猜也猜出来了，不过女王那么大力扇飞出去一个小孩也挺难绷的
+
+*****
+
+####  nancygreenlife  
+##### 4094#       发表于 2026-9-17 14:54
+
+还有抽卡，这下二游了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+2026091714512400_c.jpg
+(218.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 14:54 上传
+
+<img src="https://img.stage1st.com/forum/202609/17/145411m8mlbn40439n34f4.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cloudztj  
+##### 4095#       发表于 2026-9-17 14:55
+
+看到NGA有个讨论贴里有人说engage都是60帧带打击感的战斗动画没绷住
+
+网上发出声音的人里只玩过模拟器的哥们有点多了
+
