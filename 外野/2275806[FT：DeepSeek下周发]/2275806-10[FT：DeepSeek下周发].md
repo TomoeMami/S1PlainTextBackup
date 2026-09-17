@@ -10324,3 +10324,113 @@ Deep♂Dark-v4 那个吗    最近哈基米各种外审截断抽风 正好换�
 
 用了qwen3.8 flash next和ds 4.1 flash，感觉带ngram模型会变得粗心大意<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 14132#       发表于 2026-9-17 21:51
+
+我又来发布自己做的时尚小垃圾啦<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[https://github.com/petrel-cn/prompt-generator](https://github.com/petrel-cn/prompt-generator)
+
+因为本地文生图的提示词找网页AI翻译的话，经常会被拒绝（原因你懂的），因此我做了一个自带破甲的提示词生成器，只要你在上方输入中文，就可以自动为你生成英文的提示词。目前只支持DeepSeek的API，建议调整思考强度为关闭，可以将拒绝概率降到最低。
+
+提示词默认已经破甲，允许用户自行修改。如果你觉得破甲强度不够可以自己改
+
+<img src="https://img.stage1st.com/forum/202609/17/214510g9d19kgflwvvvgjj.jpg" referrerpolicy="no-referrer">
+
+<strong>snap0529.jpg</strong> (63.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 21:45 上传
+
+每次对话采用独立进程，不保留上下文，尽可能降低费用，提高速度。
+
+已生成的提示词可以保存下来，方便以后查看。
+
+<img src="https://img.stage1st.com/forum/202609/17/214706d18ahalhmm8vomlz.jpg" referrerpolicy="no-referrer">
+
+<strong>snap02.jpg</strong> (62.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 21:47 上传
+
+由于程序的运行原理是：系统提示词 + 用户输入 → LLM → 输出，因此你可以通过手动修改系统提示词的方式要求它输出任何内容。
+
+<img src="https://img.stage1st.com/forum/202609/17/214733u31zeh5cwle92tv3.jpg" referrerpolicy="no-referrer">
+
+<strong>snap0528.jpg</strong> (97.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 21:47 上传
+
+如果你不想上GitHub，可以下载该附件，已经编译为exe格式，双击就可以使用，请自行杀毒
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+PromptGenerator.zip
+(135.07 KB, 下载次数: 0)
+
+2026-9-17 21:50 上传
+
+点击文件名下载附件
+
+
+*****
+
+####  来都来了  
+##### 14132#       发表于 2026-9-17 21:51
+
+我又来发布自己做的时尚小垃圾啦<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[https://github.com/petrel-cn/prompt-generator](https://github.com/petrel-cn/prompt-generator)
+
+因为本地文生图的提示词找网页AI翻译的话，经常会被拒绝（原因你懂的），因此我做了一个自带破甲的提示词生成器，只要你在上方输入中文，就可以自动为你生成英文的提示词。目前只支持DeepSeek的API，建议调整思考强度为关闭，可以将拒绝概率降到最低。
+
+提示词默认已经破甲，允许用户自行修改。如果你觉得破甲强度不够可以自己改
+
+<img src="https://img.stage1st.com/forum/202609/17/214510g9d19kgflwvvvgjj.jpg" referrerpolicy="no-referrer">
+
+<strong>snap0529.jpg</strong> (63.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 21:45 上传
+
+每次对话采用独立进程，不保留上下文，尽可能降低费用，提高速度。
+
+已生成的提示词可以保存下来，方便以后查看。
+
+<img src="https://img.stage1st.com/forum/202609/17/214706d18ahalhmm8vomlz.jpg" referrerpolicy="no-referrer">
+
+<strong>snap02.jpg</strong> (62.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 21:47 上传
+
+由于程序的运行原理是：系统提示词 + 用户输入 → LLM → 输出，因此你可以通过手动修改系统提示词的方式要求它输出任何内容。
+
+<img src="https://img.stage1st.com/forum/202609/17/214733u31zeh5cwle92tv3.jpg" referrerpolicy="no-referrer">
+
+<strong>snap0528.jpg</strong> (97.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 21:47 上传
+
+如果你不想上GitHub，可以下载该附件，已经编译为exe格式，双击就可以使用，请自行杀毒
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+PromptGenerator.zip
+(135.07 KB, 下载次数: 0)
+
+2026-9-17 21:50 上传
+
+点击文件名下载附件
+

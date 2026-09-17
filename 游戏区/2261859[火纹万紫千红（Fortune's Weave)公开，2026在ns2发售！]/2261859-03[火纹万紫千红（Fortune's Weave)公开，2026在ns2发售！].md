@@ -13384,3 +13384,55 @@ B站有个UP“风花吹雪ACC”直接打的第三部分，发了点后期内�
 
 为啥我觉得困难还挺难的？当然以不死人为前提。 第六章敌方天马BOSS直接29速随便追击我的A少。
 
+
+*****
+
+####  苏西踩我了  
+##### 4174#       发表于 2026-9-17 21:48
+
+大地图探索给的奖励还挺关键的，我前期12级时跑到左下那个打铁的城市，打过了15级别的山贼，城里买开高级武器箱出了长柄刀，在20级洞窟凹必杀打死了三个敌人 ，打战车兵boss时我凯伊已经15级拿着雷电剑长柄刀了……
+
+武器箱给随机武器太有说法了，不知道能不能凹。
+
+
+*****
+
+####  ascomnet  
+##### 4175#       发表于 2026-9-17 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253692&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-9-17 21:40</a>
+
+为啥我觉得困难还挺难的？当然以不死人为前提。 第六章敌方天马BOSS直接29速随便追击我的A少。其他人数值更 ...</blockquote>
+我看贴吧里说了中后期难度就起来了。而且是慢慢变难的
+
+*****
+
+####  hpmp  
+##### 4176#       发表于 2026-9-17 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253591&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-17 21:19</a>
+这作人均体格不到4，前期饰品类基本没法用，而且拾取时还会自动装备导致降速。而且UI也不行，整备里饰品类 ...</blockquote>
+力量/5等于体格，跟风花雪月一样
+
+*****
+
+####  ascomnet  
+##### 4177#       发表于 2026-9-17 21:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253588&amp;ptid=2261859" target="_blank">凉良 发表于 2026-9-17 21:19</a>
+
+在NGA火纹情怀都能被轨迹爆杀了还能说啥
+
+不过三十帧真没啥好洗的这画面在NS2游戏阵容里真不咋地 ...</blockquote>
+nga你在说笑，现在哪有讨论游戏的
+
+*****
+
+####  Jabeck  
+##### 4178#       发表于 2026-9-17 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253748&amp;ptid=2261859" target="_blank">ascomnet 发表于 2026-9-17 21:50</a>
+
+我看贴吧里说了中后期难度就起来了。而且是慢慢变难的</blockquote>
+我才第一张啊，不知道那些说困难平推的是怎么回事，我角色除了A少其他人打普通敌人命中也只有70%到80%，敌人几乎百分百命中。感觉是人物练废了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
