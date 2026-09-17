@@ -9593,3 +9593,36 @@ Union alpha应该是个路由模型，有点类似之前本子搞的那个，目
 
 Union Alpha也有可能是glm 5.5吧
 
+
+*****
+
+####  CCauchy  
+##### 14073#       发表于 2026-9-17 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249532&amp;ptid=2275806" target="_blank">apefrank 发表于 2026-9-17 08:02</a>
+要比也是比神经元的突触数量啊，人脑的突触数量按小了估算是10^14，就算是1T参数那也只有1/100，这还没算 ...</blockquote>
+好几种xx能系统可以看作几个互相关联的网络平面
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lactone  
+##### 14074#       发表于 2026-9-17 09:28
+
+感觉路由模型没啥意义<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+就这响应速度根本没法用
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  nxmonitor  
+##### 14075#       发表于 2026-9-17 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249906&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-9-17 09:14</a>
+
+Union Alpha也有可能是glm 5.5吧</blockquote>
+质量极其不稳定，拿出来是砸招牌
+
