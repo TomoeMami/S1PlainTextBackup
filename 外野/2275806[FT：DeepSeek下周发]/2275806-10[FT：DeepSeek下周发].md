@@ -9957,3 +9957,66 @@ astra实在太不经用了，一周用完了这个月60%的credit<img src="https
 
 试了下dsh的computer use，模型4.1f，准确率还是低了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  未知伤亡  
+##### 14108#       发表于 2026-9-17 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251897&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-17 14:30</a>
+
+gpt那套特色文法是越看越恶心现在一堆洗稿ai号也是这个恶心的不讲人话味了，github上的国产vibe软件更新 ...</blockquote>
+上下文太长了吧，模型注意力被分散了以后就容易说这种词不达意的话
+
+*****
+
+####  坛子漆黑  
+##### 14109#       发表于 2026-9-17 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251641&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-9-17 13:37</a>
+
+现在4.1f的破甲难度是不是高了很多啊</blockquote>
+除了铜矿和强迫,其他的尺度再大都没问题.问题是写出来的文根本没眼看
+
+
+*****
+
+####  未知伤亡  
+##### 14108#       发表于 2026-9-17 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251897&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-17 14:30</a>
+
+gpt那套特色文法是越看越恶心现在一堆洗稿ai号也是这个恶心的不讲人话味了，github上的国产vibe软件更新 ...</blockquote>
+上下文太长了吧，模型注意力被分散了以后就容易说这种词不达意的话
+
+*****
+
+####  坛子漆黑  
+##### 14109#       发表于 2026-9-17 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251641&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-9-17 13:37</a>
+
+现在4.1f的破甲难度是不是高了很多啊</blockquote>
+除了铜矿和强迫,其他的尺度再大都没问题.问题是写出来的文根本没眼看
+
+
+*****
+
+####  未知伤亡  
+##### 14108#       发表于 2026-9-17 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251897&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-17 14:30</a>
+
+gpt那套特色文法是越看越恶心现在一堆洗稿ai号也是这个恶心的不讲人话味了，github上的国产vibe软件更新 ...</blockquote>
+上下文太长了吧，模型注意力被分散了以后就容易说这种词不达意的话
+
+*****
+
+####  坛子漆黑  
+##### 14109#       发表于 2026-9-17 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251641&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-9-17 13:37</a>
+
+现在4.1f的破甲难度是不是高了很多啊</blockquote>
+除了铜矿和强迫,其他的尺度再大都没问题.问题是写出来的文根本没眼看
+
