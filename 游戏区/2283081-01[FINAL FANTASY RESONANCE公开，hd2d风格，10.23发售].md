@@ -755,3 +755,19 @@ IGN账号上发了最终预告，太有感觉了，本来觉得豪华版就多�
 男二也有的啊，吐槽男主的时候有汗颜的，而且真算不上高冷吧</blockquote>
 同感，没玩过原作，只从试玩版来看拉斯韦尔内心挺深情的，雷因是比较开朗的性格，因为父母去世和雷因一起长大的拉斯韦尔更沉稳冷静些挺正常的
 
+
+*****
+
+####  KATE  
+##### 280#       发表于 2026-9-17 21:10
+
+玩到王城烧大火那里，真没见差分<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">挺紧张的bgm 主角 男二 女骑士全是普通表情
+
+
+*****
+
+####  KATE  
+##### 280#       发表于 2026-9-17 21:10
+
+玩到王城烧大火那里，真没见差分<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">挺紧张的bgm 主角 男二 女骑士全是普通表情
+

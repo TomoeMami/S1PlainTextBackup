@@ -13273,3 +13273,31 @@ NGA现在真是没法看了，没有讨论游戏的
 
 B站有个UP“风花吹雪ACC”直接打的第三部分，发了点后期内容，感兴趣的可以自己搜一下
 
+
+*****
+
+####  czxiang_0  
+##### 4162#       发表于 2026-9-17 21:05
+
+是我愚钝还是跟不上时代了，前1个多小时根本看不明白在干些什么
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  松狮酱  
+##### 4163#       发表于 2026-9-17 21:11
+
+玩了一天，感觉这作确实差不多火纹集大成之作。看得出野心很大<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ascomnet  
+##### 4164#       发表于 2026-9-17 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253553&amp;ptid=2261859" target="_blank">松狮酱 发表于 2026-9-17 21:11</a>
+
+玩了一天，感觉这作确实差不多火纹集大成之作。看得出野心很大，但是我只想喷这傻逼制作组能不能别就一个存 ...</blockquote>
+话说是不是不能手动凹点了
+
