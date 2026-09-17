@@ -13330,3 +13330,49 @@ B站有个UP“风花吹雪ACC”直接打的第三部分，发了点后期内�
 
 对这部火纹的剧情整体框架有了大致的了解
 
+
+*****
+
+####  创始’’’天翔  
+##### 4168#       发表于 2026-9-17 21:28
+
+打了一天了结果大赛才开始第一把<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，这也太慢了吧
+
+*****
+
+####  cloudztj  
+##### 4169#       发表于 2026-9-17 21:29
+
+这作有快速返回标题的快捷键吗
+
+
+*****
+
+####  ShitOverflow  
+##### 4170#       发表于 2026-9-17 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253588&amp;ptid=2261859" target="_blank">凉良 发表于 2026-9-17 21:19</a>
+
+在NGA火纹情怀都能被轨迹爆杀了还能说啥
+
+不过三十帧真没啥好洗的这画面在NS2游戏阵容里真不咋地 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">因为它是拿空轨打现作，有什么情怀
+
+比情怀应该跟gba三部比，比体量你9000日一部，我全须全尾，就这么比
+
+*****
+
+####  partier  
+##### 4171#       发表于 2026-9-17 21:35
+
+前几作不能横转的浪费好多时间在凹点上，能横转的花时间在刷小绿人上，确实消耗了不少游戏热情<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Edvinno  
+##### 4172#       发表于 2026-9-17 21:35
+
+回声就不喜欢钻那破山洞，这超大杯山洞还掉帧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

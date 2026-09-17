@@ -10316,3 +10316,11 @@ Deep♂Dark-v4 那个吗    最近哈基米各种外审截断抽风 正好换�
 
 感觉也是一脉相承，v2.5起就响应飞快，比如用来直播实时翻译的话mimo就是最快的
 
+
+*****
+
+####  icer  
+##### 14131#       发表于 2026-9-17 21:31
+
+用了qwen3.8 flash next和ds 4.1 flash，感觉带ngram模型会变得粗心大意<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
