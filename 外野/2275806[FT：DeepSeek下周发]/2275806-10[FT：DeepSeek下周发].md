@@ -9698,3 +9698,41 @@ cloudflare认领了，路由模型
 
 2026-9-17 11:11 上传
 
+
+*****
+
+####  飛霞精灵  
+##### 14083#       发表于 2026-9-17 11:16
+
+永远要跟在别人身后去踩两脚最新最热的国产货， 是我熟悉的猴山作风<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mirathel  
+##### 14084#       发表于 2026-9-17 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249244&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-17 02:08</a>
+
+codex工具的自带的上下文压缩有问题，压缩完以后要让会话手动重载一次记忆 ...</blockquote>
+我遇到的问题应该和压缩无关（由于速度问题，宣称的百万上下文填满要很久），有些会话从初始状态就表现得很“懒惰”而且按照待办事项自动化实验汇报进度时表述异常简陋模糊；
+
+根据你的提示搜issue和OAI论坛的时候，意外发现我这情况好像还不是孤例，不清楚到底啥毛病，还是Astra确实不适合我需求的这类工作<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 14085#       发表于 2026-9-17 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250902&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-9-17 11:16</a>
+
+永远要跟在别人身后去踩两脚最新最热的国产货， 是我熟悉的猴山作风</blockquote>
+mimo2.5就这样，结果拉得一比，前几天又不是没试过，还是拉
+
+
+*****
+
+####  CCauchy  
+##### 14086#       发表于 2026-9-17 11:24
+
+agentrouter一直报错是我的问题吗
+
