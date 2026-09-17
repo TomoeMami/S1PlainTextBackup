@@ -11008,3 +11008,38 @@ FC时代的外传都能大地图和战斗分开存档吧</blockquote>
 
 又是一边爬楼一边等发货的一天
 
+
+*****
+
+####  mai6696  
+##### 3960#       发表于 2026-9-17 08:07
+
+ 本帖最后由 mai6696 于 2026-9-17 08:09 编辑 
+
+火纹近几年的GBA改版都知道增加固定成长的选项。
+
+万紫千红没有吗？还是说藏了？
+
+
+*****
+
+####  星花  
+##### 3961#       发表于 2026-9-17 08:09
+
+结合极难才固定成长。
+
+
+*****
+
+####  karastar  
+##### 3962#       发表于 2026-9-17 08:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249547&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-17 08:07</a>
+
+火纹近几年的GBA改版都知道增加固定成长的选项。
+
+万紫千红没有吗？还是说藏了？
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">固定成长是不让你的角色太弱导致卡关，GBA改版不一个比一个难吗
+
