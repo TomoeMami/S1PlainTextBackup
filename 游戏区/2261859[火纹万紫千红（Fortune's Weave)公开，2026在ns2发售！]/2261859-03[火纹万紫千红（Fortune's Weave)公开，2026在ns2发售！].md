@@ -11448,3 +11448,91 @@ jrpg不就是马桶支线么
 IGN本部打10的编辑和前两作火纹评测是同一位，Brendan Graeber。</blockquote>
 那位好像是从 NGC 火纹时代一路玩过来的，攻略也是他出的
 
+
+*****
+
+####  clyde-wang  
+##### 4008#       发表于 2026-9-17 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250237&amp;ptid=2261859" target="_blank">dududa 发表于 2026-9-17 09:56</a>
+一觉起来，感觉不管是b站还是论坛都有人开始定风向，要把这作定在烂作了，怎么玩这么快的，都通宵的吗 ...</blockquote>
+因为定风向根本不需要玩啊
+
+*****
+
+####  lazycat233  
+##### 4009#       发表于 2026-9-17 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250186&amp;ptid=2261859" target="_blank">caicaistar 发表于 2026-9-17 09:50</a>
+还没买，这作还要高强度逛街吗，风花雪月就是高强度逛街坑了</blockquote>
+还有暗喻幻想地牢环节，虽然战斗部分可以跳
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  karastar  
+##### 4010#       发表于 2026-9-17 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250229&amp;ptid=2261859" target="_blank">Mephisto 发表于 2026-9-17 09:55</a>
+
+我知道，鬼武者的10分一直被人质疑，因为插入很多马桶支线
+
+然而这个游戏就目前体验而言马桶比鬼武者多， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那只有战斗的结合肯定好评如潮了
+
+*****
+
+####  sword混沌  
+##### 4011#       发表于 2026-9-17 09:59
+
+肉眼可见 100 小时+的游戏，现在就定性非蠢即坏，起码先打完一条线呢
+
+*****
+
+####  Jabeck  
+##### 4012#       发表于 2026-9-17 10:00
+
+1
+
+ 本帖最后由 Jabeck 于 2026-9-17 10:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250229&amp;ptid=2261859" target="_blank">Mephisto 发表于 2026-9-17 09:55</a>
+
+我知道，鬼武者的10分一直被人质疑，因为插入很多马桶支线
+
+然而这个游戏就目前体验而言马桶比鬼武者多， ...</blockquote>
+鬼武者那马桶不是因为垃圾马桶吗？就巴掌点地图弯弯绕，去过的地图就为了开个宝箱再跑一次结果怪都不放个？甚至马桶你不打数值还差了一大截。
+
+
+*****
+
+####  oniwarud  
+##### 4013#       发表于 2026-9-17 10:03
+
+打高分的又不止ign一个，倒不如说ign/vgc/eurogamer满分，gs9分都得艰难蠕动上mc90也就只有在任系独占才能见到了
+
+*****
+
+####  牧月萌  
+##### 4014#       发表于 2026-9-17 10:07
+
+回溯能换主角性别吗，自选的四个发型都很一言难尽<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liliguo1  
+##### 4015#       发表于 2026-9-17 10:07
+
+<blockquote>dududa 发表于 2026-9-17 09:56
+一觉起来，感觉不管是b站还是论坛都有人开始定风向，要把这作定在烂作了，怎么玩这么快的，都通宵的吗 ...</blockquote>
+定风向只要复读30帧，画面和马桶就行了
+
+又不需要真的玩
+
+*****
+
+####  纪寞  
+##### 4016#       发表于 2026-9-17 10:07
+
+真的没想到穆真的是良成长，居然真的把村民塞到主角队里了。不过穆这个加上良成长后好像说也就 力技速都是 50 而已，看成长率也比不过 迪托利希这种就力量差了一点的 山猪模板，成长率综合415的高达，我的天啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
