@@ -9842,3 +9842,18 @@ gpt是不是只给中文区降智啊
 
 梁子：ntmd...
 
+
+*****
+
+####  卡普空  
+##### 14097#       发表于 2026-9-17 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251432&amp;ptid=2275806" target="_blank">平贺才人 发表于 2026-9-17 12:51</a>
+
+- 昇腾960DT 提前至2027Q1上市
+
+- 昇腾960PR 提前至2027Q3上市
+
+- Atlas 960 风冷超节点 2027Q2上市</blockquote>
+AI芯片真赚钱，难怪华子车都不想造
+
