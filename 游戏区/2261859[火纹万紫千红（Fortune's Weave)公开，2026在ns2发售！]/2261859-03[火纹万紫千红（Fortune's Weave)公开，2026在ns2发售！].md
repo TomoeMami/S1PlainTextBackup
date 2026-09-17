@@ -12109,3 +12109,22 @@ ns2游戏没法拆包，现在连五年后的形象都有一大堆没透露
 详细写人文地理人事安排水面下，就会变成轨迹</blockquote>
 比轨迹也就好在每一作好歹能单作完结，不会留着大坑不填
 
+
+*****
+
+####  mull132  
+##### 4077#       发表于 2026-9-17 14:01
+
+可以不打5年前的故事，直接去挑战巴罗尔就是战斗爽啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  被击坠王  
+##### 4078#       发表于 2026-9-17 14:03
+
+ 本帖最后由 被击坠王 于 2026-9-17 14:06 编辑 
+
+以后再有人提S1是JPRG起家的就拿这楼的合集本出来甩人脸上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
