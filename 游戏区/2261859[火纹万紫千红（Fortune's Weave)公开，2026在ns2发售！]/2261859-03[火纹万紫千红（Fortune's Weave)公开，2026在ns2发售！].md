@@ -12908,3 +12908,19 @@ NGA现在真是没法看了，没有讨论游戏的
 
 带节奏好啊，多带点把卡带价格打下来，这回怎么这么坚挺
 
+
+*****
+
+####  kltsgjy  
+##### 4139#       发表于 2026-9-17 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252915&amp;ptid=2261859" target="_blank">孔方兄 发表于 2026-9-17 18:09</a>
+NGA现在真是没法看了，没有讨论游戏的
+
+要么带帧数节奏，要么画面节奏，要么拿2nd当枪使的
+
+前几天金刚狼爆雷 ...</blockquote>
+nga游综是万里挑一的粪坑
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
