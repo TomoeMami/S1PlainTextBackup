@@ -12589,3 +12589,31 @@ Tahonia/Klapka这俩不知道是 ...</blockquote>
 有在线攻略了么？这作能不能成长选择和契约一样的固定成长，非常不想凹点 ...</blockquote>
 这作就是固定成长
 
+
+*****
+
+####  bbluekid  
+##### 4112#       发表于 2026-9-17 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252339&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-9-17 16:00</a>
+在宗主国领土上行自己的规矩？</blockquote>
+另外宗主国是宗主国，宗主国路上的人可不享受宗主国待遇。
+
+
+*****
+
+####  freedom12  
+##### 4113#       发表于 2026-9-17 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252494&amp;ptid=2261859" target="_blank">bbluekid 发表于 2026-9-17 16:29</a>
+
+另外宗主国是宗主国，宗主国路上的人可不享受宗主国待遇。</blockquote>
+无力吐槽了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1wq1  
+##### 4114#       发表于 2026-9-17 16:35
+
+给基本所有人都送了礼物看了下支援，自由人的支援少的可怜，两三个就打发了，好像除了粉毛骑士还没有a支援，四个对手队的副官和队长是没支援的，你们真是一队的吗？最神奇的一点是不知道是不是才第一步但有几个角色和主角是没有支援的，太神奇了
+
