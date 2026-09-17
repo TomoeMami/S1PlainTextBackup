@@ -81,3 +81,13 @@
 
 歌舞厅经营玩法
 
+
+*****
+
+####  蛋头电玩  
+##### 287#       发表于 2026-9-17 16:06
+
+喷了，这联动厉害！
+
+【《STRANGER THAN HEAVEN》×《无仁义之战》联动正式公布】 [https://www.bilibili.com/video/B ... d2e26c904fdb10cc54f](https://www.bilibili.com/video/BV1UMeF6iEYm/?share_source=copy_web&amp;vd_source=ef2a855a9e8fad2e26c904fdb10cc54f)
+

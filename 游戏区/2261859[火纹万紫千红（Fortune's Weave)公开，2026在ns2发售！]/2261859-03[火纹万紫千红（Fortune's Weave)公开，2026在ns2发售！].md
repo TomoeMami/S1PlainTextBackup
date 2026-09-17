@@ -12526,3 +12526,29 @@ Tahonia/Klapka这俩不知道是 ...</blockquote>
 
 怎么快速提升声望？
 
+
+*****
+
+####  qiyu1234  
+##### 4106#       发表于 2026-9-17 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252127&amp;ptid=2261859" target="_blank">流连成双 发表于 2026-9-17 15:19</a>
+[https://www.rpgsite.net/guide/21391-fire-emblem-fortunes-weave-recruitment-guide-all-characters-in-g](https://www.rpgsite.net/guide/21391-fire-emblem-fortunes-weave-recruitment-guide-all-characters-in-g) ...</blockquote>
+看了下
+
+“当你提升任意两名角色之间的支援等级时，请注意该等级将在你的存档文件中的所有路线中持续生效。”
+
+考虑到这游戏只有一个存档，emmm
+
+在神殿工作所获得的祝福等级也是如此。当你提升祝福等级并解锁新的祝福效果时，这些效果将同时在你存档文件的所有路径中生效。这意味着，如果你为一名主角提升了祝福，就无需再为其他主角重复此操作。
+
+另外看了下攻略里提到的重玩，还挺复杂的，单纯重玩之前某一章节真的是按照第一次进入那个章节的等级标记书签，但是如果从第一章重打这个角色就会更新（继承支线完成度和名声等信息）
+
+
+*****
+
+####  bsdlxy  
+##### 4107#       发表于 2026-9-17 16:12
+
+问下大家，迪托利希的安萨拉能修理吗？
+
