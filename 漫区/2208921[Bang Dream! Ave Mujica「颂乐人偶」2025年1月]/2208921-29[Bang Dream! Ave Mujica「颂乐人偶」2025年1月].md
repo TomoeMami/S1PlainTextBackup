@@ -362,3 +362,66 @@
 
        （第2回将深入探讨前述Live娱乐单元中引发重大变动的“体育单元重组”）
 
+
+*****
+
+####  堀内爱里衣  
+##### 42028#       发表于 2026-9-17 21:18
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/17/211839sudoaabwblaz3929.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-17_21-16-23.png</strong> (708.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 21:18 上传
+
+       [https://x.com/bang_dream_info/status/2100568703373095018](https://x.com/bang_dream_info/status/2100568703373095018)
+
+       [https://www.youtube.com/watch?v=TVv2GJrrnbw](https://www.youtube.com/watch?v=TVv2GJrrnbw)
+
+       <strong>【元祖！BanG Dream Chan】 #50 机动宇宙战妃 BanG DOLL</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/17/211839fwwmd6cfoocwdp4p.jpg" referrerpolicy="no-referrer">
+
+<strong>c0a7f52cdbf67007adeb2443e8199fe050e2f960.jpg</strong> (133.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 21:18 上传
+
+</blockquote>
+       [https://www.bilibili.com/video/BV1NJeF6FEPQ/](https://www.bilibili.com/video/BV1NJeF6FEPQ/)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42029#       发表于 2026-9-17 21:22
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/17/212251w1daal4wlpyl1lbt.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-17_21-20-05.png</strong> (1.29 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 21:22 上传
+
+       [https://x.com/miyaji_maseiya/status/2100572982091370992](https://x.com/miyaji_maseiya/status/2100572982091370992)
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/17/212128ns8lsts86lwlv6nv.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-17_21-20-35.png</strong> (549.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 21:21 上传
+
+       [https://t.bilibili.com/1249029148184150036](https://t.bilibili.com/1249029148184150036)
+
