@@ -9568,3 +9568,28 @@ Union alpha这个模型很神奇
 有个猎奇的想法，也就是说我抓个猫咪，一个 ...</blockquote>
 得去掉肉体开销，作为湿件完全接入字符吞吐系统。
 
+
+*****
+
+####  misuzu0723  
+##### 14071#       发表于 2026-9-17 09:11
+
+<img src="https://img.stage1st.com/forum/202609/17/091043toy5zxxkqxrxyq7x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 09:10 上传
+
+[https://developers.cloudflare.com/ai/models/stealth/union-alpha/](https://developers.cloudflare.com/ai/models/stealth/union-alpha/)
+
+Union alpha应该是个路由模型，有点类似之前本子搞的那个，目前测起来好像效果比较差
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 14072#       发表于 2026-9-17 09:14
+
+Union Alpha也有可能是glm 5.5吧
+
