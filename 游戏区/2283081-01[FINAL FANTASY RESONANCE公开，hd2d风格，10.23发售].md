@@ -771,3 +771,41 @@ IGN账号上发了最终预告，太有感觉了，本来觉得豪华版就多�
 
 玩到王城烧大火那里，真没见差分<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">挺紧张的bgm 主角 男二 女骑士全是普通表情
 
+
+*****
+
+####  阿萨姆1405  
+##### 281#       发表于 2026-9-18 00:40
+
+<blockquote>KATE 发表于 2026-9-17 21:10
+玩到王城烧大火那里，真没见差分挺紧张的bgm 主角 男二 女骑士全是普通表情 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/18/003837azqjmqppjpnrpm9p.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026_0918_003435.png</strong> (28.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-18 00:38 上传
+
+这个不是随手都能截出来好几张的吗
+
+
+*****
+
+####  阿萨姆1405  
+##### 281#       发表于 2026-9-18 00:40
+
+<blockquote>KATE 发表于 2026-9-17 21:10
+玩到王城烧大火那里，真没见差分挺紧张的bgm 主角 男二 女骑士全是普通表情 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/18/003837azqjmqppjpnrpm9p.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026_0918_003435.png</strong> (28.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-18 00:38 上传
+
+这个不是随手都能截出来好几张的吗
+
