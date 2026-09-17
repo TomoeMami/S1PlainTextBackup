@@ -13376,3 +13376,11 @@ B站有个UP“风花吹雪ACC”直接打的第三部分，发了点后期内�
 
 回声就不喜欢钻那破山洞，这超大杯山洞还掉帧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jabeck  
+##### 4173#       发表于 2026-9-17 21:40
+
+为啥我觉得困难还挺难的？当然以不死人为前提。 第六章敌方天马BOSS直接29速随便追击我的A少。
+
