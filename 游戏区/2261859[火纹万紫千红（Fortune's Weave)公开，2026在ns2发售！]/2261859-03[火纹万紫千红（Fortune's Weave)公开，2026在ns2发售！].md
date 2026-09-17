@@ -13584,3 +13584,34 @@ nga游综是索索已经疯魔了，小岛倒戈微软+第一方大作评分被�
 直接独走打的困难第三部，打得好开心，只从第一关感觉的话，难度不高，更像是给熟练玩家直接选的分支路线。 ...</blockquote>
 隔壁有个剧透讨论楼可以发
 
+
+*****
+
+####  flyingover  
+##### 4188#       发表于 2026-9-17 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253925&amp;ptid=2261859" target="_blank">5ew47 发表于 2026-9-17 22:35</a>
+
+直接独走打的困难第三部，打得好开心，只从第一关感觉的话，难度不高，更像是给熟练玩家直接选的分支路线。 ...</blockquote>
+隔壁有个剧透讨论楼可以发
+
+
+*****
+
+####  5ew47  
+##### 4189#       发表于 2026-9-17 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253994&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-9-17 22:54</a>
+隔壁有个剧透讨论楼可以发</blockquote>
+哦哦看到了，谢谢
+
+
+*****
+
+####  5ew47  
+##### 4189#       发表于 2026-9-17 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253994&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-9-17 22:54</a>
+隔壁有个剧透讨论楼可以发</blockquote>
+哦哦看到了，谢谢
+
