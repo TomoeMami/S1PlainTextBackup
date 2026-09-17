@@ -7124,7 +7124,7 @@
     "newtitle": "[【交错战线】新烧鸡二游 qq群：948037906]",
     "lastedit": 1789400527,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2137424": {
@@ -10980,13 +10980,13 @@
     "update": false
   },
   "2159972": {
-    "totalreply": 1345,
+    "totalreply": 1346,
     "title": "[【官宣】R星《GTA6》首个预告公开，2025年秋发售XS／PS5]",
     "newtitle": "[【官宣】R星《GTA6》PV公开，延期至2026年11月19日发售XS／PS5]",
-    "lastedit": 1789659180,
+    "lastedit": 1789659890,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2196877": {
     "totalreply": 944,
@@ -11142,10 +11142,10 @@
     "update": false
   },
   "2186798": {
-    "totalreply": 984,
+    "totalreply": 985,
     "title": "[蓝色星原：旅谣(7.12-7.14 上海BW2024参展）二号楼]",
     "newtitle": "[蓝色星原：旅谣 二号楼  s1群：1093603339]",
-    "lastedit": 1789658544,
+    "lastedit": 1789659856,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12024,13 +12024,13 @@
     "update": false
   },
   "2261859": {
-    "totalreply": 4195,
+    "totalreply": 4197,
     "title": "[火纹万紫千红（Fortune's Weave)公开，2026在ns2发售！]",
     "newtitle": "[火纹万紫千红（Fortune's Weave)公开，2026.9.17在ns2发售！／8.4晚22点专场nd]",
-    "lastedit": 1789659000,
+    "lastedit": 1789659515,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2034248": {
     "totalreply": 441,
@@ -12378,7 +12378,7 @@
     "totalreply": 20457,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼7月]",
-    "lastedit": 1789659421,
+    "lastedit": 1789659600,
     "category": "外野",
     "active": true,
     "update": false
@@ -13080,7 +13080,7 @@
     "totalreply": 38552,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1789658413,
+    "lastedit": 1789659420,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14178,7 +14178,7 @@
     "totalreply": 12519,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1789659201,
+    "lastedit": 1789659360,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17055,10 +17055,10 @@
     "update": false
   },
   "2289934": {
-    "totalreply": 122,
+    "totalreply": 123,
     "title": "[有一说一，索尼游戏死活不上中配是什么意思]",
     "newtitle": "[有一说一，索尼游戏死活不上中配是什么意思]",
-    "lastedit": 1789659138,
+    "lastedit": 1789659857,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17091,10 +17091,10 @@
     "update": false
   },
   "2289938": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[各位有没有觉得国内作曲家对制作燃系bgm没有日美来的出彩？]",
     "newtitle": "[各位有没有觉得国内作曲家对制作燃系bgm没有日美来的出彩？]",
-    "lastedit": 1789641492,
+    "lastedit": 1789659861,
     "category": "外野",
     "active": true,
     "update": false
@@ -17208,10 +17208,10 @@
     "update": false
   },
   "2289944": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[在不具备相关专业知识的前提下，依靠逻辑来判断是否是最可行的]",
     "newtitle": "[在不具备相关专业知识的前提下，依靠逻辑来判断是否是最可行的]",
-    "lastedit": 1789651108,
+    "lastedit": 1789659860,
     "category": "外野",
     "active": true,
     "update": false
@@ -17253,12 +17253,12 @@
     "update": false
   },
   "2289991": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[千呼万唤始出来！KeplerL2完整爆料索尼次世代掌机硬件规格！]",
     "newtitle": "[千呼万唤始出来！KeplerL2完整爆料索尼次世代掌机硬件规格！]",
-    "lastedit": 1789659180,
+    "lastedit": 1789659512,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   }
 }
