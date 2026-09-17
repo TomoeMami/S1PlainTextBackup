@@ -10074,3 +10074,32 @@ gpt那套特色文法是越看越恶心现在一堆洗稿ai号也是这个恶心
 不完全是词不达意，gpt现在的中文就是经常用一些莫名其妙的单字动词还有乱打比喻来描述它做的工作还要记录日志，然后逻辑又很跳跃，不用塞多少上下文，单纯直出一个日志很大概率就已经是这种文本风格了。
 现在最大的问题是这种风格开始扩散，越来越多的模型都开始这样不讲人话。
 
+
+*****
+
+####  CCauchy  
+##### 14111#       发表于 2026-9-17 16:04
+
+说明万亿参数量也只能编程特化，AGI的路还长的很呢<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CCauchy  
+##### 14111#       发表于 2026-9-17 16:04
+
+说明万亿参数量也只能编程特化，AGI的路还长的很呢<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 14112#       发表于 2026-9-17 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250909&amp;ptid=2275806" target="_blank">Mirathel 发表于 2026-9-17 11:17</a>
+我遇到的问题应该和压缩无关（由于速度问题，宣称的百万上下文填满要很久），有些会话从初始状态就表现得 ...</blockquote>
+试试在提示词上进行更详细的目标描述
+
+这半年新训练的模型都优化了指令遵守，所以模糊提示词下的性能不好。但上下文窗口和思维链特性又导致过多的规则要求同样会导致性能下降，也就是说现在对提示词质量的要求比以前更高，要在相对有限的空间内给出明确的指令
+
+现在各家模型厂开始卷harness就是这个原因
+

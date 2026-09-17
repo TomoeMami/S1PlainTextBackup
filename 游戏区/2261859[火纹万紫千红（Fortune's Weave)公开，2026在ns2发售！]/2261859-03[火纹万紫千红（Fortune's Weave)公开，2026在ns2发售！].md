@@ -12460,3 +12460,69 @@ Tahonia/Klapka这俩不知道是谁
 1.从属国在宗主国的首都立挡路者必杀的规矩就有点搞笑，哪个皇家贵族的眷属孩子不小心挡个路也这么直接杀 ...</blockquote>
 你看整个国家对于规矩是特别在意的。而且小兵的剑都提起来了，砍归砍。砍错了那也是砍完以后的事。
 
+
+*****
+
+####  bbluekid  
+##### 4102#       发表于 2026-9-17 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251797&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-9-17 14:15</a>
+1.从属国在宗主国的首都立挡路者必杀的规矩就有点搞笑，哪个皇家贵族的眷属孩子不小心挡个路也这么直接杀 ...</blockquote>
+你看整个国家对于规矩是特别在意的。而且小兵的剑都提起来了，砍归砍。砍错了那也是砍完以后的事。
+
+*****
+
+####  freedom12  
+##### 4103#       发表于 2026-9-17 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252289&amp;ptid=2261859" target="_blank">bbluekid 发表于 2026-9-17 15:51</a>
+
+你看整个国家对于规矩是特别在意的。而且小兵的剑都提起来了，砍归砍。砍错了那也是砍完以后的事。 ...</blockquote>
+在宗主国领土上行自己的规矩？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cox  
+##### 4104#       发表于 2026-9-17 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252164&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-9-17 15:28</a>
+
+小绿第三幕入队，但是小红还不确定是否可以入队
+
+阿斯旺/白发鬼第三幕可以入队
+
+Tahonia/Klapka这俩不知道是 ...</blockquote>
+红发男我没记错貌似不叫这个名字，这俩我都不知道是谁。
+
+
+*****
+
+####  freedom12  
+##### 4103#       发表于 2026-9-17 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252289&amp;ptid=2261859" target="_blank">bbluekid 发表于 2026-9-17 15:51</a>
+
+你看整个国家对于规矩是特别在意的。而且小兵的剑都提起来了，砍归砍。砍错了那也是砍完以后的事。 ...</blockquote>
+在宗主国领土上行自己的规矩？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cox  
+##### 4104#       发表于 2026-9-17 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252164&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-9-17 15:28</a>
+
+小绿第三幕入队，但是小红还不确定是否可以入队
+
+阿斯旺/白发鬼第三幕可以入队
+
+Tahonia/Klapka这俩不知道是 ...</blockquote>
+红发男我没记错貌似不叫这个名字，这俩我都不知道是谁。
+
+*****
+
+####  Jabeck  
+##### 4105#       发表于 2026-9-17 16:07
+
+怎么快速提升声望？
+
