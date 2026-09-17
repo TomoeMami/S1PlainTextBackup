@@ -9857,3 +9857,14 @@ gpt是不是只给中文区降智啊
 - Atlas 960 风冷超节点 2027Q2上市</blockquote>
 AI芯片真赚钱，难怪华子车都不想造
 
+
+*****
+
+####  sellboy  
+##### 14098#       发表于 2026-9-17 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251126&amp;ptid=2275806" target="_blank">saintsimpler 发表于 2026-9-17 11:54</a>
+
+华子官宣960系列提前原定时间半年发布，就是不知道产能问题能解决多少，不知道国产duv对算力卡产能有多少贡 ...</blockquote>
+我的看法是真实时间表没有提前，只是本来计划的纯内部试用阶段就开放外部企业使用。
+

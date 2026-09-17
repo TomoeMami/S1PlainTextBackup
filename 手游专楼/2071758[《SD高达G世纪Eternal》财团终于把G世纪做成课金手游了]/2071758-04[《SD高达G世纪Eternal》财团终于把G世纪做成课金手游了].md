@@ -324,3 +324,17 @@ GUNDAMRO
 
 惊天两条区，安心等周年吧
 
+
+*****
+
+####  安广多惠子  
+##### 4709#       发表于 2026-9-17 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70233290&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-9-14 14:11</a>
+卡池大概率V系MS+陪跑+复刻
+
+陪跑可能是原创或者别的怪东西，主要V大概率分上下篇你直接塞V2AB下半就没东西 ...</blockquote>
+下半還可以出v2abc<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
