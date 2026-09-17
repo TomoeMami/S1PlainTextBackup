@@ -12128,3 +12128,46 @@ ns2游戏没法拆包，现在连五年后的形象都有一大堆没透露
 
 以后再有人提S1是JPRG起家的就拿这楼的合集本出来甩人脸上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zwqcm  
+##### 4079#       发表于 2026-9-17 14:13
+
+方尖塔bgm四个角色每人对应一把乐器也太八方了。不过这也是好文明，愿意在音乐上做加法还是好的。
+
+*****
+
+####  Beaverfan01  
+##### 4080#       发表于 2026-9-17 14:14
+
+日邮的海关放行了。
+
+<img src="https://img.stage1st.com/forum/202609/17/141426hf81pffzluoakufk.jpg" referrerpolicy="no-referrer">
+
+<strong>6119.jpg</strong> (42.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 14:14 上传
+
+
+*****
+
+####  freedom12  
+##### 4081#       发表于 2026-9-17 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251266&amp;ptid=2261859" target="_blank">bbluekid 发表于 2026-9-17 12:18</a>
+
+拦路按规矩必须杀死，但是女王亲自出手教训了那就没理由杀了。然后凯伊看着吃了一记重拳其实因为严格训练 ...</blockquote>
+1.从属国在宗主国的首都立挡路者必杀的规矩就有点搞笑
+
+2.女王不知道凯伊从小受过训练，如果没什么隐情，她用自己能举起大象的手对一个小孩来着一下明显就是下死手
+
+*****
+
+####  苏西踩我了  
+##### 4082#       发表于 2026-9-17 14:16
+
+用斧头的人教用枪的人战斗，神tm涨的是剑经验值
+

@@ -41,3 +41,11 @@ kv死了之后，制作组被内裤松死对头公司收购后做的新作
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  会长辅佐  
+##### 50#       发表于 2026-9-17 14:13
+
+看了下两边的，怎么感觉一个是老轨迹一个是新轨迹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
