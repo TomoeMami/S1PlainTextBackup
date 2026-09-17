@@ -10149,3 +10149,43 @@ gpt那套特色文法是越看越恶心现在一堆洗稿ai号也是这个恶心
 
 有什么免费的英语配音可以用么？有个视频需要配英语旁白，现在用edge-tts，勉强能用。gemini 3.1 flash tts效果很好，不过有每日限额。
 
+
+*****
+
+####  dazzle  
+##### 14118#       发表于 2026-9-17 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252504&amp;ptid=2275806" target="_blank">lilod 发表于 2026-9-17 16:32</a>
+
+这个不回人话（包括代码也不写人能看的代码）的趋势非常明显，因为训练中有对 token 效率的追求，所以最终 ...</blockquote>
+有一个很有名的skill叫caveman，就是让模型用原始人一样的最简单词汇思考和输出，可以非常有效的压缩token使用量。对于写代码这是好事，对写作就是灾难了
+
+*****
+
+####  M乔梦  
+##### 14119#       发表于 2026-9-17 16:38
+
+之前不是还有个omen alpha吗？感觉一点波澜都没有，牛来真是天时地利，而且5.3f本身也有实力。
+
+顺带一下，忘记miboy4月份疯狂碰瓷ds v4的事情了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dazzle  
+##### 14118#       发表于 2026-9-17 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252504&amp;ptid=2275806" target="_blank">lilod 发表于 2026-9-17 16:32</a>
+
+这个不回人话（包括代码也不写人能看的代码）的趋势非常明显，因为训练中有对 token 效率的追求，所以最终 ...</blockquote>
+有一个很有名的skill叫caveman，就是让模型用原始人一样的最简单词汇思考和输出，可以非常有效的压缩token使用量。对于写代码这是好事，对写作就是灾难了
+
+*****
+
+####  M乔梦  
+##### 14119#       发表于 2026-9-17 16:38
+
+之前不是还有个omen alpha吗？感觉一点波澜都没有，牛来真是天时地利，而且5.3f本身也有实力。
+
+顺带一下，忘记miboy4月份疯狂碰瓷ds v4的事情了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

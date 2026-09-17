@@ -12617,3 +12617,14 @@ Tahonia/Klapka这俩不知道是 ...</blockquote>
 
 给基本所有人都送了礼物看了下支援，自由人的支援少的可怜，两三个就打发了，好像除了粉毛骑士还没有a支援，四个对手队的副官和队长是没支援的，你们真是一队的吗？最神奇的一点是不知道是不是才第一步但有几个角色和主角是没有支援的，太神奇了
 
+
+*****
+
+####  妮贝雅  
+##### 4115#       发表于 2026-9-17 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252127&amp;ptid=2261859" target="_blank">流连成双 发表于 2026-9-17 15:19</a>
+
+https://www.rpgsite.net/guide/21391-fire-emblem-fortunes-weave-recruitment-guide-all-characters-in-g ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">怎么动不动都要6+声望的。。这作声望很好刷吗
+
