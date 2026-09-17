@@ -13250,3 +13250,26 @@ NGA现在真是没法看了，没有讨论游戏的
 
 这作太慢了，怎么会有比三房还慢的火纹啊
 
+
+*****
+
+####  thecatnie  
+##### 4160#       发表于 2026-9-17 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252915&amp;ptid=2261859" target="_blank">孔方兄 发表于 2026-9-17 18:09</a>
+
+NGA现在真是没法看了，没有讨论游戏的
+
+要么带帧数节奏，要么画面节奏，要么拿2nd当枪使的
+
+前几天金刚狼爆雷 ...</blockquote>
+毕竟NGA最主流的游戏平台是BILIBILI<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thecatnie  
+##### 4161#       发表于 2026-9-17 21:02
+
+B站有个UP“风花吹雪ACC”直接打的第三部分，发了点后期内容，感兴趣的可以自己搜一下
+
