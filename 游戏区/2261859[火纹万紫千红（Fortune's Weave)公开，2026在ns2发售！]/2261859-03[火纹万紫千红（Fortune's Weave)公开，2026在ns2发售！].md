@@ -12720,3 +12720,39 @@ https://www.rpgsite.net/guide/21391-fire-emblem-fortunes-weave-recruitment-guide
 
 标题画面放着不动的话和初代一样有兵种介绍
 
+
+*****
+
+####  leove25  
+##### 4124#       发表于 2026-9-17 17:18
+
+我在era上看一个评测人说建议先打完一条线再开别的，这样重复的任务都可以跳过。
+
+
+*****
+
+####  jockeyjoestar  
+##### 4125#       发表于 2026-9-17 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252722&amp;ptid=2261859" target="_blank">leove25 发表于 2026-9-17 17:18</a>
+
+我在era上看一个评测人说建议先打完一条线再开别的，这样重复的任务都可以跳过。 ...</blockquote>
+我看的评测好像说同时推进的话有解锁成就之类的？
+
+*****
+
+####  lbj5454  
+##### 4126#       发表于 2026-9-17 17:24
+
+火纹发售后A9各种神论出现了，什么任天堂DEI代表大作，什么尼哥多所以媒体打高分，什么才30帧那不是要卡成PPT了，
+
+最离谱来了
+
+<img src="https://img.stage1st.com/forum/202609/17/172440k1n6kj2u6o36nana.png" referrerpolicy="no-referrer">
+
+<strong>9db6bc16-adfc-415f-85e5-3715b5edbb70.png</strong> (27.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 17:24 上传
+

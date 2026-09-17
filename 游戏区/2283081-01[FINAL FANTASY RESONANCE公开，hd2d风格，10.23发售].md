@@ -655,3 +655,13 @@ IGN账号上发了最终预告，太有感觉了，本来觉得豪华版就多�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">已经不会改了吗，完全没有表情差分啊
 
+
+*****
+
+####  阿萨姆1405  
+##### 274#       发表于 2026-9-17 17:23
+
+<blockquote>KATE 发表于 2026-9-17 17:15
+已经不会改了吗，完全没有表情差分啊</blockquote>
+表情差分有的啊
+
