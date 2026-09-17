@@ -9671,3 +9671,14 @@ DSH直接做设计的话，框架和规范抽象度根本不够。
 质量极其不稳定，拿出来是砸招牌</blockquote>
 cloudflare认领了，路由模型
 
+
+*****
+
+####  nxmonitor  
+##### 14081#       发表于 2026-9-17 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250100&amp;ptid=2275806" target="_blank">沙发沙发 发表于 2026-9-17 09:41</a>
+
+不是，小米这模型现在才后训练，那之前测的那一坨又是啥</blockquote>
+挽尊的说法，所有模型都必须有后训练才能用，只不过质量差异而已
+

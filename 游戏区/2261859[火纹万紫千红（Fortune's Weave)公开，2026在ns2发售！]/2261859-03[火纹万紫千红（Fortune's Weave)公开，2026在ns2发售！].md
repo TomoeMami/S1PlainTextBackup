@@ -11666,3 +11666,23 @@ IS下一作可以去找MONO合作了。
 
 反正最后都是小绿人的吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纪寞  
+##### 4033#       发表于 2026-9-17 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250464&amp;ptid=2261859" target="_blank">smcheny 发表于 2026-9-17 10:24</a>
+
+猫猫头这10速20技的成长是在干什么？这么好看的角色就给我这么搞？</blockquote>
+不止猫猫头，看了一下绿发女妮捏的成长率也很烂<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kalavinka  
+##### 4034#       发表于 2026-9-17 10:43
+
+但是猫猫头摘下头盔好美<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
