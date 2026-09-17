@@ -65,3 +65,15 @@ NS2版居然不是钥匙卡？</blockquote>
 
 居然不是钥匙卡，刚看了一眼预订的NS版结果发货了，要是没发货真考虑退了重新买NS2版。
 
+
+*****
+
+####  炯Ⅺ  
+##### 59#       发表于 2026-9-17 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249144&amp;ptid=2274134" target="_blank">医生狼多 发表于 2026-9-17 01:27</a>
+才看到有五个角色包，每个两人，现在有第一二个，其他的一个月一包 一直到 12 月推完 ...</blockquote>
+那是不是等它全部更新完了再打更好？那我就不急着玩了
+
+—— 来自 OnePlus PKX110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
