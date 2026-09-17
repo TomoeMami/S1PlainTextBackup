@@ -14030,3 +14030,47 @@ nga游综是索索已经疯魔了，小岛倒戈微软+第一方大作评分被�
 
 问下，一周目一开始不去做4主角的主线直接打boss有可能打过吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下想去打，会不会有什么隐藏剧情。虽然一上来确实战力堪忧，队友一直劝
 
+
+*****
+
+####  前田利家  
+##### 4213#       发表于 2026-9-18 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253240&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-9-17 20:00</a>
+只打一个人先，通了其他人再打有很多便利。</blockquote>
+支线任务有个啥夜晚的怪物，说是商店被偷，但晚上商店附近没怪，描述说跑城市里了，但一直找不到，请问这个任务怎么做才能完成。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  linyc0010  
+##### 4214#       发表于 2026-9-18 01:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254274&amp;ptid=2261859" target="_blank">saintgory 发表于 2026-9-18 01:17</a>
+
+问下，一周目一开始不去做4主角的主线直接打boss有可能打过吗试了下想去打，会不会有什么隐藏剧情。虽然一 ...</blockquote>
+试试就逝世呗，打不过还可以回去老老实实找帮手<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  达达达达葱  
+##### 4215#       发表于 2026-9-18 01:33
+
+角色状态画面里武器旁边的颜色是什么意思
+
+有的黄有的蓝有的灰
+
+*****
+
+####  linyc0010  
+##### 4216#       发表于 2026-9-18 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254295&amp;ptid=2261859" target="_blank">前田利家 发表于 2026-9-18 01:28</a>
+
+支线任务有个啥夜晚的怪物，说是商店被偷，但晚上商店附近没怪，描述说跑城市里了，但一直找不到，请问这 ...</blockquote>
+需要在18:00到6:00之间才能完成，怪就在旅馆旁边的巷子里。
+
+可以在旅馆休息和托管来调整时间，一回合就是6个小时
+
