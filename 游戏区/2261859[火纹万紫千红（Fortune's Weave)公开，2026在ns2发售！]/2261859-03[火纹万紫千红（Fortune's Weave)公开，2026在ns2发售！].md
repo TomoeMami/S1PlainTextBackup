@@ -12666,3 +12666,42 @@ https://www.rpgsite.net/guide/21391-fire-emblem-fortunes-weave-recruitment-guide
 这作转职去哪转来着</blockquote>
 主线推进会有考试证教程（主角队大概在平均9级左右）
 
+
+*****
+
+####  bbluekid  
+##### 4119#       发表于 2026-9-17 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252511&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-9-17 16:33</a>
+无力吐槽了</blockquote>
+你倒是翻翻古代历史去啊，这种事情我国历史上发生少么
+
+
+*****
+
+####  bbluekid  
+##### 4119#       发表于 2026-9-17 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252511&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-9-17 16:33</a>
+无力吐槽了</blockquote>
+你倒是翻翻古代历史去啊，这种事情我国历史上发生少么
+
+*****
+
+####  夜留歌  
+##### 4120#       发表于 2026-9-17 17:02
+
+切到迪托利希线玩了一下，发现两点
+1.大街上可接的支线任务和蕾达线一模一样
+2.同一个可招募队友，在不同线的招募要求声望不一祥，或者在蕾达线不可招募，在迪托利希可招募
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  创始’’’天翔  
+##### 4121#       发表于 2026-9-17 17:06
+
+话说这作没有S支援还是没显示？得像engage那样拿到戒指才显示
+
