@@ -13491,3 +13491,44 @@ nga你在说笑，现在哪有讨论游戏的
 
 这游戏难度评价都是两级的，不是难爆了就是简单爆了
 
+
+*****
+
+####  kalavinka  
+##### 4180#       发表于 2026-9-17 22:17
+
+ 本帖最后由 kalavinka 于 2026-9-17 22:18 编辑 
+
+看了眼最高级的职业 太有数值了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bypal  
+##### 4181#       发表于 2026-9-17 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253591&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-17 21:19</a>
+
+这作人均体格不到4，前期饰品类基本没法用，而且拾取时还会自动装备导致降速。而且UI也不行，整备里饰品类 ...</blockquote>
+左下港口城附近有个20级山洞，跑酷过去一个湖钓鱼，金色鱼可以在港口城换+4体格的戒指，感觉很有用
+
+
+*****
+
+####  索非亚  
+##### 4182#       发表于 2026-9-17 22:20
+
+ 本帖最后由 索非亚 于 2026-9-17 22:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253750&amp;ptid=2261859" target="_blank">hpmp 发表于 2026-9-17 21:50</a>
+力量/5等于体格，跟风花雪月一样</blockquote>
+这作是有体格数值的，抵消重量和力量无关了
+脑子晕了
+
+me_ykrank_s1next_1789654789026_1.webp
+(142.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-17 22:19 上传
+
+<img src="https://img.stage1st.com/forum/202609/17/221949gr5x1e51c1urr9lw.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
