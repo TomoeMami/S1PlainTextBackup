@@ -12407,3 +12407,23 @@ ns2游戏没法拆包，现在连五年后的形象都有一大堆没透露
 
 稳定30帧+非旋转自由镜头确实跟60帧差不多
 
+
+*****
+
+####  流连成双  
+##### 4098#       发表于 2026-9-17 15:19
+
+https://www.rpgsite.net/guide/21391-fire-emblem-fortunes-weave-recruitment-guide-all-characters-in-game-how-to-recruit-them
+
+看这里的招人总结，总共有61个可用单位
+
+*****
+
+####  ascomnet  
+##### 4099#       发表于 2026-9-17 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251962&amp;ptid=2261859" target="_blank">chaosp 发表于 2026-9-17 14:47</a>
+
+掌上海关查到了，下午2点半放行的</blockquote>
+看到了，已经到宁波了
+

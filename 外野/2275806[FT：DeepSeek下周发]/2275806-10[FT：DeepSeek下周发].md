@@ -9939,3 +9939,13 @@ Pi v2现在能看到代码了，有兴趣的可以去github上pico分支看看�
 
 另外还引入了SQLite做session存储，但也没有替换现在JSONL的迹象，整体看来是往长时间稳定运行的方向去的。
 
+
+*****
+
+####  StrangerJ  
+##### 14106#       发表于 2026-9-17 15:21
+
+astra实在太不经用了，一周用完了这个月60%的credit<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">恐怖如斯
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
