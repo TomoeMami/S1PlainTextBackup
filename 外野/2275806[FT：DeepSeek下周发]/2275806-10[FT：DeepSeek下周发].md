@@ -9949,3 +9949,11 @@ astra实在太不经用了，一周用完了这个月60%的credit<img src="https
 
 —— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  小止  
+##### 14107#       发表于 2026-9-17 15:32
+
+试了下dsh的computer use，模型4.1f，准确率还是低了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

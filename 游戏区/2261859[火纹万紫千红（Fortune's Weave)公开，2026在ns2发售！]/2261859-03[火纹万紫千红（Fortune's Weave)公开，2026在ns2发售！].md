@@ -12427,3 +12427,26 @@ https://www.rpgsite.net/guide/21391-fire-emblem-fortunes-weave-recruitment-guide
 掌上海关查到了，下午2点半放行的</blockquote>
 看到了，已经到宁波了
 
+
+*****
+
+####  空气先生  
+##### 4100#       发表于 2026-9-17 15:28
+
+A少海兽王战feh味溢出了，操控五个角色，每回合刷增援。幸好海兽的数值低的一回合可以打掉一条命
+
+*****
+
+####  freedom12  
+##### 4101#       发表于 2026-9-17 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252127&amp;ptid=2261859" target="_blank">流连成双 发表于 2026-9-17 15:19</a>
+[https://www.rpgsite.net/guide/21391-fire-emblem-fortunes-weave-recruitment-guide-all-characters-in-g](https://www.rpgsite.net/guide/21391-fire-emblem-fortunes-weave-recruitment-guide-all-characters-in-g) ...</blockquote>
+小绿第三幕入队，但是小红还不确定是否可以入队
+
+阿斯旺/白发鬼第三幕可以入队
+
+Tahonia/Klapka这俩不知道是谁
+
+凯爹/龙/玛丽亚以及各反派/所有神也都没提
+
