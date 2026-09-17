@@ -9770,3 +9770,51 @@ agentrouter一直报错是我的问题吗
 
 mimo又不是第一次了，多数模型都走过送鸡蛋，没鸡蛋，克扣鸡蛋的路。mimo迭了几代目前还在第一步
 
+
+*****
+
+####  lly778  
+##### 14091#       发表于 2026-9-17 11:49
+
+mino连731都打不过把
+
+
+*****
+
+####  RookieTnT  
+##### 14092#       发表于 2026-9-17 11:50
+
+那 jev 重构了我自己的 pi tool 审查 插件
+用起来非常不错 速度快 也拦住不安全的 bash 命令
+再也不怕被删库了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ZBY901026  
+##### 14093#       发表于 2026-9-17 11:51
+
+Union Alpha你们都是哪个平台的
+我用的opencode
+上下文太小了导致简单的review都没法做
+使用体验极差
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  saintsimpler  
+##### 14094#       发表于 2026-9-17 11:54
+
+华子官宣960系列提前原定时间半年发布，就是不知道产能问题能解决多少，不知道国产duv对算力卡产能有多少贡献
+
+——来自  HUAWEI Pura X View OpenHarmony-7.0.0.105(26) 上的 [S1 Orange](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2244111) 1.4.4
+
+*****
+
+####  zypyong  
+##### 14095#       发表于 2026-9-17 11:54
+
+gpt是不是只给中文区降智啊
+
