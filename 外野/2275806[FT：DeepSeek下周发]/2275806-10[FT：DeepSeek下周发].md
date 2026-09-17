@@ -9653,3 +9653,21 @@ DSH直接做设计的话，框架和规范抽象度根本不够。
 
 为了保证效果完备和可编译能力，会去检索知识库+记忆+当前项目结构，出来的结果就有点尾大不掉拖泥带水的意思。
 
+
+*****
+
+####  小野賢章  
+##### 14079#       发表于 2026-9-17 10:15
+
+现在有没有支持原生的音频输出输出的模型，还是说必须要ASR和TTS才行
+
+
+*****
+
+####  qwased  
+##### 14080#       发表于 2026-9-17 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250005&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-17 09:29</a>
+质量极其不稳定，拿出来是砸招牌</blockquote>
+cloudflare认领了，路由模型
+
