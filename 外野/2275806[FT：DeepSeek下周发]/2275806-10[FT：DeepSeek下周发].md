@@ -10259,3 +10259,40 @@ harness有破甲插件
 
 华子今天的卡路线图很夸张啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 14127#       发表于 2026-9-17 19:56
+
+[https://z.ai/blog/glm-built-its-inference-infrastructure](https://z.ai/blog/glm-built-its-inference-infrastructure)
+
+智谱今天发的博客文章，里面提到新的国产卡数据中心的架构是大量利用agent在生态不成熟，文档不齐全的背景下完成的
+
+能力再演进一些，说不定能利用AI能力打破CUDA的生态垄断
+
+
+*****
+
+####  andychen  
+##### 14127#       发表于 2026-9-17 19:56
+
+[https://z.ai/blog/glm-built-its-inference-infrastructure](https://z.ai/blog/glm-built-its-inference-infrastructure)
+
+智谱今天发的博客文章，里面提到新的国产卡数据中心的架构是大量利用agent在生态不成熟，文档不齐全的背景下完成的
+
+能力再演进一些，说不定能利用AI能力打破CUDA的生态垄断
+
+
+*****
+
+####  squallx  
+##### 14128#       发表于 2026-9-17 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252702&amp;ptid=2275806" target="_blank">Litccc 发表于 2026-9-17 17:12</a>
+
+提示词很重要，某脑有个测试预设4.1f写出来的文和哈基米差不多惊艳
+
+论坛助手,iPhone ...</blockquote>
+Deep♂Dark-v4 那个吗    最近哈基米各种外审截断抽风 正好换个试试
+

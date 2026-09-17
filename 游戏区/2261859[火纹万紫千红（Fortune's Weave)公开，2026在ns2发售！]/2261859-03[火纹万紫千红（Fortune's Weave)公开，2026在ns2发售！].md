@@ -13170,3 +13170,16 @@ nga游综是万里挑一的粪坑
 
 哦 还要加上无头苍蝇跑迷宫和简化的回合制模式
 
+
+*****
+
+####  Jabeck  
+##### 4152#       发表于 2026-9-17 20:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253149&amp;ptid=2261859" target="_blank">宝贝虎龙 发表于 2026-9-17 19:13</a>
+
+所以是只打一个人好还是轮着打好
+
+—— 来自 Xiaomi 25060RK16C, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+只打一个人先，通了其他人再打有很多便利。
+
