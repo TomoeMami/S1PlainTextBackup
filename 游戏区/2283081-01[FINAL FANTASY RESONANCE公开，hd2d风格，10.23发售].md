@@ -647,3 +647,11 @@ IGN账号上发了最终预告，太有感觉了，本来觉得豪华版就多�
 话说招幻兵的问答有啥用？</blockquote>
 目前没看出来有什么区别，怎么选都会加入的，加入后好像也没差
 
+
+*****
+
+####  KATE  
+##### 273#       发表于 2026-9-17 17:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">已经不会改了吗，完全没有表情差分啊
+

@@ -10189,3 +10189,34 @@ gpt那套特色文法是越看越恶心现在一堆洗稿ai号也是这个恶心
 
 顺带一下，忘记miboy4月份疯狂碰瓷ds v4的事情了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Litccc  
+##### 14120#       发表于 2026-9-17 17:12
+
+提示词很重要，某脑有个测试预设4.1f写出来的文和哈基米差不多惊艳
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  無始無終  
+##### 14121#       发表于 2026-9-17 17:12
+
+我用dpsk v4.1 flash写技术报告还行啊，倒是qwen3.8 flash写的报告很难懂
+
+——来自 NOH-AN00 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  Promeus  
+##### 14122#       发表于 2026-9-17 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252702&amp;ptid=2275806" target="_blank">Litccc 发表于 2026-9-17 17:12</a>
+提示词很重要，某脑有个测试预设4.1f写出来的文和哈基米差不多惊艳
+
+论坛助手,iPhone ...</blockquote>
+能分享一下吗<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
