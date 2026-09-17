@@ -9736,3 +9736,29 @@ mimo2.5就这样，结果拉得一比，前几天又不是没试过，还是拉
 
 agentrouter一直报错是我的问题吗
 
+
+*****
+
+####  nxmonitor  
+##### 14087#       发表于 2026-9-17 11:30
+
+4.1F不知道什么时候发新的checkpoint，现在有一种感觉这个模型也是很匆忙端上来的，有些问题是V4预览版就有的
+
+*****
+
+####  qwased  
+##### 14088#       发表于 2026-9-17 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250871&amp;ptid=2275806" target="_blank">肆拾肆 发表于 2026-9-17 11:11</a>
+感谢罗圣开源</blockquote>
+纯属放屁，群里测试mimo x一坨
+
+*****
+
+####  cscbzcbz  
+##### 14089#       发表于 2026-9-17 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250871&amp;ptid=2275806" target="_blank">肆拾肆 发表于 2026-9-17 11:11</a>
+感谢罗圣开源</blockquote>
+不敢说超越，只敢说平替。那大概率是不如的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
