@@ -11293,3 +11293,158 @@ GALGAME里塞了点战旗，比例20%有没有，关键是画质NS1，帧数30�
 
 发售第一天就已经盖棺定论了么
 
+
+*****
+
+####  oniwarud  
+##### 3990#       发表于 2026-9-17 09:48
+
+看了下凯伊和奔驰哥线的评价都还不错
+
+*****
+
+####  Gniyehz  
+##### 3991#       发表于 2026-9-17 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250122&amp;ptid=2261859" target="_blank">Mephisto 发表于 2026-9-17 09:43</a>
+GALGAME里塞了点战旗，比例20%有没有，关键是画质NS1，帧数30不稳，逛街都嫌恶心，媒体集体高潮怕不是是塞 ...</blockquote>
+鬼武者ign不就给10分了么
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  liliguo1  
+##### 3992#       发表于 2026-9-17 09:48
+
+好长啊....要干的事儿太多了
+
+打了7个小时连转职都没解
+
+*****
+
+####  zyxsqw  
+##### 3993#       发表于 2026-9-17 09:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">老实讲也还没看到啥galgame环节，打了几小时打了几把教学关水平的战旗，剩下的部分感觉自己在打什么ps3时代的jrpg
+
+*****
+
+####  oniwarud  
+##### 3994#       发表于 2026-9-17 09:49
+
+画质ns1的真该打开三房和结合对比下了
+
+*****
+
+####  sword混沌  
+##### 3995#       发表于 2026-9-17 09:50
+
+画质真的 Ns1 吗，那风花雪月能够上 Ns0.5 吗
+
+*****
+
+####  caicaistar  
+##### 3996#       发表于 2026-9-17 09:50
+
+还没买，这作还要高强度逛街吗，风花雪月就是高强度逛街坑了
+
+*****
+
+####  ubiquity  
+##### 3997#       发表于 2026-9-17 09:50
+
+又开始脑补 ns1 画质了，果然回忆中的画质都是最好的
+
+*****
+
+####  cox  
+##### 3998#       发表于 2026-9-17 09:51
+
+争议最大的是蕾达线，但只要别整出红秋裤那种逆天活，我觉得也没啥问题，这作最后四线合一反而降低了剧情崩坏的可能性，不至于背刺队友。<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 3999#       发表于 2026-9-17 09:51
+
+凯伊这个人技移动力+1，甚至敌方凯伊还是移动力+2有点震撼到我了，估计是4主角里最强的个人技了。就是这作再移动削了，不知道放到哪了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纯白花火  
+##### 4000#       发表于 2026-9-17 09:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">首先别忘了GS也有9分
+
+
+*****
+
+####  qiyu1234  
+##### 4001#       发表于 2026-9-17 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249972&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-9-17 09:24</a>
+
+这个设计很妙，给玩家设计了多种路线的推进方式。
+
+五年前→五年间→五年后
+
+五年前→五年后</blockquote>
+这就是之前访谈说的一个存档所延申出的设计吧
+
+既然给了直接挑战某BOSS的选择，那么就不应该让整个游戏流程变得不可逆（虽然可能过关这部分的对话会少一点），循序渐进的提供玩家需要的内容而不是强制走流程，第二幕可跳过不打应该也是基于这种考虑
+
+说白了还是在摸索玩家的体验阈值
+
+*****
+
+####  Beaverfan01  
+##### 4002#       发表于 2026-9-17 09:55
+
+IGN本部打10的编辑和前两作火纹评测是同一位，Brendan Graeber。
+
+*****
+
+####  Mephisto  
+##### 4003#       发表于 2026-9-17 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70250166&amp;ptid=2261859" target="_blank">Gniyehz 发表于 2026-9-17 09:48</a>
+
+鬼武者ign不就给10分了么
+
+—— 来自 Xiaomi 24129PN74C, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+我知道，鬼武者的10分一直被人质疑，因为插入很多马桶支线
+
+然而这个游戏就目前体验而言马桶比鬼武者多，战斗比鬼武者还少，更加配不上满分
+
+*****
+
+####  dududa  
+##### 4004#       发表于 2026-9-17 09:56
+
+一觉起来，感觉不管是b站还是论坛都有人开始定风向，要把这作定在烂作了，怎么玩这么快的，都通宵的吗
+
+*****
+
+####  lly778  
+##### 4005#       发表于 2026-9-17 09:57
+
+jrpg不就是马桶支线么
+
+*****
+
+####  苍蓝之枪  
+##### 4006#       发表于 2026-9-17 09:57
+
+只要五年后发起进攻，一切都会好起来的
+
+*****
+
+####  sword混沌  
+##### 4007#       发表于 2026-9-17 09:57
+
+<blockquote>Beaverfan01 发表于 2026-9-17 09:55
+IGN本部打10的编辑和前两作火纹评测是同一位，Brendan Graeber。</blockquote>
+那位好像是从 NGC 火纹时代一路玩过来的，攻略也是他出的
+
