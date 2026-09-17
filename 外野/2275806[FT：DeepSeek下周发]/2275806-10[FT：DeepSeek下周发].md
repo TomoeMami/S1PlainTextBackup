@@ -10220,3 +10220,34 @@ gpt那套特色文法是越看越恶心现在一堆洗稿ai号也是这个恶心
 论坛助手,iPhone ...</blockquote>
 能分享一下吗<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 14123#       发表于 2026-9-17 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252504&amp;ptid=2275806" target="_blank">lilod 发表于 2026-9-17 16:32</a>
+这个不回人话（包括代码也不写人能看的代码）的趋势非常明显，因为训练中有对 token 效率的追求，所以最终 ...</blockquote>
+然后这个token效率有时候也只是llm和训练数据“自认为很高”的token效率，比如经常使用单字代词单字动词，这是没有中文token分词表时才有的省token写法<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">有的国模把这也学过去了
+
+现在国产模型分词表里常用短语和中文词语已经很多了，我前段时间试过刻意压字数写翻译工具提示词，结果丢到ds的分词器里面看，字数更少的版本token消耗量反而涨了，因为使用了更短的生僻表达让分词器回退到了单字拆token的状态，后面把一些词替换成更常见的多字词语效果就好一些。
+
+*****
+
+####  hugosol  
+##### 14124#       发表于 2026-9-17 17:34
+
+matt pocock有个skill用来解决不说人话的问题的：[https://github.com/mattpocock/sk ... /wait-what/SKILL.md](https://github.com/mattpocock/skills/blob/main/skills/productivity/wait-what/SKILL.md) <blockquote>Wait, I don't understand where you've got to here. Re-pitch that: give me a little bit of context, talk in ASD-STE100 Simplified Technical English, and use the ubiquitous language from CONTEXT.md (follow CONTEXT-MAP.md to the right one if the repo has more than one).</blockquote>
+不过是针对英文的，中文的话要研究一下有什么魔法提示词比较有效
+
+*****
+
+####  体制  
+##### 14125#       发表于 2026-9-17 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251641&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-9-17 13:37</a>
+现在4.1f的破甲难度是不是高了很多啊</blockquote>
+harness有破甲插件
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
