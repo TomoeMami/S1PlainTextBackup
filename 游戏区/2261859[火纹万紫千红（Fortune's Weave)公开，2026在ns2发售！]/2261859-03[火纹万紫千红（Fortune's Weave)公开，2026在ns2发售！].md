@@ -13478,3 +13478,16 @@ nga你在说笑，现在哪有讨论游戏的
 我看贴吧里说了中后期难度就起来了。而且是慢慢变难的</blockquote>
 我才第一张啊，不知道那些说困难平推的是怎么回事，我角色除了A少其他人打普通敌人命中也只有70%到80%，敌人几乎百分百命中。感觉是人物练废了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ascomnet  
+##### 4179#       发表于 2026-9-17 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253775&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-9-17 21:55</a>
+
+我才第一张啊，不知道那些说困难平推的是怎么回事，我角色除了A少其他人打普通敌人命中也只有70%到80%， ...</blockquote>
+那你可以随时改难度<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这游戏难度评价都是两级的，不是难爆了就是简单爆了
+

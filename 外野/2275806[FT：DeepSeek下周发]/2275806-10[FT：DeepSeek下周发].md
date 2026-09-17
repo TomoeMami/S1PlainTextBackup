@@ -10434,3 +10434,15 @@ PromptGenerator.zip
 
 点击文件名下载附件
 
+
+*****
+
+####  真红之闪电  
+##### 14133#       发表于 2026-9-17 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252235&amp;ptid=2275806" target="_blank">坛子漆黑 发表于 2026-9-17 15:42</a>
+除了铜矿和强迫,其他的尺度再大都没问题.问题是写出来的文根本没眼看</blockquote>
+破甲词现在有啥稳定的吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
