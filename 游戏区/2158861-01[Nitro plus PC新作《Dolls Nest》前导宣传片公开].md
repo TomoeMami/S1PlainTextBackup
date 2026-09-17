@@ -17,3 +17,13 @@
 
 2026-9-17 14:43 上传
 
+
+*****
+
+####  蓝雉  
+##### 236#       发表于 2026-9-17 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251949&amp;ptid=2158861" target="_blank">不灭的旋律 发表于 2026-9-17 14:43</a>
+战斗试验的PV公开，出现了貌似坦克姐妹妹的宁芙，还有雌小鬼性格的，宁芙真是性格多样啊更接近漫画版的感觉 ...</blockquote>
+斗技场有配音好评
+
