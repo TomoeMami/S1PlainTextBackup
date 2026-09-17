@@ -94,3 +94,24 @@ https://mp1st.com/news/report-media-molecule-new-game-release-2027-first-info-le
 
 从核心来看，它似乎不会沿袭《Dreams》的老路。尽管那款作品催生了各种用户生成内容体验，但这不足以让索尼继续维持它的运营；仅仅三年后，Media Molecule就宣布将终止其在线服务支持。
 
+
+*****
+
+####  医生狼多  
+##### 820#       发表于 2026-9-17 14:21
+
+开普勒
+
+传闻：索尼的下一代掌上游戏机「PSP3」搭载最新上采样技术PSSR3.0，性能超越PS5，最大14TFLOPS的性能逼近PS5 Pro
+
+- 纯硬件性能在掌机模式时为4.9～底座模式时为6.7TFLOPS
+- 通过PSSR3.0，在掌机模式时相当于11TFLOPS～底座模式时相当于14TFLOPS
+- PSSR3.0还具备帧生成功能
+- 将PS5游戏优化为掌机适用的1080p并运行
+- PS4/PS5/PS6的游戏可在本地完全运行
+
+规格
+- 定制3nm AMD Canis APU
+- RDNA5 16CUs
+- 24GB LPDDR5X
+

@@ -149,3 +149,13 @@
 
 不对，这战斗服就是ST吧，跟薰子的ST衣服很像
 
+
+*****
+
+####  madcow  
+##### 2114#       发表于 2026-9-17 14:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">有点看不懂，是没工夫做新发型所以不能算st吗
+
+衣服也要色不色要帅不帅的好微妙（
+

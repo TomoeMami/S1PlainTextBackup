@@ -12171,3 +12171,42 @@ ns2游戏没法拆包，现在连五年后的形象都有一大堆没透露
 
 用斧头的人教用枪的人战斗，神tm涨的是剑经验值
 
+
+*****
+
+####  ascomnet  
+##### 4083#       发表于 2026-9-17 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251794&amp;ptid=2261859" target="_blank">Beaverfan01 发表于 2026-9-17 14:14</a>
+
+日邮的海关放行了。</blockquote>
+我的还再成田出库<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 4084#       发表于 2026-9-17 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70251797&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-9-17 14:15</a>
+
+1.从属国在宗主国的首都立挡路者必杀的规矩就有点搞笑，哪个皇家贵族的眷属孩子不小心挡个路也这么直接杀 ...</blockquote>
+只能说得亏凯伊没事，不然算起来凯伊是她信奉的幽法斯的孙子，再加上法王和欧若拉那边要细究起来的话，女王得自己自刎谢罪了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  达达达达葱  
+##### 4085#       发表于 2026-9-17 14:21
+
+<blockquote>巴尔干炮 发表于 2026-9-17 12:12
+应该有说法的，比如序章里女王被砍掉头的雕像，我大概猜到原因了。</blockquote>
+啥原因呢？女王中途换人了？
+
+*****
+
+####  Beaverfan01  
+##### 4086#       发表于 2026-9-17 14:23
+
+<blockquote>ascomnet 发表于 2026-9-17 14:19
+我的还再成田出库</blockquote>
+在掌上海关看，PDD物流信息有时候更新慢。
+
