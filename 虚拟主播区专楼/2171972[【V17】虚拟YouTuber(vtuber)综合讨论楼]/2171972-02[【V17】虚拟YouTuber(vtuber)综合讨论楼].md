@@ -398,3 +398,42 @@ https://note.com/toudaikun/n/n593206183d47
 
 比如说有录音,结果最后是双方都没有录音
 
+
+*****
+
+####  高等黑暗  
+##### 2113#       发表于 2026-9-17 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249332&amp;ptid=2171972" target="_blank">noHentai 发表于 2026-9-17 03:45</a>
+
+口了那边其实很简单，你就当作所有她否定的事情其实都是她想干或者实际干了的事，但是她心里门清，没有踩 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">我对口了那边做过什么事情其实没啥疑问，她肯定是要求过别人别用魔界口音的，只不过估计是通过经纪人施压之类的手法把自己摘出去了
+
+我说没贴出来的内容主要是这个记事写手没贴的口了那些法庭答辩和chat内容之类的，我估计降智程度绝不低于金鱼这些贴出来的内容（）
+
+
+*****
+
+####  高等黑暗  
+##### 2113#       发表于 2026-9-17 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249332&amp;ptid=2171972" target="_blank">noHentai 发表于 2026-9-17 03:45</a>
+
+口了那边其实很简单，你就当作所有她否定的事情其实都是她想干或者实际干了的事，但是她心里门清，没有踩 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">我对口了那边做过什么事情其实没啥疑问，她肯定是要求过别人别用魔界口音的，只不过估计是通过经纪人施压之类的手法把自己摘出去了
+
+我说没贴出来的内容主要是这个记事写手没贴的口了那些法庭答辩和chat内容之类的，我估计降智程度绝不低于金鱼这些贴出来的内容（）
+
+
+*****
+
+####  高等黑暗  
+##### 2113#       发表于 2026-9-17 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70249332&amp;ptid=2171972" target="_blank">noHentai 发表于 2026-9-17 03:45</a>
+
+口了那边其实很简单，你就当作所有她否定的事情其实都是她想干或者实际干了的事，但是她心里门清，没有踩 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">我对口了那边做过什么事情其实没啥疑问，她肯定是要求过别人别用魔界口音的，只不过估计是通过经纪人施压之类的手法把自己摘出去了
+
+我说没贴出来的内容主要是这个记事写手没贴的口了那些法庭答辩和chat内容之类的，我估计降智程度绝不低于金鱼这些贴出来的内容（）
+
