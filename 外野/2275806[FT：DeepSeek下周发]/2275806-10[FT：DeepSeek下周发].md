@@ -10487,3 +10487,13 @@ dsh 0.1.6 alpha2更新，加了官方插件管理、子代理数量和层数控�
  <blockquote>stream disconnected before completion: Transport error: network error: error decoding response body</blockquote>
 <blockquote>Error running remote compact task: stream disconnected before completion: Transport error: network error: error decoding response body</blockquote>
 
+
+*****
+
+####  jonarryn  
+##### 14137#       发表于 2026-9-18 01:44
+
+话说新上的那个匿名模型 union 阿尔法怎么样？我今天试了一下 感觉还可以
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
