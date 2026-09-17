@@ -4418,3 +4418,15 @@ SD/SM/SF, 只有SD的性能是个刚出性能在第一梯队的.
 
 不过估计商店端应该还是同一个电子版吧，下载时候根据设备下不同版本
 
+
+*****
+
+####  Midnight.Coup  
+##### 419#       发表于 2026-9-17 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70236483&amp;ptid=2267066" target="_blank">泰坦失足 发表于 2026-9-15 05:56</a>
+硬件居然只是8G3吗?
+
+SD/SM/SF, 只有SD的性能是个刚出性能在第一梯队的.</blockquote>
+V社这种产多少买多少的模式，在高通那边和寨厂一桌，Odin3 都能拿 8e
+

@@ -9762,3 +9762,11 @@ agentrouter一直报错是我的问题吗
 感谢罗圣开源</blockquote>
 不敢说超越，只敢说平替。那大概率是不如的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狭义文具爱好者  
+##### 14090#       发表于 2026-9-17 11:44
+
+mimo又不是第一次了，多数模型都走过送鸡蛋，没鸡蛋，克扣鸡蛋的路。mimo迭了几代目前还在第一步
+
