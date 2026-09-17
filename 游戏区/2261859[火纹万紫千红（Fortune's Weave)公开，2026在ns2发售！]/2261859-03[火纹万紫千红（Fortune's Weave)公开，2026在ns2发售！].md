@@ -13212,3 +13212,26 @@ nga游综是万里挑一的粪坑
 
 A少线我平均12级的时候招进来男萨米亚直接20级<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  索非亚  
+##### 4156#       发表于 2026-9-17 20:36
+
+好几个洞深处有个门锁着啊，这以后还得再跑一遍<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ShitOverflow  
+##### 4157#       发表于 2026-9-17 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252915&amp;ptid=2261859" target="_blank">孔方兄 发表于 2026-9-17 18:09</a>
+
+NGA现在真是没法看了，没有讨论游戏的
+
+要么带帧数节奏，要么画面节奏，要么拿2nd当枪使的
+
+前几天金刚狼爆雷 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">单机界黑流仔的两个大奶嘴：卡表和老任，逮着这俩嘬是真有流量还不会被反咬的
+
