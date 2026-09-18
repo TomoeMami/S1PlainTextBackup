@@ -12381,7 +12381,7 @@
     "lastedit": 1789688280,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2268807": {
     "totalreply": 512,
@@ -12549,7 +12549,7 @@
     "totalreply": 5507,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1789672830,
+    "lastedit": 1789688880,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14169,7 +14169,7 @@
     "totalreply": 12583,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1789686856,
+    "lastedit": 1789688940,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16134,7 +16134,7 @@
     "lastedit": 1789688760,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2289673": {
     "totalreply": 64,
@@ -16962,7 +16962,7 @@
     "lastedit": 1789688160,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2258812": {
     "totalreply": 93,
@@ -17043,7 +17043,7 @@
     "lastedit": 1789688520,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2289927": {
     "totalreply": 64,
@@ -17208,12 +17208,12 @@
     "update": false
   },
   "2290013": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[90年代是什么样子的？]",
     "newtitle": "[90年代是什么样子的？]",
-    "lastedit": 1789688700,
+    "lastedit": 1789688913,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }
