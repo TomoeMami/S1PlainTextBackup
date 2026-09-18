@@ -10525,3 +10525,36 @@ dsh 0.1.6 alpha2更新，加了官方插件管理、子代理数量和层数控�
 
 —— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  狭义文具爱好者  
+##### 14139#       发表于 2026-9-18 17:03
+
+可以给唐杰选个饮料瓶了
+
+*****
+
+####  noneoneone  
+##### 14140#       发表于 2026-9-18 17:08
+
+千问办公帮我处理CAD，Hermes帮我运维服务器，pi帮我改代码，我在打游戏，真是忙碌的一天。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+
+*****
+
+####  nxmonitor  
+##### 14141#       发表于 2026-9-18 20:31
+
+这个Zcode完全不能用了啊，怪不得智谱这几个月突飞猛进呢，这语料全是偷的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 14142#       发表于 2026-9-18 20:35
+
+智谱的东西就用过一次，然后再也没有用过
+只能说一点不意外好吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
