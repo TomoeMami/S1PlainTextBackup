@@ -12030,7 +12030,7 @@
     "lastedit": 1789754280,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2034248": {
     "totalreply": 441,
@@ -13302,13 +13302,13 @@
     "update": false
   },
   "2183857": {
-    "totalreply": 542,
+    "totalreply": 544,
     "title": "[KINEMA CITRUS 15周年纪念作「Goodbye, Lara」]",
     "newtitle": "[KINEMA CITRUS 15周年纪念作「Goodbye, Lara ／ 再见菈菈」]",
-    "lastedit": 1789752840,
+    "lastedit": 1789756863,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2253295": {
     "totalreply": 577,
@@ -14124,10 +14124,10 @@
     "totalreply": 12992,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1789755660,
+    "lastedit": 1789756740,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2288783": {
     "totalreply": 125,
