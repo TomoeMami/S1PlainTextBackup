@@ -167,3 +167,11 @@
 
 昨天说今天，今天又说明天，有新活动也没提前预告，不会工期炸了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 2116#         楼主| 发表于 2026-9-18 20:53
+
+这新AN什么B火力，太猛了。怪不得连盘子都不能开…………
+

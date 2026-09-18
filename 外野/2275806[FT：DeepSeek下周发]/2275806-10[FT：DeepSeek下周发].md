@@ -10558,3 +10558,24 @@ dsh 0.1.6 alpha2更新，加了官方插件管理、子代理数量和层数控�
 智谱的东西就用过一次，然后再也没有用过
 只能说一点不意外好吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zfy1989  
+##### 14143#       发表于 2026-9-18 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254621&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-18 17:08</a>
+千问办公帮我处理CAD，Hermes帮我运维服务器，pi帮我改代码，我在打游戏，真是忙碌的一天。
+
+——来自 2410 ...</blockquote>
+千问可以搞 cad，可以做到什么程度啊
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  小野賢章  
+##### 14144#       发表于 2026-9-18 20:43
+
+我旁边同事用codex检查了一下，他的zcode也中招了。已经转发给部门负责人，他买了好多智谱的股票<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
