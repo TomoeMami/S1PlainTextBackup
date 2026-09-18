@@ -14392,3 +14392,14 @@ is每作都骗人玩重甲 这次看来就是这个速决战模式
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cloudztj  
+##### 4235#       发表于 2026-9-18 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254854&amp;ptid=2261859" target="_blank">Aresu 发表于 2026-9-18 21:16</a>
+
+紫色的技能lv图标是啥意思 是弱项还是才能开花</blockquote>
+弱项，强项是高亮的
+
