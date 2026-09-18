@@ -546,7 +546,7 @@
     "lastedit": 1789750620,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2095306": {
     "totalreply": 1194,
@@ -12549,7 +12549,7 @@
     "totalreply": 5527,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1789747477,
+    "lastedit": 1789751220,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13077,13 +13077,13 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 38570,
+    "totalreply": 38571,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1789748520,
+    "lastedit": 1789751700,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1992785": {
     "totalreply": 447,
@@ -14127,7 +14127,7 @@
     "lastedit": 1789751100,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2288783": {
     "totalreply": 125,
@@ -14397,7 +14397,7 @@
     "lastedit": 1789750260,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2282779": {
     "totalreply": 177,
@@ -16223,7 +16223,7 @@
     "newtitle": "[中东王爷是急眼了么，对胡塞打DF了]",
     "lastedit": 1789492205,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289780": {
