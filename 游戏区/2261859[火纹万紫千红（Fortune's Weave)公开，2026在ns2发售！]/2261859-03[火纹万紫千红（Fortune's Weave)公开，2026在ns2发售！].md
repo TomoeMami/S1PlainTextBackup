@@ -14455,3 +14455,21 @@ is每作都骗人玩重甲 这次看来就是这个速决战模式
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  bbluekid  
+##### 4240#       发表于 2026-9-18 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70255054&amp;ptid=2261859" target="_blank">Chenlh 发表于 2026-9-18 21:52</a>
+女王线第一章有个带名字的敌人没法收吗，刚刚砍死了发现不对劲，重开了一把好像还是没人能和他对话 ...</blockquote>
+那个是回忆，后面还会遇到
+
+
+*****
+
+####  塔尔洛斯  
+##### 4241#       发表于 2026-9-18 23:04
+
+这不会三条线走完才能用回主角吧，别
+

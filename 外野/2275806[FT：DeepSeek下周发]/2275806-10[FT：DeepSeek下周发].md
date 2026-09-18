@@ -10898,3 +10898,15 @@ Zcode会打包所有工作区的文件上传，无论是个人还是企业账户
 
 看来我当初的判断是对的，Z/的东西完全不碰<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 14163#       发表于 2026-9-18 23:00
+
+<blockquote>misuzu0723 发表于 2026-9-18 22:32
+之前都说 glm 强是因为有好的训练数据，难道这些优质的数据来源是。。
+
+—— 来自 vivo V2405A, Android 15 ...</blockquote>
+最早应该六月份就这么干了，时间野差不多对上了…
+
