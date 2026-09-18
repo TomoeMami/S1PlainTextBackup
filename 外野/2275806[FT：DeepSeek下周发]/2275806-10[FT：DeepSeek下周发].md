@@ -10628,3 +10628,93 @@ minimax code 也开源了，而且不是「近期开源」，牢唐的功劳<img
 
 zcode那个神秘封号机制之前都被爆出来过，如果尝试拦截zcode请求来改动zcode自带的系统提示词就会被智谱封号，经典A/作风<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真红之闪电  
+##### 14147#       发表于 2026-9-18 21:15
+
+智谱咋了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小野賢章  
+##### 14148#       发表于 2026-9-18 21:15
+
+[https://github.com/MiniMax-AI/minimax-code](https://github.com/MiniMax-AI/minimax-code)
+
+minimax code 也开源了，而且不是「近期开源」，牢唐的功劳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 14149#       发表于 2026-9-18 21:16
+
+zcode那个神秘封号机制之前都被爆出来过，如果尝试拦截zcode请求来改动zcode自带的系统提示词就会被智谱封号，经典A/作风<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 14150#       发表于 2026-9-18 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254843&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-9-18 21:15</a>
+
+智谱咋了
+
+—— 来自 S1Fun</blockquote>
+Zcode会打包所有工作区的文件上传，无论是个人还是企业账户，无论是不是开了数据不上传选项
+
+
+*****
+
+####  真红之闪电  
+##### 14147#       发表于 2026-9-18 21:15
+
+智谱咋了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小野賢章  
+##### 14148#       发表于 2026-9-18 21:15
+
+[https://github.com/MiniMax-AI/minimax-code](https://github.com/MiniMax-AI/minimax-code)
+
+minimax code 也开源了，而且不是「近期开源」，牢唐的功劳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 14149#       发表于 2026-9-18 21:16
+
+zcode那个神秘封号机制之前都被爆出来过，如果尝试拦截zcode请求来改动zcode自带的系统提示词就会被智谱封号，经典A/作风<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 14150#       发表于 2026-9-18 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254843&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-9-18 21:15</a>
+
+智谱咋了
+
+—— 来自 S1Fun</blockquote>
+Zcode会打包所有工作区的文件上传，无论是个人还是企业账户，无论是不是开了数据不上传选项
+
+*****
+
+####  小野賢章  
+##### 14151#       发表于 2026-9-18 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254843&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-9-18 21:15</a>
+
+智谱咋了
+
+—— 来自 S1Fun</blockquote>
+[https://blog.ferstar.org/posts/z ... ce-snapshot-upload/](https://blog.ferstar.org/posts/zcode-silent-workspace-snapshot-upload/)
+
+省流：zcode会把用户的git仓库完整打包（包括 .git 目录，和 .gitignore 忽略的文件），然后服务端下发公钥加密之后上传。
+
