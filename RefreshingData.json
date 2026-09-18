@@ -10670,7 +10670,7 @@
     "newtitle": "[武侠游戏新作《燕云十六声》7月26日公测]",
     "lastedit": 1789502885,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2234605": {
@@ -12030,7 +12030,7 @@
     "lastedit": 1789760940,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2034248": {
     "totalreply": 441,
