@@ -10718,3 +10718,20 @@ Zcode会打包所有工作区的文件上传，无论是个人还是企业账户
 
 省流：zcode会把用户的git仓库完整打包（包括 .git 目录，和 .gitignore 忽略的文件），然后服务端下发公钥加密之后上传。
 
+
+*****
+
+####  Milarvoz  
+##### 14152#       发表于 2026-9-18 21:27
+
+明明用户各种上下文都是要过服务器的，还要用这么弱智的方法盗窃用户隐私。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  noneoneone  
+##### 14153#       发表于 2026-9-18 21:32
+
+本来还想着马上周末可以领3亿token呢
+
