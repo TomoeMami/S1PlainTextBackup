@@ -1001,3 +1001,13 @@ GS 9
 MC
 [https://www.metacritic.com/game/control-resonant/](https://www.metacritic.com/game/control-resonant/)
 
+
+*****
+
+####  SergeGlenn  
+##### 106#       发表于 2026-9-18 21:55
+
+MC现在下到83了
+
+这游戏刚公布的时候我就觉得这个战斗会是个问题，第一眼视觉像DMC，但多看点具体演示会发现根本不是那回事儿，remedy本身也是没有近战系统功底的，做这种战斗还是问题很大的，走枪战配合体术最合适
+

@@ -10735,3 +10735,47 @@ Zcode会打包所有工作区的文件上传，无论是个人还是企业账户
 
 本来还想着马上周末可以领3亿token呢
 
+
+*****
+
+####  cscbzcbz  
+##### 14154#       发表于 2026-9-18 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254921&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-9-18 21:27</a>
+明明用户各种上下文都是要过服务器的，还要用这么弱智的方法盗窃用户隐私。
+
+—— 来自 samsung SM-S9380,  ...</blockquote>
+用户用GLM当然不需要这么麻烦
+这么搞当然是为了在zcode上除了使用GLM以外，使用别的模型的用户数据<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  icedew  
+##### 14155#       发表于 2026-9-18 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254921&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-9-18 21:27</a>
+明明用户各种上下文都是要过服务器的，还要用这么弱智的方法盗窃用户隐私。
+
+—— 来自 samsung SM-S9380,  ...</blockquote>
+理解能力。。。这个是你只用这编辑对一次话，就把你仓库里以前的，所有自己写的及其他ai写的连带历史删除的git都给打包偷了。
+比收集用户自己上传的对话恶劣多了。
+
+*****
+
+####  PurplePeppers  
+##### 14156#       发表于 2026-9-18 21:51
+
+上周刚在我的新的玩具项目里换了zcode，还夸了zcode现在做得挺好的，牢唐就搞这出<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 14157#       发表于 2026-9-18 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70255028&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-18 21:49</a>
+
+用户用GLM当然不需要这么麻烦
+
+这么搞当然是为了在zcode上除了使用GLM以外，使用别的模型的用户数据 ...</blockquote>
+不止，还有使用其他agent的记录，翻出来什么codex claudecode整整齐齐
+
