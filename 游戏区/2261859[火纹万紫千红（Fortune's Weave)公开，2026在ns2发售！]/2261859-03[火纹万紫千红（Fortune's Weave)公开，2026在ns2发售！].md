@@ -14708,3 +14708,18 @@ is每作都骗人玩重甲 这次看来就是这个速决战模式
 
 上来先选了蕾达线，玩了几个小时感觉一直在看剧情，城镇探索对话这些。战棋内容稀薄，而且一上来系统也没解，即使是战斗也还没有什么养成调整的空间。节奏好慢<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，完全rpg化了
 
+
+*****
+
+####  whzfjd  
+##### 4251#       发表于 2026-9-19 05:50
+
+那些不是四主角跟班的主线角色剧情在四路线里是怎么组织的，有差分的共通过场还是四条线分别讲各自看到的切片？
+
+*****
+
+####  索非亚  
+##### 4252#       发表于 2026-9-19 05:51
+
+这作等级上限属性上限是多少？雷达转舞娘40级已经52速了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
