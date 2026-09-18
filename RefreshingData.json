@@ -546,7 +546,7 @@
     "lastedit": 1789746720,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2095306": {
     "totalreply": 1194,
@@ -12024,13 +12024,13 @@
     "update": false
   },
   "2261859": {
-    "totalreply": 4242,
+    "totalreply": 4243,
     "title": "[火纹万紫千红（Fortune's Weave)公开，2026在ns2发售！]",
     "newtitle": "[火纹万紫千红（Fortune's Weave)公开，2026.9.17在ns2发售！／8.4晚22点专场nd]",
-    "lastedit": 1789746900,
+    "lastedit": 1789747599,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2034248": {
     "totalreply": 441,
@@ -12102,7 +12102,7 @@
     "lastedit": 1789747260,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2263294": {
     "totalreply": 184,
@@ -14121,13 +14121,13 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 12909,
+    "totalreply": 12916,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1789747500,
+    "lastedit": 1789747860,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2288783": {
     "totalreply": 125,
@@ -14577,15 +14577,6 @@
     "lastedit": 1789746925,
     "category": "游戏区",
     "active": true,
-    "update": false
-  },
-  "1983651": {
-    "totalreply": 312,
-    "title": "[21.07『侦探已经，死了。 ／ 探偵はもう、死んでいる。』专楼]",
-    "newtitle": "[21.07『侦探已经，死了。 ／ 探偵はもう、死んでいる。』专楼]",
-    "lastedit": 1788538209,
-    "category": "漫区",
-    "active": false,
     "update": false
   },
   "2289234": {
@@ -16989,7 +16980,7 @@
     "lastedit": 1789747140,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2104476": {
     "totalreply": 106,
