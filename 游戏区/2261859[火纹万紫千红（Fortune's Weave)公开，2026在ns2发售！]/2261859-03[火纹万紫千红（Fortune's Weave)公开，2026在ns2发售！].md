@@ -14733,3 +14733,21 @@ is每作都骗人玩重甲 这次看来就是这个速决战模式
 
 蕾达升了4级全加在技速魅上了，还有救吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bad_alloc  
+##### 4254#       发表于 2026-9-19 07:15
+
+这固定随机成长这是个狗操的设计，a少13级就加了1点速度，感觉废了
+**出个engage那个累计成长有这么难吗傻逼is
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  新HGCG  
+##### 4255#       发表于 2026-9-19 07:17
+
+酒场任务的甜叶子哪里找？
+
