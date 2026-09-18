@@ -103,3 +103,13 @@ NS2版居然不是钥匙卡？</blockquote>
 
 剧情和手游一样吗
 
+
+*****
+
+####  superlink  
+##### 62#       发表于 2026-9-18 20:41
+
+剧情细节有点区别，虽说实体卡，但到手直接更新个大补丁也不知道是啥玩意
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
