@@ -14723,3 +14723,13 @@ is每作都骗人玩重甲 这次看来就是这个速决战模式
 
 这作等级上限属性上限是多少？雷达转舞娘40级已经52速了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哲学向黑子  
+##### 4253#       发表于 2026-9-19 06:52
+
+爬前面的楼说困难难度是固定随机加点，是不是可以理解为选了一条线后所有角色的加点都是固定的了，除了选第二条线再roll一次随机数外，转职战斗都没办法打乱随机数了吗
+
+蕾达升了4级全加在技速魅上了，还有救吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
