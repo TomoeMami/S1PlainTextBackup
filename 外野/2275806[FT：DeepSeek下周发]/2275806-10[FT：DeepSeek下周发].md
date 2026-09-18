@@ -10579,3 +10579,52 @@ dsh 0.1.6 alpha2更新，加了官方插件管理、子代理数量和层数控�
 
 我旁边同事用codex检查了一下，他的zcode也中招了。已经转发给部门负责人，他买了好多智谱的股票<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noneoneone  
+##### 14145#       发表于 2026-9-18 21:05
+
+ 本帖最后由 noneoneone 于 2026-9-18 21:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254676&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-9-18 20:43</a>
+
+千问可以搞 cad，可以做到什么程度啊
+
+—— 来自 HONOR PTP-AN70, Android 16, 鹅球 v3.5.99 ...</blockquote>
+是一些文字替换、打印的任务。之前的agent都是先转成dxf再搞。千问能调用AutoCAD 的 COM 接口，自己电脑上装了CAD就能执行脚本，具体能做到什么程度我还没试过。
+
+其实我有个想法，但只开了个头还没做：CAD图也是矢量图，可以转换成SVG，然后就是AI擅长的领域了，用AI能直接改图出图。
+
+*****
+
+####  nxmonitor  
+##### 14146#       发表于 2026-9-18 21:05
+
+这样我怀疑workbuddy也有问题，这东西也是莫名其妙的高占用
+
+
+*****
+
+####  真红之闪电  
+##### 14147#       发表于 2026-9-18 21:15
+
+智谱咋了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小野賢章  
+##### 14148#       发表于 2026-9-18 21:15
+
+[https://github.com/MiniMax-AI/minimax-code](https://github.com/MiniMax-AI/minimax-code)
+
+minimax code 也开源了，而且不是「近期开源」，牢唐的功劳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 14149#       发表于 2026-9-18 21:16
+
+zcode那个神秘封号机制之前都被爆出来过，如果尝试拦截zcode请求来改动zcode自带的系统提示词就会被智谱封号，经典A/作风<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

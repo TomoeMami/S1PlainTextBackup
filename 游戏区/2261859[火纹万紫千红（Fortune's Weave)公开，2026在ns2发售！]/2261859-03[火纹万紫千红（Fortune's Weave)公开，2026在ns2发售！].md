@@ -14284,3 +14284,45 @@ is每作都骗人玩重甲 这次看来就是这个速决战模式
 
 另外这作的锻造数值给的好慷慨啊
 
+
+*****
+
+####  Jabeck  
+##### 4230#       发表于 2026-9-18 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254417&amp;ptid=2261859" target="_blank">The_Fool_ 发表于 2026-9-18 06:31</a>
+
+有个很关键的问题，转职后还能穿角色初始的服装吗
+
+—— 来自 S1Fun</blockquote>
+可以，不过不知道是特定职业才可以还是无论哪个职业都可以。
+
+
+*****
+
+####  Jabeck  
+##### 4230#       发表于 2026-9-18 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70254417&amp;ptid=2261859" target="_blank">The_Fool_ 发表于 2026-9-18 06:31</a>
+
+有个很关键的问题，转职后还能穿角色初始的服装吗
+
+—— 来自 S1Fun</blockquote>
+可以，不过不知道是特定职业才可以还是无论哪个职业都可以。
+
+*****
+
+####  Aresu  
+##### 4231#       发表于 2026-9-18 21:16
+
+紫色的技能lv图标是啥意思 是弱项还是才能开花
+
+*****
+
+####  EdSheeran  
+##### 4232#       发表于 2026-9-18 21:17
+
+话说这次入坑打底要多少小时？我看普遍都需要150小时打底？有点犹豫<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
