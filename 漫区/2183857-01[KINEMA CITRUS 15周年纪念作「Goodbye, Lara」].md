@@ -626,3 +626,35 @@ Be like：拉拉：我忍了很久了，有没有人懂我被两边架在中间�
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">更变态的是小出还是叛忍，几原徒孙居然能搞出个自我放大导致主体空洞无力的主角，这复古复了个寂寞。
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 仔细一想最后一集大概率想搞自我献祭，那才真的是烂完了。
 
+
+*****
+
+####  Piano-Forest  
+##### 542#         楼主| 发表于 2026-9-18 22:27
+
+“本物のセル画”に挑む。小出卓史監督が語るTVアニメ『さよならララ』OPアナログパート制作の舞台裏
+[https://www.imagica-ems.co.jp/case-study/goodbyelara/](https://www.imagica-ems.co.jp/case-study/goodbyelara/)
+
+<img src="https://p.sda1.dev/35/f5587ed7872dc3b52c70f9f3c25944c0/HSf4fEYaYAAwvc3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/f850ebda90f79e4e3035a159b874ebf0/HSf5wstbgAAdZig.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/7180bc8ee5c6b30be6ab9ada7a2ace27/HSf-QS0bMAA_G04.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/koidetakushi/status/2100841201691984105](https://x.com/koidetakushi/status/2100841201691984105)
+<img src="https://p.sda1.dev/35/631dac9b6f0eb786d8906cb39b9ecef3/HSev72WaQAAcG4c.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 542#         楼主| 发表于 2026-9-18 22:27
+
+“本物のセル画”に挑む。小出卓史監督が語るTVアニメ『さよならララ』OPアナログパート制作の舞台裏
+[https://www.imagica-ems.co.jp/case-study/goodbyelara/](https://www.imagica-ems.co.jp/case-study/goodbyelara/)
+
+<img src="https://p.sda1.dev/35/f5587ed7872dc3b52c70f9f3c25944c0/HSf4fEYaYAAwvc3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/f850ebda90f79e4e3035a159b874ebf0/HSf5wstbgAAdZig.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/7180bc8ee5c6b30be6ab9ada7a2ace27/HSf-QS0bMAA_G04.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/koidetakushi/status/2100841201691984105](https://x.com/koidetakushi/status/2100841201691984105)
+<img src="https://p.sda1.dev/35/631dac9b6f0eb786d8906cb39b9ecef3/HSev72WaQAAcG4c.jpg" referrerpolicy="no-referrer">
+

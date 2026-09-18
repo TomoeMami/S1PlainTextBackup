@@ -10837,3 +10837,30 @@ Zcode会打包所有工作区的文件上传，无论是个人还是企业账户
 
 每次S1关门都有大新闻。。。
 
+
+*****
+
+####  misuzu0723  
+##### 14161#       发表于 2026-9-18 22:32
+
+之前都说 glm 强是因为有好的训练数据，难道这些优质的数据来源是。。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  misuzu0723  
+##### 14161#       发表于 2026-9-18 22:32
+
+之前都说 glm 强是因为有好的训练数据，难道这些优质的数据来源是。。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  cscbzcbz  
+##### 14162#       发表于 2026-9-18 22:34
+
+看来我当初的判断是对的，Z/的东西完全不碰<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
