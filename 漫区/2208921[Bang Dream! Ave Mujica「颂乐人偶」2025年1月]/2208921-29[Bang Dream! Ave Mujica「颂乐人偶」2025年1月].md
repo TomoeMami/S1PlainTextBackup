@@ -425,3 +425,15 @@
 
        [https://t.bilibili.com/1249029148184150036](https://t.bilibili.com/1249029148184150036)
 
+
+*****
+
+####  Licheus  
+##### 42030#       发表于 2026-9-19 20:56
+
+Bang Doll说是
+
+完全变成时代的眼泪了呀…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

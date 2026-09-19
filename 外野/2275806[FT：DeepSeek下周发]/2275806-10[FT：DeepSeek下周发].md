@@ -11032,3 +11032,25 @@ DeepSeek API 峰谷时间说明：调休上班的周末、中国法定节假日�
 看来明天梁子不上班 ...</blockquote>
 因为调休不开市，所以幻方就不上班，连带DeepSeek也不上班
 
+
+*****
+
+####  jamboo  
+##### 14170#       发表于 2026-9-19 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70252798&amp;ptid=2275806" target="_blank">体制 发表于 2026-9-17 17:36</a>
+
+harness有破甲插件
+
+—— 来自 鹅球 v4.0-alpha</blockquote>
+求详细，谢谢～
+
+*****
+
+####  绝地潜兵  
+##### 14171#       发表于 2026-9-19 21:01
+
+Z/卸载了，太恶心了
+
+不用它家的API和pan，但依然要求注册才能用，就非常可疑
+
