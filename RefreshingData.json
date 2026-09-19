@@ -6942,10 +6942,10 @@
     "totalreply": 9969,
     "title": "[怪物猎人新作mh wild正式公开！2025年发售]",
     "newtitle": "[怪物猎人荒野专楼／ns2版开发中，资料片凌越2027年发售]",
-    "lastedit": 1789739406,
+    "lastedit": 1789807500,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2163511": {
     "totalreply": 1142,
@@ -9021,10 +9021,10 @@
     "totalreply": 579,
     "title": "[新月姬格斗【MELTY BLOOD： TYPE LUMINA】讨论（已变FGO格斗）]",
     "newtitle": "[新月姬格斗【MELTY BLOOD： TYPE LUMINA】讨论（已变FGO格斗）]",
-    "lastedit": 1789454648,
+    "lastedit": 1789808040,
     "category": "游戏区",
-    "active": false,
-    "update": false
+    "active": true,
+    "update": true
   },
   "2168085": {
     "totalreply": 1037,
@@ -12024,10 +12024,10 @@
     "update": false
   },
   "2261859": {
-    "totalreply": 4262,
+    "totalreply": 4263,
     "title": "[火纹万紫千红（Fortune's Weave)公开，2026在ns2发售！]",
     "newtitle": "[火纹万紫千红（Fortune's Weave)公开，2026.9.17在ns2发售！／8.4晚22点专场nd]",
-    "lastedit": 1789805193,
+    "lastedit": 1789807967,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13899,7 +13899,7 @@
     "totalreply": 136,
     "title": "[真.少女调教，莱莎AI已被玩坏]",
     "newtitle": "[真.少女调教系列，最新消息下一个是苏菲]",
-    "lastedit": 1789807454,
+    "lastedit": 1789807265,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14094,13 +14094,13 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 13056,
+    "totalreply": 13063,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1789807260,
+    "lastedit": 1789807980,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2288783": {
     "totalreply": 125,
@@ -16376,7 +16376,7 @@
     "newtitle": "[几月后再次大裁员：ign的未来从未如此黯淡]",
     "lastedit": 1789548737,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2276324": {
@@ -16403,7 +16403,7 @@
     "newtitle": "[漆原智志新画集-GLOSS & SHADOW-]",
     "lastedit": 1789548374,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289586": {
@@ -16572,7 +16572,7 @@
     "totalreply": 151,
     "title": "[小萨勒曼前几年还和将军竞选最强80后，一副中兴之主的样子，最近怎么变成牢字辈了]",
     "newtitle": "[小萨勒曼前几年还和将军竞选最强80后，一副中兴之主的样子，最近怎么变成牢字辈了]",
-    "lastedit": 1789807456,
+    "lastedit": 1789806870,
     "category": "外野",
     "active": true,
     "update": false
@@ -16821,10 +16821,10 @@
     "update": false
   },
   "2290019": {
-    "totalreply": 64,
+    "totalreply": 69,
     "title": "[现在的人连三十帧也接受不了了吗？]",
     "newtitle": "[现在的人连三十帧也接受不了了吗？]",
-    "lastedit": 1789806900,
+    "lastedit": 1789807573,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16855,5 +16855,14 @@
     "category": "漫区",
     "active": true,
     "update": false
+  },
+  "2283409": {
+    "totalreply": 0,
+    "title": "[【论坛安卓客户端】鹅球／Next Goose 4.0【时隔一年，正式版也更了】]",
+    "newtitle": "[【论坛安卓客户端】鹅球／Next Goose 4.0【时隔一年，正式版也更了】]",
+    "lastedit": 1789807320,
+    "category": "外野",
+    "active": true,
+    "update": true
   }
 }
