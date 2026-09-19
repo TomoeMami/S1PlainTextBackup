@@ -11111,3 +11111,11 @@ emm.虽然雷达站横向比较就是图一乐吧...
 
 DSH新版本的奶龙开会模式（agent team）一句话生成效果确实不错，就是挺烧钱的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novem  
+##### 14177#       发表于 2026-9-19 22:06
+
+S1真的太卡了，LLM毁了S1啊
+
