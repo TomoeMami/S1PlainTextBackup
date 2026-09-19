@@ -11180,3 +11180,14 @@ S1真的太卡了，LLM毁了S1啊
 —— 来自 鹅球 v4.0-alpha</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">怎么做到的，还能这样
 
+
+*****
+
+####  zhanglei1943  
+##### 14181#       发表于 2026-9-20 02:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70255697&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-9-19 16:08</a>
+
+在无人在意的角落，阿里的qoder开始了签到领积分</blockquote>
+qoder用不了一点
+
