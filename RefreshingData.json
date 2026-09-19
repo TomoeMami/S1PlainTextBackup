@@ -6939,13 +6939,13 @@
     "update": false
   },
   "2163356": {
-    "totalreply": 9969,
+    "totalreply": 9970,
     "title": "[怪物猎人新作mh wild正式公开！2025年发售]",
     "newtitle": "[怪物猎人荒野专楼／ns2版开发中，资料片凌越2027年发售]",
-    "lastedit": 1789807500,
+    "lastedit": 1789808299,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2163511": {
     "totalreply": 1142,
@@ -9018,13 +9018,13 @@
     "update": false
   },
   "2026924": {
-    "totalreply": 579,
+    "totalreply": 580,
     "title": "[新月姬格斗【MELTY BLOOD： TYPE LUMINA】讨论（已变FGO格斗）]",
     "newtitle": "[新月姬格斗【MELTY BLOOD： TYPE LUMINA】讨论（已变FGO格斗）]",
-    "lastedit": 1789808040,
+    "lastedit": 1789808298,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2168085": {
     "totalreply": 1037,
@@ -14094,13 +14094,13 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 13063,
+    "totalreply": 13068,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1789807980,
+    "lastedit": 1789808400,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2288783": {
     "totalreply": 125,
@@ -15618,7 +15618,7 @@
     "totalreply": 275,
     "title": "[《魔兽世界：永恒》讨论帖，2026年11月5日发售]",
     "newtitle": "[《魔兽世界：永恒》讨论帖，2026年11月5日发售]",
-    "lastedit": 1789738813,
+    "lastedit": 1789808160,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16358,7 +16358,7 @@
     "newtitle": "[在古代朝鲜人看来，清朝有多富裕？（不是吹清）]",
     "lastedit": 1789549088,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2258779": {
@@ -16857,12 +16857,21 @@
     "update": false
   },
   "2283409": {
-    "totalreply": 0,
+    "totalreply": 75,
     "title": "[【论坛安卓客户端】鹅球／Next Goose 4.0【时隔一年，正式版也更了】]",
     "newtitle": "[【论坛安卓客户端】鹅球／Next Goose 4.0【时隔一年，正式版也更了】]",
-    "lastedit": 1789807320,
+    "lastedit": 1789808852,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
+  },
+  "2205439": {
+    "totalreply": 91,
+    "title": "[在贴吧看到月厨的一种说法：蘑菇更爱月姬，所以写得慢]",
+    "newtitle": "[在贴吧看到月厨的一种说法：蘑菇更爱月姬，所以写得慢]",
+    "lastedit": 1789808661,
+    "category": "漫区",
+    "active": true,
+    "update": false
   }
 }
