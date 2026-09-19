@@ -1011,3 +1011,35 @@ MC现在下到83了
 
 这游戏刚公布的时候我就觉得这个战斗会是个问题，第一眼视觉像DMC，但多看点具体演示会发现根本不是那回事儿，remedy本身也是没有近战系统功底的，做这种战斗还是问题很大的，走枪战配合体术最合适
 
+
+*****
+
+####  Leona_Akari  
+##### 107#       发表于 2026-9-19 17:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么多作remedy玩下来了，对他的战斗但凡有一点期待我觉得是你的问题
+
+
+*****
+
+####  Leona_Akari  
+##### 107#       发表于 2026-9-19 17:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么多作remedy玩下来了，对他的战斗但凡有一点期待我觉得是你的问题
+
+
+*****
+
+####  Leona_Akari  
+##### 107#       发表于 2026-9-19 17:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么多作remedy玩下来了，对他的战斗但凡有一点期待我觉得是你的问题
+
+
+*****
+
+####  Leona_Akari  
+##### 107#       发表于 2026-9-19 17:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么多作remedy玩下来了，对他的战斗但凡有一点期待我觉得是你的问题
+
