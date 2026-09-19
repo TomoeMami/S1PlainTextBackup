@@ -11119,3 +11119,27 @@ DSH新版本的奶龙开会模式（agent team）一句话生成效果确实不�
 
 S1真的太卡了，LLM毁了S1啊
 
+
+*****
+
+####  体制  
+##### 14178#       发表于 2026-9-19 22:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70256549&amp;ptid=2275806" target="_blank">jamboo 发表于 2026-9-19 21:01</a>
+求详细，谢谢～</blockquote>
+额，是harness自己告诉我的，然后自己装的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  体制  
+##### 14178#       发表于 2026-9-19 22:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70256549&amp;ptid=2275806" target="_blank">jamboo 发表于 2026-9-19 21:01</a>
+求详细，谢谢～</blockquote>
+额，是harness自己告诉我的，然后自己装的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

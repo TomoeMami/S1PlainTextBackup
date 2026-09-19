@@ -15533,3 +15533,79 @@ if三星的加点模式，随机，但是乱数都是提早生成好了，没有
 在逛街或者速战地图上转视角好恶心啊，特别晕，我把摇杆敏感度调低了还是晕，有什么招可以支一下吗，视角太 ...</blockquote>
 我的经验是盯着小地图跑。包有效。
 
+
+*****
+
+####  真田源次郎信繁  
+##### 4311#       发表于 2026-9-19 22:42
+
+凯伊线遇到一个人就疯狂吐槽小孩哥队，结果凯伊从小练也就罢了，俩朋友真就典型的路边小孩哥一条，然后上战场能打的有来有回，有点难绷
+
+*****
+
+####  bwsusaga  
+##### 4312#       发表于 2026-9-19 22:42
+
+男主比贝老师丑怎么办，莫名的婴儿肥<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">，
+
+但选女主又要面临从大堆丑男里挑配对，啊好纠节<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，三房里至少女贝还能吃定红秋裤。
+
+所以倒底这倒有婚配系统么？
+
+*****
+
+####  bwsusaga  
+##### 4313#       发表于 2026-9-19 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70256394&amp;ptid=2261859" target="_blank">reficul 发表于 2026-9-19 20:37</a>
+
+在逛街或者速战地图上转视角好恶心啊，特别晕，我把摇杆敏感度调低了还是晕，有什么招可以支一下吗，视角太 ...</blockquote>
+我的经验是盯着小地图跑。包有效。
+
+*****
+
+####  kalavinka  
+##### 4314#       发表于 2026-9-19 22:50
+
+声望要求7，8往上的，挖回来基本也是半个残废了，感觉是根据初始成长算能力值的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  真田源次郎信繁  
+##### 4311#       发表于 2026-9-19 22:42
+
+凯伊线遇到一个人就疯狂吐槽小孩哥队，结果凯伊从小练也就罢了，俩朋友真就典型的路边小孩哥一条，然后上战场能打的有来有回，有点难绷
+
+*****
+
+####  bwsusaga  
+##### 4312#       发表于 2026-9-19 22:42
+
+男主比贝老师丑怎么办，莫名的婴儿肥<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">，
+
+但选女主又要面临从大堆丑男里挑配对，啊好纠节<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，三房里至少女贝还能吃定红秋裤。
+
+所以倒底这倒有婚配系统么？
+
+*****
+
+####  bwsusaga  
+##### 4313#       发表于 2026-9-19 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70256394&amp;ptid=2261859" target="_blank">reficul 发表于 2026-9-19 20:37</a>
+
+在逛街或者速战地图上转视角好恶心啊，特别晕，我把摇杆敏感度调低了还是晕，有什么招可以支一下吗，视角太 ...</blockquote>
+我的经验是盯着小地图跑。包有效。
+
+*****
+
+####  kalavinka  
+##### 4314#       发表于 2026-9-19 22:50
+
+声望要求7，8往上的，挖回来基本也是半个残废了，感觉是根据初始成长算能力值的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
