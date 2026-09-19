@@ -5091,7 +5091,7 @@
     "lastedit": 1789829100,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1025935": {
     "totalreply": 2152,
@@ -11337,7 +11337,7 @@
     "lastedit": 1789829100,
     "category": "手游战斗",
     "active": true,
-    "update": true
+    "update": false
   },
   "1857542": {
     "totalreply": 989,
@@ -12030,7 +12030,7 @@
     "lastedit": 1789828920,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2034248": {
     "totalreply": 441,
@@ -12945,7 +12945,7 @@
     "totalreply": 14177,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[DeepSeek V4.1 Flash：更强、更快、更普惠 ｜ 大模型讨论专楼]",
-    "lastedit": 1789827134,
+    "lastedit": 1789829220,
     "category": "外野",
     "active": true,
     "update": false
@@ -13083,7 +13083,7 @@
     "lastedit": 1789828980,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1992785": {
     "totalreply": 447,
@@ -14070,10 +14070,10 @@
     "totalreply": 13410,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1789828980,
+    "lastedit": 1789829280,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2288783": {
     "totalreply": 125,
@@ -16133,7 +16133,7 @@
     "newtitle": "[最割裂感的一集]",
     "lastedit": 1789569971,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289852": {
@@ -16313,7 +16313,7 @@
     "newtitle": "[Falcom 45周年纪念作《屠龙剑 ／ Dragon Slayer》]",
     "lastedit": 1789570453,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289850": {
@@ -16755,7 +16755,7 @@
     "lastedit": 1789828800,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2104476": {
     "totalreply": 109,
