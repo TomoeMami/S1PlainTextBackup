@@ -10928,3 +10928,107 @@ step5 咋样？评分是接近 k3，但是看了几个 svg 和oneshot 感觉和 
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  misuzu0723  
+##### 14165#       发表于 2026-9-19 18:27
+
+step5 咋样？评分是接近 k3，但是看了几个 svg 和oneshot 感觉和 0731 差不多（虽然这些测试意义也不大）
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  nxmonitor  
+##### 14166#       发表于 2026-9-19 18:31
+
+AA榜现在是个纯野榜了，要么刷分要么塞钱
+
+*****
+
+####  cscbzcbz  
+##### 14167#       发表于 2026-9-19 18:36
+
+DeepSeek API 峰谷时间说明：调休上班的周末、中国法定节假日全天均按空闲时段计费 。
+
+看来明天梁子不上班<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  misuzu0723  
+##### 14165#       发表于 2026-9-19 18:27
+
+step5 咋样？评分是接近 k3，但是看了几个 svg 和oneshot 感觉和 0731 差不多（虽然这些测试意义也不大）
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  nxmonitor  
+##### 14166#       发表于 2026-9-19 18:31
+
+AA榜现在是个纯野榜了，要么刷分要么塞钱
+
+*****
+
+####  cscbzcbz  
+##### 14167#       发表于 2026-9-19 18:36
+
+DeepSeek API 峰谷时间说明：调休上班的周末、中国法定节假日全天均按空闲时段计费 。
+
+看来明天梁子不上班<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 14168#       发表于 2026-9-19 18:40
+
+然而 kimi 3.1 开始预热了
+
+
+*****
+
+####  misuzu0723  
+##### 14165#       发表于 2026-9-19 18:27
+
+step5 咋样？评分是接近 k3，但是看了几个 svg 和oneshot 感觉和 0731 差不多（虽然这些测试意义也不大）
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  nxmonitor  
+##### 14166#       发表于 2026-9-19 18:31
+
+AA榜现在是个纯野榜了，要么刷分要么塞钱
+
+*****
+
+####  cscbzcbz  
+##### 14167#       发表于 2026-9-19 18:36
+
+DeepSeek API 峰谷时间说明：调休上班的周末、中国法定节假日全天均按空闲时段计费 。
+
+看来明天梁子不上班<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 14168#       发表于 2026-9-19 18:40
+
+然而 kimi 3.1 开始预热了
+
+*****
+
+####  nxmonitor  
+##### 14169#       发表于 2026-9-19 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70255914&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-19 18:36</a>
+
+DeepSeek API 峰谷时间说明：调休上班的周末、中国法定节假日全天均按空闲时段计费 。
+
+看来明天梁子不上班 ...</blockquote>
+因为调休不开市，所以幻方就不上班，连带DeepSeek也不上班
+

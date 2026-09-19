@@ -1043,3 +1043,15 @@ MC现在下到83了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么多作remedy玩下来了，对他的战斗但凡有一点期待我觉得是你的问题
 
+
+*****
+
+####  沙里昂  
+##### 108#       发表于 2026-9-19 18:46
+
+我真的希望这一作多讲讲世界观和地图而不是战斗……
+
+2 的宣传一直围绕那个无聊的近战做宣传也不知道为啥
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
