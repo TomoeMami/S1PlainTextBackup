@@ -11167,3 +11167,16 @@ S1真的太卡了，LLM毁了S1啊
 —— 来自 鹅球 v4.0-alpha</blockquote>
 额…这属于自宫啊<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  流浪的翅膀  
+##### 14180#       发表于 2026-9-20 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257059&amp;ptid=2275806" target="_blank">体制 发表于 2026-9-19 22:47</a>
+
+额，是harness自己告诉我的，然后自己装的
+
+—— 来自 鹅球 v4.0-alpha</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">怎么做到的，还能这样
+

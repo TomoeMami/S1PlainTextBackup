@@ -15846,3 +15846,14 @@ bro知道答案了请告我一声
 
 女王线第六章冥府兵好硬，队友都倒了剩女王一个人无双
 
+
+*****
+
+####  ParukiaMKII  
+##### 4325#       发表于 2026-9-20 00:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257338&amp;ptid=2261859" target="_blank">Pettabuz 发表于 2026-9-20 00:30</a>
+
+请问这作应该怎么练级？中间自由活动在野外没遇到太多战斗，到下一场打不过了。。 ...</blockquote>
+带着重甲下洞，高你个3-4级的矿洞靠重甲抗住慢慢磨血然后给人捡人头，练级还是很快，我现在主线敌人27，我主力都33了
+
