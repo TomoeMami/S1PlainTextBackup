@@ -16144,3 +16144,13 @@ bro知道答案了请告我一声
 
 这作凹加点可以更变职业莱凹
 
+
+*****
+
+####  thecatnie  
+##### 4350#       发表于 2026-9-20 06:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257669&amp;ptid=2261859" target="_blank">asikies 发表于 2026-9-20 03:45</a>
+我不介意流程不完整，但是强制玩男角色也太恶心了，已经不想通关了。</blockquote>
+那就等别人玩完了去B站找真结局视频看    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
