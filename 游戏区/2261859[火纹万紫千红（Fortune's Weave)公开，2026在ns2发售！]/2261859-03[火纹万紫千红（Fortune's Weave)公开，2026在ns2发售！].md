@@ -15756,3 +15756,48 @@ bro知道答案了请告我一声<img src="https://static.stage1st.com/image/smi
 
 什么时候火纹的特色之一随机加点变成畜生设定了？这样真的只能说别在一棵树上撞死玩别的吧
 
+
+*****
+
+####  bwsusaga  
+##### 4322#       发表于 2026-9-20 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257214&amp;ptid=2261859" target="_blank">Booorunestud 发表于 2026-9-19 23:47</a>
+
+bro知道答案了请告我一声
+
+不敢上社区问怕剧透</blockquote>
+转了一圈，有S支援，但貌似并非婚或恋爱，纯友情？
+
+顺便说下看了五年后头像，感觉完爆三房整体颜值。
+
+
+*****
+
+####  bwsusaga  
+##### 4322#       发表于 2026-9-20 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257214&amp;ptid=2261859" target="_blank">Booorunestud 发表于 2026-9-19 23:47</a>
+
+bro知道答案了请告我一声
+
+不敢上社区问怕剧透</blockquote>
+转了一圈，有S支援，但貌似并非婚或恋爱，纯友情？
+
+顺便说下看了五年后头像，感觉完爆三房整体颜值。
+
+
+*****
+
+####  bwsusaga  
+##### 4322#       发表于 2026-9-20 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257214&amp;ptid=2261859" target="_blank">Booorunestud 发表于 2026-9-19 23:47</a>
+
+bro知道答案了请告我一声
+
+不敢上社区问怕剧透</blockquote>
+转了一圈，有S支援，但貌似并非婚或恋爱，纯友情？
+
+顺便说下看了五年后头像，感觉完爆三房整体颜值。
+
