@@ -15256,3 +15256,70 @@ if三星的加点模式，随机，但是乱数都是提早生成好了，没有
 果然IS还是选了风花雪月的路线 ...</blockquote>
 但这次塞得实在太多了，一条线到底都是一部正常作品了，塞三条线，等于三部大型dlc
 
+
+*****
+
+####  u2deack  
+##### 4290#       发表于 2026-9-19 21:06
+
+是每个角色在不同线的挖角要求不一样么，不知道那些89声望的要什么时候才能入队，能挖的时候应该也很后期了吧
+
+*****
+
+####  cox  
+##### 4291#       发表于 2026-9-19 21:09
+
+这个大地图还好是继承的，虽然每个人有不同玩法但感觉还是太墨迹了。人物羁绊感觉有些写的很好，有些一眼凑数，大概是真没人手了。
+
+
+*****
+
+####  kalavinka  
+##### 4292#       发表于 2026-9-19 21:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70256586&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-9-19 21:06</a>
+是每个角色在不同线的挖角要求不一样么，不知道那些89声望的要什么时候才能入队，能挖的时候应该也很后期了 ...</blockquote>
+支线都做的话每章都能升一级声望
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Bani82  
+##### 4293#       发表于 2026-9-19 21:11
+
+雷达一直攻击计量表超频后会扣血量上限，所以正确的玩法是适当的时候弹弹琴消耗掉那个冥府的计量？
+
+*****
+
+####  流连成双  
+##### 4294#       发表于 2026-9-19 21:11
+
+<blockquote>winder0707 发表于 2026-9-19 20:59
+但这次塞得实在太多了，一条线到底都是一部正常作品了，塞三条线，等于三部大型dlc ...</blockquote>
+总比拆成四个版本让你买四份才能吃到完整游戏、然后几年后出包含全线内容的“典藏版”强吧（。
+
+*****
+
+####  Bruce33  
+##### 4295#       发表于 2026-9-19 21:13
+
+今天卡带到了爽玩这画面比风花雪月进步太多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kalavinka  
+##### 4296#       发表于 2026-9-19 21:15
+
+有角色想转天马的话还是先转土匪凹点力量吧，不然十几力法师都抠不动<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/19/211234t6d719n5k9x9cnx1.jpg" referrerpolicy="no-referrer">
+
+<strong>img_2695.jpg</strong> (973.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-19 21:12 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
