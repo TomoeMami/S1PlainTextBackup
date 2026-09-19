@@ -11213,3 +11213,28 @@ gemini也攻击了别人的网站
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  mitzvah  
+##### 14184#       发表于 2026-9-20 06:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257759&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-20 06:41</a>
+
+gemini也攻击了别人的网站
+
+现在人人有份了</blockquote>
+消费级硬件能部署的27b都够了
+
+这玩意最强的应该是dsv4.1，网络攻击应该是最适合子代理并行的任务了，验证标准稳定，那能力过关就是并行子代理越多越快就越强
+
+4.1的速度与成本效益跑这个现阶段应该是无敌的
+
+
+*****
+
+####  mitzvah  
+##### 14185#       发表于 2026-9-20 06:53
+
+对于老游戏老网站的破解，现在消费级电脑上部署的模型都没有问题，什么汉化补丁现在都可以自制了，真是好时代啊
+
