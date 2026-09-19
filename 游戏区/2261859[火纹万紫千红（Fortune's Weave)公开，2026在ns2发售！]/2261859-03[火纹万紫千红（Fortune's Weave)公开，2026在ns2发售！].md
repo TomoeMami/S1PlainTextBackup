@@ -15093,3 +15093,11 @@ if三星的加点模式，随机，但是乱数都是提早生成好了，没有
 
 按这个设计超难模式要怎么出？怕不是刚需4线通关才能打第三幕<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zwqcm  
+##### 4274#       发表于 2026-9-19 19:13
+
+别的不说，这第一章主线的战斗bgm是有点劲的，还融了经典的系列BGM
+
