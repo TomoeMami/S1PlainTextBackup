@@ -11063,3 +11063,51 @@ Z/卸载了，太恶心了
 完整的无重置一周过去，再次见到astra没有任何神的样子，感觉还有点流口水。
 为了解决一个问题，上周花了50%周额度(pro20x)，今天已经花了25%依然毫无进展，💩上雕花。不禁有些绝望……
 
+
+*****
+
+####  andychen  
+##### 14173#       发表于 2026-9-19 21:31
+
+新的玩具出现了:Jev，可以理解为带语义理解能力的分类/条件判断模型。时间开销在毫秒级，服务成本极低
+
+Hacker News讨论贴:[https://news.ycombinator.com/item?id=49717558](https://news.ycombinator.com/item?id=49717558)
+
+*****
+
+####  andychen  
+##### 14174#       发表于 2026-9-19 21:33
+
+智谱果然是Anthropic中国分身，各方面都太像了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  phorcys02  
+##### 14175#       发表于 2026-9-19 21:33
+
+emm.虽然雷达站横向比较就是图一乐吧...
+
+<img src="https://img.stage1st.com/forum/202609/19/213249h1h3r8u2c3ccc2o2.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (146.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-19 21:32 上传
+
+<img src="https://img.stage1st.com/forum/202609/19/213341ca3rstqz0ncslnll.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (297.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-19 21:33 上传
+
+
+*****
+
+####  cscbzcbz  
+##### 14176#       发表于 2026-9-19 21:36
+
+DSH新版本的奶龙开会模式（agent team）一句话生成效果确实不错，就是挺烧钱的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
