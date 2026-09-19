@@ -11191,3 +11191,13 @@ S1真的太卡了，LLM毁了S1啊
 在无人在意的角落，阿里的qoder开始了签到领积分</blockquote>
 qoder用不了一点
 
+
+*****
+
+####  qwased  
+##### 14182#       发表于 2026-9-20 02:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257518&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-9-20 02:05</a>
+qoder用不了一点</blockquote>
+qoder里面的qwen3.8f非常强悍，现在还不要钱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这鸡蛋还是可以吃一下的
+
