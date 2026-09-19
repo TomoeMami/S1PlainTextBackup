@@ -15730,3 +15730,29 @@ if三星的加点模式，随机，但是乱数都是提早生成好了，没有
 还在2月报名前，已经感觉大地图很浪费时间了，以后要买考试证或者武器的话还得在地图上消耗回合数去买吗。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉必须靠重开本章继承好感度的bug来刷支援，礼物和吃饭的钱以及回合可以全省了，挂在旅馆吃完饭就推进到下一周继续吃
 
+
+*****
+
+####  Booorunestud  
+##### 4320#       发表于 2026-9-19 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257043&amp;ptid=2261859" target="_blank">bwsusaga 发表于 2026-9-19 22:42</a>
+男主比贝老师丑怎么办，莫名的婴儿肥，
+
+但选女主又要面临从大堆丑男里挑配对，啊好纠节，三房里至少女贝还 ...</blockquote>
+bro知道答案了请告我一声<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不敢上社区问怕剧透
+
+
+*****
+
+####  winder0707  
+##### 4321#       发表于 2026-9-19 23:48
+
+<blockquote>The_Fool_ 发表于 2026-9-19 22:22
+我在想啊，既然万紫千红的角色升级养成是IF 暗夜3星的固定乱数表+四线分别养最后合并取最大值，那会不会以 ...</blockquote>
+
+通关后就可以选固定增长了啊。
+
+什么时候火纹的特色之一随机加点变成畜生设定了？这样真的只能说别在一棵树上撞死玩别的吧
+
