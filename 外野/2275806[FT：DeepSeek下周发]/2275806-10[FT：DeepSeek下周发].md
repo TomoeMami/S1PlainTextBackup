@@ -11201,3 +11201,15 @@ qoder用不了一点
 qoder用不了一点</blockquote>
 qoder里面的qwen3.8f非常强悍，现在还不要钱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这鸡蛋还是可以吃一下的
 
+
+*****
+
+####  lactone  
+##### 14183#       发表于 2026-9-20 06:41
+
+gemini也攻击了别人的网站
+
+现在人人有份了<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
