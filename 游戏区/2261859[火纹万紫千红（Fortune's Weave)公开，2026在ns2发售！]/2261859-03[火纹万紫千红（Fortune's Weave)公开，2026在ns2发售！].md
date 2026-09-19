@@ -15450,3 +15450,16 @@ if三星的加点模式，随机，但是乱数都是提早生成好了，没有
 
 —— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  风祭果凛  
+##### 4306#       发表于 2026-9-19 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70256827&amp;ptid=2261859" target="_blank">winder0707 发表于 2026-9-19 21:45</a>
+
+第一章四个角色主线不同啊，第二章女王和凯伊是在一起，其他两个应该是另外在一起的，麻烦打完其他线再说 ...</blockquote>
+不，说的另一个主角是4个被砍的之一，是谁我就不说了，虽然玩了女王线也猜得到。
+
+以及我不是在说整体故事好坏如何，而是体验本身，不好就是不好，不会因为未来打完另外三条线而变好
+
