@@ -15473,3 +15473,25 @@ if三星的加点模式，随机，但是乱数都是提早生成好了，没有
 
 当然以上只是我这个云玩家观察社区后的的YY，IS要是真的这么畜生在超难还不给累加式固定成长那我只能说还好没急着预购了
 
+
+*****
+
+####  skyfall_tr  
+##### 4308#       发表于 2026-9-19 22:31
+
+那些重复有没有能简化的，每周一堆代办还是太麻烦了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cox  
+##### 4309#       发表于 2026-9-19 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70256864&amp;ptid=2261859" target="_blank">风祭果凛 发表于 2026-9-19 21:56</a>
+
+不，说的另一个主角是4个被砍的之一，是谁我就不说了，虽然玩了女王线也猜得到。
+
+以及我不是在说整体故事 ...</blockquote>
+被砍的四个人白发鬼第二部还有点塑造，剩下三个感觉都没戏份，我都怀疑IS铁了心要卖DLC，不然不至于这么没有存在感。
+
