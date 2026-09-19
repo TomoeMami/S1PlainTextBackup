@@ -16162,3 +16162,13 @@ bro知道答案了请告我一声
 
 这个声望8～10才能开放招募的角色真的还有练的比较吗<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这谁设计的
 
+
+*****
+
+####  JOJOROY  
+##### 4352#       发表于 2026-9-20 07:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257707&amp;ptid=2261859" target="_blank">Bani82 发表于 2026-9-20 04:35</a>
+雷达一直就算不弹琴也经常爆表扣血这个怎么解？</blockquote>
+看用的武器是不是紫色的
+
