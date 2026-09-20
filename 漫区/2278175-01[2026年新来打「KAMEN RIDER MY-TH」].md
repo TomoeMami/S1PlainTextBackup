@@ -406,3 +406,11 @@ ea好像是要有新剧场版吧 我看色佬说
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虎大哥感觉头顶死兆星在闪耀啊，活的过圣诞么
 
+
+*****
+
+####  恶意之刃  
+##### 174#       发表于 2026-9-20 16:53
+
+组织还有下级杂兵定位，居然也是100年前的人，组织的保鲜技术太有实力辣
+
