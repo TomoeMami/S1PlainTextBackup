@@ -924,3 +924,15 @@ ns2只有钥匙卡，ns1实体卡，ns1不支持升级ns2。就连美版ns2版�
 还是拿了素材重做的？</blockquote>
 答案是两者皆有，就DEMO的内容来讲，有些是新CG，极限技倒是大多复用的手游里的，比较惊艳的主要是HD2D目前最高质量的演出效果（这个是全新的东西，包括探索的地图也是重置的）。
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 288#       发表于 2026-9-21 06:57
+
+FF16的教训仍历历在目
+
+SE游戏请警惕Demo欺诈<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+(不过今年发售的艾略特从这一点来说挽回了一点点印象)
+
