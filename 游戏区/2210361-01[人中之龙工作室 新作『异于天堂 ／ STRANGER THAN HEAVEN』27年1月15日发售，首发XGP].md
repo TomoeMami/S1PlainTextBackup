@@ -91,3 +91,11 @@
 
 【《STRANGER THAN HEAVEN》×《无仁义之战》联动正式公布】 [https://www.bilibili.com/video/B ... d2e26c904fdb10cc54f](https://www.bilibili.com/video/BV1UMeF6iEYm/?share_source=copy_web&amp;vd_source=ef2a855a9e8fad2e26c904fdb10cc54f)
 
+
+*****
+
+####  byisme001  
+##### 288#       发表于 2026-9-20 15:52
+
+<img src="https://p.sda1.dev/35/b68d8d9bc1d95366a8b957ad1e2b8157/image.jpg" referrerpolicy="no-referrer">
+
