@@ -17133,3 +17133,33 @@ bro知道答案了请告我一声
 你可以想象成旷野之息，四英杰死在四神兽里面，你会不会只救米法不救力巴尔 ...</blockquote>
 塞尔达光是男性主人公这点我就玩不下去啊……
 
+
+*****
+
+####  嘲风  
+##### 4426#       发表于 2026-9-20 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259375&amp;ptid=2261859" target="_blank">空气先生 发表于 2026-9-20 11:41</a>
+
+https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?u=e1aebaebf97d44e4a668f312ed1793bc&amp;nlc=1&amp;tab=BB08J2</blockquote>
+这里动不动声望7第四章可以挖角，怎么做到的？
+
+
+*****
+
+####  asikies  
+##### 4427#       发表于 2026-9-20 13:35
+
+<blockquote>嘲风 发表于 2026-9-20 13:27
+这里动不动声望7第四章可以挖角，怎么做到的？</blockquote>
+你是不是没做物资任务？
+
+*****
+
+####  空气先生  
+##### 4428#       发表于 2026-9-20 13:35
+
+<blockquote>嘲风 发表于 2026-9-20 13:27
+这里动不动声望7第四章可以挖角，怎么做到的？</blockquote>
+意思是第四章进斗技场人物出现，可以送礼啥的
+
