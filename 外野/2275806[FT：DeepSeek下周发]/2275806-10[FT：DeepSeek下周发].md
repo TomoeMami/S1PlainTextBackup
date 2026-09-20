@@ -11382,3 +11382,24 @@ Hac ...</blockquote>
 sd只是某种程度上做了点导演和摄像的工作，但是完全谈不上剪辑啊…看片总不能不看情绪吧？不是镜头组接就是 ...</blockquote>
 想知道自动剪辑有没有好选择，这块是不是字节闭环了，剪映啥的，没开vip一直不知道它的上限
 
+
+*****
+
+####  真红之闪电  
+##### 14199#       发表于 2026-9-20 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259749&amp;ptid=2275806" target="_blank">尼曼兔 发表于 2026-9-20 12:58</a>
+想知道自动剪辑有没有好选择，这块是不是字节闭环了，剪映啥的，没开vip一直不知道它的上限 ...</blockquote>
+不要想，达芬奇最新版开了 MCP，你可以看下官方怎么描述的 AI能做什么。另外，不要期望速度。
+当然，要看节目形态。
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lowezack  
+##### 14200#       发表于 2026-9-20 13:08
+
+有人发现kimi k3这个模型出问题了吗？调用read tool死活不会传offset这个参数了，我在自己的harness上发现了，又用了官方的kimi cli，也是一样的
+
+换成kimi 2.8就不会有这个问题
+
