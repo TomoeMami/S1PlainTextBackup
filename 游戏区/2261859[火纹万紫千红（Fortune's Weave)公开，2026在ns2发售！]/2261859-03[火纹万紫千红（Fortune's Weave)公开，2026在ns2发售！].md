@@ -16320,3 +16320,37 @@ bro知道答案了请告我一声
 这个声望8～10才能开放招募的角色真的还有练的比较吗这谁设计的</blockquote>
 每条线不同角色的声望解锁等级要求不一样，其实就是让不同线挖不同角色来玩
 
+
+*****
+
+####  松狮酱  
+##### 4368#       发表于 2026-9-20 09:31
+
+难绷，小孩哥是什么魅魔体质，是个女的就可以勾上啊？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">  眼镜娘一副天天被牛的样子
+
+*****
+
+####  空气先生  
+##### 4369#       发表于 2026-9-20 09:33
+
+<img src="https://img.stage1st.com/forum/202609/20/093327yurru2zkru4zm0k4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-20 09:33 上传
+
+这种四条线最低声望要求8的就玩吧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liliguo1  
+##### 4370#       发表于 2026-9-20 09:34
+
+<blockquote>松狮酱 发表于 2026-9-20 09:31
+难绷，小孩哥是什么魅魔体质，是个女的就可以勾上啊？  眼镜娘一副天天被牛的样子 ...</blockquote>
+小孩哥线一直给我一种小孩开大车的既视感
+
+见到一个漂亮女的就叫姐姐
+

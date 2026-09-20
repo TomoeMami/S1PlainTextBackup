@@ -348,3 +348,14 @@ B站上有人发兔羊CP小电影的，我还以为是官方小短片，结果�
 
 电影比V篇优势在时长更久，大概多半个小时，皮套也是新规的（
 
+
+*****
+
+####  milky658  
+##### 167#       发表于 2026-9-20 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70258345&amp;ptid=2278175" target="_blank">挺好的 发表于 2026-9-20 09:26</a>
+
+就亚极陀那个来看，电影比V篇优势在时长更久，大概多半个小时，皮套也是新规的（ ...</blockquote>
+V篇和电影区别在发行方式不同。V篇相当于是东映卖碟片的广告，短时间小范围内电影放映给粉丝看。常规夏季剧场版放送时间更长，放送馆数更多，投入成本也多一些。亚极陀原本企划是V篇，后来升格成电影，投入也增加了，至于效果嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
