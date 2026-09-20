@@ -11523,3 +11523,19 @@ qwenimage2.1要开源了
 我的AI帮我找了篇测试的文章，结论是jev速度快但没那么快，准确率一般，最大的优势是知道自己不知道。
 [https://wotai.co/blog/typesafe-jev-vs-claude-haiku-tested](https://wotai.co/blog/typesafe-jev-vs-claude-haiku-tested)
 
+
+*****
+
+####  cody198879  
+##### 14211#       发表于 2026-9-20 14:50
+
+我自己用下来虽然workbuddy虽然有这个那个问题，实际上是目前最好用的。
+
+阿里的qoder，可以用的模型太少
+
+字节的trae，很多人拼写和发音都对不上，传播度烂完了。然后内部也放弃了，新的模型都不上，全部转到字节办公去了。
+
+workbuddy除了有时候跑本地任务的时候卡一点，其实真没啥问题。对新手很友好
+
+—— 来自 HONOR PTP-AN70, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
