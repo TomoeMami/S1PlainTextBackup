@@ -17180,3 +17180,78 @@ https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?u=e1aebaebf97d44e4a668f312ed1793bc&a
 
 有人打了雷达篇的凯伊外传吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘲风  
+##### 4431#       发表于 2026-9-20 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259961&amp;ptid=2261859" target="_blank">asikies 发表于 2026-9-20 13:35</a>
+
+你是不是没做物资任务？</blockquote>
+物资任务是啥？
+
+玩儿的是雷达线，主要加声望的任务就是去各处跳舞和主线，然后支线神殿啥的给一点儿零星的，第八章才到声望7
+
+*****
+
+####  嘲风  
+##### 4432#       发表于 2026-9-20 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259962&amp;ptid=2261859" target="_blank">空气先生 发表于 2026-9-20 13:35</a>
+
+意思是第四章进斗技场人物出现，可以送礼啥的</blockquote>
+噢噢又看了下确实，大部分人的章节各线都是统一的，那就是没有考虑实际条件，只是这个人出来提供招募选项了，是我理解错了以为标注的章节就可以实际招募了
+
+*****
+
+####  thecatnie  
+##### 4433#       发表于 2026-9-20 13:45
+
+红花那组的四圣兽队友，都加入不了吗？
+
+
+*****
+
+####  黑上シグマ  
+##### 4434#       发表于 2026-9-20 13:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好耶，我的日版限定海关放行了，明天能到手了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+*****
+
+####  空气先生  
+##### 4435#       发表于 2026-9-20 13:53
+
+<blockquote>JOJOROY 发表于 2026-9-20 13:40
+有人打了雷达篇的凯伊外传吗</blockquote>
+是劫狱然后断后干追兵的关卡吗，a少路线打了
+
+*****
+
+####  混沌危机  
+##### 4436#       发表于 2026-9-20 13:53
+
+ 本帖最后由 混沌危机 于 2026-9-20 13:55 编辑 
+<blockquote>mai6696 发表于 2026-9-16 10:27
+那全员土匪或者什么男打拳女上天算不算这套的负面影响？
+
+三房的重甲，要不是有红秋裤，估计出场率接近0了 ...</blockquote>
+
+全员土匪、飞天如果只在流程中的某几关出现其实挺好的，但如果你全程都只需要一种兵种，那是你平衡崩坏、战棋设计的失败，不是自由转职的问题。
+
+果然多数人觉得就该靠角色成长率、特技来区分人，那我也没啥好说了，可以说思想上已经是手游那一套了，继续为强度买单吧。😄
+
+*****
+
+####  asikies  
+##### 4437#       发表于 2026-9-20 13:55
+
+<blockquote>嘲风 发表于 2026-9-20 13:42
+物资任务是啥？
+
+玩儿的是雷达线，主要加声望的任务就是去各处跳舞和主线，然后支线神殿啥的给一点儿零星 ...</blockquote>
+女王线有个物资周常，每次给大半天声望，舞女大概也会有差不多的。
+
