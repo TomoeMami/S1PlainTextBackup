@@ -11956,3 +11956,147 @@ skill还是很有价值的。
 
 阶跃这个速度还是不太行啊，吐 token 的速度。
 
+
+*****
+
+####  唠叨  
+##### 14252#       发表于 2026-9-20 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70261727&amp;ptid=2275806" target="_blank">ljwlwd 发表于 2026-9-20 19:33</a>
+
+请问现在买哪家的coding/token plan性价比比较高？倾向于那种有多家模型可用的，是opencode go吗？很久之前 ...</blockquote>
+你主力用什么模型?
+
+*****
+
+####  noneoneone  
+##### 14253#       发表于 2026-9-20 20:26
+
+<blockquote>[ljwlwd](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70261727&amp;ptid=2275806) 发表于 09-20 19:33
+请问现在买哪家的coding/token plan性价比比较高？倾向于那种有多家模型可用的，是opencode go吗？很久之前听说阿里、火山的别家模型不是量化版就是限制上下文长度最好是100以内/月的，再贵就直接上gpt的Plus了
+
+—— 来自 HONOR BKQ-AN00, Android 16, 鹅球 v4.0</blockquote>
+
+49的火山就可以，原价200就算了
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  lactone  
+##### 14254#       发表于 2026-9-20 21:08
+
+阶跃星辰诈尸了？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  jamboo  
+##### 14255#       发表于 2026-9-20 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257059&amp;ptid=2275806" target="_blank">体制 发表于 2026-9-19 22:47</a>
+
+额，是harness自己告诉我的，然后自己装的
+
+—— 来自 鹅球 v4.0-alpha</blockquote>
+v4.1f直接拒绝我了
+
+*****
+
+####  体制  
+##### 14256#       发表于 2026-9-20 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262427&amp;ptid=2275806" target="_blank">jamboo 发表于 2026-9-20 22:08</a>
+v4.1f直接拒绝我了</blockquote>
+https://www.dsh.so/zh/artifact/dsh-purge/
+可能是因为我让dsh自己写个起送界面，然后他在启动界面里把各类插件站收录进去了才会告诉我？你直接从链接装吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  宏.  
+##### 14257#       发表于 2026-9-20 22:44
+
+<img src="https://img.stage1st.com/forum/202609/20/224456pqy631zj1l6ss6yo.jpg" referrerpolicy="no-referrer">
+
+<strong>20260920-224329.jpg</strong> (85.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-20 22:44 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ hugosol + 2欢乐多
+
+查看全部评分
+
+*****
+
+####  Lorraine_Kinney  
+##### 14258#       发表于 2026-9-21 00:05
+
+ 本帖最后由 Lorraine_Kinney 于 2026-9-21 00:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70261727&amp;ptid=2275806" target="_blank">ljwlwd 发表于 2026-9-20 19:33</a>
+
+请问现在买哪家的coding/token plan性价比比较高？倾向于那种有多家模型可用的，是opencode go吗？很久之前 ...</blockquote>
+如果主用国模的话，找cline pass的优惠码，14块钱首月 dsv4 量挺大 
+
+*****
+
+####  jamboo  
+##### 14259#       发表于 2026-9-21 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262541&amp;ptid=2275806" target="_blank">体制 发表于 2026-9-20 22:37</a>
+https://www.dsh.so/zh/artifact/dsh-purge/
+可能是因为我让dsh自己写个起送界面，然后他在启动界面里把 ...</blockquote>
+感谢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 14260#       发表于 2026-9-21 00:11
+
+skill还是很有价值的。
+
+比如我有firecrawl、perplexity、exa、kagi四个搜索引擎，每个能干哪些都需要skill里定义好啊，不然让ai临时乱猜吗？
+
+*****
+
+####  lordquest  
+##### 14261#       发表于 2026-9-21 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262175&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-20 21:08</a>
+
+阶跃星辰诈尸了？
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+ 晚上试了一下,  新的Step 5 Preview在cc和deepx code里用得还行. 
+
+*****
+
+####  wonderful259  
+##### 14262#       发表于 2026-9-21 02:19
+
+阶跃这个速度还是不太行啊，吐 token 的速度。
+
+*****
+
+####  mortal1976  
+##### 14263#       发表于 2026-9-21 07:28
+
+现在免费的云agent最大方的是Meta的muse，免费云主机、**muse spark模型（而且承诺不是那个免费的贡献模型），可关闭数据训练开关，承诺云主机数据隔离，而且云主机可以免费建云知识库且没有文件数量和大小的限制。
+
+虽然模型能力比不上顶级模型，但实测与一众Flash模型差距不大。最大问题默认搜索中文内容极差，需要自己处理下。
+
+暂时有地区限制，注意IP，每周免费额度1亿token，邀请双方送10亿token，本来想邀请蹭token，但担心想pt一样连坐。
+

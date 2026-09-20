@@ -676,3 +676,13 @@ From Washington Post：
 
 —— 来自 HONOR PNM-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  43453  
+##### 51#       发表于 2026-9-21 07:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262311&amp;ptid=2290139" target="_blank">Gigax 发表于 2026-9-20 21:34</a>
+怎么感觉这访谈内容对小岛不利啊，这不等于承认自己这几年确实没干什么活吗 ...</blockquote>
+通篇看下来就是，文件夹已经新建了你索还想要怎样
+
