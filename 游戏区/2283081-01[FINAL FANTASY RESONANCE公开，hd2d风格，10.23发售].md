@@ -887,3 +887,15 @@ IGN账号上发了最终预告，太有感觉了，本来觉得豪华版就多�
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  Booorunestud  
+##### 285#       发表于 2026-9-20 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70258804&amp;ptid=2283081" target="_blank">苦瓜师傅 发表于 2026-9-20 10:24</a>
+有原创剧情还是每部拿来点？
+
+— from S1 Next Goose v4.0-alpha</blockquote>
+手游主线全原创吧 幻兵就是个情怀召唤兽没什么剧情 据说是这样
+
