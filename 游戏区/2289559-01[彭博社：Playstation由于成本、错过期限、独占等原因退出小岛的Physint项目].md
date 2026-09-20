@@ -107,3 +107,13 @@ Hideo Kojima: No, not at all. They haven't contacted me ever since. But I'm not 
 
 合作依然愉快.  -----小岛工作室
 
+
+*****
+
+####  水边井  
+##### 149#       发表于 2026-9-20 21:00
+
+挺好的，如果是ps独占的话，以索尼的策略，phy是不会像ds这样后续登陆全平台了，给微软至少ns以外的平台都会上
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
