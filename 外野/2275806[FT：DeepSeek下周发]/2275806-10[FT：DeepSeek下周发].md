@@ -11492,3 +11492,25 @@ glm3.5flash在晟腾a3本地部署老是挂，啥时候出正式版<img src="htt
 
 或者换个思路，就是做些用脚本判断要写非常复杂逻辑的任务，直接自然语言丢给LLM判断，感觉也不错
 
+
+*****
+
+####  tonyunreal  
+##### 14208#       发表于 2026-9-20 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260004&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-20 13:45</a>
+
+qwenimage2.1要开源了
+
+看看能不能打过krea2</blockquote>
+应该不能，qwen image是走图文混排路线的
+
+目前的测试图看起来就是gpt-image-2蒸馏拉满
+
+*****
+
+####  whzfjd  
+##### 14209#       发表于 2026-9-20 14:36
+
+国内客户端这块已经结束比赛了吗？kimi work ， trae work 啥的还有人用吗
+
