@@ -1886,3 +1886,48 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 小出老实当演出吧
 
+
+*****
+
+####  hummysiren  
+##### 560#       发表于 2026-9-21 02:26
+
+虽然早有预期爱啊光啊啥的收不回来，但起码结尾前还期待下能用情绪流糊弄糊弄，结果给了个bitterend是要干嘛致敬xb3吗<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+茉里说完很寂寞然后就俩人笑着对视来对视去就坐车走了就结束了这不对吧，来点大道理总结下都不至于这么迷惑结果还在惦记你那意识流<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI MLR-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  堆雪若叶  
+##### 561#       发表于 2026-9-21 02:33
+
+<img src="https://p.sda1.dev/35/d7ff0bdc723a87d12bef55eaa7051549/8.png" referrerpolicy="no-referrer">
+
+“日后你惹出祸来，不把为师说出来就行了”
+
+*****
+
+####  Piano-Forest  
+##### 562#         楼主| 发表于 2026-9-21 02:36
+
+🐚⁺‧┈　#さよならララ エンドカード　┈‧⁺ 🫧˚
+
+　   　   　  第12話「さよならララ」
+
+　　
+
+キャラクターデザイン #谷紫織 さんによるエンドカードをお届けします✨
+
+最終回までご視聴いただいた皆さま、ありがとうございました。
+
+これからも、ララたちの物語を愛してくださると幸いです。
+
+それでは、さよララ～！
+<img src="https://p.sda1.dev/35/3b7c8738cab78fc628d7b896a9687329/HSkjSVhbUAEGSPL.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/e9b14dad47c705a46206ae69d0c5ded7/HSqzcaubgAAonI3.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/warder2013/status/2101708848382009360](https://x.com/warder2013/status/2101708848382009360)
+<img src="https://p.sda1.dev/35/67f15f853556703db8bd396a3f3cbe1e/HSrFDnYaMAA8Rw7.jpg" referrerpolicy="no-referrer">
+
