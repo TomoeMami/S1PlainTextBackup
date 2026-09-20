@@ -92,3 +92,11 @@
 
 新角色大概融了ask的画风，特别是眼睛，我说怎么越看越有既视感
 
+
+*****
+
+####  茄子自走炮  
+##### 904#       发表于 2026-9-21 00:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">把万紫千红升到5级发现上限打不出来，现在转了游侠也没打出来，好亏啊
+
