@@ -16835,3 +16835,121 @@ bro知道答案了请告我一声
 
 6个神殿时不时可以觐见涨名声，这个频率是多少，如果蹲城里靠神刷声望，能提前解锁一两级吗
 
+
+*****
+
+####  deathyue  
+##### 4405#       发表于 2026-9-20 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259247&amp;ptid=2261859" target="_blank">白昼梦DD 发表于 2026-9-20 11:23</a>
+
+因为这次要跑迷宫还要打回合制战斗
+
+—— 来自 S1Fun</blockquote>
+你是说地牢探索部分吧，回合制战斗不就JRPG模式吗，也不用考虑帧数，我是感觉只要不影响核心玩法，平时跑图不是那种掉帧脱帧就能行的
+
+*****
+
+####  嘲风  
+##### 4406#       发表于 2026-9-20 11:34
+
+6个神殿时不时可以觐见涨名声，这个频率是多少，如果蹲城里靠神刷声望，能提前解锁一两级吗
+
+*****
+
+####  bad_alloc  
+##### 4407#       发表于 2026-9-20 11:36
+
+这代感觉斧头有点拉，重量太重而且缺命中，除非个人技有命中相关加成不然基本上打不中人，队伍里面的土匪还不如拿剑去打追击
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  deathyue  
+##### 4405#       发表于 2026-9-20 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259247&amp;ptid=2261859" target="_blank">白昼梦DD 发表于 2026-9-20 11:23</a>
+
+因为这次要跑迷宫还要打回合制战斗
+
+—— 来自 S1Fun</blockquote>
+你是说地牢探索部分吧，回合制战斗不就JRPG模式吗，也不用考虑帧数，我是感觉只要不影响核心玩法，平时跑图不是那种掉帧脱帧就能行的
+
+*****
+
+####  嘲风  
+##### 4406#       发表于 2026-9-20 11:34
+
+6个神殿时不时可以觐见涨名声，这个频率是多少，如果蹲城里靠神刷声望，能提前解锁一两级吗
+
+*****
+
+####  bad_alloc  
+##### 4407#       发表于 2026-9-20 11:36
+
+这代感觉斧头有点拉，重量太重而且缺命中，除非个人技有命中相关加成不然基本上打不中人，队伍里面的土匪还不如拿剑去打追击
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  空气先生  
+##### 4408#       发表于 2026-9-20 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70258988&amp;ptid=2261859" target="_blank">meltingwhite 发表于 2026-9-20 10:49</a>
+
+楼友这个表格有下载地址吗</blockquote>
+[https://docs.qq.com/sheet/DV0N0V ... lc=1&amp;tab=BB08J2](https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?u=e1aebaebf97d44e4a668f312ed1793bc&amp;nlc=1&amp;tab=BB08J2)
+
+
+*****
+
+####  deathyue  
+##### 4405#       发表于 2026-9-20 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259247&amp;ptid=2261859" target="_blank">白昼梦DD 发表于 2026-9-20 11:23</a>
+
+因为这次要跑迷宫还要打回合制战斗
+
+—— 来自 S1Fun</blockquote>
+你是说地牢探索部分吧，回合制战斗不就JRPG模式吗，也不用考虑帧数，我是感觉只要不影响核心玩法，平时跑图不是那种掉帧脱帧就能行的
+
+*****
+
+####  嘲风  
+##### 4406#       发表于 2026-9-20 11:34
+
+6个神殿时不时可以觐见涨名声，这个频率是多少，如果蹲城里靠神刷声望，能提前解锁一两级吗
+
+*****
+
+####  bad_alloc  
+##### 4407#       发表于 2026-9-20 11:36
+
+这代感觉斧头有点拉，重量太重而且缺命中，除非个人技有命中相关加成不然基本上打不中人，队伍里面的土匪还不如拿剑去打追击
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  空气先生  
+##### 4408#       发表于 2026-9-20 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70258988&amp;ptid=2261859" target="_blank">meltingwhite 发表于 2026-9-20 10:49</a>
+
+楼友这个表格有下载地址吗</blockquote>
+[https://docs.qq.com/sheet/DV0N0V ... lc=1&amp;tab=BB08J2](https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?u=e1aebaebf97d44e4a668f312ed1793bc&amp;nlc=1&amp;tab=BB08J2)
+
+
+*****
+
+####  空气先生  
+##### 4408#       发表于 2026-9-20 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70258988&amp;ptid=2261859" target="_blank">meltingwhite 发表于 2026-9-20 10:49</a>
+
+楼友这个表格有下载地址吗</blockquote>
+[https://docs.qq.com/sheet/DV0N0V ... lc=1&amp;tab=BB08J2](https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?u=e1aebaebf97d44e4a668f312ed1793bc&amp;nlc=1&amp;tab=BB08J2)
+
