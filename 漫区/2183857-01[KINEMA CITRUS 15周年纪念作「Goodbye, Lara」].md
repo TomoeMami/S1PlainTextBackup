@@ -1767,3 +1767,23 @@ ep1原来是这个的复刻，区别是真的吃了对象的光。
 
 什么光什么爱，叽里咕噜反复讲一堆抽象东西真怕观众是智障吗，人鱼妈死亡这又快速略过，拳击女和魔女塞那么点画面调动不了一点情绪，至少把内容做出来啊<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 549#         楼主| 发表于 2026-9-20 22:28
+
+[https://x.com/MON_2501/status/2101664924741300705](https://x.com/MON_2501/status/2101664924741300705)
+
+#さよならララ
+
+担当させていただいた魔女の隠れ家のイメージボード等になります！
+
+本日で最終回になります　
+
+今日まで追いかけてくださった方々にぜひ結末までご覧いただければ幸いです
+<img src="https://p.sda1.dev/35/cefb33e170916ec1dd2e863d6af2d87d/HSqdHB3aoAAl31P.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/b42fae26d0d4b7a473ba15d04363ed54/HSqdHBnbcAAOkd7.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/8fc98ac96a6b88e16fe6a84d4b3a3820/HSqdHBpbwAAoBbe.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/f41ae66765f5458f8df892189987b4b1/HSqdHBnbUAAsaac.jpg" referrerpolicy="no-referrer">
+
