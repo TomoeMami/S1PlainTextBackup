@@ -1122,3 +1122,25 @@ dlc可能是8强里另外4个吧，凯伊战争篇打完，回忆里突然多了
 
 —— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  苏西踩我了  
+##### 4549#       发表于 2026-9-21 01:06
+
+【【火焰之纹章: 万缕千丝】四剧情线不重复挖角 一图流】 [https://www.bilibili.com/video/B ... 4f0efe52b51a31f9328](https://www.bilibili.com/video/BV17dev6HENc/?share_source=copy_web&amp;vd_source=c153c3ae088bc4f0efe52b51a31f9328)
+
+建议看一下
+
+*****
+
+####  2317268845  
+##### 4550#       发表于 2026-9-21 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263226&amp;ptid=2261859" target="_blank">夜留歌 发表于 2026-9-21 00:39</a>
+
+刚打完蕾达线，直接摸战栗方尖碑，其他路线第一部还能做吗
+
+—— 来自 vivo V2502A, Android 16, 鹅球 v3.4 ...</blockquote>
+可以的<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

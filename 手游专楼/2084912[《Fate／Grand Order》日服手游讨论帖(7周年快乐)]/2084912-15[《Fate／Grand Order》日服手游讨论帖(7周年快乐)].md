@@ -16,3 +16,11 @@
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  森兰丸  
+##### 21608#       发表于 2026-9-21 01:08
+
+龙娘还是回来吧.....这狼人杀万圣节活动看的是真的无聊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
