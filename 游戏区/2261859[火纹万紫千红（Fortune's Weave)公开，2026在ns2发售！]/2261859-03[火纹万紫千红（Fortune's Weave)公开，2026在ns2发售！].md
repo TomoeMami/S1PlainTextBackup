@@ -16281,3 +16281,16 @@ bro知道答案了请告我一声
 游戏模式想起了百日战记<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，都是走格子，看剧情，然后剧情战斗，小高还是太超前了。就是这走格子还得每周回一趟王城，一边算一边走有点焦虑。
 话说这成长率是不是有隐藏数值？女王的力量成长明明是第二高的属性，不算根源加成的话现在是倒数第二的属性，不知道是运气不好还是设定，想念山猪
 
+
+*****
+
+####  绕指流光  
+##### 4364#       发表于 2026-9-20 09:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257151&amp;ptid=2261859" target="_blank">reficul 发表于 2026-9-19 23:26</a>
+
+还在2月报名前，已经感觉大地图很浪费时间了，以后要买考试证或者武器的话还得在地图上消耗回合数去买吗。 ...</blockquote>
+熟练掌握半价餐饮日和周末半价训练<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">日本人抢折扣特价这一块
+
+另外有些增加当回合能力的道具根本使不上，卖了就是
+
