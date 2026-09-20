@@ -4469,7 +4469,7 @@
     "newtitle": "[《碧蓝幻想 Relink》 ／ 加强版将于2026年7月9日发售]",
     "lastedit": 1789646313,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2057903": {
@@ -12654,10 +12654,10 @@
     "update": false
   },
   "2271155": {
-    "totalreply": 487,
+    "totalreply": 488,
     "title": "[2026年推理游戏发售清单(更新至1.15)，2026推理游戏专楼]",
     "newtitle": "[2026年推理游戏发售清单(更新至9.13)，2026推理游戏专楼]",
-    "lastedit": 1789901286,
+    "lastedit": 1789905847,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13077,10 +13077,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 38694,
+    "totalreply": 38695,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1789905126,
+    "lastedit": 1789905725,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13721,7 +13721,7 @@
     "newtitle": "[【新股神闪亮登场】 互联网股神讨论帖]",
     "lastedit": 1789646325,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2287441": {
@@ -14040,10 +14040,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 14200,
+    "totalreply": 14207,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1789905485,
+    "lastedit": 1789906085,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14319,10 +14319,10 @@
     "update": false
   },
   "2262918": {
-    "totalreply": 266,
+    "totalreply": 268,
     "title": "[漫威金刚狼pv公开，确认2026／9／15发售]",
     "newtitle": "[漫威金刚狼pv公开，确认2026／9／15发售]",
-    "lastedit": 1789893368,
+    "lastedit": 1789905847,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15084,10 +15084,10 @@
     "update": false
   },
   "2289559": {
-    "totalreply": 144,
+    "totalreply": 145,
     "title": "[彭博社：Playstation由于成本、错过期限、独占等原因退出小岛的Physint项目]",
     "newtitle": "[彭博社：Playstation由于成本、错过期限、独占等原因退出小岛的Physint项目]",
-    "lastedit": 1789905246,
+    "lastedit": 1789905847,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16344,10 +16344,10 @@
     "update": false
   },
   "2289741": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[周树人就是L]",
     "newtitle": "[周树人就是L]",
-    "lastedit": 1789896727,
+    "lastedit": 1789905966,
     "category": "外野",
     "active": true,
     "update": false
@@ -16497,10 +16497,10 @@
     "update": false
   },
   "2290013": {
-    "totalreply": 203,
+    "totalreply": 208,
     "title": "[90年代是什么样子的？]",
     "newtitle": "[90年代是什么样子的？]",
-    "lastedit": 1789905367,
+    "lastedit": 1789905966,
     "category": "外野",
     "active": true,
     "update": false
@@ -16731,10 +16731,10 @@
     "update": false
   },
   "2290079": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[半精灵]",
     "newtitle": "[半精灵]",
-    "lastedit": 1789903326,
+    "lastedit": 1789905966,
     "category": "外野",
     "active": true,
     "update": false
@@ -16794,10 +16794,10 @@
     "update": false
   },
   "2289970": {
-    "totalreply": 65,
+    "totalreply": 67,
     "title": "[今天看新闻才知道TGS开了]",
     "newtitle": "[今天看新闻才知道TGS开了]",
-    "lastedit": 1789905246,
+    "lastedit": 1789905605,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16839,19 +16839,19 @@
     "update": false
   },
   "2290099": {
-    "totalreply": 55,
+    "totalreply": 57,
     "title": "[又到了吃鲜肉月饼的时候了]",
     "newtitle": "[又到了吃鲜肉月饼的时候了]",
-    "lastedit": 1789902607,
+    "lastedit": 1789905966,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2290097": {
-    "totalreply": 58,
+    "totalreply": 61,
     "title": "[公交班次多长算是健康的]",
     "newtitle": "[公交班次多长算是健康的]",
-    "lastedit": 1789905367,
+    "lastedit": 1789905726,
     "category": "外野",
     "active": true,
     "update": false
@@ -16979,6 +16979,15 @@
     "newtitle": "[米哈游新作《星布谷地》讨论楼]",
     "lastedit": 1789903090,
     "category": "手游专楼",
+    "active": true,
+    "update": false
+  },
+  "2290108": {
+    "totalreply": 41,
+    "title": "[玩仁王玩不明白正常吗]",
+    "newtitle": "[玩仁王玩不明白正常吗]",
+    "lastedit": 1789905605,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
