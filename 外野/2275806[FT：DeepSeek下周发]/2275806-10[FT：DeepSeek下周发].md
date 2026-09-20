@@ -11282,3 +11282,39 @@ s1这是继承老音速的传统吗？每逢大新闻就大姨妈
 
 另外API今天按工作日算？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛拉斯  
+##### 14191#       发表于 2026-9-20 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70258253&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-9-20 09:10</a>
+大肥鱼的网页端加了个修改/重新生成过于频繁的提示，感觉还是扛不住啊。
+
+另外API今天按工作日算？ ...</blockquote>
+休息日，因为今天调休不开盘，梁叔叔在休市日无心工作
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 飛霞精灵 + 1
+
+查看全部评分
+
+*****
+
+####  cscbzcbz  
+##### 14192#       发表于 2026-9-20 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70258253&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-9-20 09:10</a>
+大肥鱼的网页端加了个修改/重新生成过于频繁的提示，感觉还是扛不住啊。
+
+另外API今天按工作日算？ ...</blockquote>
+官方公告了，周末和公休日全天都按谷价
+
