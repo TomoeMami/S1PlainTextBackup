@@ -11774,3 +11774,34 @@ workbuddy对我最大的问题就是他自己塞的提示词太多也太诡异�
 
 mimo 的直播训练deepswe刷到72分了
 
+
+*****
+
+####  zyjzhzyh  
+##### 14237#       发表于 2026-9-20 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260355&amp;ptid=2275806" target="_blank">cody198879 发表于 2026-9-20 14:50</a>
+我自己用下来虽然workbuddy虽然有这个那个问题，实际上是目前最好用的。
+
+阿里的qoder，可以用的模型太少</blockquote>
+Trae 一直在更新，它跟 Workbody 在模型的丰富度上，实际上是各有千秋的。
+
+Trae 独有：字节 seed以及千问的 Qwen 大模型，
+
+Workbody 独有： HY 混元模型。
+
+trae 和 WorkBuddy 都有的模型： GLM、deepseek、Minimax 的模型    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  zyjzhzyh  
+##### 14238#       发表于 2026-9-20 18:52
+
+ 本帖最后由 zyjzhzyh 于 2026-9-20 18:54 编辑 
+
+在我看来 Trae 和 Workbody 都相对比较臃肿，他们都有自带的 MCP、skill 等，比如 trae 默认安装了 HTML report，触发率很高，普通的咨询类问题都会被写成图文 report，但是这也导致拖慢了回答速度   
+
+Workbody 有更多的自带的各种 MCP，各种各样的软件和“专家”、模板库，看起来太花眼了。
+
+这两个都突出一个开箱自用、小白友好，但不适合要求高的个人开发者，是主要是腾讯系和字节系的生态。比方说 Workbody 连腾讯的 IMA 或者腾讯文档，字节 Trae 可以连飞书。 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
