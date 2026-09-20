@@ -52,3 +52,11 @@
 
 她这个主动其实当个添头就行，光是恶+烧蓝回血的被动感觉已经很实用了，还坐拥你游最强档次的建模<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱上了三个你  
+##### 903#       发表于 2026-9-20 10:47
+
+新角色大概融了ask的画风，特别是眼睛，我说怎么越看越有既视感
+
