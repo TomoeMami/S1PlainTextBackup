@@ -16232,3 +16232,16 @@ bro知道答案了请告我一声
 
 问了下AI说现在只有两个难度，没luna难度那肯定很无聊，还是要等dlc
 
+
+*****
+
+####  绕指流光  
+##### 4360#       发表于 2026-9-20 08:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257999&amp;ptid=2261859" target="_blank">Yeaha123 发表于 2026-9-20 08:25</a>
+
+问了下AI说现在只有两个难度，没luna难度那肯定很无聊，还是要等dlc</blockquote>
+倒也不会，困难后期有点难度的，好在成长手段还算比较多，培养得法没啥问题
+
+最大的难度我觉得在于挖人……必须要天天当舔狗请吃饭送礼物，初期难度都在名声不够强势职业无人可用上
+
