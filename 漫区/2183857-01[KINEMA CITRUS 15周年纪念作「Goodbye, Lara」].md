@@ -1860,3 +1860,11 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和我想的一样，自我献祭。小出只学得几原其形不得其魂，找川原做出来的就是一坨。用演出掩盖思想深度的退化，结果即失去艺术的自律又失去了对爱这一现实问题的结构性思考。
 我看粉丝怎么洗，演出好一切都好？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 557#       发表于 2026-9-21 00:37
+
+再见菈菈（搭电车走了
+

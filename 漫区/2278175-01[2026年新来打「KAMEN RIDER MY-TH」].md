@@ -458,3 +458,11 @@ ea好像是要有新剧场版吧 我看色佬说
 这虎哥一副死相啊<img src="https://static.stage1st.com/image/smiley/normal/050.gif" referrerpolicy="no-referrer">   
 感觉今年绿幕用的太多了 十二支总部都不搭个实景用合成吗 怪怪的 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  大耳兽  
+##### 179#       发表于 2026-9-21 00:43
+
+兔子的腰带给黑猫的话以后是不是就不能变身了，还是说腰带其实是能重新造的。
+

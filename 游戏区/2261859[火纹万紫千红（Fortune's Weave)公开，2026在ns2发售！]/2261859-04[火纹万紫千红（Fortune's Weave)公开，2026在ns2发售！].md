@@ -1103,3 +1103,22 @@ dlc可能是8强里另外4个吧，凯伊战争篇打完，回忆里突然多了
 怎么感觉这次后期入队的区太多，导致挖来的天马都没他们说的那么区了，尤其是佩佩实在是区区 ...</blockquote>
 未入队的角色升级加点按没有职业的基本成长率计算<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无色辉火  
+##### 4547#       发表于 2026-9-21 00:39
+
+<blockquote>松狮酱 发表于 2026-9-20 23:46
+你没观战那次比赛错过了，有一把猫猫头打小红小绿的比赛可以观战的，然后战斗里面猫猫头面具被打碎了 ...</blockquote>
+啊，可惜了，只能其他线再看了
+
+*****
+
+####  夜留歌  
+##### 4548#       发表于 2026-9-21 00:39
+
+刚打完蕾达线，直接摸战栗方尖碑，其他路线第一部还能做吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
