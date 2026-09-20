@@ -11838,3 +11838,18 @@ Workbody 有更多的自带的各种 MCP，各种各样的软件和“专家”�
 请问现在买哪家的coding/token plan性价比比较高？倾向于那种有多家模型可用的，是opencode go吗？很久之前 ...</blockquote>
 你主力用什么模型?
 
+
+*****
+
+####  noneoneone  
+##### 14242#       发表于 2026-9-20 20:26
+
+<blockquote>[ljwlwd](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70261727&amp;ptid=2275806) 发表于 09-20 19:33
+请问现在买哪家的coding/token plan性价比比较高？倾向于那种有多家模型可用的，是opencode go吗？很久之前听说阿里、火山的别家模型不是量化版就是限制上下文长度最好是100以内/月的，再贵就直接上gpt的Plus了
+
+—— 来自 HONOR BKQ-AN00, Android 16, 鹅球 v4.0</blockquote>
+
+49的火山就可以，原价200就算了
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
