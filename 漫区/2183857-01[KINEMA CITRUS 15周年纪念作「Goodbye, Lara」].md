@@ -1931,3 +1931,13 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 [https://x.com/warder2013/status/2101708848382009360](https://x.com/warder2013/status/2101708848382009360)
 <img src="https://p.sda1.dev/35/67f15f853556703db8bd396a3f3cbe1e/HSrFDnYaMAA8Rw7.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ulir  
+##### 563#       发表于 2026-9-21 05:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这最终话烂到让人丧失吐槽的欲望，不管是情绪调动还是演出都不如姐姐还有姐妹回
+
+结果蛋糕店就真的一集水，吹了半天教堂和十字架算不算打支持者的脸，最后还要演一点人鱼用双腿走路像刀割，别蹭原作了行不行
+
