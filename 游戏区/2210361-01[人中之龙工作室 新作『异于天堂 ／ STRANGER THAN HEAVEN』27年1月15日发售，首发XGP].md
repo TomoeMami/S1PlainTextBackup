@@ -99,3 +99,21 @@
 
 <img src="https://p.sda1.dev/35/b68d8d9bc1d95366a8b957ad1e2b8157/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  センコウ  
+##### 289#       发表于 2026-9-20 16:12
+
+<img src="https://img.stage1st.com/forum/202609/20/161116qxrbkhllkx4wbw4j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-20 16:11 上传
+
+黑田的角色，说是50年代出现给大东人生很大影响的人
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会是背锅亲爹吗
+
