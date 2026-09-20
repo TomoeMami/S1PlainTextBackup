@@ -117,3 +117,36 @@ Hideo Kojima: No, not at all. They haven't contacted me ever since. But I'm not 
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ziyer  
+##### 150#       发表于 2026-9-20 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70224881&amp;ptid=2289559" target="_blank">nage560 发表于 2026-9-12 22:07</a>
+
+还有小岛和科表那档事，明明最主要是科表那个新社长想转型，于是就有了接下来各种恶心小岛的事，最后大部分 ...</blockquote>
+怎么可能大部分人跟小岛跑了，大部分人不是被cy挖去搞主机部门了吗？
+
+
+*****
+
+####  你妈的为什么  
+##### 151#       发表于 2026-9-20 21:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实只站在盈亏的角度，你索把小岛砍了没问题
+
+问题是你自己剩下的女光头金刚狼之类的又是什么贵物呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gigax  
+##### 152#       发表于 2026-9-20 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262194&amp;ptid=2289559" target="_blank">你妈的为什么 发表于 2026-9-20 21:12</a>
+
+其实只站在盈亏的角度，你索把小岛砍了没问题
+
+问题是你自己剩下的女光头金刚狼之类的又是什么贵物呢 ...</blockquote>
+不是说金刚狼3天销量已经超过死亡搁浅2生涯销量了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
