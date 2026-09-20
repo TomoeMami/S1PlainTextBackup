@@ -11272,3 +11272,13 @@ gemini也攻击了别人的网站
 
 s1这是继承老音速的传统吗？每逢大新闻就大姨妈
 
+
+*****
+
+####  飛霞精灵  
+##### 14190#       发表于 2026-9-20 09:10
+
+大肥鱼的网页端加了个修改/重新生成过于频繁的提示，感觉还是扛不住啊。
+
+另外API今天按工作日算？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
