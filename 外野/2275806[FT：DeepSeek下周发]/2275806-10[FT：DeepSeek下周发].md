@@ -11731,3 +11731,28 @@ workbuddy除了有时候跑本地任务的时候卡一点，其实真没啥问�
 
 邀请链接:  [https://platform.stepfun.com/?invite_code_v2=VEVFIRGZ](https://platform.stepfun.com/?invite_code_v2=VEVFIRGZ)
 
+
+*****
+
+####  andychen  
+##### 14233#       发表于 2026-9-20 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260214&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-20 14:24</a>
+啥，上下文只有25K吗，那限制太大了
+
+其实我觉得思路应该往实时性方面走，不然跟我直接用别的模型没啥区别 ...</blockquote>
+简单场景下的限定应用目前应该是最合适的
+
+比如目前LLM做信息提取仍然有一定的幻觉概率，以前我是安排固定时间进行一次全量复核，现在则是用Jev做实时核查，流程更简化了。初步测试显示时间和金钱开销下降，准确率也有提升
+
+目前还在测试一些语义级分类，例如给出特定信息，要求Jev给出矛盾/互证/无关的判断。这类应用高度依赖模型的语义理解能力，目前我测试下来和DS4.1f比准确率是上升的，时间成本更是从数十秒压缩到了数百毫秒
+
+*****
+
+####  rayaxu  
+##### 14234#       发表于 2026-9-20 18:15
+
+workbuddy对我最大的问题就是他自己塞的提示词太多也太诡异了，导致他输出的文本和dsh或者codex输出的文本相差太远，甚至都不是质量问题，而是输出方向不同
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
