@@ -16751,3 +16751,29 @@ bro知道答案了请告我一声
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  meltingwhite  
+##### 4398#       发表于 2026-9-20 11:21
+
+第一部难度挺低的，只用初始5人也能通关，其他想用的可以招了转山贼放后备，等第二部一口气直接把等级拉上来<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  deathyue  
+##### 4399#       发表于 2026-9-20 11:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">插个话题，前天在B站看到个观点，说万紫千红没60帧垃圾不配玩，所以没买，我寻思火纹是个SRPG，30或60影响走格子吗，还是说空闲时城里过好感剧情啥的影响很大？我自己因为是从90年代CS时期过来的完全感觉不到这种差异
+
+*****
+
+####  白昼梦DD  
+##### 4400#       发表于 2026-9-20 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259229&amp;ptid=2261859" target="_blank">deathyue 发表于 2026-9-20 11:21</a>
+插个话题，前天在B站看到个观点，说万紫千红没60帧垃圾不配玩，所以没买，我寻思火纹是个SRPG，30或60影响 ...</blockquote>
+因为这次要跑迷宫还要打回合制战斗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
