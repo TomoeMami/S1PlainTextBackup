@@ -11246,3 +11246,21 @@ gemini也攻击了别人的网站
 
 话说codebuddy一直卡住咋回事啊，问它还一直反驳说没卡住
 
+
+*****
+
+####  来都来了  
+##### 14187#       发表于 2026-9-20 08:46
+
+不要问腾讯buddy为什么又出了这问题那问题，问就是因为它是流氓软件。
+
+*****
+
+####  noneoneone  
+##### 14188#       发表于 2026-9-20 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257850&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-9-20 07:39</a>
+
+话说codebuddy一直卡住咋回事啊，问它还一直反驳说没卡住</blockquote>
+一个agent有问题时，最简单的解决方法是用另一个修
+
