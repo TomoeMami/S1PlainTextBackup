@@ -11684,3 +11684,16 @@ workbuddy除了有时候跑本地任务的时候卡一点，其实真没啥问�
 
 外包兄弟里的4.1f没炸呀
 
+
+*****
+
+####  BarricadeMKXX  
+##### 14228#       发表于 2026-9-20 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70261102&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-9-20 17:04</a>
+
+外包兄弟里的4.1f没炸呀</blockquote>
+估计藤子有卡和官方合作部署了吧
+
+倒是刚在群里有人说opencode go的glm5.3f跟着炸了没绷住<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
