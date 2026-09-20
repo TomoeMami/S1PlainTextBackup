@@ -130,3 +130,11 @@
 
 真不知道这部后半制作时到底啥情况
 
+
+*****
+
+####  水莲寺流歌  
+##### 810#       发表于 2026-9-20 22:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">比起主角团究极体难看更恐怖的问题是反派是齐天悟空兽，站一起还以为是皇骑对战暗黑四天王
+
