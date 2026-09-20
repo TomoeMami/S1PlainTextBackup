@@ -573,3 +573,76 @@ ign的评测有一点还是挺赞同的，这代的各种要素更像是一个�
 
 凯这种，则可以狂挖
 
+
+*****
+
+####  风祭果凛  
+##### 4492#       发表于 2026-9-20 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260835&amp;ptid=2261859" target="_blank">风使塞缇 发表于 2026-9-20 16:19</a>
+
+一条线最多能挖多少人，我才挖了三个人，我有一种挖不完的感觉。是不是要选择性挖？ ...</blockquote>
+回大厅重进章节会保留之前刷的好感，不知道是不是bug，但反正现在只要你愿意，你可以在一条线把所有人都挖进队伍
+
+*****
+
+####  风使塞缇  
+##### 4493#       发表于 2026-9-20 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260845&amp;ptid=2261859" target="_blank">lilod 发表于 2026-9-20 16:21</a>
+
+声望是卡点，声望提升慢的角色，必须选择性挖
+
+凯这种，则可以狂挖</blockquote>
+我走的就是凯线路，不知道最多能挖多少人。
+
+我试试看吧
+
+*****
+
+####  5ew47  
+##### 4494#       发表于 2026-9-20 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260751&amp;ptid=2261859" target="_blank">沉墨1st 发表于 2026-9-20 16:06</a>
+大地图移动都耗时间比较烦，还有就是之前不知道探索节点直接连续移动是亏一个探索的，可以探索了在移动，耗 ...</blockquote>
+男女角色都可以转飞龙的，不过和其他几个隐藏职业一样被锁住了
+
+*****
+
+####  风祭果凛  
+##### 4495#       发表于 2026-9-20 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260751&amp;ptid=2261859" target="_blank">沉墨1st 发表于 2026-9-20 16:06</a>
+
+大地图移动都耗时间比较烦，还有就是之前不知道探索节点直接连续移动是亏一个探索的，可以探索了在移动，耗 ...</blockquote>
+发职业也是分线的，比如女王线的上级有飞龙兵，但没有上级天马，你这条线没有的话可能就是没有了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 5ew47 + 1
+
+查看全部评分
+
+*****
+
+####  5ew47  
+##### 4496#       发表于 2026-9-20 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260931&amp;ptid=2261859" target="_blank">风祭果凛 发表于 2026-9-20 16:36</a>
+发职业也是分线的，比如女王线的上级有飞龙兵，但没有上级天马，你这条线没有的话可能就是没有了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">发职业原来还分线，学到了，难怪我这边女王线看谁都能转飞龙
+
+*****
+
+####  风祭果凛  
+##### 4497#       发表于 2026-9-20 16:39
+
+不知道其他线的情况，女王线第10章就轻松10级了，几乎所有人都只有好感需求，专属的物资收集刷声望太快了。但女王线发的职业并不好，感觉只适合练菜刀
+
