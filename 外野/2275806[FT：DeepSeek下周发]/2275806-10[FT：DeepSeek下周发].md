@@ -11903,3 +11903,35 @@ https://www.dsh.so/zh/artifact/dsh-purge/
 
 2026-9-20 22:44 上传
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 14247#       发表于 2026-9-21 00:05
+
+ 本帖最后由 Lorraine_Kinney 于 2026-9-21 00:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70261727&amp;ptid=2275806" target="_blank">ljwlwd 发表于 2026-9-20 19:33</a>
+
+请问现在买哪家的coding/token plan性价比比较高？倾向于那种有多家模型可用的，是opencode go吗？很久之前 ...</blockquote>
+如果主用国模的话，找cline pass的优惠码，14块钱首月 dsv4 量挺大 
+
+
+*****
+
+####  jamboo  
+##### 14248#       发表于 2026-9-21 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262541&amp;ptid=2275806" target="_blank">体制 发表于 2026-9-20 22:37</a>
+https://www.dsh.so/zh/artifact/dsh-purge/
+可能是因为我让dsh自己写个起送界面，然后他在启动界面里把 ...</blockquote>
+感谢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 14249#       发表于 2026-9-21 00:11
+
+skill还是很有价值的。
+
+比如我有firecrawl、perplexity、exa、kagi四个搜索引擎，每个能干哪些都需要skill里定义好啊，不然让ai临时乱猜吗？
+
