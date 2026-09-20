@@ -1092,3 +1092,14 @@ dlc可能是8强里另外4个吧，凯伊战争篇打完，回忆里突然多了
 
 怎么感觉这次后期入队的区太多，导致挖来的天马都没他们说的那么区了
 
+
+*****
+
+####  涂鸦恶魔  
+##### 4546#       发表于 2026-9-21 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263121&amp;ptid=2261859" target="_blank">白昼梦DD 发表于 2026-9-21 00:20</a>
+
+怎么感觉这次后期入队的区太多，导致挖来的天马都没他们说的那么区了，尤其是佩佩实在是区区 ...</blockquote>
+未入队的角色升级加点按没有职业的基本成长率计算<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
