@@ -27,3 +27,18 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xiongxingyu  
+##### 799#       发表于 2026-9-20 14:01
+
+这nm还不如不进化呢，好歹能留个想念，就这两玩意儿还究极体？扔完全体里都嫌素。就这立绘还是开了美颜了，动画里的福瑞简直没眼看<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wlhlz  
+##### 800#       发表于 2026-9-20 14:06
+
+都叫诺斯费拉图了，还不如就设计个丑丑的吸血鬼呢，现在这个像是出现在20年前低成本动画里的东西
+

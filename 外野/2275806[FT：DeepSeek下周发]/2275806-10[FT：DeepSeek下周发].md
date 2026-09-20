@@ -11427,3 +11427,17 @@ qwenimage2.1要开源了
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  andychen  
+##### 14203#       发表于 2026-9-20 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259675&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-20 12:42</a>
+我Jev账号申请下来了，每个月送5美金额度，还没想好怎么玩
+
+之前做的记忆系统有用llm打分的，能换成这个模 ...</blockquote>
+要极端一点，任何答案可以被转换为数值评价/答案为有限范围的问题都可以转换为Jev调用
+
+不过目前实际上受限于上下文长度（25k），另外也不确定这个模型的语义理解能力和前沿LLM有多大差距。种种迹象表明Jev的参数量应该很小
+

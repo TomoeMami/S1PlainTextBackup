@@ -17255,3 +17255,31 @@ https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?u=e1aebaebf97d44e4a668f312ed1793bc&a
 玩儿的是雷达线，主要加声望的任务就是去各处跳舞和主线，然后支线神殿啥的给一点儿零星 ...</blockquote>
 女王线有个物资周常，每次给大半天声望，舞女大概也会有差不多的。
 
+
+*****
+
+####  斯大林的拖拉机  
+##### 4438#       发表于 2026-9-20 14:02
+
+这个时间流动到底是什么规律，为什么帝都跑图有的时候时间会变，有的时候不变
+
+*****
+
+####  5ew47  
+##### 4439#       发表于 2026-9-20 14:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260001&amp;ptid=2261859" target="_blank">thecatnie 发表于 2026-9-20 13:45</a>
+红花那组的四圣兽队友，都加入不了吗？</blockquote>
+从我目前进度来看的话，这几个人应该都不能主动招
+
+*****
+
+####  bad_alloc  
+##### 4440#       发表于 2026-9-20 14:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260048&amp;ptid=2261859" target="_blank">asikies 发表于 2026-9-20 13:55</a>
+女王线有个物资周常，每次给大半天声望，舞女大概也会有差不多的。</blockquote>
+感觉a少声望挺紧缺的，剑鸣打一场就给一丁点，还会有刷不出怪/怪刷在不方便去的地方的情况，跑到怪的地方绕路还占回合数，每次进去打也很无聊，总之就是很不方便
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
