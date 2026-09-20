@@ -398,3 +398,11 @@ ea好像是要有新剧场版吧 我看色佬说
 
 这老虎几乎没有不死的可能吧，这集各种flag也太狠了
 
+
+*****
+
+####  洛克萨斯  
+##### 173#       发表于 2026-9-20 14:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虎大哥感觉头顶死兆星在闪耀啊，活的过圣诞么
+

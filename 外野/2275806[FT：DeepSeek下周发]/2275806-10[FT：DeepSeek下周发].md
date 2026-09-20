@@ -11441,3 +11441,35 @@ qwenimage2.1要开源了
 
 不过目前实际上受限于上下文长度（25k），另外也不确定这个模型的语义理解能力和前沿LLM有多大差距。种种迹象表明Jev的参数量应该很小
 
+
+*****
+
+####  真红之闪电  
+##### 14204#       发表于 2026-9-20 14:10
+
+ 本帖最后由 真红之闪电 于 2026-9-20 14:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259862&amp;ptid=2275806" target="_blank">尼曼兔 发表于 2026-9-20 13:18</a>
+常常要做软件演示，有一些界面和操作素材， 手扣AE是效果挺满意的，但是急活就sd出了，还是得剪，想一懒 ...</blockquote>
+这种我感觉你可以用 AI 直接生成啊。我之前就有片子懒得调色，让 Codex 直接调色。完全不通过剪辑软件。
+就是它会通过 FFMPEG 去出片子的。
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zhanglei1943  
+##### 14205#       发表于 2026-9-20 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259578&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-9-20 12:23</a>
+
+为啥啊，我看workbuddy太烂，trae又快倒闭了，就想买这个qoder cn了，请指教</blockquote>
+软件问题，qoder仿的vs code，思路过时而且太重了。
+
+我用起来反正非常不顺手
+
+*****
+
+####  kyonmoe  
+##### 14206#       发表于 2026-9-20 14:12
+
+glm3.5flash在晟腾a3本地部署老是挂，啥时候出正式版<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

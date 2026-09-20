@@ -40,3 +40,53 @@ A少的特供支线是打高手拿专属特技（
 这个时间流动到底是什么规律，为什么帝都跑图有的时候时间会变，有的时候不变 ...</blockquote>
 游戏场景内的时间流动很慢的，可以基本无视，
 
+
+*****
+
+####  thecatnie  
+##### 4445#       发表于 2026-9-20 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260093&amp;ptid=2261859" target="_blank">5ew47 发表于 2026-9-20 14:04</a>
+
+从我目前进度来看的话，这几个人应该都不能主动招</blockquote>
+四圣兽队友感觉人设都挺好的，按理说不可能浪费，但是各个攻略源都没有能入队的信息
+
+*****
+
+####  5ew47  
+##### 4446#       发表于 2026-9-20 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260082&amp;ptid=2261859" target="_blank">斯大林的拖拉机 发表于 2026-9-20 14:02</a>
+这个时间流动到底是什么规律，为什么帝都跑图有的时候时间会变，有的时候不变 ...</blockquote>
+一天24小时分4个回合，每个回合6小时，进王都逛街只算一个回合，虽然时间会流动但永远不会超出一个回合的时间上限，比如你12点进王都，不管待多久最后时间都会卡在17:59，直到你离开王都。至少我是这么理解的，唯一例外应该是触发特殊事件
+
+*****
+
+####  新條直輝  
+##### 4447#       发表于 2026-9-20 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259719&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-9-20 12:51</a>
+
+这一作黑点主要是大地图，以及大地图和主城的结合太差了
+
+另外就是目前的挖角是伪挖角，我可以接受你期望我 ...</blockquote>
+我算不同意你对大地图观点的一派，大地图确实做得一般，但回到这个方向的尝试在我这里算是加分的
+
+大地图是承载叙事和关卡设计功能的，例如系谱的大地图切分成不同章节对我而言非常受用，你可以看到辛老大一整个攻城略地到最后陨落的轨迹，整个战役的感觉就拉起来了
+
+三房我最难以接受的一点就是，日历与事件的结合太儿戏，中后期往往都是边境起了战事，我方在日历的一天之内就完成了去程，解决战斗，回程三件事，实在是太出戏了
+
+*****
+
+####  bad_alloc  
+##### 4448#       发表于 2026-9-20 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260111&amp;ptid=2261859" target="_blank">空气先生 发表于 2026-9-20 14:06</a>
+A少的特供支线是打高手拿专属特技（
+
+剑鸣就是其他JRPG里的吹口哨，例如你25级可以3在高等级剑鸣刷等级，简 ...</blockquote>
+几个专属战技拿下来感觉就是emmmmm，强度微妙，特效可有可无
+我还是喜欢朴实无华的加命中/加必杀/加伤害
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
