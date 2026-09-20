@@ -16953,3 +16953,14 @@ bro知道答案了请告我一声
 楼友这个表格有下载地址吗</blockquote>
 [https://docs.qq.com/sheet/DV0N0V ... lc=1&amp;tab=BB08J2](https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?u=e1aebaebf97d44e4a668f312ed1793bc&amp;nlc=1&amp;tab=BB08J2)
 
+
+*****
+
+####  ascomnet  
+##### 4409#       发表于 2026-9-20 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259290&amp;ptid=2261859" target="_blank">flyzzhj 发表于 2026-9-20 11:27</a>
+
+嗯，这个我知道，就是其他的是不是只能一天一天的走，不能指定一个位置自己跑过去？ ...</blockquote>
+这个我感觉后面官方会改，确实有点蛋疼
+
