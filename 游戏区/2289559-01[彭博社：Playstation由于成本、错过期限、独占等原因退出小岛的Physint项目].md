@@ -72,3 +72,38 @@ Hideo Kojima: No, not at all. They haven't contacted me ever since. But I'm not 
 
 我感觉SIE是对这个明星制作人真没耐心了，而且Physint的进度确实非常早期，我感觉现在的情况32年还差不多。。。
 
+
+*****
+
+####  日日日日日野  
+##### 147#       发表于 2026-9-20 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70261983&amp;ptid=2289559" target="_blank">SergeGlenn 发表于 2026-9-20 20:28</a>
+
+引擎还没定，这玩意儿30年尼玛能出来？
+
+小岛表示，他已经完成了《Physint》的剧情和游戏概念，连故事板也 ...</blockquote>
+你错了，如果索尼不取消项目，他们不用换引擎，还继续用游骑兵的Decima
+
+
+*****
+
+####  oyss  
+##### 148#       发表于 2026-9-20 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70261816&amp;ptid=2289559" target="_blank">zid99825 发表于 2026-9-20 19:49</a>
+
+被索尼按头了？按小岛的脾气这被坑一次应该永远不会回去和索尼合作了吧
+
+论坛助手,iPhone ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/20/204222qyw05rwazk5wby5w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-09-20 204139.jpg</strong> (167.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-20 20:42 上传
+
+合作依然愉快.  -----小岛工作室
+
