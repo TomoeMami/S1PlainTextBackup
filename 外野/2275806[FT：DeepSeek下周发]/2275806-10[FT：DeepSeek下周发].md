@@ -11697,3 +11697,20 @@ workbuddy除了有时候跑本地任务的时候卡一点，其实真没啥问�
 
 倒是刚在群里有人说opencode go的glm5.3f跟着炸了没绷住<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 14229#       发表于 2026-9-20 17:37
+
+炸了只代表有可能一段时间后来大的，不是马上就要来大的啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  omnitoken  
+##### 14230#       发表于 2026-9-20 17:40
+
+有api无关的agent吗，专攻视频生成的那种
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
