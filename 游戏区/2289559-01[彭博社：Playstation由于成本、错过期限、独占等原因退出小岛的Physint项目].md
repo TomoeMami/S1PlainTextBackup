@@ -169,3 +169,15 @@ ds2刚出的时候就和朋友说小岛有些放飞自我过头了，然后评�
 怎么可能大部分人跟小岛跑了，大部分人不是被cy挖去搞主机部门了吗？</blockquote>
 对的，就连写AZOE核心代码的程序员都在CY, ps4的AZOE就是他提出cy向konami拿授权，让cy的人练手怎么开发主机游戏+ vr
 
+
+*****
+
+####  SergeGlenn  
+##### 155#         楼主| 发表于 2026-9-20 21:42
+
+Jason在era上回了一下，也没什么可说的，小岛毕竟也没否定他的文章
+
+There's no denial here so nothing I feel any particular need to respond to, but one thing I'll add (and I believe I said this in my video) is that Sony and Kojima Productions were in negotiations over the future of the game for a while before it was canceled. Kojima Productions may be unhappy about how SIE handled it, but the news didn't come out of nowhere.
+
+这里并没有什么否认，所以我觉得没有什么特别需要回应的，但有一点我要补充（我相信我在视频里也说过）：在游戏被取消之前，索尼和小岛制作曾就这款游戏的未来进行过一段时间的谈判。小岛制作可能对SIE的处理方式感到不满，但这个消息并非凭空而来。
+

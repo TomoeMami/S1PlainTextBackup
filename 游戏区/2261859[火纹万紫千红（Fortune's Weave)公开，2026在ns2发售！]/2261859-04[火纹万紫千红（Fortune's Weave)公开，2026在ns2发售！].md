@@ -881,3 +881,11 @@ dlc可能是8强里另外4个吧，凯伊战争篇打完，回忆里突然多了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  无色辉火  
+##### 4523#       发表于 2026-9-20 21:44
+
+为什么我凯伊线第一部里就能看到猫猫头摘下面具的样子了<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">去送礼的时候吓了跳
+
