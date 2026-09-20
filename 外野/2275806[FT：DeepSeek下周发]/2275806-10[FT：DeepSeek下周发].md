@@ -11863,3 +11863,16 @@ Workbody 有更多的自带的各种 MCP，各种各样的软件和“专家”�
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  jamboo  
+##### 14244#       发表于 2026-9-20 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257059&amp;ptid=2275806" target="_blank">体制 发表于 2026-9-19 22:47</a>
+
+额，是harness自己告诉我的，然后自己装的
+
+—— 来自 鹅球 v4.0-alpha</blockquote>
+v4.1f直接拒绝我了
+
