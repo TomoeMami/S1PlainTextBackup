@@ -17163,3 +17163,20 @@ https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?u=e1aebaebf97d44e4a668f312ed1793bc&a
 这里动不动声望7第四章可以挖角，怎么做到的？</blockquote>
 意思是第四章进斗技场人物出现，可以送礼啥的
 
+
+*****
+
+####  jockeyjoestar  
+##### 4429#       发表于 2026-9-20 13:38
+
+<blockquote>nancygreenlife 发表于 2026-9-20 13:02
+玩了三十五小时了，好特么上瘾。主城和野外来回跑我反而觉得是醍醐味所在，看日历规划行程，生怕赶不上是真 ...</blockquote>
+前期开荒 根本没法算回合数
+
+*****
+
+####  JOJOROY  
+##### 4430#       发表于 2026-9-20 13:40
+
+有人打了雷达篇的凯伊外传吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
