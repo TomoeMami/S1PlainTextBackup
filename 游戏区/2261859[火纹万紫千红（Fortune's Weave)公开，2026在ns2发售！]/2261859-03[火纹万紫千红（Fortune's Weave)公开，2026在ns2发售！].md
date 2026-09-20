@@ -16576,3 +16576,164 @@ bro知道答案了请告我一声
 
 同时每条线我看贴吧说记得凑齐13人 不然第二章就只能用大众脸了  反正第一条线 如果不按照is规划来 按照自己喜欢来 肯定有些人是亏属性的 
 
+
+*****
+
+####  ParukiaMKII  
+##### 4389#       发表于 2026-9-20 10:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熟悉的全员土匪纹章又回来了，妈的那几个35力量成长的物攻选手，这辈子得有一半的时间都是土匪
+
+*****
+
+####  真田源次郎信繁  
+##### 4390#       发表于 2026-9-20 10:56
+
+这种极多选择的情况下还是单存档，就算没有真的压力，焦虑感也爆表了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bad_alloc  
+##### 4391#       发表于 2026-9-20 11:01
+
+13人这么多吗，打到第8章也只让上6个人，感觉是不是系统鼓励你用guest（
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  没取名啊  
+##### 4392#       发表于 2026-9-20 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70258725&amp;ptid=2261859" target="_blank">夜留歌 发表于 2026-9-20 10:16</a>
+大会中后期解锁打铁铺</blockquote>
+我去，好吧，那只能用特典剑和商店武器来打战技了
+
+*****
+
+####  白昼梦DD  
+##### 4393#       发表于 2026-9-20 11:03
+
+我怀疑说第二部难度高就是因为第一部挖人和养成系统做烂了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ParukiaMKII  
+##### 4389#       发表于 2026-9-20 10:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熟悉的全员土匪纹章又回来了，妈的那几个35力量成长的物攻选手，这辈子得有一半的时间都是土匪
+
+*****
+
+####  真田源次郎信繁  
+##### 4390#       发表于 2026-9-20 10:56
+
+这种极多选择的情况下还是单存档，就算没有真的压力，焦虑感也爆表了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bad_alloc  
+##### 4391#       发表于 2026-9-20 11:01
+
+13人这么多吗，打到第8章也只让上6个人，感觉是不是系统鼓励你用guest（
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  没取名啊  
+##### 4392#       发表于 2026-9-20 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70258725&amp;ptid=2261859" target="_blank">夜留歌 发表于 2026-9-20 10:16</a>
+大会中后期解锁打铁铺</blockquote>
+我去，好吧，那只能用特典剑和商店武器来打战技了
+
+*****
+
+####  白昼梦DD  
+##### 4393#       发表于 2026-9-20 11:03
+
+我怀疑说第二部难度高就是因为第一部挖人和养成系统做烂了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  flyzzhj  
+##### 4394#       发表于 2026-9-20 11:05
+
+这大地图走路只能一天天走的吗？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ParukiaMKII  
+##### 4389#       发表于 2026-9-20 10:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熟悉的全员土匪纹章又回来了，妈的那几个35力量成长的物攻选手，这辈子得有一半的时间都是土匪
+
+*****
+
+####  真田源次郎信繁  
+##### 4390#       发表于 2026-9-20 10:56
+
+这种极多选择的情况下还是单存档，就算没有真的压力，焦虑感也爆表了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bad_alloc  
+##### 4391#       发表于 2026-9-20 11:01
+
+13人这么多吗，打到第8章也只让上6个人，感觉是不是系统鼓励你用guest（
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  没取名啊  
+##### 4392#       发表于 2026-9-20 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70258725&amp;ptid=2261859" target="_blank">夜留歌 发表于 2026-9-20 10:16</a>
+大会中后期解锁打铁铺</blockquote>
+我去，好吧，那只能用特典剑和商店武器来打战技了
+
+*****
+
+####  白昼梦DD  
+##### 4393#       发表于 2026-9-20 11:03
+
+我怀疑说第二部难度高就是因为第一部挖人和养成系统做烂了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  flyzzhj  
+##### 4394#       发表于 2026-9-20 11:05
+
+这大地图走路只能一天天走的吗？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 4395#       发表于 2026-9-20 11:06
+
+太诡异了这个章节流程和养成模式。到现在既有说频繁换线好的也有说打完一条再换好的，所以到底哪个好
+
+*****
+
+####  绕指流光  
+##### 4396#       发表于 2026-9-20 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70258117&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-9-20 08:50</a>
+
+现在好感度可以重置章节进度无限吃饭刷满，会保留，卡人的就是名声了，基本上等于进度锁
+
+锁名声7以后的角 ...</blockquote>
+这种高声望的就是让你开其他线去挖的，支线继承后声望比第一条线简单多了
+
+而且后期属性可以merge，单线突入第二章的确废了
+
