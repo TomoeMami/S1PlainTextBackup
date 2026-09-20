@@ -889,3 +889,27 @@ dlc可能是8强里另外4个吧，凯伊战争篇打完，回忆里突然多了
 
 为什么我凯伊线第一部里就能看到猫猫头摘下面具的样子了<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">去送礼的时候吓了跳
 
+
+*****
+
+####  夜留歌  
+##### 4524#       发表于 2026-9-20 21:52
+
+ 本帖最后由 夜留歌 于 2026-9-20 21:54 编辑 
+
+<img src="https://p.sda1.dev/35/1fe61fae271de3ecd0b0efa422e29feb/image.jpg" referrerpolicy="no-referrer">
+
+有点艰难，打到boss面前队友全死，对面算boss还有五个怪，本来以为要重开了，没想到轮到对方行动时蕾达净化剑连续闪避三个敌人的攻击，反击触发暴击秒杀，轮到我方回合时收掉对面牧师，剩下boss，武器切到短弓+1，靠吃血瓶反击磨过去了
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  Jabeck  
+##### 4525#       发表于 2026-9-20 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262155&amp;ptid=2261859" target="_blank">Aresu 发表于 2026-9-20 21:05</a>
+
+这一作怎么只有转职的时候可以看到人物近景了 差评</blockquote>
+战场上向上推右摇杆也可看
+
