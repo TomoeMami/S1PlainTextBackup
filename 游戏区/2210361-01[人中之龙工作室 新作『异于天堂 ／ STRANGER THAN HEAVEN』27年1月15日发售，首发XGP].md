@@ -117,3 +117,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会是背锅亲爹吗
 
+
+*****
+
+####  Piano-Forest  
+##### 290#         楼主| 发表于 2026-9-20 19:09
+
+『ストレンジャー ザン ヘヴン』はあえてトレンドになびかず、生々しく人間臭いアクションを目指した作品。バトルのコツやアートの誕生経緯も訊くRGGスタジオインタビュー【TGS2026】
+[https://www.famitsu.com/article/202609/88294](https://www.famitsu.com/article/202609/88294)
+
+“縛り”から創造された，そうだったかもしれない5つの時代。セガブースに出展された「STRANGER THAN HEAVEN」の見どころを，RGGスタジオのキーマンに聞いた［TGS2026］
+[https://www.4gamer.net/games/865/G086590/20260920002/](https://www.4gamer.net/games/865/G086590/20260920002/)
+
