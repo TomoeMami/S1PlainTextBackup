@@ -16737,3 +16737,17 @@ bro知道答案了请告我一声
 
 而且后期属性可以merge，单线突入第二章的确废了
 
+
+*****
+
+####  白昼梦DD  
+##### 4397#       发表于 2026-9-20 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259105&amp;ptid=2261859" target="_blank">绕指流光 发表于 2026-9-20 11:07</a>
+这种高声望的就是让你开其他线去挖的，支线继承后声望比第一条线简单多了
+
+而且后期属性可以merge，单线突 ...</blockquote>
+也简单不了多少吧，第一条线也很难错过支线给的声望奖励
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
