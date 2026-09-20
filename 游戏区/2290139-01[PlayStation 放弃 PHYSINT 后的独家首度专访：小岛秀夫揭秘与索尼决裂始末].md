@@ -658,3 +658,11 @@ From Washington Post：
 
 经典赚了就都是我爹的功劳，亏了就要把我爹的钱都吐出来是吧，我看索尼都没这么急，就非要把正常的交易关系脑补成什么狗血虐恋可还行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osborn  
+##### 49#       发表于 2026-9-21 06:17
+
+如果岛割割直接开众筹，能不能筹到个1亿刀<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
