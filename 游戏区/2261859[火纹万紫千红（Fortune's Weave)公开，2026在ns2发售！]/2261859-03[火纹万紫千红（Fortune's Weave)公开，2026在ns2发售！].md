@@ -16430,3 +16430,31 @@ bro知道答案了请告我一声
 我不介意流程不完整，但是强制玩男角色也太恶心了，已经不想通关了。</blockquote>
 你可以想象成旷野之息，四英杰死在四神兽里面，你会不会只救米法不救力巴尔<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜留歌  
+##### 4380#       发表于 2026-9-20 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257890&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-9-20 07:55</a>
+
+我还以为这作武器耐久是过一章就恢复的，狂用战技，现在美丽哥的剑都快爆了但找不到地方修
+
+刚报上大剑斗祭 ...</blockquote>
+大会中后期解锁打铁铺
+
+
+*****
+
+####  PigMourne  
+##### 4381#       发表于 2026-9-20 10:22
+
+5年后真挺好看吧，咱就是说，IS能不能先把好看的图拿来宣发，哪怕剧情用倒叙也行呀<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PigMourne  
+##### 4382#       发表于 2026-9-20 10:22
+
+5年后真挺好看吧，咱就是说，IS能不能先把好看的图拿来宣发，哪怕剧情用倒叙也行呀<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
