@@ -608,3 +608,18 @@ From Washington Post：
 
 这几年ds拿了那么多奖项提名，啥时候进独立游戏提名赛道？搞笑
 
+
+*****
+
+####  moeful  
+##### 44#       发表于 2026-9-21 02:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263316&amp;ptid=2290139" target="_blank">ziyer 发表于 2026-9-21 01:00</a>
+
+没那么有才华
+
+—— 来自 Xiaomi 2211133C, Android 15, 鹅球 v3.5.99</blockquote>
+庵野秀明的才华在eva之前，你岛的才华在DS2之前。就这样的。
+
+其实这俩还真挺像。有才华有个屁用，呜呜呜呜我就是郁郁要拍一个炉管片拍20年然后另外开片拍长泽雅美裙底。一个就是我会做关卡有什么用我就是要用索尼的钱追星
+
