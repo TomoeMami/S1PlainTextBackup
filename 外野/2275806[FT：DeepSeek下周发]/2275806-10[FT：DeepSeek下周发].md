@@ -11473,3 +11473,22 @@ qwenimage2.1要开源了
 
 glm3.5flash在晟腾a3本地部署老是挂，啥时候出正式版<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 14207#       发表于 2026-9-20 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260110&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-20 14:06</a>
+
+要极端一点，任何答案可以被转换为数值评价/答案为有限范围的问题都可以转换为Jev调用
+
+不过目前实际上受 ...</blockquote>
+啥，上下文只有25K吗，那限制太大了
+
+其实我觉得思路应该往实时性方面走，不然跟我直接用别的模型没啥区别
+
+这个模型的判断能力理论上处在LLM的一个最准确的区域，有限输出套个壳其实能衍生出非常多的玩法，但问题是如果上下文真的只有25K其实限制还挺大的
+
+或者换个思路，就是做些用脚本判断要写非常复杂逻辑的任务，直接自然语言丢给LLM判断，感觉也不错
+
