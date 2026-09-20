@@ -11514,3 +11514,12 @@ qwenimage2.1要开源了
 
 国内客户端这块已经结束比赛了吗？kimi work ， trae work 啥的还有人用吗
 
+
+*****
+
+####  noneoneone  
+##### 14210#       发表于 2026-9-20 14:40
+
+我的AI帮我找了篇测试的文章，结论是jev速度快但没那么快，准确率一般，最大的优势是知道自己不知道。
+[https://wotai.co/blog/typesafe-jev-vs-claude-haiku-tested](https://wotai.co/blog/typesafe-jev-vs-claude-haiku-tested)
+
