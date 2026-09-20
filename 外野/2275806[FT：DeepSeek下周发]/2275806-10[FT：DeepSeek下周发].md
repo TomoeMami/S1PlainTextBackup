@@ -11876,3 +11876,16 @@ Workbody 有更多的自带的各种 MCP，各种各样的软件和“专家”�
 —— 来自 鹅球 v4.0-alpha</blockquote>
 v4.1f直接拒绝我了
 
+
+*****
+
+####  体制  
+##### 14245#       发表于 2026-9-20 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262427&amp;ptid=2275806" target="_blank">jamboo 发表于 2026-9-20 22:08</a>
+v4.1f直接拒绝我了</blockquote>
+https://www.dsh.so/zh/artifact/dsh-purge/
+可能是因为我让dsh自己写个起送界面，然后他在启动界面里把各类插件站收录进去了才会告诉我？你直接从链接装吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

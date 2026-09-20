@@ -138,3 +138,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">比起主角团究极体难看更恐怖的问题是反派是齐天悟空兽，站一起还以为是皇骑对战暗黑四天王
 
+
+*****
+
+####  失落之翼  
+##### 811#       发表于 2026-9-20 22:39
+
+你说你一个三合一究极体装备拉满还无限供能还水克火对波对不过一个究极体吗，那你们有啥底气搞这么大事的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+话说这ep到底是啥，吸光就植物人，但是有一点点就能活
+
+要我说西行四贤还是四合一出释迦兽才是正道啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
