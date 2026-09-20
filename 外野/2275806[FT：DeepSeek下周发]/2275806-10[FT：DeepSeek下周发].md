@@ -11347,3 +11347,18 @@ qoder用不了一点</blockquote>
 
 —— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hugosol  
+##### 14196#       发表于 2026-9-20 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70256745&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-19 21:31</a>
+
+新的玩具出现了:Jev，可以理解为带语义理解能力的分类/条件判断模型。时间开销在毫秒级，服务成本极低
+
+Hac ...</blockquote>
+我Jev账号申请下来了，每个月送5美金额度，还没想好怎么玩<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+之前做的记忆系统有用llm打分的，能换成这个模型，但是感觉潜力不仅仅如此……
+
