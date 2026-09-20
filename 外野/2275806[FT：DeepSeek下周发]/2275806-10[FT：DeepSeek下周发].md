@@ -11362,3 +11362,23 @@ Hac ...</blockquote>
 
 之前做的记忆系统有用llm打分的，能换成这个模型，但是感觉潜力不仅仅如此……
 
+
+*****
+
+####  弗里德里希大帝  
+##### 14197#       发表于 2026-9-20 12:54
+
+据说gemini 4.0pro要出了？还是炒作？
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  尼曼兔  
+##### 14198#       发表于 2026-9-20 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255352&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-3-1 17:34</a>
+
+sd只是某种程度上做了点导演和摄像的工作，但是完全谈不上剪辑啊…看片总不能不看情绪吧？不是镜头组接就是 ...</blockquote>
+想知道自动剪辑有没有好选择，这块是不是字节闭环了，剪映啥的，没开vip一直不知道它的上限
+
