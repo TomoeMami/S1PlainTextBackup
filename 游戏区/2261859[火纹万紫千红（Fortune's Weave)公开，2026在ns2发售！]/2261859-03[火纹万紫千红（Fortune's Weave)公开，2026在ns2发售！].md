@@ -16777,3 +16777,61 @@ bro知道答案了请告我一声
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ascomnet  
+##### 4401#       发表于 2026-9-20 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259090&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-9-20 11:06</a>
+
+太诡异了这个章节流程和养成模式。到现在既有说频繁换线好的也有说打完一条再换好的，所以到底哪个好 ...</blockquote>
+都差不多吧，我个人是先打完一条线
+
+*****
+
+####  ascomnet  
+##### 4402#       发表于 2026-9-20 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259087&amp;ptid=2261859" target="_blank">flyzzhj 发表于 2026-9-20 11:05</a>
+
+这大地图走路只能一天天走的吗？</blockquote>
+主城旁边我记得有传送的马车，但你得先开图
+
+*****
+
+####  flyzzhj  
+##### 4403#       发表于 2026-9-20 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259273&amp;ptid=2261859" target="_blank">ascomnet 发表于 2026-9-20 11:26</a>
+
+主城旁边我记得有传送的马车，但你得先开图</blockquote>
+嗯，这个我知道，就是其他的是不是只能一天一天的走，不能指定一个位置自己跑过去？
+
+*****
+
+####  jacatay  
+##### 4404#       发表于 2026-9-20 11:31
+
+能力值四线合并的 说明个别角色就是没让你这个线用的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  deathyue  
+##### 4405#       发表于 2026-9-20 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259247&amp;ptid=2261859" target="_blank">白昼梦DD 发表于 2026-9-20 11:23</a>
+
+因为这次要跑迷宫还要打回合制战斗
+
+—— 来自 S1Fun</blockquote>
+你是说地牢探索部分吧，回合制战斗不就JRPG模式吗，也不用考虑帧数，我是感觉只要不影响核心玩法，平时跑图不是那种掉帧脱帧就能行的
+
+*****
+
+####  嘲风  
+##### 4406#       发表于 2026-9-20 11:34
+
+6个神殿时不时可以觐见涨名声，这个频率是多少，如果蹲城里靠神刷声望，能提前解锁一两级吗
+

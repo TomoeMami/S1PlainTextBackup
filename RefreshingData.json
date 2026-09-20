@@ -2192,7 +2192,7 @@
     "newtitle": "[【专楼】月姬Remake - A piece of blue glass moon - 正式发售！]",
     "lastedit": 1789616045,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1924836": {
@@ -12024,13 +12024,13 @@
     "update": false
   },
   "2261859": {
-    "totalreply": 4400,
+    "totalreply": 4404,
     "title": "[火纹万紫千红（Fortune's Weave)公开，2026在ns2发售！]",
     "newtitle": "[火纹万紫千红（Fortune's Weave)公开，2026.9.17在ns2发售！／8.4晚22点专场nd]",
-    "lastedit": 1789874676,
+    "lastedit": 1789875240,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2034248": {
     "totalreply": 441,
@@ -12474,10 +12474,10 @@
     "update": false
   },
   "2267035": {
-    "totalreply": 1375,
+    "totalreply": 1377,
     "title": "[空之轨迹 the 2nd确认下财年发售！]",
     "newtitle": "[空之轨迹 the 2nd确认9.17发售！]",
-    "lastedit": 1789874552,
+    "lastedit": 1789875134,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2271276": {
-    "totalreply": 9756,
+    "totalreply": 9758,
     "title": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
     "newtitle": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
-    "lastedit": 1789746377,
+    "lastedit": 1789875270,
     "category": "外野",
     "active": true,
     "update": false
@@ -13365,10 +13365,10 @@
     "update": false
   },
   "2284681": {
-    "totalreply": 4090,
+    "totalreply": 4091,
     "title": "[中东砖楼 2026年7月版]",
     "newtitle": "[中东砖楼 2026年9月版]",
-    "lastedit": 1789873689,
+    "lastedit": 1789875399,
     "category": "外野",
     "active": true,
     "update": false
@@ -13635,10 +13635,10 @@
     "update": false
   },
   "2271287": {
-    "totalreply": 253,
+    "totalreply": 254,
     "title": "[【2026】格斗游戏节奏楼]",
     "newtitle": "[【2026】格斗游戏节奏楼]",
-    "lastedit": 1789874551,
+    "lastedit": 1789875132,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14058,13 +14058,13 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 13947,
+    "totalreply": 13948,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1789874892,
+    "lastedit": 1789875420,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2269425": {
     "totalreply": 196,
@@ -14952,10 +14952,10 @@
     "totalreply": 274,
     "title": "[《卧龙2：凤火连天》公开，2027年初全平台发售，首发XGP]",
     "newtitle": "[《卧龙2：凤火连天》公开，2027年3月4日全平台发售（首发XGP），试玩Demo现已上线]",
-    "lastedit": 1789874682,
+    "lastedit": 1789875120,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2258707": {
     "totalreply": 113,
@@ -15620,7 +15620,7 @@
     "newtitle": "[＂JRPG味＂到底是什么？]",
     "lastedit": 1789615806,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289698": {
@@ -15948,10 +15948,10 @@
     "update": false
   },
   "2289805": {
-    "totalreply": 460,
+    "totalreply": 463,
     "title": "[赛力斯汽车脱离华为—鸿蒙智行体系？改为类似阿维塔？]",
     "newtitle": "[赛力斯汽车脱离华为—鸿蒙智行体系？改为类似阿维塔？]",
-    "lastedit": 1789874433,
+    "lastedit": 1789875014,
     "category": "外野",
     "active": true,
     "update": false
@@ -16428,10 +16428,10 @@
     "totalreply": 159,
     "title": "[有一说一，索尼游戏死活不上中配是什么意思]",
     "newtitle": "[有一说一，索尼游戏死活不上中配是什么意思]",
-    "lastedit": 1789874674,
+    "lastedit": 1789875000,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2288072": {
     "totalreply": 61,
@@ -16605,10 +16605,10 @@
     "update": false
   },
   "2289995": {
-    "totalreply": 89,
+    "totalreply": 91,
     "title": "[这算是一个男人的终极梦想之屋吗]",
     "newtitle": "[这算是一个男人的终极梦想之屋吗]",
-    "lastedit": 1789874046,
+    "lastedit": 1789875015,
     "category": "外野",
     "active": true,
     "update": false
@@ -16632,19 +16632,19 @@
     "update": false
   },
   "2290013": {
-    "totalreply": 151,
+    "totalreply": 152,
     "title": "[90年代是什么样子的？]",
     "newtitle": "[90年代是什么样子的？]",
-    "lastedit": 1789874676,
+    "lastedit": 1789875075,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2290006": {
-    "totalreply": 74,
+    "totalreply": 76,
     "title": "[b站为何拿日音狂踩华语，有种洋人之下我第一的美]",
     "newtitle": "[b站为何拿日音狂踩华语，有种洋人之下我第一的美]",
-    "lastedit": 1789874047,
+    "lastedit": 1789875015,
     "category": "外野",
     "active": true,
     "update": false
@@ -16659,13 +16659,13 @@
     "update": false
   },
   "2290019": {
-    "totalreply": 115,
+    "totalreply": 117,
     "title": "[现在的人连三十帧也接受不了了吗？]",
     "newtitle": "[现在的人连三十帧也接受不了了吗？]",
-    "lastedit": 1789874553,
+    "lastedit": 1789875120,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2104476": {
     "totalreply": 109,
@@ -16716,10 +16716,10 @@
     "totalreply": 64,
     "title": "[我非常赞同童子军大王对荒野之息的批评]",
     "newtitle": "[我非常赞同童子军大王对荒野之息的批评]",
-    "lastedit": 1789866857,
+    "lastedit": 1789875120,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2287681": {
     "totalreply": 79,
@@ -16821,19 +16821,19 @@
     "update": false
   },
   "2290085": {
-    "totalreply": 60,
+    "totalreply": 64,
     "title": "[男子连用十几个西瓜砸摊主头部，摊主全程未起身还手，夫妻被拘留罚款后赔偿近7万元]",
     "newtitle": "[男子连用十几个西瓜砸摊主头部，摊主全程未起身还手，夫妻被拘留罚款后赔偿近7万元]",
-    "lastedit": 1789874678,
+    "lastedit": 1789875268,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2290089": {
-    "totalreply": 141,
+    "totalreply": 152,
     "title": "[失业率上热搜。。]",
     "newtitle": "[失业率上热搜。。]",
-    "lastedit": 1789874676,
+    "lastedit": 1789875299,
     "category": "外野",
     "active": true,
     "update": false
@@ -16842,9 +16842,9 @@
     "totalreply": 212,
     "title": "[真三国无双2复刻，延期至26／10／1发售]",
     "newtitle": "[真三国无双2复刻，延期至26／10／1发售]",
-    "lastedit": 1789874686,
+    "lastedit": 1789875120,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   }
 }
