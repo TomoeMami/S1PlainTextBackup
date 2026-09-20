@@ -1154,3 +1154,27 @@ dlc可能是8强里另外4个吧，凯伊战争篇打完，回忆里突然多了
 
 这观战也没提示触发啊……什么玩意
 
+
+*****
+
+####  xiaohao123  
+##### 4552#       发表于 2026-9-21 02:06
+
+ 本帖最后由 xiaohao123 于 2026-9-21 02:08 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262400&amp;ptid=2261859" target="_blank">nancygreenlife 发表于 2026-9-20 22:01</a>
+
+这作果然流程还是太长了吗？玩累了歇会儿，上mobygames准备研究一下职员表，结果发现还没人上传呢 ...</blockquote>
+[https://nintendo.fandom.com/wiki ... credits](https://nintendo.fandom.com/wiki/Fire_Emblem:_Fortune%27s_Weave/credits#Composers_2)
+
+这里有
+
+顺带一提小室菜美被打发去管语音和录音了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白昼梦DD  
+##### 4553#       发表于 2026-9-21 02:08
+
+正常跟猫组队打红蓝然后猫露脸是在A少线，然后其他npc出来谜语几句
+这次四线的结果就是信息量变低，单线有些剧情还变得莫名其妙
+
