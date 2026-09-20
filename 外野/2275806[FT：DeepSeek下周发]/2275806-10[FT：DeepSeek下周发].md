@@ -11588,3 +11588,23 @@ workbuddy除了有时候跑本地任务的时候卡一点，其实真没啥问�
 
 我其实也不懂workbuddy有什么好黑的。不充钱白嫖开箱即用，界面虽然不算特别干净，但是在大厂harness里已经算清爽的了。充钱了给你api外接，连嫌弃workbuddy本体的问题都没了，国产开源模型齐全而且上新快，以后不好说现在推广期有额外每日积分，实际上是目前正规订阅里最便宜的v4.1f和k3。
 
+
+*****
+
+####  Cloude_L  
+##### 14217#       发表于 2026-9-20 16:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我只是嫌workbuddy启动执行都卡，而且其他agent配置起来也不麻烦
+
+
+*****
+
+####  cody198879  
+##### 14218#       发表于 2026-9-20 16:33
+
+纯办公的人哪有能力配置，哪里不会点哪里才是真的。
+
+用了下千问办公，没有4.1flash，我感觉慢的都要死了
+
+—— 来自 HONOR PTP-AN70, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
