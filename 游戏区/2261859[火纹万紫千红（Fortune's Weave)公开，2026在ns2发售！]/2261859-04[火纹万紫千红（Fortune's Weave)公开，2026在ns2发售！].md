@@ -768,3 +768,14 @@ dlc可能是8强里另外4个吧，凯伊战争篇打完，回忆里突然多了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 感觉饭白吃了 草
 
+
+*****
+
+####  风使塞缇  
+##### 4511#       发表于 2026-9-20 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70261268&amp;ptid=2261859" target="_blank">jockeyjoestar 发表于 2026-9-20 17:36</a>
+
+对了 要挖角吃饭必须带主角？</blockquote>
+我也好多没带主角
+
