@@ -11935,3 +11935,16 @@ skill还是很有价值的。
 
 比如我有firecrawl、perplexity、exa、kagi四个搜索引擎，每个能干哪些都需要skill里定义好啊，不然让ai临时乱猜吗？
 
+
+*****
+
+####  lordquest  
+##### 14250#       发表于 2026-9-21 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262175&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-20 21:08</a>
+
+阶跃星辰诈尸了？
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+ 晚上试了一下,  新的Step 5 Preview在cc和deepx code里用得还行. 
+
