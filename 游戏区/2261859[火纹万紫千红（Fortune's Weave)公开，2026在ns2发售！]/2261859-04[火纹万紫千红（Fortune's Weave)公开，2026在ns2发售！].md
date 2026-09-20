@@ -553,3 +553,23 @@ ign的评测有一点还是挺赞同的，这代的各种要素更像是一个�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  风使塞缇  
+##### 4490#       发表于 2026-9-20 16:19
+
+一条线最多能挖多少人，我才挖了三个人，我有一种挖不完的感觉。是不是要选择性挖？
+
+*****
+
+####  lilod  
+##### 4491#       发表于 2026-9-20 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260835&amp;ptid=2261859" target="_blank">风使塞缇 发表于 2026-9-20 16:19</a>
+
+一条线最多能挖多少人，我才挖了三个人，我有一种挖不完的感觉。是不是要选择性挖？ ...</blockquote>
+声望是卡点，声望提升慢的角色，必须选择性挖
+
+凯这种，则可以狂挖
+
