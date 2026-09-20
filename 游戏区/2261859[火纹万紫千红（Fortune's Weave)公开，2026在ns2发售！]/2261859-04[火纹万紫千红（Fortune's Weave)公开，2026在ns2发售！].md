@@ -1144,3 +1144,13 @@ dlc可能是8强里另外4个吧，凯伊战争篇打完，回忆里突然多了
 —— 来自 vivo V2502A, Android 16, 鹅球 v3.4 ...</blockquote>
 可以的<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 4551#       发表于 2026-9-21 01:23
+
+凯伊线突然就看到猫猫头真容了，也没剧情讲
+
+这观战也没提示触发啊……什么玩意
+
