@@ -11948,3 +11948,11 @@ skill还是很有价值的。
 —— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
  晚上试了一下,  新的Step 5 Preview在cc和deepx code里用得还行. 
 
+
+*****
+
+####  wonderful259  
+##### 14251#       发表于 2026-9-21 02:19
+
+阶跃这个速度还是不太行啊，吐 token 的速度。
+
