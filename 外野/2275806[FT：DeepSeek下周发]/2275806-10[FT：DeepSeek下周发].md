@@ -11539,3 +11539,16 @@ workbuddy除了有时候跑本地任务的时候卡一点，其实真没啥问�
 
 —— 来自 HONOR PTP-AN70, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  gooyoy  
+##### 14212#       发表于 2026-9-20 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260355&amp;ptid=2275806" target="_blank">cody198879 发表于 2026-9-20 14:50</a>
+
+我自己用下来虽然workbuddy虽然有这个那个问题，实际上是目前最好用的。
+
+阿里的qoder，可以用的模型太少</blockquote>
+事实就是这样，纯论产品能力，这些人是真的卷不过腾讯……
+
