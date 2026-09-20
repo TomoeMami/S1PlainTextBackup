@@ -17008,3 +17008,16 @@ bro知道答案了请告我一声
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  偎  
+##### 4414#       发表于 2026-9-20 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259229&amp;ptid=2261859" target="_blank">deathyue 发表于 2026-9-20 11:21</a>
+
+插个话题，前天在B站看到个观点，说万紫千红没60帧垃圾不配玩，所以没买，我寻思火纹是个SRPG，30或60影响 ...</blockquote>
+我在闲鱼捡便宜还真的看到有玩家说30帧，拆开就不想玩了😂
+
+只能说人各有志
+
