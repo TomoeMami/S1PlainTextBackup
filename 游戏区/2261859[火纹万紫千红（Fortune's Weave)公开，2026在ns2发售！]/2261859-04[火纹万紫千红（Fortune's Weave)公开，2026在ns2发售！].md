@@ -1018,3 +1018,14 @@ dlc可能是8强里另外4个吧，凯伊战争篇打完，回忆里突然多了
 
 朱紫真是风花雪月的全面上位啊，剧情也比风花雪月好多了
 
+
+*****
+
+####  索非亚  
+##### 4538#       发表于 2026-9-20 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262474&amp;ptid=2261859" target="_blank">winder0707 发表于 2026-9-20 22:20</a>
+
+有些座骑带提升成长率的技能</blockquote>
+对了下成长率表，坐骑带的属性加成还会增加成长率，1点加5成长，亚历山德拉的天马力速魔防各1对应成长也各加5。该全员转鸵鸟了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
