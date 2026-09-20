@@ -16994,3 +16994,17 @@ bro知道答案了请告我一声
 
 喷了，这作按照正剧来演绎剧情的模式的确适合我胃口，蕾达线玩了10小时左右后，一种主角团所有成员出figma，都想买的感觉
 
+
+*****
+
+####  白昼梦DD  
+##### 4413#       发表于 2026-9-20 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70259336&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-9-20 11:34</a>
+6个神殿时不时可以觐见涨名声，这个频率是多少，如果蹲城里靠神刷声望，能提前解锁一两级吗
+
+ ...</blockquote>
+没什么规律吧 但是一个神殿一章好像只能加一次声望，第二次就不给声望了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

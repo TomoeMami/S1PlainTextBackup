@@ -11326,3 +11326,14 @@ s1这是继承老音速的传统吗？每逢大新闻就大姨妈
 
 在无人在乎的地方，opencode界面大改版了
 
+
+*****
+
+####  相见恨晚  
+##### 14194#       发表于 2026-9-20 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257518&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-9-20 02:05</a>
+
+qoder用不了一点</blockquote>
+为啥啊，我看workbuddy太烂，trae又快倒闭了，就想买这个qoder cn了，请指教
+
