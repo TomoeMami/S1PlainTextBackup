@@ -84,3 +84,21 @@
 
 不帅还撑不过3秒的究极体到底是谁想出来的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bgmilk  
+##### 806#       发表于 2026-9-20 20:16
+
+这作的角色设计难得追上了时代，却在兽设上拉了大胯，东映不想做数码兽真别做了吧。
+
+*****
+
+####  恋叶梦境  
+##### 807#       发表于 2026-9-20 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70261941&amp;ptid=2250190" target="_blank">bgmilk 发表于 2026-9-20 20:16</a>
+
+这作的角色设计难得追上了时代，却在兽设上拉了大胯，东映不想做数码兽真别做了吧。 ...</blockquote>
+如果我说这部其实似乎是东映戳窜万代做的呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
