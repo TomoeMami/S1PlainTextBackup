@@ -150,3 +150,22 @@ Hideo Kojima: No, not at all. They haven't contacted me ever since. But I'm not 
 问题是你自己剩下的女光头金刚狼之类的又是什么贵物呢 ...</blockquote>
 不是说金刚狼3天销量已经超过死亡搁浅2生涯销量了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SorroFrost  
+##### 153#       发表于 2026-9-20 21:21
+
+ds2刚出的时候就和朋友说小岛有些放飞自我过头了，然后评价那时候一水的都说没问题。
+
+不过本身我对小岛评价高的就是mgs系列，而非ds，ds1我玩了后就不是很喜欢。
+
+*****
+
+####  断翼  
+##### 154#       发表于 2026-9-20 21:26
+
+<blockquote>ziyer 发表于 2026-9-20 21:06
+怎么可能大部分人跟小岛跑了，大部分人不是被cy挖去搞主机部门了吗？</blockquote>
+对的，就连写AZOE核心代码的程序员都在CY, ps4的AZOE就是他提出cy向konami拿授权，让cy的人练手怎么开发主机游戏+ vr
+
