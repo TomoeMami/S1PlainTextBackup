@@ -1041,3 +1041,21 @@ dlc可能是8强里另外4个吧，凯伊战争篇打完，回忆里突然多了
 —— 来自 S1Fun</blockquote>
 第二部10+人，玩家人数不够会给guest角色
 
+
+*****
+
+####  Bani82  
+##### 4540#       发表于 2026-9-20 23:46
+
+我第一部第8章人物已经开始冷板凳了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  松狮酱  
+##### 4541#       发表于 2026-9-20 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262342&amp;ptid=2261859" target="_blank">无色辉火 发表于 2026-9-20 21:44</a>
+
+为什么我凯伊线第一部里就能看到猫猫头摘下面具的样子了去送礼的时候吓了跳 ...</blockquote>
+你没观战那次比赛错过了，有一把猫猫头打小红小绿的比赛可以观战的，然后战斗里面猫猫头面具被打碎了
+
