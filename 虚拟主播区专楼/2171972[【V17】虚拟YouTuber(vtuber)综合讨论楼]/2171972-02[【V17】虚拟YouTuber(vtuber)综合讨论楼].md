@@ -513,3 +513,78 @@ https://note.com/toudaikun/n/n593206183d47
 
 所以那次VTA才会如此坚定的把人都开了
 
+
+*****
+
+####  艾特娜  
+##### 2119#       发表于 2026-9-18 08:33
+
+排第三的在日菲律宾裔是谁
+
+*****
+
+####  noHentai  
+##### 2120#       发表于 2026-9-20 02:45
+
+ 本帖最后由 noHentai 于 2026-9-20 03:08 编辑 
+
+时雨妈跟童装联动被炎上我没笑，しぐれうい 这个关键字在ytb被上了年龄限制我真笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便，她嘴确实挺硬的，这直播开头道歉轻描淡写，找补了一下联动没有把自己形象往人家店里放只是其他地方卖周边，一转说带节奏的大多都是乐子人非粉丝，然后直接让大家就此揭过<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer"> 
+
+换个企业势就算要说别的肯定也是先大力度道歉才是，不出意外评论区又翻车了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  sekai2014  
+##### 2121#       发表于 2026-9-20 14:57
+
+年龄限制问题 一般搜索没问题
+
+<img src="https://img.stage1st.com/forum/202609/20/143457rch10cbe2hyh2ugm.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-09-20 143429.png</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-20 14:34 上传
+
+加上特殊关键词后就会被打码
+
+<img src="https://img.stage1st.com/forum/202609/20/143611bw5vvvrvrpuvp19v.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-09-20 143602.png</strong> (432.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-20 14:36 上传
+
+正常的关键词就没事
+
+<img src="https://img.stage1st.com/forum/202609/20/143713hy1dbdvd1v4y8yd1.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-09-20 143649.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-20 14:37 上传
+
+*****
+
+####  noHentai  
+##### 2122#       发表于 2026-9-21 03:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260386&amp;ptid=2171972" target="_blank">sekai2014 发表于 2026-9-20 14:57</a>
+
+年龄限制问题 一般搜索没问题</blockquote>
+我这边普通关键字也会打码，搞不懂。
+
+<img src="https://img.stage1st.com/forum/202609/21/035822xdcwddodd20wzj7d.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260921-035743.png</strong> (1.61 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-21 03:58 上传
+
