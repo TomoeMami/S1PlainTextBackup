@@ -11756,3 +11756,13 @@ workbuddy对我最大的问题就是他自己塞的提示词太多也太诡异�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  serj005  
+##### 14235#       发表于 2026-9-20 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70261427&amp;ptid=2275806" target="_blank">rayaxu 发表于 2026-9-20 18:15</a>
+workbuddy对我最大的问题就是他自己塞的提示词太多也太诡异了，导致他输出的文本和dsh或者codex输出的文本 ...</blockquote>
+每次看workbuddy那个初始提示词在新对话里的巨大占用量就很难绷<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，都浪费在每轮调查后的html总结还有莫名给出的图表展示，还有新对话必吃的“把昵称和城市交代一下”
+
