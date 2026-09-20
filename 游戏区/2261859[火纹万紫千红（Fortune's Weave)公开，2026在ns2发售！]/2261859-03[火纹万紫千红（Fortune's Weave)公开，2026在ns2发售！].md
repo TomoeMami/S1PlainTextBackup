@@ -16197,3 +16197,13 @@ bro知道答案了请告我一声
 刚报上大剑斗祭的名，啥时候才能修武器啊
 另外这个挖人是只有第一part才能挖吗？大概多少声望要求的选手可以试着去勾引一勾，现在看着一大堆8级9级的选手好茫然
 
+
+*****
+
+####  skyfall_tr  
+##### 4356#       发表于 2026-9-20 07:58
+
+凯伊线的野兽到底加不加成长率啊，我怎么感觉就是把野兽加的属性值按照1:5换算成期望加进成长率里但实际其实没加<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
