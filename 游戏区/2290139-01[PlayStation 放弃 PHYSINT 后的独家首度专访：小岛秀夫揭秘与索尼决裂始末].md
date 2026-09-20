@@ -666,3 +666,13 @@ From Washington Post：
 
 如果岛割割直接开众筹，能不能筹到个1亿刀<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  weare17k  
+##### 50#       发表于 2026-9-21 07:08
+
+跪着要饭我真喷了，有哪个刚出两个游戏的工作室能不靠贷款不靠项目投资不靠股权融资全靠自己的钱愣开新项目的，不说学学专业知识了哪怕重轻的游戏资本播客去听听呢<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">当然我本身不玩小岛游戏，喷他和他的游戏没啥意见，拿这个用外界钱做游戏说事那是有点无语了
+
+—— 来自 HONOR PNM-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
