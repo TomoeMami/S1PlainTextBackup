@@ -760,3 +760,11 @@ dlc可能是8强里另外4个吧，凯伊战争篇打完，回忆里突然多了
 
 对了 要挖角吃饭必须带主角？
 
+
+*****
+
+####  jockeyjoestar  
+##### 4510#       发表于 2026-9-20 17:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 感觉饭白吃了 草
+
