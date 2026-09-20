@@ -16411,3 +16411,22 @@ bro知道答案了请告我一声
 只玩了十小时，有种回声和风花雪月合体版的感觉，太繁琐了</blockquote>
 中后期就变成结合了
 
+
+*****
+
+####  黑卷轴陶德传  
+##### 4378#       发表于 2026-9-20 10:07
+
+那个迷宫探索速决战，是不是无脑长按加号跳过就完事了？居然还有比P3爬塔P4进电视救人还无聊的系统也是醉了
+
+
+*****
+
+####  DarkDawn  
+##### 4379#       发表于 2026-9-20 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70257669&amp;ptid=2261859" target="_blank">asikies 发表于 2026-9-20 03:45</a>
+
+我不介意流程不完整，但是强制玩男角色也太恶心了，已经不想通关了。</blockquote>
+你可以想象成旷野之息，四英杰死在四神兽里面，你会不会只救米法不救力巴尔<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
