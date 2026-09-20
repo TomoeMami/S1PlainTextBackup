@@ -16354,3 +16354,33 @@ bro知道答案了请告我一声
 
 见到一个漂亮女的就叫姐姐
 
+
+*****
+
+####  真田源次郎信繁  
+##### 4371#       发表于 2026-9-20 09:39
+
+小孩哥线有哪些适合挖的啊，找了好几圈不是黑皮就是奇怪大叔，黑皮都不一定能挖，就一直用和尚大叔吗<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  -マユ‐  
+##### 4372#       发表于 2026-9-20 09:42
+
+只玩了十小时，有种回声和风花雪月合体版的感觉，太繁琐了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  5ew47  
+##### 4373#       发表于 2026-9-20 09:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">你别说，女王线小孩哥这几个人上来就叫姐姐/姐姐大人，好感度直线飙升
+
+*****
+
+####  紫菜粉丝煲  
+##### 4374#       发表于 2026-9-20 09:45
+
+初期觉得繁琐，上手后还是挺上瘾的
+
