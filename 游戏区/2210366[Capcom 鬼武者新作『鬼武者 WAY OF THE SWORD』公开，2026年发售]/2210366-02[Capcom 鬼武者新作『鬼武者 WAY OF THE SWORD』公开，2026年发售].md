@@ -135,3 +135,13 @@ b站上有刷箱子攻略，可以搜一下
 
 小次郎的不算快慢刀，出刀速度固定的，只是特意改了下劈那一刀变成蓄力，跟第一次见面时不同，留个8帧一闪给你。整个打起来与其说难不如说故意放阴招，你还拿着清水寺那里的经验会被算计。下劈你挡住了就用祁王挠你，应该没人初见不被祁王挠死过吧以为他打完了结果还有一手<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  kerbad  
+##### 1908#       发表于 2026-9-21 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264142&amp;ptid=2210366" target="_blank">叶雾 发表于 2026-9-21 09:18</a>
+昨天刚开始，前期好催眠啊，打了3个小时，就初战小次郎还可以，然后就是3刀死的杂兵和1刀死的远程杂兵 ...</blockquote>
+boss战也得到罗掌愿才开始好玩，我都想不通怎么敢把最无聊的两场boss战放Demo的<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

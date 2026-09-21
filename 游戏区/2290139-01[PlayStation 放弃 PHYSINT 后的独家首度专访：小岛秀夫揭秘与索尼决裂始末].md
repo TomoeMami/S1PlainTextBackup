@@ -974,3 +974,58 @@ Just because people will talk when I call doesn’t mean they want to be the fir
 Jason本人在Reddit对类似质疑的答复是：“我事前和你们一样不知道。爆出来后才去找内线问话的。有内线， ...</blockquote>
 那不就是信源不行<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Racyjackman  
+##### 81#       发表于 2026-9-21 11:08
+
+我觉得死亡搁浅和谍战游戏制作效率差别这么大可能是因为小岛知道一款谍战游戏要怎么做才会好玩，而对于死亡搁浅这种“创新”游戏则没有什么逼数，概念实现就觉得OK了
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nage560  
+##### 82#       发表于 2026-9-21 11:12
+
+ 本帖最后由 nage560 于 2026-9-21 11:14 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264910&amp;ptid=2290139" target="_blank">鹅大人 发表于 2026-9-21 11:00</a>
+
+泥潭吹项目管理基本上都是瞎吹的。
+
+小高这种，血源只狼老头环做了一半，废案都还塞在游戏里也能吹项目管 ...</blockquote>
+但是小岛做死搁1一个原创的游戏就用3年多的时间做出来，项目管理这块小岛的确是有的，2代拖太久我觉得也有3开的原因，而且中间还有个死搁1的导演剪辑版。
+
+*****
+
+####  ybfelix  
+##### 83#       发表于 2026-9-21 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264948&amp;ptid=2290139" target="_blank">爱护动物抓根宝 发表于 2026-9-21 11:05</a>
+
+那不就是信源不行</blockquote>
+不过Jason Schreier本来也是做事后尸检跟进报道起家的记者来着，先行舅舅党消息不是他的主攻方向<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zid99825  
+##### 84#       发表于 2026-9-21 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264970&amp;ptid=2290139" target="_blank">Racyjackman 发表于 2026-9-21 11:08</a>
+
+我觉得死亡搁浅和谍战游戏制作效率差别这么大可能是因为小岛知道一款谍战游戏要怎么做才会好玩，而对于死亡 ...</blockquote>
+纯粹是因为小岛现在双开，主力在做OD……
+
+PHYSINT还在预开发阶段，公布太早了而已
+
+
+*****
+
+####  卡拉德利姆  
+##### 85#       发表于 2026-9-21 11:16
+
+项目管理=把事做出来
+
+没把事做出来的 做出来搞砸的大有人在
+

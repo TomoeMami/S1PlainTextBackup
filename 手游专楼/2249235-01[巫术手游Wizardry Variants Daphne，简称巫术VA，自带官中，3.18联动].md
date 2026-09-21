@@ -100,3 +100,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">把万紫千红升到5级发现上限打不出来，现在转了游侠也没打出来，好亏啊
 
+
+*****
+
+####  sosgame67  
+##### 905#       发表于 2026-9-21 11:06
+
+游侠命中套比攻击套好做吧..总之还是攒石头等周年<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
