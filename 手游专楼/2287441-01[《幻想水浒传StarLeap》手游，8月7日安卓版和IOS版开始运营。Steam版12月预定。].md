@@ -16,3 +16,13 @@
 
 说了，24号更新，下周四。
 
+
+*****
+
+####  ハ－ダリ=クラウド  
+##### 85#       发表于 2026-9-21 18:22
+
+刷经验最快的办法是不是第三章的兔子强敌？
+
+不给skip有点不太想刷了 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

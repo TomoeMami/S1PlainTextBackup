@@ -1240,3 +1240,25 @@ od起源早跟小岛三开不矛盾，他玩这套明显就是缺乏责任心，
 
 PHYSINT连用什么引擎开发都还没决定好，这不就是还在画饼阶段<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  melody123  
+##### 103#       发表于 2026-9-21 18:17
+
+<img src="https://p.sda1.dev/35/6a98d088c516b8a738c7558fa5f61be9/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212G, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  herryk159  
+##### 104#       发表于 2026-9-21 18:22
+
+我觉得如果《PHYSINT》是PS独占的话，那么这个《潜龙谍影》的精神续作能为PS带来不小的价值和影响力吧。
+
+参考《血源诅咒》。
+
+再叠加其他因素，被放弃还是能理解的。
+
