@@ -12382,3 +12382,23 @@ B2YC0C，注册是注意要求美区比较干净的IP，否则容易被列入等
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  noneoneone  
+##### 14288#       发表于 2026-9-21 15:13
+
+前几天经历的使用agent的最危险的经历：dsh挂了想着试试pi就没管，pi给自己写插件也挂了，于是用hermes修，hermes跳出更新我下意识就同意了，结果不出所料hermes也挂了，好在现在hermes有个更新失败会自己修一下的功能。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  eno_emos  
+##### 14289#       发表于 2026-9-21 15:15
+
+泥潭前面几页一直有人说workbuddy的plan可以接api接出来，他那个api页面不是接进workbuddy的协作api吗？
+
+你们到底是怎么搞出来的workbuddy订阅的api的
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
