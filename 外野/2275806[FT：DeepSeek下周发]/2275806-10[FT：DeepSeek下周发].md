@@ -12178,3 +12178,11 @@ skill还是很有价值的。
 
 —— 来自 HUAWEI VYG-AL30, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  serj005  
+##### 14269#       发表于 2026-9-21 10:55
+
+智谱api收费表单上还有一行标了“限时免费”的“缓存储存”费用，别家有这项吗，从这里也能感觉到这家公司的调性<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
