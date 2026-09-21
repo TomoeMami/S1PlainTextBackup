@@ -12140,3 +12140,41 @@ skill还是很有价值的。
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  noneoneone  
+##### 14267#       发表于 2026-9-21 10:31
+
+也许是开源了客户端认证就会被移植到其他agent里？
+
+但就现在这点信誉还暗搓搓搞，那不肯定被人爆了。
+
+*****
+
+####  Geronimo  
+##### 14268#       发表于 2026-9-21 10:32
+
+你别说，这东西二畜一个A一个Z，从象征性上倒是拉满了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VYG-AL30, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  noneoneone  
+##### 14267#       发表于 2026-9-21 10:31
+
+也许是开源了客户端认证就会被移植到其他agent里？
+
+但就现在这点信誉还暗搓搓搞，那不肯定被人爆了。
+
+*****
+
+####  Geronimo  
+##### 14268#       发表于 2026-9-21 10:32
+
+你别说，这东西二畜一个A一个Z，从象征性上倒是拉满了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VYG-AL30, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -1027,3 +1027,17 @@ ff16有什么是demo里有游戏正篇里没有的吗
 — from S1 Next Goose v4.0-alpha</blockquote>
 原创剧情，历代角色就是类似彩蛋，不参与剧情的
 
+
+*****
+
+####  猪突猛进R  
+##### 296#       发表于 2026-9-21 10:46
+
+ 本帖最后由 猪突猛进R 于 2026-9-21 10:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264352&amp;ptid=2283081" target="_blank">wilkyway 发表于 2026-9-21 09:49</a>
+
+事传统。</blockquote>
+并非传统，这已经是复刻版了。
+
+SFC版FF5：[第一世界-1_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1UA411L7vb/?vd_source=536aedbb68ee78d848fb8b234f500dab&amp;p=2&amp;spm_id_from=333.788.videopod.episodes)
+
