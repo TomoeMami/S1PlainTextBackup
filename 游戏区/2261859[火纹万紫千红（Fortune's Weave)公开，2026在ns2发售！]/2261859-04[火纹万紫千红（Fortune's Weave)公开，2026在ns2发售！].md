@@ -1875,3 +1875,42 @@ Wiki有人传了
 
 2026-9-21 13:52 上传
 
+
+*****
+
+####  Bani82  
+##### 4617#       发表于 2026-9-21 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265816&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-9-21 13:49</a>
+
+最后角色合并要因果碎片，别用完了</blockquote>
+会继承数据高的一方是指两边中的一个角色的全部数值还是两边的每一项数值分开算取其中高的
+
+*****
+
+####  nekomimimisuzu  
+##### 4618#       发表于 2026-9-21 14:00
+
+打完一条路线后，切到之前看了个开头的别的角色的第3章存档，发现没继承数据。是要从第一章重开吗
+
+
+*****
+
+####  kalavinka  
+##### 4619#       发表于 2026-9-21 14:03
+
+ 本帖最后由 kalavinka 于 2026-9-21 14:07 编辑 
+
+风怒风怒
+
+*****
+
+####  kalavinka  
+##### 4620#       发表于 2026-9-21 14:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265849&amp;ptid=2261859" target="_blank">Bani82 发表于 2026-9-21 13:56</a>
+会继承数据高的一方是指两边中的一个角色的全部数值还是两边的每一项数值分开算取其中高的 ...</blockquote>
+所有角色每一项取最高
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

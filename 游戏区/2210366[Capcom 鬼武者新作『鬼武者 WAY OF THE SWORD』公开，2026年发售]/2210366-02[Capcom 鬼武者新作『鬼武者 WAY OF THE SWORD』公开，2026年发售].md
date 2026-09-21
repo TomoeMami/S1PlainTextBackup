@@ -185,3 +185,13 @@ demo的百秽数值够高加上初见还蛮好玩的来着，结果进了本体�
 熊猫服还挺...细节的，就是本来这游戏fov对我来说有点近，一穿玩偶服显大更难看到对面动作了 ...</blockquote>
 熊猫头太大了，经常看不到投技的闪光和出手动作，被源义经暴揍了一个多小时。换了件正常的衣服才打过。
 
+
+*****
+
+####  司马千晶  
+##### 1913#       发表于 2026-9-21 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264206&amp;ptid=2210366" target="_blank">相棒 发表于 2026-9-21 09:30</a>
+有人遇到这种情况么，PS5版罗掌愿那个场景一走进去就整个屏幕白花花的晃得眼睛都看不清了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我第一次进去也那样，把hdr关了呗
+
