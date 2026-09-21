@@ -1985,3 +1985,11 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  最强惠酱  
+##### 569#       发表于 2026-9-21 09:10
+
+意义不明，死了又活毫无感觉，演出上看起来很大事件，实际只是充满小家子气的儿女情长，什么种族矛盾完全没讲清楚，最重要的百合爱根本没展现出来<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+

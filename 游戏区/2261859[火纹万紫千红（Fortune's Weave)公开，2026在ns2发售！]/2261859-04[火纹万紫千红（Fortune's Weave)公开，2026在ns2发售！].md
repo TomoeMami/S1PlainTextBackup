@@ -1344,3 +1344,33 @@ Wiki有人传了
 
 如果是是根据主角团提升的那主线压级好像更好
 
+
+*****
+
+####  纯夏  
+##### 4570#       发表于 2026-9-21 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263839&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-21 08:18</a>
+
+建议第几章开始刷支援度？前面几章开头好多强制剧情，不方便重开
+
+—— 来自 Xiaomi 25113PN0EC, Android 1 ...</blockquote>
+我是日历剩余115回合的时候开始刷的 
+
+用无限刷支援度的方法其实可以顺便开地图
+
+地图上？的点上次开过即使重开之后地图的点上信息也开出来了 
+
+所以也是快速开图的方法
+
+*****
+
+####  嘲风  
+##### 4571#       发表于 2026-9-21 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264012&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-9-21 08:58</a>
+每一章挖角的人的等级是根据章节固定的还是随主角团等级提升的啊
+
+如果是是根据主角团提升的那主线压级好像 ...</blockquote>
+章节固定的
+
