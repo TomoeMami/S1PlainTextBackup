@@ -2883,3 +2883,14 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 
 沙漠的探索点虽然有很多椰枣 但是凯伊线过不去
 
+
+*****
+
+####  纯夏  
+##### 4707#       发表于 2026-9-22 02:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268378&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-22 02:04</a>
+
+问下，我通了蕾达第一章后发现可以选择重玩一遍，请问重玩一遍是保留等级再来一次第一章还是什么？ ...</blockquote>
+你点重玩的选项 系统会弹出详细说明窗口的  
+
