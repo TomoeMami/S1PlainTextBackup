@@ -2163,3 +2163,14 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 还好平稳落地<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 话说最后拉拉人耳都变出来了，舌头上的缝线怎么还在啊，一直不理解人设的这点看得真难受
 
+
+*****
+
+####  湖静欲成冰  
+##### 588#       发表于 2026-9-21 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267250&amp;ptid=2183857" target="_blank">aptx8285144 发表于 2026-9-21 19:07</a>
+
+现在哪有什么作品是没有商业属性的，蒜的恶心性自然不用多说，水魔对我来说也是个不但剧情四不像的存，人 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人物不恶心人代价是小出川原把几原属于酷儿的那一部分带刺的表达消解为新自由主义者的自利道德观吗？我觉得任何一个人看到最后逆练少革的拉拉都会哈哈大笑吧。
+
