@@ -12335,3 +12335,19 @@ B2YC0C，注册是注意要求美区比较干净的IP，否则容易被列入等
 不知道有没有人发过</blockquote>
 太损了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  坛子漆黑  
+##### 14283#       发表于 2026-9-21 14:49
+
+我看DSH讨论版,有人因为搜索时搜索到了违规内容,直接就把整个会话挂了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cloude_L  
+##### 14284#       发表于 2026-9-21 14:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要享受dsh因为各种神奇小众的原因紫砂的过程，或者因为一键重启插件按钮太宽了被一句话烧掉五千万token的结果
+
