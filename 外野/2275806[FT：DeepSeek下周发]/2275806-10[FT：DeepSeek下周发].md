@@ -12402,3 +12402,87 @@ B2YC0C，注册是注意要求美区比较干净的IP，否则容易被列入等
 你们到底是怎么搞出来的workbuddy订阅的api的
 <img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  近距离作战  
+##### 14290#       发表于 2026-9-21 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266323&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-21 15:13</a>
+
+前几天经历的使用agent的最危险的经历：dsh挂了想着试试pi就没管，pi给自己写插件也挂了，于是用hermes修， ...</blockquote>
+这种时候我都用cherrystudio的agent模式来修，这玩意坏了大不了重装
+
+*****
+
+####  ov_efly  
+##### 14291#       发表于 2026-9-21 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266323&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-21 15:13</a>
+
+前几天经历的使用agent的最危险的经历：dsh挂了想着试试pi就没管，pi给自己写插件也挂了，于是用hermes修， ...</blockquote>
+pi config 可以关闭有问题的插件，不至于挂吧
+
+
+*****
+
+####  近距离作战  
+##### 14290#       发表于 2026-9-21 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266323&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-21 15:13</a>
+
+前几天经历的使用agent的最危险的经历：dsh挂了想着试试pi就没管，pi给自己写插件也挂了，于是用hermes修， ...</blockquote>
+这种时候我都用cherrystudio的agent模式来修，这玩意坏了大不了重装
+
+*****
+
+####  ov_efly  
+##### 14291#       发表于 2026-9-21 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266323&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-21 15:13</a>
+
+前几天经历的使用agent的最危险的经历：dsh挂了想着试试pi就没管，pi给自己写插件也挂了，于是用hermes修， ...</blockquote>
+pi config 可以关闭有问题的插件，不至于挂吧
+
+*****
+
+####  FACS  
+##### 14292#       发表于 2026-9-21 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266223&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-21 14:57</a>
+
+对了，既然开源了，有人看过智谱说有问题的repo wiki是怎么工作的吗，一个据称在本地生成仓库索引的功能为 ...</blockquote>
+他注释里都写了“开源版”了还能给你看吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dark_saber  
+##### 14293#       发表于 2026-9-21 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266323&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-21 15:13</a>
+
+前几天经历的使用agent的最危险的经历：dsh挂了想着试试pi就没管，pi给自己写插件也挂了，于是用hermes修， ...</blockquote>
+pi应该可以禁用插件启动的
+
+
+*****
+
+####  FACS  
+##### 14292#       发表于 2026-9-21 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266223&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-21 14:57</a>
+
+对了，既然开源了，有人看过智谱说有问题的repo wiki是怎么工作的吗，一个据称在本地生成仓库索引的功能为 ...</blockquote>
+他注释里都写了“开源版”了还能给你看吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dark_saber  
+##### 14293#       发表于 2026-9-21 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266323&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-21 15:13</a>
+
+前几天经历的使用agent的最危险的经历：dsh挂了想着试试pi就没管，pi给自己写插件也挂了，于是用hermes修， ...</blockquote>
+pi应该可以禁用插件启动的
+
