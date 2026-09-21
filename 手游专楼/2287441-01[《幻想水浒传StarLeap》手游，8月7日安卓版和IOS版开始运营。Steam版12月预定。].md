@@ -26,3 +26,29 @@
 
 不给skip有点不太想刷了 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mnmn  
+##### 86#       发表于 2026-9-21 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267134&amp;ptid=2287441" target="_blank">ハ－ダリ=クラウド 发表于 2026-9-21 18:22</a>
+
+刷经验最快的办法是不是第三章的兔子强敌？
+
+不给skip有点不太想刷了</blockquote>
+第三章城墙那的强敌好打 自动效率高
+
+
+*****
+
+####  mnmn  
+##### 86#       发表于 2026-9-21 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267134&amp;ptid=2287441" target="_blank">ハ－ダリ=クラウド 发表于 2026-9-21 18:22</a>
+
+刷经验最快的办法是不是第三章的兔子强敌？
+
+不给skip有点不太想刷了</blockquote>
+第三章城墙那的强敌好打 自动效率高
+
