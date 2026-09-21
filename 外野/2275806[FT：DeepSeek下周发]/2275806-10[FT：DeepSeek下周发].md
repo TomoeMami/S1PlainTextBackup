@@ -12619,3 +12619,13 @@ B2YC0C，注册是注意要求美区比较干净的IP，否则容易被列入等
 Deepseek在网络方面为什么这么敏感肌啊？我让他把家里的qbittorrent tracker配置走代理，他都给我报风险。 ...</blockquote>
 应该是因为某报纸报道了咸鱼有人卖DS破甲词所以API端都上了外审吧
 
+
+*****
+
+####  serj005  
+##### 14306#       发表于 2026-9-21 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267449&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-9-21 20:17</a>
+Deepseek在网络方面为什么这么敏感肌啊？我让他把家里的qbittorrent tracker配置走代理，他都给我报风险。 ...</blockquote>
+也遇到了，写个mihomo覆写脚本也会报错
+
