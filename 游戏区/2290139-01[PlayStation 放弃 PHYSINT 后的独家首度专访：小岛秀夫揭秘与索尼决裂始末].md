@@ -910,3 +910,67 @@ kojima纯纯精神白皮吧
 我觉得是jason这种爆料记者一定要抓着一些莫须有的内部爆料来对一些模棱两可的情境下定论比较过分，尤其是 ...</blockquote>
 他声称自己有索尼，Xbox，和小岛工作室内部的信源来着。这种匿名来源自然只能是trust me bro信则有，但想象过去，也没啥道理要为这种事赌上记者生涯的人品去纯瞎说
 
+
+*****
+
+####  ナルバレック  
+##### 75#       发表于 2026-9-21 10:53
+
+<blockquote>nage560 发表于 2026-9-21 09:56
+仔细看清楚我说的是什么？说的是谁没有骂？</blockquote>
+哦哦，我语序看错了，我的问题，抱歉
+
+*****
+
+####  qianoooo  
+##### 76#       发表于 2026-9-21 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264853&amp;ptid=2290139" target="_blank">ybfelix 发表于 2026-9-21 10:51</a>
+
+他声称自己有索尼，Xbox，和小岛工作室内部的信源来着。这种匿名来源自然只能是trust me bro信则有，但想 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">如果他有小岛工作室内部信源 要么他在说谎要么小岛在说谎 两边就有没有持续沟通的事实的表达是互相矛盾的   不过不管怎么样Jason的报道对小岛工作室整体的信誉和投资价值都是不小的打击了 也不差这点fact check
+
+*****
+
+####  爱护动物抓根宝  
+##### 77#       发表于 2026-9-21 10:55
+
+ 本帖最后由 爱护动物抓根宝 于 2026-9-21 10:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264853&amp;ptid=2290139" target="_blank">ybfelix 发表于 2026-9-21 10:51</a>
+他声称自己有索尼，Xbox，和小岛工作室内部的信源来着。这种匿名来源自然只能是trust me bro信则有，但想 ...</blockquote>
+主要这次事后诸葛亮感太足了，这么大的事不早说，人家都敲定了你突然来捅刀子，搞得你要么是大雄消息不灵通–信源不行，要么纯看图说话–姿势水平不行。
+
+
+*****
+
+####  ybfelix  
+##### 78#       发表于 2026-9-21 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264885&amp;ptid=2290139" target="_blank">爱护动物抓根宝 发表于 2026-9-21 10:55</a>
+主要这次事后诸葛亮感太足了，这么大的事不早说，人家都敲定了你突然来捅刀子，搞得你要么是大雄消息不灵 ...</blockquote>
+Jason本人在Reddit对类似质疑的答复是：“我事前和你们一样不知道。爆出来后才去找内线问话的。有内线，但没有铁到跟我提前透题的程度”
+
+&gt;  It’s simple. I heard about this cancellation at the same time that everyone else did and made some calls, then reported a story two days later.
+
+Just because people will talk when I call doesn’t mean they want to be the first ones to break the news to me.
+
+*****
+
+####  鹅大人  
+##### 79#       发表于 2026-9-21 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264215&amp;ptid=2290139" target="_blank">nage560 发表于 2026-9-21 09:31</a>
+爆出这事情前死亡搁浅在泥潭的风气不是岛哥哥做死亡搁浅懂省钱项目管理强么，现在风评180度大转弯是什么原 ...</blockquote>
+泥潭吹项目管理基本上都是瞎吹的。
+小高这种，血源只狼老头环做了一半，废案都还塞在游戏里也能吹项目管理。问为什么，那就是项目摊太大最后做不完，靠小高个人掌控能力做成了一个在预定日期可以发售的作品，你就说强不强吧，至于为什么项目摊太大最后做不完，你别问。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 80#       发表于 2026-9-21 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264908&amp;ptid=2290139" target="_blank">ybfelix 发表于 2026-9-21 11:00</a>
+Jason本人在Reddit对类似质疑的答复是：“我事前和你们一样不知道。爆出来后才去找内线问话的。有内线， ...</blockquote>
+那不就是信源不行<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

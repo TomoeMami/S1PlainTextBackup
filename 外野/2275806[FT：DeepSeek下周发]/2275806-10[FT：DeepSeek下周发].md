@@ -12186,3 +12186,13 @@ skill还是很有价值的。
 
 智谱api收费表单上还有一行标了“限时免费”的“缓存储存”费用，别家有这项吗，从这里也能感觉到这家公司的调性<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ov_efly  
+##### 14270#       发表于 2026-9-21 11:02
+
+智谱这个格局，这底色
+
+梁文峰那句“被迫开源”真是说对了，太傻逼了
+
