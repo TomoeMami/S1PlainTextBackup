@@ -2190,3 +2190,24 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 这个排名靠谱吗</blockquote>
 圣吸姐放A就绷不住了，圣吸自带30必杀，战争篇最能吃经验之人，远程圣疗拥有者
 
+
+*****
+
+####  nekomimimisuzu  
+##### 4647#       发表于 2026-9-21 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266655&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-9-21 16:18</a>
+
+确实想知道这个，打完一条线别的线到底能继承什么。我是迪特里希玩了几章切凯伊线从头玩了 ...</blockquote>
+我看说是继承地图，支线完成情况，神殿加护等级，角色之间好感（换一条线主角换了，所以挖角需要重新吃饭了）
+
+*****
+
+####  kalavinka  
+##### 4648#       发表于 2026-9-21 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266584&amp;ptid=2261859" target="_blank">月夜的风 发表于 2026-9-21 16:04</a>
+
+就因为车是两匹马拉的关系吗?</blockquote>
+也只有这个原因了，但是他消耗的坐骑却只要1个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
