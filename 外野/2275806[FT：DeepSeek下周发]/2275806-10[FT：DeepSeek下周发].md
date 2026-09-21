@@ -12669,3 +12669,20 @@ Deepseek在网络方面为什么这么敏感肌啊？我让他把家里的qbitto
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ttoady  
+##### 14310#       发表于 2026-9-21 21:42
+
+我火星了吗？
+
+image.png
+(196 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-21 21:33 上传
+
+<img src="https://img.stage1st.com/forum/202609/21/213350mfnahcccnbb7rbcs.png" referrerpolicy="no-referrer">
+
