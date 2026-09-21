@@ -1631,3 +1631,13 @@ Wiki有人传了
 
 我感觉斧比剑好用，蕾达线，大叔和穆的速上不去，全在涨力，就算用剑也是被追的，但斧头一斧头杀一个，谁来都死
 
+
+*****
+
+####  抹茶瓜  
+##### 4596#       发表于 2026-9-21 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264460&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-9-21 10:01</a>
+难怪呢……凯伊这里我一脸懵逼，虽然已经被剧透了，但没有任何解释太离谱了 ...</blockquote>
+凯线也有解释的  有些日子会有其他参赛队伍的比赛 去观战都有内容 凯线也是去观战可以看到猫猫头队和别人打的时候把面具打破了 所以前面每章节都要去检查下几号可以观战<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

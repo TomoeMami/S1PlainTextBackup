@@ -9,3 +9,14 @@
 所以确定是因为在国内所以用不了的？
 我看他视频里没说原因是什么。
 
+
+*****
+
+####  Lisylfn  
+##### 423#       发表于 2026-9-21 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264912&amp;ptid=2267066" target="_blank">吴怀在 发表于 2026-9-21 11:01</a>
+所以确定是因为在国内所以用不了的？
+我看他视频里没说原因是什么。</blockquote>
+其实很正常也很合理，设备符合标准的话，嗅探到就自动禁用了
+
