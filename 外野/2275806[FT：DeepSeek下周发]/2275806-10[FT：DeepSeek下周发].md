@@ -12309,3 +12309,29 @@ skill还是很有价值的。
 论坛助手,iPhone</blockquote>
 B2YC0C，注册是注意要求美区比较干净的IP，否则容易被列入等待名单，好像有人用Grok bot注册成功
 
+
+*****
+
+####  misuzu0723  
+##### 14281#       发表于 2026-9-21 14:36
+
+<img src="https://img.stage1st.com/forum/202609/21/143613wehj8e48qajpe4ee.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-21 14:36 上传
+
+不知道有没有人发过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 14282#       发表于 2026-9-21 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266069&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-9-21 14:36</a>
+不知道有没有人发过</blockquote>
+太损了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
