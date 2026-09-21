@@ -2245,3 +2245,16 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 
 一匹仁之马，一匹义之马
 
+
+*****
+
+####  妮贝雅  
+##### 4652#       发表于 2026-9-21 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266399&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-21 15:24</a>
+
+取最高值 所以最功利的练法就是4条线挖的同一个角色
+
+每条都走不同的养成路线 最后用因果碎片融合获得各项 ...</blockquote>
+想知道如果不融合的话，第三部是以哪个为准？
+
