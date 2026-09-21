@@ -977,3 +977,22 @@ SE游戏请警惕Demo欺诈
 (不过今年发售的艾略特从这一点来说挽回了一点点印象) ...</blockquote>
 ff16有什么是demo里有游戏正篇里没有的吗
 
+
+*****
+
+####  wilkyway  
+##### 292#       发表于 2026-9-21 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263774&amp;ptid=2283081" target="_blank">银域放浪者 发表于 2026-9-21 08:01</a>
+为什么像素游戏要放立绘，无法理解</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/21/094854wv89dd8ewm990l0g.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1789955333448_1.webp</strong> (16.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-21 09:48 上传
+
+事传统。
+
