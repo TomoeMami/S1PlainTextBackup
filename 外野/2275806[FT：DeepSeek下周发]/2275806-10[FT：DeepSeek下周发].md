@@ -12506,3 +12506,21 @@ k3.1是不是快出来了
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  mp5  
+##### 14295#       发表于 2026-9-21 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266323&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-21 15:13</a>
+
+前几天经历的使用agent的最危险的经历：dsh挂了想着试试pi就没管，pi给自己写插件也挂了，于是用hermes修， ...</blockquote>
+不明白为什么pi也能玩挂, 手工禁用插件不就是改一下settings.json就能搞定吗?
+
+*****
+
+####  serj005  
+##### 14296#       发表于 2026-9-21 15:56
+
+pi 0.86之后启动速度快了不少
+
