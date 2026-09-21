@@ -2211,3 +2211,19 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 就因为车是两匹马拉的关系吗?</blockquote>
 也只有这个原因了，但是他消耗的坐骑却只要1个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 4649#       发表于 2026-9-21 16:45
+
+还有暗黑龙小红小绿的彩蛋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/21/164358nwdccmajctwaxkxx.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-09-21_164334_266.png</strong> (351.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-21 16:43 上传
+
