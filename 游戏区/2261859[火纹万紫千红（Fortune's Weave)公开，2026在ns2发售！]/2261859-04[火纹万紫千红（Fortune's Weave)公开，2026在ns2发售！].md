@@ -2258,3 +2258,14 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 每条都走不同的养成路线 最后用因果碎片融合获得各项 ...</blockquote>
 想知道如果不融合的话，第三部是以哪个为准？
 
+
+*****
+
+####  妮贝雅  
+##### 4653#       发表于 2026-9-21 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262155&amp;ptid=2261859" target="_blank">Aresu 发表于 2026-9-20 21:05</a>
+
+这一作怎么只有转职的时候可以看到人物近景了 差评</blockquote>
+战斗时上推右摇杆一定时间会切到近景
+
