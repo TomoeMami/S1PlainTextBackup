@@ -936,3 +936,13 @@ SE游戏请警惕Demo欺诈<img src="https://static.stage1st.com/image/smiley/fa
 
 (不过今年发售的艾略特从这一点来说挽回了一点点印象)
 
+
+*****
+
+####  银域放浪者  
+##### 289#       发表于 2026-9-21 08:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70253550&amp;ptid=2283081" target="_blank">KATE 发表于 2026-9-17 21:10</a>
+玩到王城烧大火那里，真没见差分挺紧张的bgm 主角 男二 女骑士全是普通表情 ...</blockquote>
+为什么像素游戏要放立绘，无法理解
+
