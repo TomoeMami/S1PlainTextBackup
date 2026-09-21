@@ -2123,3 +2123,14 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 演出画面依旧nb就是这剧情……还不如热带Q娃对小美人鱼的再创作呢<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  湖静欲成冰  
+##### 584#       发表于 2026-9-21 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265845&amp;ptid=2183857" target="_blank">aptx8285144 发表于 2026-9-21 13:55</a>
+
+演出和画面还不错，其他的就不要细想了，但是我依然觉得比水魔和蒜强一些，起码发现那些命题根本圆不回来 ...</blockquote>
+认真的吗？<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">水魔与蒜是商业动画，它们首要的任务是满足商业需求。从这点来说小大组合勉强及格，足立是超水平发挥，小出川原就……很纪念动画。
+
