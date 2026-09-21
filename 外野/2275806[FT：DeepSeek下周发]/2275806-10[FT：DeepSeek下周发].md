@@ -12736,3 +12736,17 @@ grok 4.7也来了
 
 看推特上说grok 4.7拉完了
 
+
+*****
+
+####  gx19860411  
+##### 14317#       发表于 2026-9-22 02:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267839&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-21 22:03</a>
+快来助我领鸡蛋 TierFlow 全新系统上线，新用户注册就送30元额度，好友通过您的链接完成注册后，双方奖励都 ...</blockquote>
+"已达到该类型验证码的每日发送上限"
+看我回复时间。
+这家不是一般的草台…
+
+—— 来自 Xiaomi M2011K2C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
