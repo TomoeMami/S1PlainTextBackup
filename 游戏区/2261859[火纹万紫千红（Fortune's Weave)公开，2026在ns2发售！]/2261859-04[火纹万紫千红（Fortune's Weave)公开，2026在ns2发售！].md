@@ -1217,3 +1217,14 @@ dlc可能是8强里另外4个吧，凯伊战争篇打完，回忆里突然多了
 
 这作最惨的大概是另外4队的副官了，要做外传才能挖，所以必定要终盘，面板烂完了，也没和自己队长的支援
 
+
+*****
+
+####  freedom12  
+##### 4559#       发表于 2026-9-21 07:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263556&amp;ptid=2261859" target="_blank">诡计 发表于 2026-9-21 02:32</a>
+
+我第一章第五节就把某人专武耐久用光了，请问还有救吗（）</blockquote>
+锻造电可以修吧
+
