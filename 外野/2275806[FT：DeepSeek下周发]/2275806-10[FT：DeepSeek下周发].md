@@ -12543,3 +12543,11 @@ pi 0.86之后启动速度快了不少
 
 风怒删除重复内容
 
+
+*****
+
+####  舞以  
+##### 14299#       发表于 2026-9-21 16:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那dsh更新之前把插件全都禁用了，也不会出啥问题啊
+

@@ -2160,3 +2160,33 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 
 有无转职推荐
 
+
+*****
+
+####  bwsusaga  
+##### 4644#       发表于 2026-9-21 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266583&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-21 16:04</a>
+
+这个排名靠谱吗</blockquote>
+有几个四条线都可以早收的角色，后期一合就是成型战力，比如这里A级的诺克求拉，B级的鲁智深
+
+*****
+
+####  u2deack  
+##### 4645#       发表于 2026-9-21 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265866&amp;ptid=2261859" target="_blank">nekomimimisuzu 发表于 2026-9-21 14:00</a>
+打完一条路线后，切到之前看了个开头的别的角色的第3章存档，发现没继承数据。是要从第一章重开吗 ...</blockquote>
+确实想知道这个，打完一条线别的线到底能继承什么。我是迪特里希玩了几章切凯伊线从头玩了
+
+*****
+
+####  空气先生  
+##### 4646#       发表于 2026-9-21 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266583&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-21 16:04</a>
+
+这个排名靠谱吗</blockquote>
+圣吸姐放A就绷不住了，圣吸自带30必杀，战争篇最能吃经验之人，远程圣疗拥有者
+
