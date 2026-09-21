@@ -12486,3 +12486,23 @@ pi应该可以禁用插件启动的
 前几天经历的使用agent的最危险的经历：dsh挂了想着试试pi就没管，pi给自己写插件也挂了，于是用hermes修， ...</blockquote>
 pi应该可以禁用插件启动的
 
+
+*****
+
+####  lactone  
+##### 14294#       发表于 2026-9-21 15:49
+
+k3.1是不是快出来了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  lactone  
+##### 14294#       发表于 2026-9-21 15:49
+
+k3.1是不是快出来了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
