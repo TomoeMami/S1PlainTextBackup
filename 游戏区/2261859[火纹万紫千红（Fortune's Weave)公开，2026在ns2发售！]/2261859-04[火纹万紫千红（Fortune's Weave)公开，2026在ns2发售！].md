@@ -1775,3 +1775,49 @@ Wiki有人传了
 看评分数就知道谁才是大哥</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">吹牛哥居然评分人数又多评分又高
 
+
+*****
+
+####  han110022  
+##### 4610#       发表于 2026-9-21 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265529&amp;ptid=2261859" target="_blank">星花 发表于 2026-9-21 12:48</a>
+
+斧头固定至少5伤害极难绝对是对玩家宝具。</blockquote>
+说反了吧，按三房的极难数值来设计的话
+
+极难敌方斧头哥绝对不可能只砍你5点伤害的，不能一刀半血都不能算极难了
+
+对斧头这种单发高力武器都得蹲草靠闪避了
+
+*****
+
+####  陆久舟  
+##### 4611#       发表于 2026-9-21 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265743&amp;ptid=2261859" target="_blank">meltingwhite 发表于 2026-9-21 13:33</a>
+看wiki，迪托线有个隐藏职业锻造师，需要强化战技10次解锁，这个有人解锁了吗 ...</blockquote>
+这个我解锁了，是斧c黑魔d要求的，我看了下没适合的人就没转
+
+*****
+
+####  抹茶瓜  
+##### 4612#       发表于 2026-9-21 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265752&amp;ptid=2261859" target="_blank">5ew47 发表于 2026-9-21 13:34</a>
+
+吹牛哥居然评分人数又多评分又高</blockquote>
+凯伊线教程给的保底队友 数值又给的很慷慨，导致前面必须带着当保姆<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mggr  
+##### 4613#       发表于 2026-9-21 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70260105&amp;ptid=2261859" target="_blank">抹茶瓜 发表于 2026-9-20 14:05</a>
+
+越早挖角养的越好 越晚入队越废物 
+
+名声基本上就是主线剧情锁  我刷了好感 让绿毛在17级入队还能抢救下 粉 ...</blockquote>
+第几章刷好感度合适，前面几章一开头都是强制剧情不能吃饭
+
