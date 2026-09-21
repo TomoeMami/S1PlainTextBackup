@@ -2182,3 +2182,11 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 最后不把人鱼和人类包个大饺子，我反而不懂为什么前面要整这么多集数了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pzk  
+##### 590#       发表于 2026-9-21 21:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前面还在“因为有你才想活在这个世界”，后面怎么是这种剧情，给我的感觉就像羽川翼一样，突然就为了世界和平走了……
+

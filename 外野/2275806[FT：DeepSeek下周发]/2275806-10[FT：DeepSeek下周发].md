@@ -12650,3 +12650,22 @@ Deepseek在网络方面为什么这么敏感肌啊？我让他把家里的qbitto
 前几天经历的使用agent的最危险的经历：dsh挂了想着试试pi就没管，pi给自己写插件也挂了，于是用hermes修， ...</blockquote>
 笔记本上有workbuddy，mac上有hermes和openclaw，台式机上有opencode和codex，所以坏了就互相修就行
 
+
+*****
+
+####  leoray  
+##### 14309#       发表于 2026-9-21 21:22
+
+在群里放了个聊天bot接了官网v4f，这是今天发生的对话<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这群友天天暴躁AI疑似要觉醒了（硅基是指令触发词）
+
+<img src="https://img.stage1st.com/forum/202609/21/212158udj11fkr9f1ryhpt.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4873.JPG</strong> (324.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-21 21:21 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
