@@ -12750,3 +12750,15 @@ grok 4.7也来了
 
 —— 来自 Xiaomi M2011K2C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  大暴死  
+##### 14318#       发表于 2026-9-22 02:49
+
+本地qwen image 2.1玩了会儿，还挺不错的<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+附件是两句话提示词50步one shot生成的，用了官方的T2I提示词优化模型完善prompt
+<img src="https://p.sda1.dev/35/35343b3d9df4d845055461070e156036/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
