@@ -2062,3 +2062,16 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 吹牛哥居然评分人数又多评分又高</blockquote>
 这位是数值美大人，实在是太有数值了
 
+
+*****
+
+####  纯夏  
+##### 4636#       发表于 2026-9-21 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266203&amp;ptid=2261859" target="_blank">kevinausting 发表于 2026-9-21 14:54</a>
+
+多条线都招了的角色，最后统合数据是怎么算的呢？各项分别取平均值还是取最高值？如果取最高值的话，我可以 ...</blockquote>
+取最高值 所以最功利的练法就是4条线挖的同一个角色
+
+每条都走不同的养成路线 最后用因果碎片融合获得各项最强的属性
+
