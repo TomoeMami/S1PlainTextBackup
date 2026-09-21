@@ -946,3 +946,20 @@ SE游戏请警惕Demo欺诈<img src="https://static.stage1st.com/image/smiley/fa
 玩到王城烧大火那里，真没见差分挺紧张的bgm 主角 男二 女骑士全是普通表情 ...</blockquote>
 为什么像素游戏要放立绘，无法理解
 
+
+*****
+
+####  黑暗之眼  
+##### 290#       发表于 2026-9-21 08:24
+
+ 本帖最后由 黑暗之眼 于 2026-9-21 08:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263686&amp;ptid=2283081" target="_blank">Dragon_Quest_U 发表于 2026-9-21 06:57</a>
+FF16的教训仍历历在目
+
+SE游戏请警惕Demo欺诈
+
+(不过今年发售的艾略特从这一点来说挽回了一点点印象) ...</blockquote>
+FF16那个demo你们能看得出来行，也是厉害，光开头的不死鸟打伊弗利特就已经一团光污染不知所云了。
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

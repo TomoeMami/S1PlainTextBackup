@@ -1253,3 +1253,37 @@ syl，现在玩着玩着又变成全员土匪了（悲
 这代专职后强制存档啊！！！！！！而且不管成功失败都会存档！！！！！！！！！！ ...</blockquote>
 开会员，用NSO在线备份来SL
 
+
+*****
+
+####  mggr  
+##### 4562#       发表于 2026-9-21 08:17
+
+有没有一句话，简明的每周必做指南，感觉主线外要做的事情好多，没有头绪
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  mggr  
+##### 4563#       发表于 2026-9-21 08:18
+
+建议第几章开始刷支援度？前面几章开头好多强制剧情，不方便重开
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  bad_alloc  
+##### 4564#       发表于 2026-9-21 08:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263831&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-21 08:17</a>
+有没有一句话，简明的每周必做指南，感觉主线外要做的事情好多，没有头绪
+
+—— 来自 Xiaomi 25113PN0EC, A ...</blockquote>
+其实把每周的竞技场做了拿武器经验，神殿侍奉开加护就行
+吃饭可以在每章开头吃，然后重置章节进度会保留这次吃饭的好感，所以可以无限刷，刷到需要的好感之后就不用再每周吃了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
