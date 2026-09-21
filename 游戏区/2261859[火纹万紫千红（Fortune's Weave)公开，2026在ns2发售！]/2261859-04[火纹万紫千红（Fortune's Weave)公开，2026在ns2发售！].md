@@ -1821,3 +1821,57 @@ Wiki有人传了
 名声基本上就是主线剧情锁  我刷了好感 让绿毛在17级入队还能抢救下 粉 ...</blockquote>
 第几章刷好感度合适，前面几章一开头都是强制剧情不能吃饭
 
+
+*****
+
+####  抹茶瓜  
+##### 4614#       发表于 2026-9-21 13:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265805&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-21 13:45</a>
+
+第几章刷好感度合适，前面几章一开头都是强制剧情不能吃饭</blockquote>
+个人目前只打了凯伊线  他的第六章和第七章都非常适合重开刷好感， 一点垃圾时间都没有 这两章把支援都刷到3级 后面名声一到就可以立刻挖角 在等级不高的时候就开始练
+
+*****
+
+####  kalavinka  
+##### 4615#       发表于 2026-9-21 13:49
+
+最后角色合并要因果碎片，别用完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/21/134934pt0al4s0kctz3r0o.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-09-21_134901_909.png</strong> (256.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-21 13:49 上传
+
+
+*****
+
+####  苏西踩我了  
+##### 4616#       发表于 2026-9-21 13:54
+
+这是挖角图
+
+<img src="https://img.stage1st.com/forum/202609/21/135204ys3j15q8sl1pulcp.jpg" referrerpolicy="no-referrer">
+
+<strong>bf6bb80df6f6a009a2877f74ca0b706620625956.jpg</strong> (894.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-21 13:52 上传
+
+【【火焰之纹章: 万缕千丝】四剧情线不重复挖角 一图流】 [https://www.bilibili.com/video/B ... 4f0efe52b51a31f9328](https://www.bilibili.com/video/BV17dev6HENc/?share_source=copy_web&amp;vd_source=c153c3ae088bc4f0efe52b51a31f9328)
+
+这是推荐挖角图，由于越晚入队属性越低，推荐只挖能早入队的，可以参考下
+
+<img src="https://img.stage1st.com/forum/202609/21/135208z1sn0307600t0k7k.jpg" referrerpolicy="no-referrer">
+
+<strong>9207eb1fc782faaf5c5354a82def8ca3406830021.jpg</strong> (536.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-21 13:52 上传
+
