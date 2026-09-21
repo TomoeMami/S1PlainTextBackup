@@ -1716,3 +1716,31 @@ Wiki有人传了
 
 看评分数就知道谁才是大哥
 
+
+*****
+
+####  蓝色暴鲤龙  
+##### 4604#       发表于 2026-9-21 13:19
+
+西洛可我是刚玩时看了眼个人技能，就知道肯定是大爹，然后马上转防御强的职业。
+
+*****
+
+####  天之八衢  
+##### 4605#       发表于 2026-9-21 13:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是因为迪托线一直在战斗爽吗，走这条线经验很多啊，这是刚进第二部的状态<img src="https://p.sda1.dev/35/2df377c9d777a21a315b40c3572249d8/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  bwsusaga  
+##### 4606#       发表于 2026-9-21 13:20
+
+感觉这作的存档机制完全BAN了SL任何的情况，
+
+转职自动存档，出入城自动存档。
+
+给我一种玩XCOM铁人的微妙感。
+
