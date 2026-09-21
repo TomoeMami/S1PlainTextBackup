@@ -12237,3 +12237,18 @@ skill还是很有价值的。
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  sellboy  
+##### 14275#       发表于 2026-9-21 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265057&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-9-21 11:20</a>
+
+能偷到数据，可能在资本市场眼里，对企业是好事吧？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5 ...</blockquote>
+现在这个水平是偷出来的
+
+以后不能偷了，那不退步？
+
