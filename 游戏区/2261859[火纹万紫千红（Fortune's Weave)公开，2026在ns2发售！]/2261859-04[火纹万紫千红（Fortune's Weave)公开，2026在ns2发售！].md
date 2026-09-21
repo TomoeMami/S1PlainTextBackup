@@ -1386,3 +1386,23 @@ Wiki有人传了
 这观战也没提示触发啊……什么玩意 ...</blockquote>
 我在雷达线 观战会解释
 
+
+*****
+
+####  skyfall_tr  
+##### 4573#       发表于 2026-9-21 09:59
+
+第一部人没挖完能不能第二部在挖啊感觉挖不完了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  真田源次郎信繁  
+##### 4574#       发表于 2026-9-21 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264295&amp;ptid=2261859" target="_blank">JOJOROY 发表于 2026-9-21 09:42</a>
+
+我在雷达线 观战会解释</blockquote>
+难怪呢……凯伊这里我一脸懵逼，虽然已经被剧透了，但没有任何解释太离谱了
+

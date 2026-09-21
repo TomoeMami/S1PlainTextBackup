@@ -996,3 +996,22 @@ ff16有什么是demo里有游戏正篇里没有的吗
 
 事传统。
 
+
+*****
+
+####  银域放浪者  
+##### 293#       发表于 2026-9-21 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264352&amp;ptid=2283081" target="_blank">wilkyway 发表于 2026-9-21 09:49</a>
+事传统。</blockquote>
+那么问题来了，什么事立绘
+
+*****
+
+####  czxiang_0  
+##### 294#       发表于 2026-9-21 09:57
+
+尽管是手游尸体再利用，尽管你们说各种系统简化
+
+但作为一个没见过原版手游的普通玩家，整个demo玩下来的感觉比FF16初见感觉好太多
+
