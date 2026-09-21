@@ -1155,3 +1155,13 @@ FF16那个demo你们能看得出来行，也是厉害，光开头的不死鸟打
 —— ...</blockquote>
 100%同意，ff16的demo就是一泡屎，捏着鼻子玩了召唤兽对战实在玩不下去了，居然还有人说好
 
+
+*****
+
+####  trow233  
+##### 304#       发表于 2026-9-21 23:00
+
+当年没有像素游戏这个概念吧……当年都是像素游戏<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+那年头，像素小人对话框里放个人物头像，可是高级游戏才有的，要是会有表情变化，那简直是人上人<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
