@@ -12629,3 +12629,24 @@ Deepseek在网络方面为什么这么敏感肌啊？我让他把家里的qbitto
 Deepseek在网络方面为什么这么敏感肌啊？我让他把家里的qbittorrent tracker配置走代理，他都给我报风险。 ...</blockquote>
 也遇到了，写个mihomo覆写脚本也会报错
 
+
+*****
+
+####  qwased  
+##### 14307#       发表于 2026-9-21 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267522&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-21 20:38</a>
+
+也遇到了，写个mihomo覆写脚本也会报错</blockquote>
+之前用基元的时候发现fake ip也是**<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">干脆给本地的27b写openwrt的插件了
+
+*****
+
+####  自由之紫roy  
+##### 14308#       发表于 2026-9-21 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266323&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-21 15:13</a>
+
+前几天经历的使用agent的最危险的经历：dsh挂了想着试试pi就没管，pi给自己写插件也挂了，于是用hermes修， ...</blockquote>
+笔记本上有workbuddy，mac上有hermes和openclaw，台式机上有opencode和codex，所以坏了就互相修就行
+
