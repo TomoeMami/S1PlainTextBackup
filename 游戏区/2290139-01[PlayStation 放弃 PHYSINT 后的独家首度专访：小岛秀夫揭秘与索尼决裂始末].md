@@ -1183,3 +1183,14 @@ od起源早跟小岛三开不矛盾，他玩这套明显就是缺乏责任心，
 
 索尼撤资前微软都比索尼有资格喷三开没责任心<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">毕竟OD和DS2都是2022年公开的，直到去年小岛才鼓捣完DS2，然后中途又接了索尼的Physint，OD中间除了放几个不明觉厉的预告片啥都没有。没想到索尼会这么急
 
+
+*****
+
+####  哈罗  
+##### 98#       发表于 2026-9-21 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265808&amp;ptid=2290139" target="_blank">awy002 发表于 2026-9-21 13:45</a>
+
+三开没责任心都来了，实际上工作室三开还挺普遍的</blockquote>
+你举个例子呗，100多号人，同一个主创，而且这个主创还全球飞参加各种活动，符合上述情况的有哪家？ 
+
