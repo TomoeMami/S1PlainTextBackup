@@ -12567,3 +12567,15 @@ pi 0.86之后启动速度快了不少
 
 话说这几个大厂的工作台，有哪些可以被我的网页端管理系统连接并控制的吗，就是它的自动化定时任务完成后可以通过不是小程序app的方式提醒我的服务器，然后我的服务器再根据它的提示去叫另一个工作台做另一个任务吗，或者我转发一个公众号链接它可以自动处理后发到我的网站上吗。大概这样子，初入门我也说不清具体术语
 
+
+*****
+
+####  蜇灵  
+##### 14301#       发表于 2026-9-21 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266337&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-9-21 15:15</a>
+泥潭前面几页一直有人说workbuddy的plan可以接api接出来，他那个api页面不是接进workbuddy的协作api吗？
+
+你 ...</blockquote>
+github有专门的反代
+

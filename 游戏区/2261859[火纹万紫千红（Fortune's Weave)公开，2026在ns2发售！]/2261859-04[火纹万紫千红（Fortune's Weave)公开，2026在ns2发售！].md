@@ -2404,3 +2404,20 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 
 那个评分图，蓝毛王女那么靠前吗，他不是最后两章才入队吗，都没有培养空间了，一起入队的老婆婆就垫底了。。。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 4662#       发表于 2026-9-21 18:56
+
+ 本帖最后由 66367749 于 2026-9-21 18:57 编辑 
+
+今天上下班路上看到两个ns2火纹的了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stair楼梯  
+##### 4663#       发表于 2026-9-21 19:00
+
+野外主线没规划好时间直接几个小时白打，好爽的惩罚，直接干的我不想继续推了
+
