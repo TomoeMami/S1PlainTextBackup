@@ -2218,3 +2218,23 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ArthurDent  
+##### 594#       发表于 2026-9-22 00:41
+
+发错楼
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  ArthurDent  
+##### 594#       发表于 2026-9-22 00:41
+
+发错楼
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
