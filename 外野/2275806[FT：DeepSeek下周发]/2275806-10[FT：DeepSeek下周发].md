@@ -12776,3 +12776,14 @@ grok 4.7也来了
 
 2026-9-22 05:13 上传
 
+
+*****
+
+####  80后卢瑟  
+##### 14320#       发表于 2026-9-22 06:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268366&amp;ptid=2275806" target="_blank">wuliang 发表于 2026-9-22 01:51</a>
+
+看推特上说grok 4.7拉完了</blockquote>
+如果你认为 Grok 4.6 拉完了，那么 Grok 4.7 就拉完了。这玩意跟 4.6 就区别不大，不知道马圣整天在吹什么
+
