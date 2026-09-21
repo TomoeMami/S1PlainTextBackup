@@ -12787,3 +12787,18 @@ grok 4.7也来了
 看推特上说grok 4.7拉完了</blockquote>
 如果你认为 Grok 4.6 拉完了，那么 Grok 4.7 就拉完了。这玩意跟 4.6 就区别不大，不知道马圣整天在吹什么
 
+
+*****
+
+####  qwased  
+##### 14321#       发表于 2026-9-22 07:26
+
+如果mimo不涨价那就还行，性能表现也达到可用线了
+
+*****
+
+####  UmarIbnLaAhad  
+##### 14322#       发表于 2026-9-22 07:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">grok4.7就这，跟哈基米一桌去
+
