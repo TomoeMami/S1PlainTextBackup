@@ -12100,3 +12100,19 @@ skill还是很有价值的。
 
 暂时有地区限制，注意IP，每周免费额度1亿token，邀请双方送10亿token，本来想邀请蹭token，但担心想pt一样连坐。
 
+
+*****
+
+####  狭义文具爱好者  
+##### 14264#       发表于 2026-9-21 10:05
+
+<img src="https://img.stage1st.com/forum/202609/21/100524imc3rwp3azgpijzu.png" referrerpolicy="no-referrer">
+
+<strong>729066A2721C04329D9AC1809252D6E1.png</strong> (114.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-21 10:05 上传
+
+无敌了，我除了上饮料瓶外没有任何评价
+

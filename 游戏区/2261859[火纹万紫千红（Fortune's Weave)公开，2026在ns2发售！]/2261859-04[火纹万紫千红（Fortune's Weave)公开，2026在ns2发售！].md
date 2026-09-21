@@ -1406,3 +1406,35 @@ Wiki有人传了
 我在雷达线 观战会解释</blockquote>
 难怪呢……凯伊这里我一脸懵逼，虽然已经被剧透了，但没有任何解释太离谱了
 
+
+*****
+
+####  创始’’’天翔  
+##### 4575#       发表于 2026-9-21 10:07
+
+<img src="https://img.stage1st.com/forum/202609/21/100658b3gylgm3ggjkgnnm.jpg" referrerpolicy="no-referrer">
+
+<strong>Camera_XHS_1789955695305.jpg</strong> (162.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-21 10:06 上传
+
+*****
+
+####  诡计  
+##### 4576#       发表于 2026-9-21 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263760&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-9-21 07:54</a>
+
+锻造电可以修吧</blockquote>
+谢谢谢谢，第一次**纹
+
+
+*****
+
+####  ParukiaMKII  
+##### 4577#       发表于 2026-9-21 10:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雷达线外传都打了，这么看A少才是真主角啊，全都能触发
+

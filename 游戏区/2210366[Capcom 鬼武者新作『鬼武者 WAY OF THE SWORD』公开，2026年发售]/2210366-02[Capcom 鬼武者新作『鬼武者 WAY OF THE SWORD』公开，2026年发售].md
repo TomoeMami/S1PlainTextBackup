@@ -53,3 +53,32 @@
 
 这游戏材料是有可以刷的地方吗？一周目我是支线全清，红魂换材料也换了，但衣服、刀和笼手的强化也只是到4级左右，这还是只升了1个鬼灯袋的情况。二周目也不继承。百秽和怒伐天好像是有地方会刷新，但皮革和铁这些材料是要去哪刷？
 
+
+*****
+
+####  不给力的宅  
+##### 1901#       发表于 2026-9-21 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264407&amp;ptid=2210366" target="_blank">铁甲钢弹 发表于 2026-9-21 09:55</a>
+
+这游戏材料是有可以刷的地方吗？一周目我是支线全清，红魂换材料也换了，但衣服、刀和笼手的强化也只是到4 ...</blockquote>
+地图上显示的大箱子是一共只有一个的，其他出皮革、铁之类的小木箱是会随机刷新的，多坐火可以刷新
+
+*****
+
+####  壳壳牛  
+##### 1902#       发表于 2026-9-21 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264407&amp;ptid=2210366" target="_blank">铁甲钢弹 发表于 2026-9-21 09:55</a>
+这游戏材料是有可以刷的地方吗？一周目我是支线全清，红魂换材料也换了，但衣服、刀和笼手的强化也只是到4 ...</blockquote>
+小箱子会随机刷新的，多通通马桶一周目能全升满    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  otakun  
+##### 1903#       发表于 2026-9-21 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264407&amp;ptid=2210366" target="_blank">铁甲钢弹 发表于 2026-9-21 09:55</a>
+这游戏材料是有可以刷的地方吗？一周目我是支线全清，红魂换材料也换了，但衣服、刀和笼手的强化也只是到4 ...</blockquote>
+那些没拾取动作的小宝箱是会刷新的，一般是平时路过开了，然后下次有任务要过去的时候必定也会刷一次。其他的就跟小怪刷新一样随机刷。我两个周目都是打岚山前就满了属性。
+
