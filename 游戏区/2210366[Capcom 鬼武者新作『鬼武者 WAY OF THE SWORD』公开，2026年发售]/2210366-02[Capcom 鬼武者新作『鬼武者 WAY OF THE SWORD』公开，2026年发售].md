@@ -145,3 +145,14 @@ b站上有刷箱子攻略，可以搜一下
 昨天刚开始，前期好催眠啊，打了3个小时，就初战小次郎还可以，然后就是3刀死的杂兵和1刀死的远程杂兵 ...</blockquote>
 boss战也得到罗掌愿才开始好玩，我都想不通怎么敢把最无聊的两场boss战放Demo的<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  头发头发  
+##### 1909#       发表于 2026-9-21 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265020&amp;ptid=2210366" target="_blank">kerbad 发表于 2026-9-21 11:15</a>
+
+boss战也得到罗掌愿才开始好玩，我都想不通怎么敢把最无聊的两场boss战放Demo的 ...</blockquote>
+demo的百秽数值够高加上初见还蛮好玩的来着，结果进了本体就开始当马桶固定嘉宾
+
