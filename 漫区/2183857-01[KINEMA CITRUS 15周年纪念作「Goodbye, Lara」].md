@@ -2145,3 +2145,21 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 认真的吗？水魔与蒜是商业动画，它们首要的任务是满足商业需求。从这点来说小大组合勉强及格，足立是超水 ...</blockquote>
 现在哪有什么作品是没有商业属性的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  美亚羽  
+##### 586#       发表于 2026-9-21 19:16
+
+感觉又烂又好看，比水魔强
+
+
+*****
+
+####  喵喵叫的猫  
+##### 587#       发表于 2026-9-21 19:20
+
+期望不高一直当日常番来看的 主线展开就觉得会翻车
+还好平稳落地<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+话说最后拉拉人耳都变出来了，舌头上的缝线怎么还在啊，一直不理解人设的这点看得真难受
+
