@@ -1165,3 +1165,15 @@ FF16那个demo你们能看得出来行，也是厉害，光开头的不死鸟打
 
 那年头，像素小人对话框里放个人物头像，可是高级游戏才有的，要是会有表情变化，那简直是人上人<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 305#       发表于 2026-9-21 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268030&amp;ptid=2283081" target="_blank">trow233 发表于 2026-9-21 23:00</a>
+当年没有像素游戏这个概念吧……当年都是像素游戏
+
+那年头，像素小人对话框里放个人物头像，可是高级游戏才 ...</blockquote>
+像素ff对话最早没头像。追加像素版头像是gba复刻版本的事了。
+
