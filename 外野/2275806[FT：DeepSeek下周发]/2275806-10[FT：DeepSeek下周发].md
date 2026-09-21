@@ -12597,3 +12597,25 @@ github有专门的反代
 
 Deepseek在网络方面为什么这么敏感肌啊？我让他把家里的qbittorrent tracker配置走代理，他都给我报风险。在网络方面的设置，我已经多次遇到他直接拒绝工作了。
 
+
+*****
+
+####  goranger  
+##### 14304#       发表于 2026-9-21 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265599&amp;ptid=2275806" target="_blank">mortal1976 发表于 2026-9-21 13:00</a>
+
+B2YC0C，注册是注意要求美区比较干净的IP，否则容易被列入等待名单，好像有人用Grok bot注册成功 ...</blockquote>
+已兑现，感谢
+
+
+*****
+
+####  qwased  
+##### 14305#       发表于 2026-9-21 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267449&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-9-21 20:17</a>
+
+Deepseek在网络方面为什么这么敏感肌啊？我让他把家里的qbittorrent tracker配置走代理，他都给我报风险。 ...</blockquote>
+应该是因为某报纸报道了咸鱼有人卖DS破甲词所以API端都上了外审吧
+
