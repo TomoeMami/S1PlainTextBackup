@@ -2248,3 +2248,14 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  Graduation  
+##### 595#       发表于 2026-9-22 06:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268232&amp;ptid=2183857" target="_blank">zing223 发表于 2026-9-22 00:14</a>
+
+这个大女主情节ego老实说太强了，体感上就是茉里乃至姐姐老爸卢卡姬华打工同事统统不重要，一刻没有为差点 ...</blockquote>
+生物股长起码3成锅，这OP一出来直接预期拉满了，要是换个五音不全的管人组合来一首修音修到爆的令和小曲，追剧时候表情怕不是比动画最后一幕还平静
+
