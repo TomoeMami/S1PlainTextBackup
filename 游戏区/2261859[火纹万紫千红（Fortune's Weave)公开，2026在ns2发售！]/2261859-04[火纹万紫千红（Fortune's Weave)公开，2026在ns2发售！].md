@@ -2670,3 +2670,34 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 
 以前几作都像自己骗自己，这作只有一个存档算是做对了……
 
+
+*****
+
+####  风祭果凛  
+##### 4688#       发表于 2026-9-21 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267852&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-21 22:06</a>
+
+兵种满了要转职吗？
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, 鹅球 v3.5.99</blockquote>
+看你有没有别的特技要拿，没有就用最合适的，兵种主要还是看成长率
+
+
+*****
+
+####  Jabeck  
+##### 4689#       发表于 2026-9-21 22:22
+
+火纹这作跟前作一样。。要养重甲大爹。。什么大象还是巨人重甲配个2格攻击范围武器一堵就行。
+
+*****
+
+####  Jabeck  
+##### 4690#       发表于 2026-9-21 22:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267887&amp;ptid=2261859" target="_blank">JOJOROY 发表于 2026-9-21 22:15</a>
+
+角色一条线里死了另一条线还能再挖吗</blockquote>
+四条平行世界
+

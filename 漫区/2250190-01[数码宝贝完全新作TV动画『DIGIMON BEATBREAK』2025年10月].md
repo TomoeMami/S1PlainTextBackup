@@ -184,3 +184,13 @@
 又来个主角团究极体全部拉完的<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 这两位究极体明显是临时赶工设计出来的 算了正片出场比没有强
 
+
+*****
+
+####  TOYSTORY  
+##### 816#       发表于 2026-9-21 22:17
+
+两小只的究极体也太像杂鱼了
+
+现在就看守宫兽能不能出个真究极体挽救一下主角团兽的颜值了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
