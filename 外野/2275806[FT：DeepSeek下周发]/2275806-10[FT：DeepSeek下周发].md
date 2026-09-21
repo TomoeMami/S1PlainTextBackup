@@ -12265,3 +12265,22 @@ skill还是很有价值的。
 以后不能偷了，那不退步？</blockquote>
 怎么可能不偷了，只会偷得更隐秘
 
+
+*****
+
+####  nxmonitor  
+##### 14277#       发表于 2026-9-21 12:39
+
+真被盯着就偷不了了，参考同样的Grok，4.7直接憋住了发不了，原来Cursor都数据也是这么来的…
+
+*****
+
+####  claymorep  
+##### 14278#       发表于 2026-9-21 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265421&amp;ptid=2275806" target="_blank">沙发沙发 发表于 2026-9-21 12:25</a>
+怎么可能不偷了，只会偷得更隐秘</blockquote>
+用zcode的人会减少一波，不是用他套餐或者是薅羊毛的就不用了，路人的口碑差了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

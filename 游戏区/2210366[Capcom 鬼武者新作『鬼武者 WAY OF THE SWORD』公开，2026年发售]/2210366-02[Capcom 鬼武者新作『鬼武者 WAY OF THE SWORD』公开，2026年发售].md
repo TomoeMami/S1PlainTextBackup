@@ -164,3 +164,13 @@ demo的百秽数值够高加上初见还蛮好玩的来着，结果进了本体�
 
 熊猫服还挺...细节的，就是本来这游戏fov对我来说有点近，一穿玩偶服显大更难看到对面动作了
 
+
+*****
+
+####  kerbad  
+##### 1911#       发表于 2026-9-21 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265085&amp;ptid=2210366" target="_blank">头发头发 发表于 2026-9-21 11:27</a>
+demo的百秽数值够高加上初见还蛮好玩的来着，结果进了本体就开始当马桶固定嘉宾 ...</blockquote>
+我也是因为后面打了百秽才买的，不然就Demo那段流程我只能感觉可能会很好玩而已<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

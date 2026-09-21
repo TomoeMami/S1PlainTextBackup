@@ -1641,3 +1641,23 @@ Wiki有人传了
 难怪呢……凯伊这里我一脸懵逼，虽然已经被剧透了，但没有任何解释太离谱了 ...</blockquote>
 凯线也有解释的  有些日子会有其他参赛队伍的比赛 去观战都有内容 凯线也是去观战可以看到猫猫头队和别人打的时候把面具打破了 所以前面每章节都要去检查下几号可以观战<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mggr  
+##### 4597#       发表于 2026-9-21 12:36
+
+所有支线地图日常探索都不做，只想看主线剧情，普通+轻松模式能过关吗？
+
+*****
+
+####  纯夏  
+##### 4598#       发表于 2026-9-21 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265036&amp;ptid=2261859" target="_blank">zwqcm 发表于 2026-9-21 11:17</a>
+
+这作前期怎么感觉剑的强度比斧枪高不少，斧枪除了有标枪手斧外基本毫无亮点啊。什么时候给勇武啊。。。 ...</blockquote>
+剑太强 速度高的角色 触发追击是1.2倍伤害 
+
+斧头这作没泛用性<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
