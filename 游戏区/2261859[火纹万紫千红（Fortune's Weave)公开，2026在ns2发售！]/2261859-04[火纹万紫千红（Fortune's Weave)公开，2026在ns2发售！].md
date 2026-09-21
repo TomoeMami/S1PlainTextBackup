@@ -2809,3 +2809,42 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 第一章的高级职业是不是不全，圣天马都没的转啊。另外这个转职完了自动存档也太傻逼了，血亏一张上级证 ...</blockquote>
 不同主角不同高级职业
 
+
+*****
+
+####  5ew47  
+##### 4702#       发表于 2026-9-22 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268287&amp;ptid=2261859" target="_blank">エリ 发表于 2026-9-22 00:58</a>
+
+各位好哥哥
+
+我打的狄托利希线，9月疯狂过外传时一个不注意把专武耐久度给用坏了，打铁铺维修要3个碎晶，这 ...</blockquote>
+地图右侧可以去堡垒残迹，能走海路的话再往右有个岛也能刷，但是出货率我就不清楚了
+
+<img src="https://img.stage1st.com/forum/202609/22/013729picgj1omttitmfoy.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8951.jpeg</strong> (641.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 01:37 上传
+
+<img src="https://img.stage1st.com/forum/202609/22/013730chuecukkdc0ihphi.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8952.jpeg</strong> (438.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 01:37 上传
+
+
+*****
+
+####  UltramanPain  
+##### 4703#       发表于 2026-9-22 01:44
+
+凯伊线的椰枣好难弄啊。买了蔬菜箱刷，结果发现出货直接固定，不随机的。。存档又覆盖了
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
