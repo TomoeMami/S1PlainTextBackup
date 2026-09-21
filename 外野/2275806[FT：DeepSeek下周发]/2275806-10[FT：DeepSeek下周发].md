@@ -12221,3 +12221,19 @@ skill还是很有价值的。
 
 梁圣永远是梁圣……
 
+
+*****
+
+####  冤枉呐  
+##### 14274#       发表于 2026-9-21 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264194&amp;ptid=2275806" target="_blank">novem 发表于 2026-9-21 09:27</a>
+智谱才跌了3个点
+
+这个世界真的没救了
+
+难道大家默认用了LLM数据就可以随便被人偷吗</blockquote>
+能偷到数据，可能在资本市场眼里，对企业是好事吧？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

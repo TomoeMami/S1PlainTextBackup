@@ -1066,3 +1066,21 @@ SFC版FF5：第一世界-1_哔哩哔哩_bilibili</blockquote>
 
 你说的头像该不会是查看状态画面的吧，印象中不少复刻版（比如FF2）的状态画面也是用头像代替了小人。
 
+
+*****
+
+####  zzy516232108  
+##### 299#       发表于 2026-9-21 11:19
+
+ 本帖最后由 zzy516232108 于 2026-9-21 11:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262959&amp;ptid=2283081" target="_blank">白夜凛音 发表于 2026-9-20 23:58</a>
+
+答案是两者皆有，就DEMO的内容来讲，有些是新CG，极限技倒是大多复用的手游里的，比较惊艳的主要是HD2D目 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">demo玩了10小时了感觉挺好的
+
+第一章大概是占全部内容多少体量啊
+
+他说人物15级 vision5级 感觉最多人物99 vision10级的感觉
+
+就怕一共3 4章 没啥内容 第一章打完已经吃掉1/5甚至1/4了，大概就是卡表那些游戏的感觉 
+
