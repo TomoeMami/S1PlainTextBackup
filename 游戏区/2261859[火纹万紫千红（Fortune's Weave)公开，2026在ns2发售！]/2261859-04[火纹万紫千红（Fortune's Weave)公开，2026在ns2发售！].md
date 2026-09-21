@@ -1438,3 +1438,30 @@ Wiki有人传了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雷达线外传都打了，这么看A少才是真主角啊，全都能触发
 
+
+*****
+
+####  mai6696  
+##### 4578#       发表于 2026-9-21 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263831&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-21 08:17</a>
+
+有没有一句话，简明的每周必做指南，感觉主线外要做的事情好多，没有头绪
+
+—— 来自 Xiaomi 25113PN0EC, A ...</blockquote>
+送礼
+
+训练
+
+请客吃饭（加好感或者恢复干劲）
+
+遛鸟（加好感以及检查成就奖励）
+
+神殿侍奉
+
+看戏/演戏（加好感或者恢复干劲）
+
+泡澡（加点临时技能)
+
+每个主角自己的事儿（例如凯伊可以喂坐骑，可以钻下水道打打箱子）
+

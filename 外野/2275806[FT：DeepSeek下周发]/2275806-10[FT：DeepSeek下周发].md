@@ -12116,3 +12116,27 @@ skill还是很有价值的。
 
 无敌了，我除了上饮料瓶外没有任何评价
 
+
+*****
+
+####  cscbzcbz  
+##### 14265#       发表于 2026-9-21 10:18
+
+ 本帖最后由 cscbzcbz 于 2026-9-21 10:19 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">符合我对Z/的印象
+
+不过说个冷知识，这几天用DS分析了几个token plan订阅的协议，明文说用户数据“改善体验”
+
+直接使用API至少明面上说不用于训练（Z/除外），本质用数据换价格
+
+
+*****
+
+####  lactone  
+##### 14266#       发表于 2026-9-21 10:25
+
+相当于优惠换数据吧
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

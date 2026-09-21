@@ -1015,3 +1015,15 @@ ff16有什么是demo里有游戏正篇里没有的吗
 
 但作为一个没见过原版手游的普通玩家，整个demo玩下来的感觉比FF16初见感觉好太多
 
+
+*****
+
+####  隔壁老黄  
+##### 295#       发表于 2026-9-21 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70258804&amp;ptid=2283081" target="_blank">苦瓜师傅 发表于 2026-9-20 10:24</a>
+有原创剧情还是每部拿来点？
+
+— from S1 Next Goose v4.0-alpha</blockquote>
+原创剧情，历代角色就是类似彩蛋，不参与剧情的
+
