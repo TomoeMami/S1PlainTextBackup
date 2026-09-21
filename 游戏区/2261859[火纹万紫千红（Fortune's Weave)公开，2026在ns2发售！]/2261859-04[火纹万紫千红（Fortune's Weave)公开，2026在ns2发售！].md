@@ -2421,3 +2421,32 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 
 野外主线没规划好时间直接几个小时白打，好爽的惩罚，直接干的我不想继续推了
 
+
+*****
+
+####  没取名啊  
+##### 4664#       发表于 2026-9-21 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267226&amp;ptid=2261859" target="_blank">stair楼梯 发表于 2026-9-21 19:00</a>
+野外主线没规划好时间直接几个小时白打，好爽的惩罚，直接干的我不想继续推了 ...</blockquote>
+提前过去踩一下主线地标然后逛别处就好了，时间到了会自动传送到主线地点
+
+
+*****
+
+####  黑上シグマ  
+##### 4665#       发表于 2026-9-21 19:10
+
+<img src="https://p.sda1.dev/35/36af70ed4fed75c0b6766d3dcb83d940/20260921190818.jpg" referrerpolicy="no-referrer">
+
+限定版到手了~<img src="https://static.stage1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+*****
+
+####  土卫七  
+##### 4666#       发表于 2026-9-21 19:14
+
+每章支线啥的都做完后剩下的时间干啥比较好，全泡旅馆还是跑洞窟练级，哪个好点<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
