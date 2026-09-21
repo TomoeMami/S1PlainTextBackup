@@ -12351,3 +12351,34 @@ B2YC0C，注册是注意要求美区比较干净的IP，否则容易被列入等
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要享受dsh因为各种神奇小众的原因紫砂的过程，或者因为一键重启插件按钮太宽了被一句话烧掉五千万token的结果
 
+
+*****
+
+####  noneoneone  
+##### 14285#       发表于 2026-9-21 14:57
+
+对了，既然开源了，有人看过智谱说有问题的repo wiki是怎么工作的吗，一个据称在本地生成仓库索引的功能为什么会上次数据？如果上传数据是意外发生的，为什么会有对应的销毁数据的机制？
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+
+*****
+
+####  Milarvoz  
+##### 14286#       发表于 2026-9-21 15:02
+
+不敢笑，我的dsh刚暴毙，开了另一个agent修了十几分钟了还没结束。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  果壳中的松鼠  
+##### 14287#       发表于 2026-9-21 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266223&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-21 14:57</a>
+对了，既然开源了，有人看过智谱说有问题的repo wiki是怎么工作的吗，一个据称在本地生成仓库索引的功能为 ...</blockquote>
+现在开源的跟闭源版本是不同的，相关代码都删掉了，看不到<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
