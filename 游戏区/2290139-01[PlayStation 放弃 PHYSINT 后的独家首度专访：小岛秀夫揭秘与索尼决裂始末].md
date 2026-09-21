@@ -1157,3 +1157,13 @@ od起源早跟小岛三开不矛盾，他玩这套明显就是缺乏责任心，
 - 如果拉了，那微软当凯子都是一脉相承的公司基因，睁眼瞎，只会**的土老帽
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woui003woui  
+##### 95#       发表于 2026-9-21 13:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我也不是很适应DS所以没买DS2，不过喷小岛的游戏玩家难道真的是精神股东
+
+小岛拿投资人钱好歹是做着自洽和有尝试/内容表达的游戏，玩家就算误买了还没退款成功，那损失也最多是一份全价数字版，如果很喜欢这个游戏那就实打实爽到，对玩家来说投资人多投资这种项目明显是好事，不投了去做GaaS就好了？
+

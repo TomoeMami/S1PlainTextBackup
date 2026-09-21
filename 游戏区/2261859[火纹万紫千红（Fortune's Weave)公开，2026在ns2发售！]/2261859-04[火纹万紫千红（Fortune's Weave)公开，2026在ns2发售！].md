@@ -1744,3 +1744,34 @@ Wiki有人传了
 
 给我一种玩XCOM铁人的微妙感。
 
+
+*****
+
+####  零崎不识  
+##### 4607#       发表于 2026-9-21 13:26
+
+<blockquote>空气先生 发表于 2026-9-21 10:52
+我第一轮A少直接46级，而且还漏了大部分支线（因为开始没看清懂地图）
+
+这个是战争篇开始的继承画面
+
+</blockquote>
+理解了，A少线就是等级高，其他三个人第一部不用刷子玩法练不到这个等级
+
+
+*****
+
+####  meltingwhite  
+##### 4608#       发表于 2026-9-21 13:33
+
+看wiki，迪托线有个隐藏职业锻造师，需要强化战技10次解锁，这个有人解锁了吗
+
+*****
+
+####  5ew47  
+##### 4609#       发表于 2026-9-21 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265664&amp;ptid=2261859" target="_blank">gbjbb 发表于 2026-9-21 13:15</a>
+看评分数就知道谁才是大哥</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">吹牛哥居然评分人数又多评分又高
+
