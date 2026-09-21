@@ -2856,3 +2856,30 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 
 问下，我通了蕾达第一章后发现可以选择重玩一遍，请问重玩一遍是保留等级再来一次第一章还是什么？
 
+
+*****
+
+####  julia黑  
+##### 4705#       发表于 2026-9-22 02:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268354&amp;ptid=2261859" target="_blank">UltramanPain 发表于 2026-9-22 01:44</a>
+凯伊线的椰枣好难弄啊。买了蔬菜箱刷，结果发现出货直接固定，不随机的。。存档又覆盖了
+
+—— 来自 Xiaomi ...</blockquote>
+椰枣可以种啊
+
+
+*****
+
+####  纯夏  
+##### 4706#       发表于 2026-9-22 02:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268354&amp;ptid=2261859" target="_blank">UltramanPain 发表于 2026-9-22 01:44</a>
+
+凯伊线的椰枣好难弄啊。买了蔬菜箱刷，结果发现出货直接固定，不随机的。。存档又覆盖了
+
+—— 来自 Xiaomi ...</blockquote>
+凯伊线可以通过第8章的支线任务奖励获得椰枣 然后自己种增加数量
+
+沙漠的探索点虽然有很多椰枣 但是凯伊线过不去
+
