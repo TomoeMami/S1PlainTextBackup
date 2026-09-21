@@ -1914,3 +1914,31 @@ Wiki有人传了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cloudztj  
+##### 4621#       发表于 2026-9-21 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265664&amp;ptid=2261859" target="_blank">gbjbb 发表于 2026-9-21 13:15</a>
+
+看评分数就知道谁才是大哥</blockquote>
+什么意义的排名，每条线越早加入的越强。真要排得每条线排一个
+
+*****
+
+####  嘲风  
+##### 4622#       发表于 2026-9-21 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265816&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-9-21 13:49</a>
+最后角色合并要因果碎片，别用完了</blockquote>
+我操啊，这是真狗，因果碎片我还加全局buff呢
+
+
+*****
+
+####  kalavinka  
+##### 4623#       发表于 2026-9-21 14:15
+
+战车享受的坐骑成长率加成竟然是x2的，哈人
+
