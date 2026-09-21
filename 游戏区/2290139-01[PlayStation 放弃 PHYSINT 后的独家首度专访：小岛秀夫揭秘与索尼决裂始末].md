@@ -820,3 +820,48 @@ Jason还有这一堆记者有点搞笑了，以他们有点业界内幕就往外
 爆出这事情前死亡搁浅在泥潭的风气不是岛哥哥做死亡搁浅懂省钱项目管理强么，现在风评180度大转弯是什么原 ...</blockquote>
 顽皮狗不是已经被狂骂了三年吗，也就白左护着精神领袖尼尔，哪个次元的顽皮狗还没被骂来着……
 
+
+*****
+
+####  zid99825  
+##### 66#       发表于 2026-9-21 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264270&amp;ptid=2290139" target="_blank">ナルバレック 发表于 2026-9-21 09:37</a>
+顽皮狗不是已经被狂骂了三年吗，也就白左护着精神领袖尼尔，哪个次元的顽皮狗还没被骂来着…… ...</blockquote>
+索索除了骂尼尔还有骂棒鸡砍顽皮狗游戏，什么时候喷过顽皮狗了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Slyvan  
+##### 67#       发表于 2026-9-21 09:41
+
+以前我挺烦小岛一点就是岛孝子吹得太过分了 
+
+现在看起来岛孝子其实并没有那么多.
+
+
+*****
+
+####  卡拉德利姆  
+##### 68#       发表于 2026-9-21 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264251&amp;ptid=2290139" target="_blank">Kojimaru 发表于 2026-9-21 09:35</a>
+这老儿子日本人被炒鱿鱼了也不骂前老板</blockquote>
+办公地点能一眼看见sony大楼的含金量<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fuero  
+##### 69#       发表于 2026-9-21 09:43
+
+马东锡怎么那么坏啊
+
+*****
+
+####  tsubasa9  
+##### 70#       发表于 2026-9-21 09:44
+
+kojima纯纯精神白皮吧
+

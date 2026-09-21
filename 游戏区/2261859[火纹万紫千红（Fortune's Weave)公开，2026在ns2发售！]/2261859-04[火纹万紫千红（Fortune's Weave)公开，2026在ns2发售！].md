@@ -1374,3 +1374,15 @@ Wiki有人传了
 如果是是根据主角团提升的那主线压级好像 ...</blockquote>
 章节固定的
 
+
+*****
+
+####  JOJOROY  
+##### 4572#       发表于 2026-9-21 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263394&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-9-21 01:23</a>
+凯伊线突然就看到猫猫头真容了，也没剧情讲
+
+这观战也没提示触发啊……什么玩意 ...</blockquote>
+我在雷达线 观战会解释
+
