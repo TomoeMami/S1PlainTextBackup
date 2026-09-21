@@ -1305,3 +1305,16 @@ syl，现在玩着玩着又变成全员土匪了（悲
 
 这个日历不说比女神异闻录了，居然比风花雪月还落后
 
+
+*****
+
+####  JOJOROY  
+##### 4567#       发表于 2026-9-21 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70262400&amp;ptid=2261859" target="_blank">nancygreenlife 发表于 2026-9-20 22:01</a>
+
+这作果然流程还是太长了吗？玩累了歇会儿，上mobygames准备研究一下职员表，结果发现还没人上传呢 ...</blockquote>
+[https://nintendo.fandom.com/wiki ... e%27s_Weave/credits](https://nintendo.fandom.com/wiki/Fire_Emblem:_Fortune%27s_Weave/credits)
+
+Wiki有人传了
+
