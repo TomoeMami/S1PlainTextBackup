@@ -1232,3 +1232,11 @@ od起源早跟小岛三开不矛盾，他玩这套明显就是缺乏责任心，
 
 —— 来自 Xiaomi 22081212G, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  妄想中毒  
+##### 102#       发表于 2026-9-21 18:12
+
+PHYSINT连用什么引擎开发都还没决定好，这不就是还在画饼阶段<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
