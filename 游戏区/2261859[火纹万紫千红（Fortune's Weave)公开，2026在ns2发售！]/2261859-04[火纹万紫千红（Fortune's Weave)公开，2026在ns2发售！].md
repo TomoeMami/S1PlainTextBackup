@@ -2726,3 +2726,29 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 
 如果一条线第一章没推完回到第一节重新玩加点会刷新吗？蕾达目前24级，力还只有16，其他人物平均20级了，除了副官没人力上了20<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bwsusaga  
+##### 4694#       发表于 2026-9-21 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267957&amp;ptid=2261859" target="_blank">Booorunestud 发表于 2026-9-21 22:37</a>
+
+刚玩没多久，这速决战你们是手打还是跳过，太墨迹了
+
+跳过经验值又全被保姆吃了 ...</blockquote>
+最优解是进洞就只上要练的人。保姆就别来。
+
+
+*****
+
+####  Jabeck  
+##### 4695#       发表于 2026-9-21 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267957&amp;ptid=2261859" target="_blank">Booorunestud 发表于 2026-9-21 22:37</a>
+
+刚玩没多久，这速决战你们是手打还是跳过，太墨迹了
+
+跳过经验值又全被保姆吃了 ...</blockquote>
+直接跳过，对主力来说这点经验经验很快会聊胜于无，用来拉一些板凳角色不错。
+
