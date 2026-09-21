@@ -2786,3 +2786,16 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 
 我打的狄托利希线，9月疯狂过外传时一个不注意把专武耐久度给用坏了，打铁铺维修要3个碎晶，这玩意去哪买或者刷？
 
+
+*****
+
+####  纯夏  
+##### 4700#       发表于 2026-9-22 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267830&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-21 22:01</a>
+
+因果碎片优先换什么？
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, 鹅球 v3.5.99</blockquote>
+优先换经验值增加和兵种经验值增加 
+
