@@ -72,3 +72,15 @@
 
 要不是杰士卡同时出场了，单凭这独眼我还以为老扬性转后缝了什么神明...
 
+
+*****
+
+####  exiaexa  
+##### 21612#       发表于 2026-9-21 21:29
+
+终于打完了，体验良好，能不能维持这个水平啊螺旋社
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+唯一受害者库小姐，明明是炸鱼局结果成了被炸的那个，丢人
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
