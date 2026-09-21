@@ -2269,3 +2269,25 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 这一作怎么只有转职的时候可以看到人物近景了 差评</blockquote>
 战斗时上推右摇杆一定时间会切到近景
 
+
+*****
+
+####  风祭果凛  
+##### 4654#       发表于 2026-9-21 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266655&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-9-21 16:18</a>
+
+确实想知道这个，打完一条线别的线到底能继承什么。我是迪特里希玩了几章切凯伊线从头玩了 ...</blockquote>
+已经做过的支线和地图开拓度，其他应该没了
+
+
+*****
+
+####  风祭果凛  
+##### 4654#       发表于 2026-9-21 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70266655&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-9-21 16:18</a>
+
+确实想知道这个，打完一条线别的线到底能继承什么。我是迪特里希玩了几章切凯伊线从头玩了 ...</blockquote>
+已经做过的支线和地图开拓度，其他应该没了
+
