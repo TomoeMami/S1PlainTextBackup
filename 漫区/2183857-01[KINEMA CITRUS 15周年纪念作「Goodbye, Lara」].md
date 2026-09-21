@@ -2044,3 +2044,25 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 蒜起码人设好很多（二创数也能看出来），日常也很有趣<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yalbsd  
+##### 576#       发表于 2026-9-21 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263771&amp;ptid=2183857" target="_blank">赤黑的假面 发表于 2026-9-21 08:00</a>
+
+是不是可以清算Ganied和中二电波台了，婆罗门的判断力也就那样吧</blockquote>
+什么破烂婆罗门，前面那个不认识，台长这季度搁那倚老卖老清算原版攻壳机动队就够恶心人的了
+
+*****
+
+####  xzhlj0325  
+##### 577#       发表于 2026-9-21 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70264999&amp;ptid=2183857" target="_blank">赤黑的假面 发表于 2026-9-21 11:13</a>
+最关键的不是GANIED拿再见拉拉举例说小出圣比26攻壳懂尊重原作了吗，所以小出圣最后尊重安徒生啥了 ...</blockquote>
+你这幻觉也是挺厉害的，到底是怎么理解成这样的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

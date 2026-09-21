@@ -1053,3 +1053,55 @@ PHYSINT是集大成之作-&gt;we're so back
 
 顺便od原来在physint前边啊，我之前总记得od排后边还得等来着（
 
+
+*****
+
+####  哈罗  
+##### 88#       发表于 2026-9-21 11:44
+
+od和physint立项的时候，距离ds2发售还有很长时间
+
+一个100多人的工作室，决定三开项目，然后主创全是小岛 
+
+签下od的微软是凯子，签下physint的索尼是凯子中的凯子
+
+但细想的话，事实又不是这样
+
+有个细节是，当初小岛说xbox接下od前，他已经找了一圈投资人，只有微软愿意接，暗示索尼不想要
+
+但微软接下od后，索尼却愿意拿下physint，可能跟时间节点有关，那时候微软刚收完ab没多久，又拿下od，索尼签physint可能存在防御性目的
+
+之后两年xbox迅速失势，这个防御需求不存在了，physint浪费的资金不算多，于是果断砍掉
+
+索尼签physint的时候，大概率知道小岛是忙不过来的，physint的进度缓慢，应该不是让索尼意外的情况
+
+
+*****
+
+####  zid99825  
+##### 89#       发表于 2026-9-21 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265203&amp;ptid=2290139" target="_blank">哈罗 发表于 2026-9-21 11:44</a>
+
+od和physint立项的时候，距离ds2发售还有很长时间
+
+一个100多人的工作室，决定三开项目，然后主创全是小岛 
+
+ ...</blockquote>
+od有强云端依赖，索尼接不了。
+
+原本是google的项目
+
+*****
+
+####  ybfelix  
+##### 90#       发表于 2026-9-21 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70265203&amp;ptid=2290139" target="_blank">哈罗 发表于 2026-9-21 11:44</a>
+od和physint立项的时候，距离ds2发售还有很长时间
+
+一个100多人的工作室，决定三开项目，然后主创全是小岛 
+
+ ...</blockquote>
+感觉也因为PHYSINT宣传是新MGS吧，听起来就比较有卖相，让人比较能回想PS黄金年代。OD像是小岛又随机发癫的什么东西（我现在一下都想不起来，它主题是啥来着？好像还扯上什么xbox云—这玩意还搞吗，如今叙事都调去AI了吧）
+
