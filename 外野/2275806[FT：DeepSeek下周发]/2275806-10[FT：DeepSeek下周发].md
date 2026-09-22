@@ -14697,3 +14697,28 @@ gpt反而感觉拉了，性能没啥提升单纯是降价？ ...</blockquote>
 opus5.5震撼发布，看跑分是比gpt6强的，最近OA两家更新的频率和幅度都变大了啊，感觉DS的v4.1pro能比肩gpt6 ...</blockquote>
 参数量的限制还是很明显，国内目前综合能力最强的还是参数量最大的Kimi K3。据说Moonshot这周也有新发布，看是不是K3的更新吧
 
+
+*****
+
+####  jojog  
+##### 14501#       发表于 2026-9-23 04:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273623&amp;ptid=2275806" target="_blank">squallx 发表于 2026-9-23 04:05</a>
+
+真的吗 要是文笔好的话就不得不支持了</blockquote>
+手头没有skill 感觉比grok好但是肯定比不上国模
+
+*****
+
+####  jojog  
+##### 14502#       发表于 2026-9-23 04:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273627&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-23 04:13</a>
+
+我使用了一下Luna，发现在Codex内会暴露出自然语言思维链。我怀疑Sol和Luna都是Astra蒸馏的GPT 5，不然应 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">蒸馏应该是肯定的
+
+之前5.6能用的skill给6用了秒变成一坨，明显是astra的特征
+
+日常用可能没感觉，要是个降智的astra的话说实话不如用opus……
+
