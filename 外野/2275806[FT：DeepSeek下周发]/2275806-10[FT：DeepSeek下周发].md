@@ -13757,3 +13757,85 @@ ds目前看是不想自己折腾订阅这种东西的，卖api简单得很。
 阿里巴巴说下一步准备训练10t模型，ds也据传下一步准备训练10t。算力问题看来得到了某种程度的解决 ...</blockquote>
 960提前三季度出世，自产duv开始上量了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  80后卢瑟  
+##### 14415#       发表于 2026-9-22 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271058&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-9-22 16:18</a>
+
+是这样的，但是一堆人还奉为圭皋，拿着这个榜单去pvp</blockquote>
+AA 榜印象中第一次大规模被人提起就是 MiMo 拿到第三那一次...<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+感觉之后被人提起的次数就比较多了
+
+*****
+
+####  andychen  
+##### 14416#       发表于 2026-9-22 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271008&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-22 16:08</a>
+
+梁子又不缺用户，没必要搞plan补贴
+
+爱用用不用滚了
+
+ds目前看是真的觉得token该普惠，但是也真的在赚他们认 ...</blockquote>
+目前ds的token价格如果从成本的角度考虑肯定有进一步下探的空间。4.0f曾经以比当前低得多的价格服务了很长一段时间，而4.1f的架构决定了它的服务成本比4.0f还要低
+
+目前的定价应该是考虑到服务能力定下的，说白了就是算力不够得赶人
+
+
+*****
+
+####  overflowal  
+##### 14417#       发表于 2026-9-22 16:33
+
+plan就是让轻度用户补贴重度用户。这对于梁子来说应该是完全不可想象的。对于一个要把ai做成水电这样的基础设施的人来说，简直是居民用电补贴工业用电。。。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  nxmonitor  
+##### 14418#       发表于 2026-9-22 16:34
+
+按照比例粗略估计，可能那个8T模型比V4 Pro成本还低……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 14419#       发表于 2026-9-22 16:35
+
+<blockquote>qwased 发表于 2026-9-22 16:20
+但是plan模式就是定向补贴中转站，有啥意义吗真想补贴用户直接降价不就好了 ...</blockquote>
+那低价卖给opencode这个二道贩子不也等于定向补贴中转站（oc就是中转站）。这从来不是问题，官方出订阅需要更多c端管理精力才是目前不太可能的原因，ds自己应该不抵触订阅模式。
+
+*****
+
+####  tonyunreal  
+##### 14420#       发表于 2026-9-22 16:36
+
+今日oneshot demo合集
+
+MiMo 2.6 Flash 泡泡龙
+[https://deepdemos.top/demo/mimo-2-6-flash-8f409064](https://deepdemos.top/demo/mimo-2-6-flash-8f409064)
+
+MiMo 2.6 Flash 俄罗斯方块
+[https://deepdemos.top/demo/mimo-2-6-flash-954e91dc](https://deepdemos.top/demo/mimo-2-6-flash-954e91dc)
+
+MiMo 2.6 Flash 神庙逃亡
+[https://deepdemos.top/demo/mimo-2-6-flash-502e07c0](https://deepdemos.top/demo/mimo-2-6-flash-502e07c0)
+
+MiMo 2.6 Flash 水果忍者
+[https://deepdemos.top/demo/mimo-2-6-flash-12fbb49d](https://deepdemos.top/demo/mimo-2-6-flash-12fbb49d)
+
+*****
+
+####  andychen  
+##### 14421#       发表于 2026-9-22 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271084&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-22 16:21</a>
+
+960提前三季度出世，自产duv开始上量了</blockquote>
+目前看来各家厂的策略是把推理服务尽量迁移到国产平台上，把省下来的黄卡拿去做训练
+
