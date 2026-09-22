@@ -3309,3 +3309,22 @@ crazy，感觉第一条线根本开不完地图啊，到处跑做支线时间不
 椰枣可以种啊</blockquote>
 主要第六章就可以挖那位要椰枣的。。前期想弄只能开箱
 
+
+*****
+
+####  kalavinka  
+##### 4742#       发表于 2026-9-22 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70269293&amp;ptid=2261859" target="_blank">zwqcm 发表于 2026-9-22 10:22</a>
+这作能玩魔剑么，我找了个看上去魔速技运都看得过去的坑吃瘪肚地练了半天，剑术熟练度低命中不够不说，职业 ...</blockquote>
+凯伊呗 拿到雷剑后除了打法师全程没用过枪<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  姐霓姐霓  
+##### 4743#       发表于 2026-9-22 11:19
+
+被pdd限购打败了，还是买了数字版，后悔没有买300出头的卡带
+

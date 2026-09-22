@@ -229,3 +229,20 @@ boss的招里头疼的有：1.源神二阶段开局的大脚，至今没有弹�
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  手铐君  
+##### 1917#       发表于 2026-9-22 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70269532&amp;ptid=2210366" target="_blank">失忆的香槟 发表于 2026-9-22 11:13</a>
+一周目打了50个小时，通关后又回到魔王耀变之前在洛东清完了没找到影神图，吐槽一下源神的影神图居然是在六 ...</blockquote>
+二阶段开头那招如果实在躲不掉可以在1阶段开觉醒，然后觉醒一闪<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">后面投技我都是直接用火鸟打断
+
+*****
+
+####  卡拉德利姆  
+##### 1918#       发表于 2026-9-22 11:27
+
+鬼杀一开始会觉得这也没什么难的 然后到中期就会发现自己数值增长的速度比不过敌人膨胀的速度
+

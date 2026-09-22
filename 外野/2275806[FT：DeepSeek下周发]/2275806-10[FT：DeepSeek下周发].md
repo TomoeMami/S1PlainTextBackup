@@ -12925,3 +12925,14 @@ aa榜已经完全没法看了<img src="https://static.stage1st.com/image/smiley/
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  nxmonitor  
+##### 14335#       发表于 2026-9-22 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268598&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-22 08:01</a>
+
+喂了cursor的数据怎么还是这么区，还不如swe2直接玩后训练了</blockquote>
+cursor数据大概率也是偷的，被揪出来以后就这样了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

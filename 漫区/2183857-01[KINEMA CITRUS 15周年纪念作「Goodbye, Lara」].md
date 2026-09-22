@@ -2316,3 +2316,14 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  MagisterPeditum  
+##### 601#       发表于 2026-9-22 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267250&amp;ptid=2183857" target="_blank">aptx8285144 发表于 2026-9-21 19:07</a>
+
+现在哪有什么作品是没有商业属性的，蒜的恶心性自然不用多说，水魔对我来说也是个不但剧情四不像的存，人 ...</blockquote>
+你站在当事人情感的立场上考虑考虑，同为黑发痴情役，泷奈还有相棒一库走，到茉莉这里直接撒油拉拉了，哪一种更惨呢？何况人鱼跑路得堪称莫名其妙，难怪古川见着急忙撇清师徒关系了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
