@@ -4162,3 +4162,33 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 </blockquote>
 对，女王线专属内容
 
+
+*****
+
+####  纯夏  
+##### 4826#       发表于 2026-9-22 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272986&amp;ptid=2261859" target="_blank">magicc 发表于 2026-9-22 22:52</a>
+
+现在有坐骑地图吗，这坐骑给的加成也太多了</blockquote>
+可以看下这个表  能抓的马 鸵 龙都有标注
+
+<img src="https://img.stage1st.com/forum/202609/22/231722kiyotm24xx5rvmxa.png" referrerpolicy="no-referrer">
+
+<strong>凯伊线抓宠地点列表.png</strong> (398.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 23:17 上传
+
+
+*****
+
+####  月夜的风  
+##### 4827#       发表于 2026-9-22 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272902&amp;ptid=2261859" target="_blank">kiokio 发表于 2026-9-22 22:38</a>
+
+飞龙要怎么解锁？队里的飞马都没上级职业可转了</blockquote>
+凯伊线老妈指导给
+
