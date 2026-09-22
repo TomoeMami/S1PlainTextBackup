@@ -3842,3 +3842,13 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 现在有wiki或者攻略本扫描了吗
 
+
+*****
+
+####  没取名啊  
+##### 4795#       发表于 2026-9-22 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271635&amp;ptid=2261859" target="_blank">anyasora 发表于 2026-9-22 17:57</a>
+职业补正对加点的影响有办法SL吗 比如 我用 A职业升级了没加力，直接读档/回溯 换成加力的职业再升 是不是 ...</blockquote>
+贴吧说转职能刷新乱数。花费一个证随便横转一次就能让加点乱数和转职考试乱数更新
+
