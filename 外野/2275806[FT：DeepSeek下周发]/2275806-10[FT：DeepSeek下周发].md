@@ -14631,3 +14631,13 @@ opus5.5震撼发布，看跑分是比gpt6强的，最近OA两家更新的频率�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  jojog  
+##### 14495#       发表于 2026-9-23 03:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">看来A/确实急了 OPUS基本没有甲，重口能随便写
+
+gpt反而感觉拉了，性能没啥提升单纯是降价？
+
