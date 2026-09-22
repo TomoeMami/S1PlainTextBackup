@@ -309,3 +309,18 @@ boss的招里头疼的有：1.源神二阶段开局的大脚，至今没有弹�
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  汪达  
+##### 1925#       发表于 2026-9-22 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70269826&amp;ptid=2210366" target="_blank">失忆的香槟 发表于 2026-9-22 12:03</a>
+
+说到心流，这游戏反魂镜是陷阱不要带。
+
+本来就是重动作演出的游戏，带上在快死的时候会给你弹出一个界面问 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">确实，这种弹UI的设计很傻，建议改成倒在地上
+
+LB：就此死去    RB：起死回生
+

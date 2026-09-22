@@ -13296,3 +13296,20 @@ mimo 测试感觉flash 比 pro 强，作为口粮 ai 足够了
 
 大野蛮时代，什么水平都是说了算，毕竟所有跑分都已经是野榜。
 
+
+*****
+
+####  来都来了  
+##### 14371#       发表于 2026-9-22 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268674&amp;ptid=2275806" target="_blank">profr 发表于 2026-9-22 08:27</a>
+【Grok 4.7：看完前端表现，只能寄希望于后端能力了......AI 前端能力全面测试】https://www.bilibili.com/ ...</blockquote>
+grok本身的优势区间就是后端。在屎山论剑里，grok的成绩一直不错。
+
+*****
+
+####  crow_wine  
+##### 14372#       发表于 2026-9-22 14:22
+
+🐒模不是我嘲讽哦，每次都是拉踩吹嘘怎么样，实际上每次都是一坨
+
