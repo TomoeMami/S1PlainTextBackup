@@ -12840,3 +12840,34 @@ mimo等更多实测吧，目前只看api价格还不错，flash如果能打平ds
 如果你认为 Grok 4.6 拉完了，那么 Grok 4.7 就拉完了。这玩意跟 4.6 就区别不大，不知道马圣整天在吹什 ...</blockquote>
 喂了cursor的数据怎么还是这么区，还不如swe2直接玩后训练了
 
+
+*****
+
+####  lactone  
+##### 14327#       发表于 2026-9-22 08:24
+
+jev这玩意儿不能说没活
+
+但是这玩意儿不开源我是没想到的，因为没有任何壁垒<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  profr  
+##### 14328#       发表于 2026-9-22 08:27
+
+【Grok 4.7：看完前端表现，只能寄希望于后端能力了......AI 前端能力全面测试】[https://www.bilibili.com/video/B ... d451bc0dfcd3dcddbbb](https://www.bilibili.com/video/BV1nZhr6YEnG?vd_source=1b47c862b24bcd451bc0dfcd3dcddbbb)
+
+拉完了这是，部分能力和甚至比小红书那个ai强不了多少。。。
+
+
+*****
+
+####  tonyunreal  
+##### 14329#       发表于 2026-9-22 08:32
+
+mimo 2.6 flash实测缓存命中略低，不见得比梁文谷便宜
+
+而且每次返回思考内容前还会卡住一小会儿，不知道是什么机制，有隐藏思维链吗
+
