@@ -336,3 +336,17 @@ LB：就此死去    RB：起死回生
 我一直感觉幻魔这东西就是按照二战的蝗军为原型做的，尤其这代，人体实验室都出来了。杂兵那个长相跟戴个屁帘的蝗军也没多大区别嘛。被感染的兵类似伪军 这样。杂兵占了你的地之后就待着不动了，自己在那摆酒席啊唱歌跳舞的，然后上面来了命令就集体自刎归天组成魔王城。蝗的一批
 这么想的话玩的时候可以代入敌后游击队，立刻就很带感<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失忆的香槟  
+##### 1927#       发表于 2026-9-22 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270428&amp;ptid=2210366" target="_blank">汪达 发表于 2026-9-22 14:20</a>
+确实，这种弹UI的设计很傻，建议改成倒在地上
+
+LB：就此死去    RB：起死回生 ...</blockquote>
+是的，就像鬼泣5那样先镜头打到主角身上单膝跪地喘气，选择要不要复活（用不用反魂镜），选择不用再进一般的死亡题字就行。
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

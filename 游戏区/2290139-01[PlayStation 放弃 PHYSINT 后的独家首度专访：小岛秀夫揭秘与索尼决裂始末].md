@@ -1389,3 +1389,14 @@ DS时期小岛将这些人放到首席关卡设计那个位置上，实际上全
 
 —— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tachikoma27  
+##### 115#       发表于 2026-9-22 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70269722&amp;ptid=2290139" target="_blank">ppa11 发表于 2026-9-22 11:44</a>
+说到小岛和三上，正好有一个能对照他们的ip。
+小岛有个挂名总监的游戏系列叫“我们的太阳”，是小弟中村 ...</blockquote>
+是什么样，说起逆转裁判只会想到巧舟啊
+
