@@ -1177,3 +1177,13 @@ FF16那个demo你们能看得出来行，也是厉害，光开头的不死鸟打
 那年头，像素小人对话框里放个人物头像，可是高级游戏才 ...</blockquote>
 像素ff对话最早没头像。追加像素版头像是gba复刻版本的事了。
 
+
+*****
+
+####  隔壁老黄  
+##### 306#       发表于 2026-9-22 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268007&amp;ptid=2283081" target="_blank">密特罗德2026 发表于 2026-9-21 22:52</a>
+100%同意，ff16的demo就是一泡屎，捏着鼻子玩了召唤兽对战实在玩不下去了，居然还有人说好 ...</blockquote>
+石榴主要是剧情炸裂，亲妈把全家都害了去改嫁，后来发现这特么能写个几百章狗血展开的剧情居然草草了事，单纯是亲妈就是个渣女<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

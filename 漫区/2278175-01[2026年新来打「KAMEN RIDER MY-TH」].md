@@ -570,3 +570,11 @@ V篇砍掉反而好事
 才刚反应过来，生肖同盟那边的腰带念动物名都是日语，而男主的都是英文
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是100年的差距吗
 
+
+*****
+
+####  kuuga  
+##### 190#       发表于 2026-9-22 10:24
+
+看下来完全没有记忆点，这是咋回事<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

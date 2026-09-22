@@ -3154,3 +3154,44 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完雷达第一章就直接去第二章了，这开局剧情有点神展开的意味了，然后第一章敌人全都跳过钢系武器，全部都是银武器了
 
+
+*****
+
+####  mggr  
+##### 4730#       发表于 2026-9-22 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70269219&amp;ptid=2261859" target="_blank">cloudztj 发表于 2026-9-22 10:13</a>
+
+地图我还真不知道可以重开章节来开
+
+所以你觉得麻烦的是周常吗，其实周常熟练了之后几分钟一趟就好了，你 ...</blockquote>
+因为重开章节刷好感和开地图，是可以短时间半个小时内把第一部要做的都做完，后面就可以统一跳过这些回合了，纯做主线了。不刷的话，要每周一直重复这些，有的时候玩一个晚上还打不了一个主线。
+
+
+*****
+
+####  zwqcm  
+##### 4731#       发表于 2026-9-22 10:22
+
+这作能玩魔剑么，我找了个看上去魔速技运都看得过去的坑吃瘪肚地练了半天，剑术熟练度低命中不够不说，职业成长加成都找不到契合的，扶都扶不起啊。。
+
+*****
+
+####  cloudztj  
+##### 4732#       发表于 2026-9-22 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70269265&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-22 10:19</a>
+
+因为重开章节刷好感和开地图，是可以短时间半个小时内把第一部要做的都做完，后面就可以统一跳过这些回合 ...</blockquote>
+那你的第一部就剩下支线和探索迷宫了，你不在乎的话大可以搞定好感和地图的前提下每周跳过到周日白天，然后训练完一下+打扫神殿+喂鸟（凯伊线）再继续跳过好了，这样很快就能推进主线了
+
+*****
+
+####  空气先生  
+##### 4733#       发表于 2026-9-22 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70269216&amp;ptid=2261859" target="_blank">jockeyjoestar 发表于 2026-9-22 10:12</a>
+
+雷达的神官究竟转什么好  技能这么神 每场回5血 但是是个法爷 看了下也没双刀的上级职业    有点想诅咒师转 ...</blockquote>
+就法师就行，他即使力量成长率为0总成长率也不差，更何况我记得这部力量扣体格，如果手控正常打完第二部，他和金毛应该在55级左右，等级碾压
+
