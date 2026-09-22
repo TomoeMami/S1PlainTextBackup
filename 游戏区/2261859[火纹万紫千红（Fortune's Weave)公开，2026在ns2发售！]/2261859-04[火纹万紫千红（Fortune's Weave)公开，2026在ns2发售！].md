@@ -3761,3 +3761,11 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 继承到第三章要花点数 。合人物也要点数。放弃吧。
 
+
+*****
+
+####  ShitOverflow  
+##### 4786#       发表于 2026-9-22 17:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这代村民太猛了，棋盘无双，rpg暴击一下对面半管血，对方还打不中她，还能拿手枪开罐
+

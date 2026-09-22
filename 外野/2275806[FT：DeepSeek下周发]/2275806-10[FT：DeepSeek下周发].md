@@ -13880,3 +13880,43 @@ mimov2.6系列是神还是鬼
 
 关键点应该还是梁子请来了有型的大手<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">可以安心干活了
 
+
+*****
+
+####  tillnight  
+##### 14427#       发表于 2026-9-22 17:04
+
+<blockquote>qwased 发表于 2026-9-22 16:45
+从ds涨价之后ocg马上削额度来看，梁子给的折扣不会很大，而且也不是固定价
+
+ ...</blockquote>
+我没说固定价，但是oc在0731高峰期提供的相当于1:6和4.1f优惠期过后的1:3价格，已经不低于大多数国产第一方订阅的折扣率，这还是oc还要赚一手的基础上。你可能对国内公司的plan有误解，以为订阅的额度都要有api的五倍十倍。
+
+*****
+
+####  chuchoselph  
+##### 14428#       发表于 2026-9-22 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271204&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-22 16:41</a>
+
+如果今天的泄露的内容没问题，DeepSeek估计要挑战960DT训练了，卡应该是没问题，实际上研究所在北京，后面 ...</blockquote>
+泄露了什么内容？
+
+
+*****
+
+####  zhongjie  
+##### 14429#       发表于 2026-9-22 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271384&amp;ptid=2275806" target="_blank">chuchoselph 发表于 2026-9-22 17:09</a>
+
+泄露了什么内容？</blockquote>
+说是准备用国产卡训练。同时有2t和8t的模型在训练
+
+*****
+
+####  cscbzcbz  
+##### 14430#       发表于 2026-9-22 17:15
+
+你楼终于开始造假药了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -1414,3 +1414,16 @@ DS时期小岛将这些人放到首席关卡设计那个位置上，实际上全
 
 科乐美现在是拉了，但指望小岛秀夫做谍战能重回合金装备5的盛况，我觉得也是想多了
 
+
+*****
+
+####  wtyrambo  
+##### 117#       发表于 2026-9-22 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270855&amp;ptid=2290139" target="_blank">C.W.Nimitz 发表于 2026-9-22 15:42</a>
+
+你们是不是过度迷信明星制作人了
+
+三上真司作为出走的名制作人算是成绩做的最好的吧，他自己搞得恶灵附身做 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">生化危机3re（保质保量）
+
