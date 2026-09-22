@@ -3065,3 +3065,48 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 
 10月14日截止日，我现在10月10日还在主城，还来得及过去吗，我怕路走错
 
+
+*****
+
+####  mggr  
+##### 4722#       发表于 2026-9-22 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268947&amp;ptid=2261859" target="_blank">cloudztj 发表于 2026-9-22 09:30</a>
+
+可以托管，不过说实在的第一部的主要内容都在探索大地图和主城养成挖人上了，直接跳过这个第一部感觉有点 ...</blockquote>
+挖人和探地图可以用重置章节刷满吧，理论上不会缺人和地图
+
+*****
+
+####  ascomnet  
+##### 4723#       发表于 2026-9-22 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268977&amp;ptid=2261859" target="_blank">エリ 发表于 2026-9-22 09:34</a>
+
+各位好哥哥，我蓝猫三千问又来了，请问目前网上有没有好用的查询大地图开图的攻略
+
+狄托利希11章接的新娘外 ...</blockquote>
+我觉得悬，非要试的话用云存档sl下
+
+*****
+
+####  caps洛奇  
+##### 4724#       发表于 2026-9-22 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268977&amp;ptid=2261859" target="_blank">エリ 发表于 2026-9-22 09:34</a>
+
+各位好哥哥，我蓝猫三千问又来了，请问目前网上有没有好用的查询大地图开图的攻略
+
+狄托利希11章接的新娘外 ...</blockquote>
+[https://gamewith.jp/fefw/574849#1](https://gamewith.jp/fefw/574849#1)
+
+<img src="https://img.stage1st.com/forum/202609/22/094034d3uc5g40z3z0c39u.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-09-22_093951_926.png</strong> (1.75 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 09:40 上传
+
+这家攻略内容挺齐的
+
