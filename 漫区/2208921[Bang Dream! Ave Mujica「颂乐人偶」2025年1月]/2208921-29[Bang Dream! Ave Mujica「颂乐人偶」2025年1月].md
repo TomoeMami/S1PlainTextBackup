@@ -627,3 +627,11 @@ Bang Doll说是
 该歌曲和MV也将先行实装至《BanG Dream! 交织的乐章》国际服，敬请期待！</blockquote>
        [https://www.bilibili.com/video/BV1Xiha6dEKR](https://www.bilibili.com/video/BV1Xiha6dEKR)
 
+
+*****
+
+####  Licheus  
+##### 42036#       发表于 2026-9-22 21:30
+
+gaga的版权都敢买，mggm这是真的（从老钟身上）挣到钱了
+

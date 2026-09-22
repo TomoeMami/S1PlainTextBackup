@@ -14312,3 +14312,17 @@ dsh部署一直报错。想用ai做个简单的文字刷宝游戏，用什么好
 
 gpt现在的暗号笑死我了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发呆的龙虾  
+##### 14465#       发表于 2026-9-22 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272449&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-9-22 21:07</a>
+先装个workbuddy，让他帮你装dsh
+
+—— 来自 鹅球 v3.3.96</blockquote>
+好的，我来去试试
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
