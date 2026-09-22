@@ -4261,3 +4261,14 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 初级职业只能骑鸟，估计IS就偷懒给他弄个20级了 ...</blockquote>
 合理 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  magicc  
+##### 4833#       发表于 2026-9-23 01:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273141&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-22 23:18</a>
+
+可以看下这个表  能抓的马 鸵 龙都有标注</blockquote>
+谢谢，请问这个坐骑的附加成长率是不是看坐骑加的属性就行了
+
