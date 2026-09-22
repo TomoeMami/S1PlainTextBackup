@@ -14442,3 +14442,13 @@ mimo2.6好的时候看起来不错
 
 大家每天几个亿的用不心疼钱么。。。我每天大概下班梁文谷蹬一两个亿的ds4.1，感觉好贵啊。让大肥鱼给我找个便宜的，结果他说我现在就是最便宜的了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  很久就在那边l  
+##### 14477#       发表于 2026-9-22 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273230&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-9-22 23:42</a>
+大家每天几个亿的用不心疼钱么。。。我每天大概下班梁文谷蹬一两个亿的ds4.1，感觉好贵啊。让大肥鱼给我找 ...</blockquote>
+workbuddy签到然后去codebuddy code用，模仿claude code的，还有webui
+
