@@ -4284,3 +4284,14 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  PigMourne  
+##### 4835#       发表于 2026-9-23 02:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273523&amp;ptid=2261859" target="_blank">magicc 发表于 2026-9-23 01:52</a>
+
+谢谢，请问这个坐骑的附加成长率是不是看坐骑加的属性就行了</blockquote>
+基本上是，有些马会分一点成长给hp，但大差不差
+
