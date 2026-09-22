@@ -361,3 +361,11 @@ LB：就此死去    RB：起死回生 ...</blockquote>
 说起来幻魔杂兵还会胆怯，感觉要么是抄对马岛的时候没过脑子，要么是立项的时候就不是鬼武者 ...</blockquote>
 这个设定我觉得单纯就是卡婊怕你后期通马桶通烦了，给你点快速清场的手段。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 1929#       发表于 2026-9-22 15:30
+
+返魂镜我到二周目鬼杀才想起有这个，到最后打源神才装上去意思下
+

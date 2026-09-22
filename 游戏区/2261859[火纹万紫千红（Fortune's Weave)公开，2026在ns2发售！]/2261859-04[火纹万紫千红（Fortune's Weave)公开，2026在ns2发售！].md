@@ -3691,3 +3691,55 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zwqcm  
+##### 4779#       发表于 2026-9-22 15:30
+
+哇，仓鼠症大失败，道具无法带到第二章，请记得把职业经验书和几本魔法书提前喂了
+
+*****
+
+####  嘲风  
+##### 4780#       发表于 2026-9-22 15:31
+
+入队时候等级应该是跟着剧情阶段走的，好像和主角没关系
+
+*****
+
+####  嘲风  
+##### 4781#       发表于 2026-9-22 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270769&amp;ptid=2261859" target="_blank">zwqcm 发表于 2026-9-22 15:30</a>
+哇，仓鼠症大失败，道具无法带到第二章，请记得把职业经验书和几本魔法书提前喂了 ...</blockquote>
+钱，材料和武器呢？
+
+*****
+
+####  DarkDawn  
+##### 4782#       发表于 2026-9-22 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270133&amp;ptid=2261859" target="_blank">cloudztj 发表于 2026-9-22 13:08</a>
+
+有没有人玩A少线解锁了锻造师这个职业的
+
+我看网上有人说有这个职业，可以用斧和黑魔，但是翻遍了日站wiki和 ...</blockquote>
+限定版的美术册子里有这个职业，肯定不是乱写的
+
+
+*****
+
+####  风祭果凛  
+##### 4783#       发表于 2026-9-22 15:34
+
+ 本帖最后由 风祭果凛 于 2026-9-22 15:36 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270784&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-9-22 15:32</a>
+
+钱，材料和武器呢？</blockquote>
+第二章是只有战斗，每章固定给你发+3基础武器。钱和材料都没意义了。
+
+道具一整页都不能带，就是药和书那些
+
+武器饰品可以带角色身上带过去
+
