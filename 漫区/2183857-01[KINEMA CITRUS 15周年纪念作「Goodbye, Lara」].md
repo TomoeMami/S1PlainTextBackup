@@ -2448,3 +2448,22 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 现在哪有什么作品是没有商业属性的，蒜的恶心性自然不用多说，水魔对我来说也是个不但剧情四不像的存，人 ...</blockquote>
 我是该拷打再见拉拉了，某些人真的属于是蹬鼻子上脸了
 
+
+*****
+
+####  ArthurDent  
+##### 611#       发表于 2026-9-23 00:36
+
+这翻版万箭穿心看笑了，这就是少女革命gquuuuuuuuuux吗
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  ArthurDent  
+##### 612#       发表于 2026-9-23 00:37
+
+我说这结尾不如噗尼禄第一季结尾有懂得吗
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

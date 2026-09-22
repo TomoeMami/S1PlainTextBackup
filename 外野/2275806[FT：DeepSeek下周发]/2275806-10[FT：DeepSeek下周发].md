@@ -14483,3 +14483,34 @@ deepseek还是不够重视市场方面
 910C连推理都不行，这机器整个方向都错了，说实话不如对着DS的需求造卡呢，DS之前说要自己造，不如华为拉着 ...</blockquote>
 910C本质上就是910B两个拼一块，底子还是910B，方向肯定是老的
 
+
+*****
+
+####  RookieTnT  
+##### 14481#       发表于 2026-9-23 00:29
+
+发现了个项目 [https://github.com/miuuyy/Astra-Ares](https://github.com/miuuyy/Astra-Ares)
+
+根据任务 调整思考强度. 对我来说太实用了. gpt-6-Astra 好是好. 就是太费额度了. 😂
+
+
+*****
+
+####  RookieTnT  
+##### 14482#       发表于 2026-9-23 00:32
+
+jev 这模型来识别广告太好用了. 最近搓了拓展把X下面那种福黑不黑全被block了
+
+*****
+
+####  nxmonitor  
+##### 14483#       发表于 2026-9-23 00:34
+
+ 本帖最后由 nxmonitor 于 2026-9-23 00:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273303&amp;ptid=2275806" target="_blank">novem 发表于 2026-9-23 00:02</a>
+
+所以还是不要小看用户数量带来的优势啊
+
+deepseek还是不够重视市场方面</blockquote>
+其实用户这个是不怎么担心的，调用量太高了都把服务器蹬爆了，只担心他们洗数据洗不过来……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
