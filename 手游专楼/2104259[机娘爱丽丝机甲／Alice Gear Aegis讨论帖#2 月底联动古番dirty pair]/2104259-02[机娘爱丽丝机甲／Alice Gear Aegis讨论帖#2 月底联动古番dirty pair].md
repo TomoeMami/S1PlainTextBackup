@@ -52,3 +52,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好球也不是蓝白啊，蓝白的是福利蛋（（
 
+
+*****
+
+####  江戸前ルナ  
+##### 2124#         楼主| 发表于 2026-9-22 20:59
+
+不要在意细节，就说是不是高达的配色吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

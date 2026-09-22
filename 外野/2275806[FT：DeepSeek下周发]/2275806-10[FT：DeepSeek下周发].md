@@ -14250,3 +14250,40 @@ LibCST、Semgrep OSS、Serena有时候有用。
 
 CodeGraph、basedpyright、Difftastic没用。
 
+
+*****
+
+####  发呆的龙虾  
+##### 14460#       发表于 2026-9-22 21:05
+
+dsh部署一直报错。想用ai做个简单的文字刷宝游戏，用什么好？
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  冤枉呐  
+##### 14461#       发表于 2026-9-22 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271627&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-22 17:56</a>
+姑且没取消pro呢 上次也不是这几天的事情（
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0 ...</blockquote>
+pro是4.0啊
+我这两天蹬了5亿
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  omnitoken  
+##### 14462#       发表于 2026-9-22 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272435&amp;ptid=2275806" target="_blank">发呆的龙虾 发表于 2026-9-22 21:05</a>
+dsh部署一直报错。想用ai做个简单的文字刷宝游戏，用什么好？
+
+—— 来自 HUAWEI HOP-AL10, Android 16, 鹅 ...</blockquote>
+先装个workbuddy，让他帮你装dsh
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
