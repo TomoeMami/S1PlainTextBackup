@@ -14042,3 +14042,14 @@ mimo 2.6 pro 随便跑了跑，感觉是能用了，但是和 gpt5.6 还是有�
 
 有没有翻译 benchmark，mimo 这么便宜想做日常翻译模型了
 
+
+*****
+
+####  80后卢瑟  
+##### 14442#       发表于 2026-9-22 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271249&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-22 16:47</a>
+
+mimov2.6系列是神还是鬼</blockquote>
+看上去终于是能用了，不过会有雷霆大思考导致没返回的情况
+
