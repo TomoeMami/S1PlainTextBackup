@@ -259,3 +259,15 @@ boss的招里头疼的有：1.源神二阶段开局的大脚，至今没有弹�
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  失忆的香槟  
+##### 1920#       发表于 2026-9-22 12:03
+
+说到心流，这游戏反魂镜是陷阱不要带。
+本来就是重动作演出的游戏，带上在快死的时候会给你弹出一个界面问你要不要用，你哪怕是像鬼泣5一样做个过渡演出呢？堪比p3r结算时弹出抽卡界面来寸止演出，还会唤起我半年前虎博派生回生香的痛苦记忆<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">。
+而且这道具又是个稀罕货，我一周目舔图加在赖政那换完才8个，这也不是魂游，死亡惩罚为0，你真舍得在洛东一闪坠机失败后用这种一次性道具吗？
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
