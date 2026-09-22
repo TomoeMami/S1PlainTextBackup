@@ -13255,3 +13255,15 @@ mimo 测试感觉flash 比 pro 强，作为口粮 ai 足够了
 
 发现openrouter好像有个300秒的硬限制，现在国模都喜欢长考，非Flash的很容易思考阶段就给断了…… <img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 14367#       发表于 2026-9-22 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270170&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-22 13:14</a>
+4.1感觉很啰嗦，不适合归纳总结
+
+据说step 5是国模里最省token的</blockquote>
+这个是纯大份模型，完全不可用
+

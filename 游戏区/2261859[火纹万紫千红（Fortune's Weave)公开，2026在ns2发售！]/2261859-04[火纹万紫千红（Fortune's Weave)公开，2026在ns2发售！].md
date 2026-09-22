@@ -3520,3 +3520,45 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  roydimus  
+##### 4762#       发表于 2026-9-22 13:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">雷达线亚丝望的台词过于高血压了
+
+只能说雷达姐不哐哐给亚丝望两拳是雷达姐心善
+
+
+*****
+
+####  陆久舟  
+##### 4763#       发表于 2026-9-22 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270133&amp;ptid=2261859" target="_blank">cloudztj 发表于 2026-9-22 13:08</a>
+有没有人玩A少线解锁了锻造师这个职业的
+
+我看网上有人说有这个职业，可以用斧和黑魔，但是翻遍了日站wiki和 ...</blockquote>
+有的啊，我解锁了，十次战技升级后魔道神给的
+
+*****
+
+####  cloudztj  
+##### 4764#       发表于 2026-9-22 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270157&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-9-22 13:13</a>
+
+解锁要求好像是升级战技十次。</blockquote>
+我也看到这个说法了，但是至今为止没看到过这职业在游戏里的截图，所以我是真想看看啥样，顺便什么成长
+
+*****
+
+####  cloudztj  
+##### 4765#       发表于 2026-9-22 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270205&amp;ptid=2261859" target="_blank">陆久舟 发表于 2026-9-22 13:24</a>
+
+有的啊，我解锁了，十次战技升级后魔道神给的</blockquote>
+能看看成长咋样吗，就是用斧头和黑魔的？
+
