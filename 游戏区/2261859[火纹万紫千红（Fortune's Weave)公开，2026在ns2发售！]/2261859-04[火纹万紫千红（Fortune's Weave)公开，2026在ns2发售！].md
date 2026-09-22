@@ -3298,3 +3298,14 @@ crazy，感觉第一条线根本开不完地图啊，到处跑做支线时间不
 
 村姑的话打拳上级只有一个勇士，成长比较神秘，村姑本人不是特别缺力，我个人的话转了上级剑圣
 
+
+*****
+
+####  妮贝雅  
+##### 4741#       发表于 2026-9-22 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268380&amp;ptid=2261859" target="_blank">julia黑 发表于 2026-9-22 02:09</a>
+
+椰枣可以种啊</blockquote>
+主要第六章就可以挖那位要椰枣的。。前期想弄只能开箱
+

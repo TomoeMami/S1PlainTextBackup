@@ -195,3 +195,22 @@ demo的百秽数值够高加上初见还蛮好玩的来着，结果进了本体�
 有人遇到这种情况么，PS5版罗掌愿那个场景一走进去就整个屏幕白花花的晃得眼睛都看不清了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我第一次进去也那样，把hdr关了呗
 
+
+*****
+
+####  真那啥  
+##### 1914#       发表于 2026-9-22 11:04
+
+昨晚五十多小时白金了，拿了一闪刀皮战斗真的太爽了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25098PN5AC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  真那啥  
+##### 1915#       发表于 2026-9-22 11:04
+
+昨晚五十多小时白金了，拿了一闪刀皮战斗真的太爽了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25098PN5AC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

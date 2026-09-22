@@ -12915,3 +12915,13 @@ https://tierflow.cn/register?referral_code=1U0GP9h88BL2
 
 —— 来自 realme RMX5010, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lactone  
+##### 14334#       发表于 2026-9-22 11:00
+
+aa榜已经完全没法看了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
