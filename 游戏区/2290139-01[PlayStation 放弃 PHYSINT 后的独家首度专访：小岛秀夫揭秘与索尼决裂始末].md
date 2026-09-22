@@ -1375,3 +1375,17 @@ DS时期小岛将这些人放到首席关卡设计那个位置上，实际上全
 
 —— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ppa11  
+##### 114#       发表于 2026-9-22 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267790&amp;ptid=2290139" target="_blank">无所不黑 发表于 2026-9-21 21:50</a>
+小岛和三上其实反了，也就是炒作的区别。三上可以从里面一次从外面一次都能证明自己，他自己是比卡普空自 ...</blockquote>
+说到小岛和三上，正好有一个能对照他们的ip。
+小岛有个挂名总监的游戏系列叫“我们的太阳”，是小弟中村如哉从策划到制作全程包干的，小岛前期还抬一下小弟，后面这个ip火了就变成小岛自己的创意了。。
+三上这边差不多挂名总监的ip就是“逆转裁判”，巧舟策划制作、三上给了不少资源支持，后面火了是什么样的大伙都知道了
+
+—— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
