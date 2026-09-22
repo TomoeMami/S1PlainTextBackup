@@ -14722,3 +14722,18 @@ opus5.5震撼发布，看跑分是比gpt6强的，最近OA两家更新的频率�
 
 日常用可能没感觉，要是个降智的astra的话说实话不如用opus……
 
+
+*****
+
+####  andychen  
+##### 14503#       发表于 2026-9-23 05:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273644&amp;ptid=2275806" target="_blank">jojog 发表于 2026-9-23 04:49</a>
+
+蒸馏应该是肯定的
+
+之前5.6能用的skill给6用了秒变成一坨，明显是astra的特征</blockquote>
+我本以为Sol和Luna使用了Astra的结构设计，目前看来并没有
+
+至于Opus，5把我对这系列模型的信任彻底干崩了，我会等更多实际使用分享。尤其是这次跟着OpenAI降价，Anthropic的算力瓶颈挺严重的，让我很怀疑是不是又有什么雷
+
