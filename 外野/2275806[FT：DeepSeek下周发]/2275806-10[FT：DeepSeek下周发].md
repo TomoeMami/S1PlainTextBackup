@@ -13920,3 +13920,16 @@ mimov2.6系列是神还是鬼
 
 你楼终于开始造假药了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 14431#       发表于 2026-9-22 17:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+华为做开源升腾框架的就在杭州啊 
+但是用他们的东西训练是真要实力的
+上一个一百亿allin ascend的美团 现在已经尸体微臭了 
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
