@@ -4248,3 +4248,16 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 —— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  无知的小鼠人  
+##### 4832#       发表于 2026-9-23 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272741&amp;ptid=2261859" target="_blank">han110022 发表于 2026-9-22 22:06</a>
+
+因为他有专属马坐骑，而只有二十级才能转职骑士
+
+初级职业只能骑鸟，估计IS就偷懒给他弄个20级了 ...</blockquote>
+合理 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
