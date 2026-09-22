@@ -14157,3 +14157,13 @@ https://www.bilibili.com/video/BV1CuYg6XEi9</blockquote>
 绝大部分都是日常工作，写 ...</blockquote>
 我平均每天3亿的token  代码类我会让4.1干  其他工作全是qwen3.8f
 
+
+*****
+
+####  lactone  
+##### 14452#       发表于 2026-9-22 19:57
+
+qwen4居然发预告了，看来阿里很有信心？<img src="https://static.stage1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
