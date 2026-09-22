@@ -14167,3 +14167,18 @@ qwen4居然发预告了，看来阿里很有信心？<img src="https://static.st
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  德尔惠净水器  
+##### 14453#       发表于 2026-9-22 20:14
+
+<img src="https://img.stage1st.com/forum/202609/22/201453ijyx300ic030ijx9.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1790079281960.jpg</strong> (56.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-22 20:14 上传
+
