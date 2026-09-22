@@ -13026,3 +13026,44 @@ Hy Image3.5 preview 发布，为专业创作提供高性价比模型
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  德尔惠净水器  
+##### 14345#       发表于 2026-9-22 12:40
+
+？
+
+<img src="https://img.stage1st.com/forum/202609/22/124051ve8s8mx7m6ys8mwr.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1790052004970.jpg</strong> (198.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-22 12:40 上传
+
+*****
+
+####  lactone  
+##### 14346#       发表于 2026-9-22 12:41
+
+ 本帖最后由 lactone 于 2026-9-22 12:43 编辑 
+
+这军里军气的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+r1可以说是划时代不为过
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  tonyunreal  
+##### 14347#       发表于 2026-9-22 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70269916&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-9-22 12:22</a>
+
+大炼模型的新时代，现在怎么感觉搓个模型很简单的样子？ 国内这还是算力被限的状况，如果没有限制……  ...</blockquote>
+你把中美去掉，再看看简不简单 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
