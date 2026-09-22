@@ -14145,3 +14145,15 @@ https://www.bilibili.com/video/BV1CuYg6XEi9</blockquote>
 
 除了另外上二常手拿核按钮的例外...
 
+
+*****
+
+####  唠叨  
+##### 14451#       发表于 2026-9-22 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270543&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-9-22 14:43</a>
+看了下公司的统计，截止目前我在工作中用了8亿的4.1f，截图在内网就不贴出来了。
+
+绝大部分都是日常工作，写 ...</blockquote>
+我平均每天3亿的token  代码类我会让4.1干  其他工作全是qwen3.8f
+

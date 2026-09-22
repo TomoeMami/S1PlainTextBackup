@@ -3881,3 +3881,30 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 为什么我伊欧刚挖过来直接就是二十级？我狮子线队伍才十级，这正常吗？
 
+
+*****
+
+####  ascomnet  
+##### 4799#       发表于 2026-9-22 19:48
+
+你们凯伊外传怎么打的，boss打不死，下面的兵又追不上
+
+*****
+
+####  jerry851209  
+##### 4800#       发表于 2026-9-22 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272088&amp;ptid=2261859" target="_blank">ascomnet 发表于 2026-9-22 19:48</a>
+你们凯伊外传怎么打的，boss打不死，下面的兵又追不上</blockquote>
+重甲大锤砸
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Jabeck  
+##### 4801#       发表于 2026-9-22 19:52
+
+凯伊直接追下路，再拍一个骑兵或者天马拦截。
+
