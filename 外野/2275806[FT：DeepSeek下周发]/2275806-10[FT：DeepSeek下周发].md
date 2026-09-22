@@ -13514,3 +13514,90 @@ DSH 发了 v0.1.7-alpha.1 了
 重磅更新：支持语音输入了！</blockquote>
 最新版dsh0.17 用dsv4.1还是默认自己不是识图模型啊，怎么搞 ？？model "deepseek-flash" does not declare image input; switch to an image-capable model to read images
 
+
+*****
+
+####  lactone  
+##### 14392#       发表于 2026-9-22 15:46
+
+本来luna或者sol说的是上周发，然后推到这个周，那么怎么说周二发也不奇怪
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  80后卢瑟  
+##### 14393#       发表于 2026-9-22 15:48
+
+ 本帖最后由 80后卢瑟 于 2026-9-22 15:49 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270822&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-9-22 15:37</a>
+
+nao 榜：Mimo V2.6 pro和flash，最大支持128k输出，但目前推理测试会有59%超过最大长度，无法计分，最终分 ...</blockquote>
+不说别的，就这个雷霆大思考...
+
+<img src="https://img.stage1st.com/forum/202609/22/154851typylf5yuyf0umnl.png" referrerpolicy="no-referrer">
+
+<strong>470676c94edfef309569d6711bcfd7e6.png</strong> (21.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 15:48 上传
+
+思考了十几分钟连个屁都没，可以评价为练歪了
+
+*****
+
+####  空き地卯木  
+##### 14394#       发表于 2026-9-22 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270875&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-9-22 15:44</a>
+最新版dsh0.17 用dsv4.1还是默认自己不是识图模型啊，怎么搞 ？？model "deepseek-flash" does not decla ...</blockquote>
+这个配置是在YAML里面的吧，可以让她自己修
+当然也可以直接获取一下最新模型试试，获取完也有可能本地的YAML自己修好了
+
+*****
+
+####  andychen  
+##### 14395#       发表于 2026-9-22 15:49
+
+阿里巴巴说下一步准备训练10t模型，ds也据传下一步准备训练10t。算力问题看来得到了某种程度的解决
+
+
+*****
+
+####  Hattle  
+##### 14396#       发表于 2026-9-22 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270875&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-9-22 15:44</a>
+
+最新版dsh0.17 用dsv4.1还是默认自己不是识图模型啊，怎么搞 ？？model "deepseek-flash" does not decla ...</blockquote>
+模型配置里，把输入类型勾选一下图片
+
+<img src="https://img.stage1st.com/forum/202609/22/155058pjb1il4unji4yj6i.png" referrerpolicy="no-referrer">
+
+<strong>截图 2026-09-22 15-49-58.png</strong> (107.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 15:50 上传
+
+*****
+
+####  zack1999  
+##### 14397#       发表于 2026-9-22 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270904&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-9-22 15:50</a>
+
+模型配置里，把输入类型勾选一下图片</blockquote>
+可以了！谢谢！不知道这里还能编辑
+
+*****
+
+####  squallx  
+##### 14398#       发表于 2026-9-22 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270617&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-9-22 14:59</a>
+
+我在codex里开mcp用astra6指挥deepseek，又快又便宜</blockquote>
+都塞进codex还是和DSH互联？
+
