@@ -14737,3 +14737,139 @@ opus5.5震撼发布，看跑分是比gpt6强的，最近OA两家更新的频率�
 
 至于Opus，5把我对这系列模型的信任彻底干崩了，我会等更多实际使用分享。尤其是这次跟着OpenAI降价，Anthropic的算力瓶颈挺严重的，让我很怀疑是不是又有什么雷
 
+
+*****
+
+####  jonarryn  
+##### 14504#       发表于 2026-9-23 03:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270875&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-9-22 15:44</a>
+最新版dsh0.17 用dsv4.1还是默认自己不是识图模型啊，怎么搞 ？？model "deepseek-flash" does not decla ...</blockquote>
+可能是因为你以前自定义过模型列表 你在设置里面把模型列表还原为默认试试
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  jonarryn  
+##### 14505#       发表于 2026-9-23 03:16
+
+求问一下 有没有什么现成方案是能让Agent 软件的工作区和会话库同步到两台电脑上用的，我现在用的是 OneDrive 结果前两天炸锅了现在还在修<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  jojog  
+##### 14506#       发表于 2026-9-23 03:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">看来A/确实急了 OPUS基本没有甲，重口能随便写
+
+gpt反而感觉拉了，性能没啥提升单纯是降价？
+
+*****
+
+####  gp1390  
+##### 14507#       发表于 2026-9-23 03:59
+
+a÷确实有点东西啊，昨天一个前端任务用astra max调了大半天，pro5x用了周额度的20%还有些小bug，结果刚刚用opus5.5extra档位半小时搞定，没有bug不说还只用了plus周额度的5%不到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  squallx  
+##### 14508#       发表于 2026-9-23 04:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273611&amp;ptid=2275806" target="_blank">jojog 发表于 2026-9-23 03:45</a>
+
+看来A/确实急了 OPUS基本没有甲，重口能随便写
+
+gpt反而感觉拉了，性能没啥提升单纯是降价？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真的吗 要是文笔好的话就不得不支持了
+
+*****
+
+####  璇瑢子R  
+##### 14509#       发表于 2026-9-23 04:09
+
+AO两家pace the frontier原来是这种pace法<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  andychen  
+##### 14510#       发表于 2026-9-23 04:13
+
+ 本帖最后由 andychen 于 2026-9-23 04:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273611&amp;ptid=2275806" target="_blank">jojog 发表于 2026-9-23 03:45</a>
+
+看来A/确实急了 OPUS基本没有甲，重口能随便写
+
+gpt反而感觉拉了，性能没啥提升单纯是降价？ ...</blockquote>
+我使用了一下Luna，发现在Codex内会暴露出自然语言思维链。我怀疑Sol和Luna都是Astra蒸馏的GPT 5，不然应该是隐式思维链才对
+
+不过降价是实实在在的，现在Luna性价比已经超过DS4.1f了
+
+*****
+
+####  andychen  
+##### 14511#       发表于 2026-9-23 04:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273473&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-9-23 01:11</a>
+
+opus5.5震撼发布，看跑分是比gpt6强的，最近OA两家更新的频率和幅度都变大了啊，感觉DS的v4.1pro能比肩gpt6 ...</blockquote>
+参数量的限制还是很明显，国内目前综合能力最强的还是参数量最大的Kimi K3。据说Moonshot这周也有新发布，看是不是K3的更新吧
+
+*****
+
+####  jojog  
+##### 14512#       发表于 2026-9-23 04:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273623&amp;ptid=2275806" target="_blank">squallx 发表于 2026-9-23 04:05</a>
+
+真的吗 要是文笔好的话就不得不支持了</blockquote>
+手头没有skill 感觉比grok好但是肯定比不上国模
+
+*****
+
+####  jojog  
+##### 14513#       发表于 2026-9-23 04:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273627&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-23 04:13</a>
+
+我使用了一下Luna，发现在Codex内会暴露出自然语言思维链。我怀疑Sol和Luna都是Astra蒸馏的GPT 5，不然应 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">蒸馏应该是肯定的
+
+之前5.6能用的skill给6用了秒变成一坨，明显是astra的特征
+
+日常用可能没感觉，要是个降智的astra的话说实话不如用opus……
+
+*****
+
+####  andychen  
+##### 14514#       发表于 2026-9-23 05:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273644&amp;ptid=2275806" target="_blank">jojog 发表于 2026-9-23 04:49</a>
+
+蒸馏应该是肯定的
+
+之前5.6能用的skill给6用了秒变成一坨，明显是astra的特征</blockquote>
+我本以为Sol和Luna使用了Astra的结构设计，目前看来并没有
+
+至于Opus，5把我对这系列模型的信任彻底干崩了，我会等更多实际使用分享。尤其是这次跟着OpenAI降价，Anthropic的算力瓶颈挺严重的，让我很怀疑是不是又有什么雷
+
+*****
+
+####  lactone  
+##### 14515#       发表于 2026-9-23 05:43
+
+ 本帖最后由 lactone 于 2026-9-23 05:44 编辑 
+
+这段时间就是国模最难受的时间，数据和算力压力都挺大
+
+opus5.5这个看样子依然是后训练主导的
+
+看k3.1吧，感觉也应该快发了
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
