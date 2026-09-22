@@ -13171,3 +13171,87 @@ mimo 2.6在dsh里运行并发起子代理时，子代理界面和主代理界面
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zhanglei1943  
+##### 14358#       发表于 2026-9-22 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270115&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-22 13:05</a>
+
+还是希望flash不要落下
+
+就算是ds8t我也是用不起的 2t也要掂量掂量除非有plan</blockquote>
+如果不涨价呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞车飞车  
+##### 14359#       发表于 2026-9-22 13:07
+
+ 本帖最后由 飞车飞车 于 2026-9-22 13:08 编辑 
+
+mimo 测试感觉flash 比 pro 强，作为口粮 ai 足够了
+
+*****
+
+####  neptunehs  
+##### 14360#       发表于 2026-9-22 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270121&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-9-22 13:06</a>
+如果不涨价呢</blockquote>
+上次我不小心开了一次pro 一个问答没完就是我flash一个小时的钱了
+不涨价也用不起
+除非真像之前灰度时说的pro大量减少思考量跟测试量迅速解决问题 但就我测试的中转站gpt6都做不到这点
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  Promeus  
+##### 14361#       发表于 2026-9-22 13:09
+
+目前这俩参数应该都是没挂engram的，所以可能4.1p是2+1t，巨模8+2t<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还有就是疑似有型的大手发力给梁子刷新华子的卡了
+
+
+*****
+
+####  tillnight  
+##### 14362#       发表于 2026-9-22 13:10
+
+提示，信源是今年以来对ds消息没对过的Information。原文中有非常明显的常识性错误，把v4pro写成1.4t。但是总体上我倒觉得不管是不是真消息，看起来都挺像回事的。今天千问实际上证实了华为发布昇腾新路线图时吹的国模明年都将迈入10t时代的饼。Deepseek肯定是也在准备10t级的，但是我觉得实际上这一次肯定还是英伟达卡练，外媒原文是在说ds准备用昇腾训练卡，可信度不高。
+
+*****
+
+####  nxmonitor  
+##### 14363#       发表于 2026-9-22 13:13
+
+还是那句话，目前的架构里10T模型只有DS能稳定运营还用得起…
+
+*****
+
+####  wandeeees  
+##### 14364#       发表于 2026-9-22 13:13
+
+我灰测模型呢，从7月中旬首次灰测到现在俩月了，最近也没再次灰测，是在最后调整吗<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">能不能在中秋前放出来啊
+
+
+*****
+
+####  lactone  
+##### 14365#       发表于 2026-9-22 13:14
+
+4.1感觉很啰嗦，不适合归纳总结
+
+据说step 5是国模里最省token的
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  一般市民  
+##### 14366#       发表于 2026-9-22 13:15
+
+发现openrouter好像有个300秒的硬限制，现在国模都喜欢长考，非Flash的很容易思考阶段就给断了…… <img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
