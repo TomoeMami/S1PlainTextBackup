@@ -13692,3 +13692,68 @@ ds目前看是真的觉得token该普惠，但是也真的在赚他们认 ...</b
 登陆账号是不是意味着要出coding plan了，或者是为了桌面端的易用性考虑。</blockquote>
 我倾向于是未来electron桌面端给普通用户绕过apikey配置直接充值用的
 
+
+*****
+
+####  tillnight  
+##### 14408#       发表于 2026-9-22 16:14
+
+我觉得deepseek并不是真的反对量贩式的订阅模式，oc接的明显是官方水管，说白了就是变相在提供订阅，不可能说他给oc的价就是亏钱的。现在这样操作DS只需要处理对公关系比较方便，说的更直白点，也方便根据算力情况随时调价。
+
+*****
+
+####  serj005  
+##### 14409#       发表于 2026-9-22 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271024&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-22 16:11</a>
+那也不会把赠送额度单独列出来啊，肯定是有后续商业化的操作</blockquote>
+赠送额度是ds现在网页平台本来就有的数据，dsh补上查看余额的官方渠道是很正常的
+
+*****
+
+####  M乔梦  
+##### 14410#       发表于 2026-9-22 16:17
+
+当初R1上线的时候送过10块钱余额，不知道之后有没有过了
+
+*****
+
+####  厍无春  
+##### 14411#       发表于 2026-9-22 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270465&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-22 14:29</a>
+这个AA榜原来就有点不行了，为了Astra改了一下彻底爆炸，这些模型比V4.1F好用的不超过五个，但是跑分个个都 ...</blockquote>
+是这样的，但是一堆人还奉为圭皋，拿着这个榜单去pvp
+
+
+*****
+
+####  舞以  
+##### 14412#       发表于 2026-9-22 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271024&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-22 16:11</a>
+那也不会把赠送额度单独列出来啊，肯定是有后续商业化的操作</blockquote>
+当年就有赠送余额<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+现在ocg，wb这类转售商就有点替ds卖订阅的性质。
+ds目前看是不想自己折腾订阅这种东西的，卖api简单得很。
+当然不排除梁子真想在上市前后糊弄下股民就是了
+真开我真买啊梁叔叔
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qwased  
+##### 14413#       发表于 2026-9-22 16:20
+
+但是plan模式就是定向补贴中转站，有啥意义吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真想补贴用户直接降价不就好了
+
+*****
+
+####  Promeus  
+##### 14414#       发表于 2026-9-22 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270900&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-22 15:49</a>
+阿里巴巴说下一步准备训练10t模型，ds也据传下一步准备训练10t。算力问题看来得到了某种程度的解决 ...</blockquote>
+960提前三季度出世，自产duv开始上量了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
