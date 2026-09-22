@@ -3562,3 +3562,20 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 有的啊，我解锁了，十次战技升级后魔道神给的</blockquote>
 能看看成长咋样吗，就是用斧头和黑魔的？
 
+
+*****
+
+####  陆久舟  
+##### 4766#       发表于 2026-9-22 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270209&amp;ptid=2261859" target="_blank">cloudztj 发表于 2026-9-22 13:25</a>
+能看看成长咋样吗，就是用斧头和黑魔的？</blockquote>
+对用斧和黑魔法<img src="https://p.sda1.dev/35/97e3902c957f8836c028735eb109f365/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kalavinka  
+##### 4767#       发表于 2026-9-22 13:32
+
+这代是不是没光弓了，一直没看到
+
