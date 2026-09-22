@@ -13449,3 +13449,24 @@ DSH 发了 v0.1.7-alpha.1 了
 重磅更新：支持语音输入了！</blockquote>
 现在dsh算是半边迈入成熟产品的状态了，这版本之后会话管理更完善了
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 14386#       发表于 2026-9-22 15:21
+
+之前他的回复看着像重置卡，现在不好说。<img src="https://p.sda1.dev/35/380b0e8a92addd0c49751ff121afada9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lowezack  
+##### 14387#       发表于 2026-9-22 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=70270543&amp;amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-9-22 14:43</a>
+看了下公司的统计，截止目前我在工作中用了8亿的4.1f，截图在内网就不贴出来了。
+
+绝大部分都是日常工作，写 ...</blockquote>
+为啥不限制下上下文，模型支持1M又不是一定必须用1M，把上下文改成256k或300k
+
+编程里1m上下文毛用没有，后期模型一回合调用一次工具，token用量直接起飞。
+
