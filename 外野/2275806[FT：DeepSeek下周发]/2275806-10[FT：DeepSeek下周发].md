@@ -13649,3 +13649,46 @@ Codex里，你让codex帮你安装就行。缺点是没法像OAI原生模型那�
 编程也要 1m上下文，256k上下文的模型给它 128k都不一定有多少专注力
 编程关键是监控上下文长度，1m的用掉 50% 就可以考虑新开会话了
 
+
+*****
+
+####  nxmonitor  
+##### 14404#       发表于 2026-9-22 16:06
+
+真有官方coding plan谁还用转发的那几个？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 14405#       发表于 2026-9-22 16:08
+
+梁子又不缺用户，没必要搞plan补贴<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+爱用用不用滚了
+ds目前看是真的觉得token该普惠，但是也真的在赚他们认为合理的利润。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  nxmonitor  
+##### 14406#       发表于 2026-9-22 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271008&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-22 16:08</a>
+
+梁子又不缺用户，没必要搞plan补贴
+
+爱用用不用滚了
+
+ds目前看是真的觉得token该普惠，但是也真的在赚他们认 ...</blockquote>
+那也不会把赠送额度单独列出来啊，肯定是有后续商业化的操作
+
+*****
+
+####  serj005  
+##### 14407#       发表于 2026-9-22 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270947&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-9-22 15:59</a>
+登陆账号是不是意味着要出coding plan了，或者是为了桌面端的易用性考虑。</blockquote>
+我倾向于是未来electron桌面端给普通用户绕过apikey配置直接充值用的
+

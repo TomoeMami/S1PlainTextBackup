@@ -430,3 +430,11 @@ v2-0ae7091590a14f8c0b1b7b12deaf9172_720w.webp
 我一直感觉幻魔这东西就是按照二战的蝗军为原型做的，尤其这代，人体实验室都出来了。杂兵那个长相跟戴个 ...</blockquote>
 有大刀队mod的，demo时候就有了，直接成鬼灭之刃
 
+
+*****
+
+####  古凌锋  
+##### 1932#       发表于 2026-9-22 16:08
+
+进了二周目发现武器防具这些都不继承还得通一遍马桶果断放弃打第二次了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
