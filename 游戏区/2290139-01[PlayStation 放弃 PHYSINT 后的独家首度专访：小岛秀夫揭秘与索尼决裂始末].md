@@ -1537,3 +1537,15 @@ re1奠定系列底层框架</blockquote>
 
 <blockquote>我想到的另一件大事是：我选择独立并成立了自己的工作室，很多人也做了同样的事。但是，无论在世界上哪个地方，似乎还没有人取得过超级巨大的成功。</blockquote>他已经忘记了去年把他的DS2踩在地上摩擦的33<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 127#       发表于 2026-9-22 22:03
+
+<blockquote>哈罗 发表于 2026-9-22 21:01
+吃老本的问题肯定存在，但设计实力我认为也是有的，re789各自都有好关卡
+
+但现在生化最大的问题是商业高于 ...</blockquote>
+三上当时这个组在新千年的时候多点开花了吧，自己徒弟神谷有鬼泣(还是自己保下来的)，还有逆转裁判，鬼武者之类的，说到科乐美时期的KJP，大家只记得A Hideo Kojima Game Metal Gear Solid
+

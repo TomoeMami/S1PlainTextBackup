@@ -14342,3 +14342,58 @@ gpt现在的暗号笑死我了<img src="https://static.stage1st.com/image/smiley
 
 等等
 
+
+*****
+
+####  lubo  
+##### 14467#       发表于 2026-9-22 21:56
+
+虽然还没干，雷神也有过想法
+
+<img src="https://img.stage1st.com/forum/202609/22/215407oh4bb27bjb7pxbpb.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-09-22 215258.png</strong> (519.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 21:54 上传
+
+*****
+
+####  neptunehs  
+##### 14468#       发表于 2026-9-22 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272603&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-9-22 21:39</a>
+等等</blockquote>
+反正速度真的太快了 让人觉得不大现实
+只能说拭目以待
+顺便27b加了n-gram的话怕不是家用机就跑不起来了吧
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  小ghoul  
+##### 14469#       发表于 2026-9-22 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272684&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-22 21:56</a>
+反正速度真的太快了 让人觉得不大现实
+只能说拭目以待
+顺便27b加了n-gram的话怕不是家用机就跑不起来了吧 ...</blockquote>
+没事ngram能卸载到内存
+
+*****
+
+####  自由之紫roy  
+##### 14470#       发表于 2026-9-22 22:02
+
+挺好奇qwen4 27b能比3.8 27b强多少
+
+*****
+
+####  BarricadeMKXX  
+##### 14471#       发表于 2026-9-22 22:05
+
+话说回来ocg和ccgoat这两家转发官方ds也没开放fim补全，可能是现在大家真的一点代码都不自己敲了罢
+
