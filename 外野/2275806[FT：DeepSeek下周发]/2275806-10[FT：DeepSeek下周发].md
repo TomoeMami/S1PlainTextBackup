@@ -13601,3 +13601,51 @@ nao 榜：Mimo V2.6 pro和flash，最大支持128k输出，但目前推理测试
 我在codex里开mcp用astra6指挥deepseek，又快又便宜</blockquote>
 都塞进codex还是和DSH互联？
 
+
+*****
+
+####  小野賢章  
+##### 14399#       发表于 2026-9-22 15:57
+
+让dsh看了一下最近几个版本的更新，看到这两个<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+DeepSeek 账号登录 + Platform 页面（desktop/credentials/client），独立显示赠送额度、显示 profile 头像；credentials 可配置 inference origin 并丢弃不匹配的授权。
+
+Computer use（Cua Driver 两种 provider）、Browser use（Stagehand / Playwright MCP / Chrome DevTools MCP 等后端）、本地 SenseVoice 语音输入、Auto review（风险分级审查、逐次调用授权，作为可选 bundle 发布）。
+
+*****
+
+####  小野賢章  
+##### 14400#       发表于 2026-9-22 15:59
+
+登陆账号是不是意味着要出coding plan了
+
+
+*****
+
+####  舞以  
+##### 14401#       发表于 2026-9-22 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270947&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-9-22 15:59</a>
+登陆账号是不是意味着要出coding plan了，或者是为了桌面端的易用性考虑。</blockquote>
+还有可能是为了方便远程控制？假如dsh要出手机端的话<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  spaceblue  
+##### 14402#       发表于 2026-9-22 16:02
+
+<blockquote>squallx 发表于 2026-9-22 15:53
+都塞进codex还是和DSH互联？</blockquote>
+Codex里，你让codex帮你安装就行。缺点是没法像OAI原生模型那样能看到子代理的具体内容
+
+*****
+
+####  赤星ビスコ  
+##### 14403#       发表于 2026-9-22 16:02
+
+编程也要 1m上下文，256k上下文的模型给它 128k都不一定有多少专注力
+编程关键是监控上下文长度，1m的用掉 50% 就可以考虑新开会话了
+

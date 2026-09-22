@@ -419,3 +419,14 @@ v2-0ae7091590a14f8c0b1b7b12deaf9172_720w.webp
 
 <img src="https://img.stage1st.com/forum/202609/22/154235e33gaxjxlh3xgef3.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  若菜  
+##### 1931#       发表于 2026-9-22 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270457&amp;ptid=2210366" target="_blank">osborn 发表于 2026-9-22 14:27</a>
+
+我一直感觉幻魔这东西就是按照二战的蝗军为原型做的，尤其这代，人体实验室都出来了。杂兵那个长相跟戴个 ...</blockquote>
+有大刀队mod的，demo时候就有了，直接成鬼灭之刃
+
