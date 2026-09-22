@@ -1549,3 +1549,26 @@ re1奠定系列底层框架</blockquote>
 但现在生化最大的问题是商业高于 ...</blockquote>
 三上当时这个组在新千年的时候多点开花了吧，自己徒弟神谷有鬼泣(还是自己保下来的)，还有逆转裁判，鬼武者之类的，说到科乐美时期的KJP，大家只记得A Hideo Kojima Game Metal Gear Solid
 
+
+*****
+
+####  C.W.Nimitz  
+##### 128#       发表于 2026-9-22 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272220&amp;ptid=2290139" target="_blank">madcow 发表于 2026-9-22 20:16</a>
+
+KONAMI在小岛滚了没多久以后就卖过一个叫合金装备生存的游戏吧，当时还有媒体起了个《对不起小岛但是它真的 ...</blockquote>
+小岛本质黄皮白心
+
+KONAMI时期把研发逐步发给欧美开发工作室就是他整的。恶魔城寂静岭啥的都扔给欧美开发组做了，结果就不是很好评加。
+
+虽然同时期这么干的不止他一个，卡普空也干了（新鬼泣给忍者理论）。
+
+但现在卡普空把核心研发挪回日本了，小岛秀夫与此同时借自己的游戏和一帮子白皮演员混在一起还打卡合照，就<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+最后回到KONAMI
+
+KONAMI在赶走小岛后其实就不养什么传统买断大作开发组了，自己本部做一堆服务类游戏，赚钱的很。
+
+老IP就转而搞授权外包开发了，前几年质量都不咋地，这两年包出去的《寂静岭2》重制版和F这质量才算稳定下来
+
