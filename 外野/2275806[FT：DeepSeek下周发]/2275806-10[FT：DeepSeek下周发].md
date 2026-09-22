@@ -14397,3 +14397,11 @@ gpt现在的暗号笑死我了<img src="https://static.stage1st.com/image/smiley
 
 话说回来ocg和ccgoat这两家转发官方ds也没开放fim补全，可能是现在大家真的一点代码都不自己敲了罢
 
+
+*****
+
+####  bsdlxy  
+##### 14472#       发表于 2026-9-22 22:20
+
+AIHubMix和ZenMux都被DNS污染了吗？
+
