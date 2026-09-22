@@ -12810,3 +12810,33 @@ grok 4.7也来了
 
 Mimo 2.6 Flash上线了，价格不变，开蹬 <img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 14324#       发表于 2026-9-22 07:54
+
+ 本帖最后由 serj005 于 2026-9-22 07:56 编辑 
+
+mimo等更多实测吧，目前只看api价格还不错，flash如果能打平dsv4f正式版那还是可以的
+
+
+*****
+
+####  song_yl93  
+##### 14325#       发表于 2026-9-22 08:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mimov2.6没涨价就是好模型
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  qwased  
+##### 14326#       发表于 2026-9-22 08:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268490&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-9-22 06:47</a>
+
+如果你认为 Grok 4.6 拉完了，那么 Grok 4.7 就拉完了。这玩意跟 4.6 就区别不大，不知道马圣整天在吹什 ...</blockquote>
+喂了cursor的数据怎么还是这么区，还不如swe2直接玩后训练了
+
