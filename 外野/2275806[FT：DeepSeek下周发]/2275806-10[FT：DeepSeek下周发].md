@@ -12898,3 +12898,20 @@ V4.1f又不是什么高价模型，要不能力确实越过去，要不价格确
 
 mi2.6怎么回事啊，在opencode总共提了两次要求，两次都执行任务死循环了。虽然是免费的，但是我提取记忆的插件要token啊
 
+
+*****
+
+####  居于月上伊莫库  
+##### 14333#       发表于 2026-9-22 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70267839&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-21 22:03</a>
+快来助我领鸡蛋 TierFlow 全新系统上线，新用户注册就送30元额度，好友通过您的链接完成注册后，双方奖励都 ...</blockquote>
+已领感谢。
+接龙：
+快来助我领鸡蛋 TierFlow 全新系统上线，新用户注册就送30元额度，好友通过您的链接完成注册后，双方奖励都会直接计入各自的账户余额
+https://tierflow.cn/register?referral_code=1U0GP9h88BL2
+
+看着确实草台，目前只有DS4.1F，GLM5.3系列 和 Qwen3.8 Flash. 暂未发现赠送到期时间。
+
+—— 来自 realme RMX5010, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

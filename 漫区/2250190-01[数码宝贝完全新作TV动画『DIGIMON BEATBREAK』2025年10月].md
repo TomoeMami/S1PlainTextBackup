@@ -194,3 +194,20 @@
 
 现在就看守宫兽能不能出个真究极体挽救一下主角团兽的颜值了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TOYSTORY  
+##### 817#       发表于 2026-9-21 22:17
+
+两小只的究极体也太像杂鱼了
+
+现在就看守宫兽能不能出个真究极体挽救一下主角团兽的颜值了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西人  
+##### 818#       发表于 2026-9-22 09:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这两究极体真的没有究极体的感觉，像上周才临时画好的
+
