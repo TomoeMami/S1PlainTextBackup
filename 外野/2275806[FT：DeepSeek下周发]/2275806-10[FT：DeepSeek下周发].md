@@ -14514,3 +14514,50 @@ jev 这模型来识别广告太好用了. 最近搓了拓展把X下面那种福�
 deepseek还是不够重视市场方面</blockquote>
 其实用户这个是不怎么担心的，调用量太高了都把服务器蹬爆了，只担心他们洗数据洗不过来……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 14484#       发表于 2026-9-23 00:36
+
+还有Jev这种东西到底有什么新花样？当初NLP做本文情感分类的时候也没这么多人吹吧？然后这种东西后面就成功被LLM干掉了……
+
+*****
+
+####  RookieTnT  
+##### 14485#       发表于 2026-9-23 00:37
+
+opus5.5发布了 最近因为灰度到新的opus5.5，一大特征就是速度非常快，tps最低都在150+，观测到过300+
+
+token效率太高了. 
+
+希望国模在token效率加强一下吧.
+
+
+*****
+
+####  RookieTnT  
+##### 14486#       发表于 2026-9-23 00:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273396&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-23 00:36</a>
+
+还有Jev这种东西到底有什么新花样？当初NLP做本文情感分类的时候也没这么多人吹吧？然后这种东西后面就成功 ...</blockquote>
+jev比较通用吧. NLP不通用啊.  LLM现在的问题是太慢了. jev 我算上延迟都能400ms
+
+*****
+
+####  QShen  
+##### 14487#       发表于 2026-9-23 00:43
+
+反正华为的卡，除了前几天电信那个模型，确实再没听说过用来宣传的训练案例。DS的950DT应该都拿去推理了，至少这一代没听说用来训练
+
+*****
+
+####  nxmonitor  
+##### 14488#       发表于 2026-9-23 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273410&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-23 00:42</a>
+
+jev比较通用吧. NLP不通用啊.  LLM现在的问题是太慢了. jev 我算上延迟都能400ms ...</blockquote>
+换个名字叫“基于LLM的分类算法”怎么样？你用个几B的小模型也能实现，智力也确实是几B的小模型……
+

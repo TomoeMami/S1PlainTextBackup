@@ -4212,3 +4212,29 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 —— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  Chenlh  
+##### 4830#       发表于 2026-9-23 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272304&amp;ptid=2261859" target="_blank">夜留歌 发表于 2026-9-22 20:37</a>
+
+女王线4月6号观战白发鬼有啥特殊奖励吗？刚想起来错过了
+
+—— 来自 vivo V2502A, Android 16, 鹅球 v3.4.9 ...</blockquote>
+多一场战斗，加小半管声望
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 夜留歌 + 1好评加鹅
+
+查看全部评分
+
