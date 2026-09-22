@@ -14405,3 +14405,14 @@ gpt现在的暗号笑死我了<img src="https://static.stage1st.com/image/smiley
 
 AIHubMix和ZenMux都被DNS污染了吗？
 
+
+*****
+
+####  neptunehs  
+##### 14473#       发表于 2026-9-22 22:28
+
+mimo2.6好的时候看起来不错
+但确实是容易因为各种bug死循环啊。。。感觉不处于能用的阶段
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

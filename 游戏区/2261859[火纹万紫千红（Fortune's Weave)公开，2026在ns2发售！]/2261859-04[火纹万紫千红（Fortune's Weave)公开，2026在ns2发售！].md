@@ -4067,3 +4067,13 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开A少线了，没想到马车开局能用还能直接跨过名声锁的关隘。前期就可购入些高级货了
 
+
+*****
+
+####  kiokio  
+##### 4818#       发表于 2026-9-22 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272114&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-9-22 19:52</a>
+凯伊直接追下路，再拍一个骑兵或者天马拦截。</blockquote>
+我女皇线，女皇转天马第一回合下去干掉弓手
+
