@@ -246,3 +246,16 @@ boss的招里头疼的有：1.源神二阶段开局的大脚，至今没有弹�
 
 鬼杀一开始会觉得这也没什么难的 然后到中期就会发现自己数值增长的速度比不过敌人膨胀的速度
 
+
+*****
+
+####  失忆的香槟  
+##### 1919#       发表于 2026-9-22 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70269604&amp;ptid=2210366" target="_blank">手铐君 发表于 2026-9-22 11:24</a>
+二阶段开头那招如果实在躲不掉可以在1阶段开觉醒，然后觉醒一闪后面投技我都是直接用火鸟打断 ...</blockquote>
+基本没用过觉醒，因为我还是想玩的比较豪的，开觉醒我会不自主的盯右下的魔人槽，想掐着点次元斩，有点影响心流<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，除了源神三阶段一般是在小野篁的精神时光屋试哪些招可以一闪的时候才用。这一脚我通过一闪窗口判断应是我闪避按晚了，得在源神下脚的过程中按，而不是快要踩到我了才按，但下脚动画太慢了还是卡不好闪避的时机。
+火鸟是我觉得最帅的一把武具，我经常跑图的时候开个火焰光背观赏，打boss时开局吹个笛子嘲讽（然后秒切二天）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

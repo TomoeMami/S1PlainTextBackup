@@ -3380,3 +3380,50 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  索非亚  
+##### 4749#       发表于 2026-9-22 11:47
+
+凯伊爹28级这面板，初见还没什么概念现在一看真有实力。
+
+<img src="https://img.stage1st.com/forum/202609/22/114715xdbbprp1ubpk1bpd.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1790048834568_1.webp</strong> (250.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 11:47 上传
+
+
+*****
+
+####  风祭果凛  
+##### 4750#       发表于 2026-9-22 11:55
+
+<blockquote>zwqcm 发表于 2026-9-22 10:22
+这作能玩魔剑么，我找了个看上去魔速技运都看得过去的坑吃瘪肚地练了半天，剑术熟练度低命中不够不说，职业 ...</blockquote>
+牧师能用斧，法师能用剑，你懂我意思吧（西洛可就是魔剑配置，一把雷剑走天下
+
+当然我理解你的意思是，这不太像传统魔剑玩法，我也觉得有点别扭
+
+除了这俩，凯伊线会解锁神驼兵，这个算是正经双修的上级职业
+
+*****
+
+####  纯夏  
+##### 4751#       发表于 2026-9-22 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70269634&amp;ptid=2261859" target="_blank">JOJOROY 发表于 2026-9-22 11:29</a>
+
+通了雷达篇，是推荐打战争篇还是回去通别的角色</blockquote>
+推荐回去通别的角色 每个主角的路线主要玩点都不一样
+
+*****
+
+####  hsyg  
+##### 4752#       发表于 2026-9-22 11:57
+
+这DLC完全没消息，是打算把安娜当免费DLC塞更新里这么抽象吗？
+
