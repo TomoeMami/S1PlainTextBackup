@@ -299,3 +299,13 @@ boss的招里头疼的有：1.源神二阶段开局的大脚，至今没有弹�
 也许这代武藏只是单纯的菜这代幻魔也没多强，3里进了巴黎立刻在街头搞大屠杀把巴黎变成浣熊市，这代也就在 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起来幻魔杂兵还会胆怯，感觉要么是抄对马岛的时候没过脑子，要么是立项的时候就不是鬼武者
 
+
+*****
+
+####  格林卡罗尔  
+##### 1924#       发表于 2026-9-22 14:11
+
+舍得，因为二周目很多主线道具会被替换成返魂镜，我发现手上有十个的时候反而清狱门用得多
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
