@@ -369,3 +369,53 @@ LB：就此死去    RB：起死回生 ...</blockquote>
 
 返魂镜我到二周目鬼杀才想起有这个，到最后打源神才装上去意思下
 
+
+*****
+
+####  杀仁老登  
+##### 1930#       发表于 2026-9-22 15:43
+
+知乎上有网友根据片尾职员表找了一下脸模照片
+
+<img src="https://img.stage1st.com/forum/202609/22/154236n3buvn3fsfdfb1ds.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>v2-d6da8a8c1395f6a6dc8bc7e66dbd86e0_720w.webp</strong> (31.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 15:42 上传
+
+<img src="https://img.stage1st.com/forum/202609/22/154236nd8cfqailodlzqoz.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>v2-fa628b7c0d18e080c2f942f1abc3f257_720w.webp</strong> (15.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 15:42 上传
+
+<img src="https://img.stage1st.com/forum/202609/22/154235h4a64579mvzvzv76.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>v2-2ff2b92cae11f5b420ce1f195401749c_720w.webp</strong> (38.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 15:42 上传
+
+v2-5fcf7a6b6cf316171eab6193a855f141_720w.webp
+(15.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 15:42 上传
+
+<img src="https://img.stage1st.com/forum/202609/22/154235a9by8ybbzru7nigb.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+v2-0ae7091590a14f8c0b1b7b12deaf9172_720w.webp
+(28.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 15:42 上传
+
+<img src="https://img.stage1st.com/forum/202609/22/154235e33gaxjxlh3xgef3.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

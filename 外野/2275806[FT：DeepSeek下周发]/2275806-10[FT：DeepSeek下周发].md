@@ -13478,3 +13478,39 @@ DSH 发了 v0.1.7-alpha.1 了
 
 我现在有点担心pro 4.1也是这种不说人话的风格……
 
+
+*****
+
+####  小野賢章  
+##### 14389#       发表于 2026-9-22 15:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+nao 榜：Mimo V2.6 pro和flash，最大支持128k输出，但目前推理测试会有59%超过最大长度，无法计分，最终分数也不可靠，所以不会开分。coding正常测。
+
+
+*****
+
+####  nxmonitor  
+##### 14390#       发表于 2026-9-22 15:40
+
+ 本帖最后由 nxmonitor 于 2026-9-22 15:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270822&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-9-22 15:37</a>
+
+nao 榜：Mimo V2.6 pro和flash，最大支持128k输出，但目前推理测试会有59%超过最大长度，无法计分，最终分 ...</blockquote>
+这个上下文，配合MUFC测试里只有32K能保持注意力，只能说不好说……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zack1999  
+##### 14391#       发表于 2026-9-22 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270586&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-9-22 14:52</a>
+
+DSH 发了 v0.1.7-alpha.1 了
+
+又修复了一堆的东西，
+
+重磅更新：支持语音输入了！</blockquote>
+最新版dsh0.17 用dsv4.1还是默认自己不是识图模型啊，怎么搞 ？？model "deepseek-flash" does not declare image input; switch to an image-capable model to read images
+
