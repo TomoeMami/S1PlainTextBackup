@@ -12968,3 +12968,61 @@ mimo2.6缓存命中不佳，那就接网页翻译插件用了，应该能比dsv4
 
 现在推上全部是讽刺Grok 4.7的。
 
+
+*****
+
+####  德尔惠净水器  
+##### 14340#       发表于 2026-9-22 12:19
+
+Hy Image3.5 preview 发布，为专业创作提供高性价比模型
+
+这是一款高性价比的专业级生图模型，经过数百名内部专业设计师GSB盲测，模型能力对比 Hy Image3.0 显著提升约30%，通过与元宝、WorkRally、OnSolo、Miora、WorkBuddy、ima等产品深度协同，大幅提升面向生活、学习和生产力等场景的效果与能力。
+
+在腾讯内部组织数百名专业设计师的 GSB 盲测中， Hy Image3.5 preview 与 Seedream 5.0 pro 持平，略优于 Nano-Banana Pro 和 Qwen-Image-3.0 Pro。
+
+https://mp.weixin.qq.com/s/4lWw-2EfQxkkzbs2-mXB9A
+
+*****
+
+####  一般市民  
+##### 14341#       发表于 2026-9-22 12:22
+
+大炼模型的新时代，现在怎么感觉搓个模型很简单的样子？ 国内这还是算力被限的状况，如果没有限制…… <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 14342#       发表于 2026-9-22 12:25
+
+所以你就知道欧洲和日本有多废物了
+
+加起来小十亿人，而且ai早期基础数学研究还比较强，哪怕按照贝叶斯概率，也能出一个前沿模型吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  苇原雪道  
+##### 14343#       发表于 2026-9-22 12:25
+
+楼上漏油那个tireflow看了下是他自己做了个小模型，自动分析当前对话该给高级模型还是flash？以此降低开销？
+
+有坛友用么？感觉如何？
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  neptunehs  
+##### 14344#       发表于 2026-9-22 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70269898&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-22 12:19</a>
+Hy Image3.5 preview 发布，为专业创作提供高性价比模型
+
+这是一款高性价比的专业级生图模型，经过数百名内 ...</blockquote>
+可惜国产画图模型的训练材料里基本都没有nsfw
+就是不知道lora方不方便了 
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
