@@ -350,3 +350,14 @@ LB：就此死去    RB：起死回生 ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kuarwbwe  
+##### 1928#       发表于 2026-9-22 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270281&amp;ptid=2210366" target="_blank">杀仁老登 发表于 2026-9-22 13:45</a>
+
+说起来幻魔杂兵还会胆怯，感觉要么是抄对马岛的时候没过脑子，要么是立项的时候就不是鬼武者 ...</blockquote>
+这个设定我觉得单纯就是卡婊怕你后期通马桶通烦了，给你点快速清场的手段。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

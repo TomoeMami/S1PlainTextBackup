@@ -13435,3 +13435,17 @@ DSH 发了 v0.1.7-alpha.1 了
 
 我在codex里开mcp用astra6指挥deepseek，又快又便宜
 
+
+*****
+
+####  serj005  
+##### 14385#       发表于 2026-9-22 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270586&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-9-22 14:52</a>
+DSH 发了 v0.1.7-alpha.1 了
+
+又修复了一堆的东西，
+
+重磅更新：支持语音输入了！</blockquote>
+现在dsh算是半边迈入成熟产品的状态了，这版本之后会话管理更完善了
+
