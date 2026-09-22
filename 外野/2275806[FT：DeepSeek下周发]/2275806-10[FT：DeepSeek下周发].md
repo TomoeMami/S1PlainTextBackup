@@ -14610,3 +14610,24 @@ opus5.5震撼发布，看跑分是比gpt6强的，最近OA两家更新的频率�
 
 使用大参数量的模型会好一点
 
+
+*****
+
+####  jonarryn  
+##### 14493#       发表于 2026-9-23 03:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270875&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-9-22 15:44</a>
+最新版dsh0.17 用dsv4.1还是默认自己不是识图模型啊，怎么搞 ？？model "deepseek-flash" does not decla ...</blockquote>
+可能是因为你以前自定义过模型列表 你在设置里面把模型列表还原为默认试试
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  jonarryn  
+##### 14494#       发表于 2026-9-23 03:16
+
+求问一下 有没有什么现成方案是能让Agent 软件的工作区和会话库同步到两台电脑上用的，我现在用的是 OneDrive 结果前两天炸锅了现在还在修<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
