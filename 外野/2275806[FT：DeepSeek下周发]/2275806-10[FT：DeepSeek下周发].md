@@ -14053,3 +14053,33 @@ mimo 2.6 pro 随便跑了跑，感觉是能用了，但是和 gpt5.6 还是有�
 mimov2.6系列是神还是鬼</blockquote>
 看上去终于是能用了，不过会有雷霆大思考导致没返回的情况
 
+
+*****
+
+####  qwased  
+##### 14443#       发表于 2026-9-22 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271698&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-9-22 18:15</a>
+
+有没有翻译 benchmark，mimo 这么便宜想做日常翻译模型了</blockquote>
+[https://www.bilibili.com/video/BV1CuYg6XEi9](https://www.bilibili.com/video/BV1CuYg6XEi9/?vd_source=3037ad65b82ceae7fa2c17a82dc4cc45)
+
+<img src="https://img.stage1st.com/forum/202609/22/182814a2r2lwlqz4gv2ljx.jpg" referrerpolicy="no-referrer">
+
+<strong>CAA3EE51042D0EE0A977C2C800611182.jpg</strong> (503.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 18:28 上传
+
+日常翻译的话你自己本地挂个hy 9b都不要钱<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 14444#       发表于 2026-9-22 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271249&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-22 16:47</a>
+mimov2.6系列是神还是鬼</blockquote>
+用了几下flash感觉挺鬼的，两个不同场景遇到了无限工具调用循环，连刷十几个ls+pwd
+
