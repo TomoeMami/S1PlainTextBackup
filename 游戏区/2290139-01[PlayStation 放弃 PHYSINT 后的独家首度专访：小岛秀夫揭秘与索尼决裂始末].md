@@ -1427,3 +1427,13 @@ DS时期小岛将这些人放到首席关卡设计那个位置上，实际上全
 三上真司作为出走的名制作人算是成绩做的最好的吧，他自己搞得恶灵附身做 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">生化危机3re（保质保量）
 
+
+*****
+
+####  madcow  
+##### 118#       发表于 2026-9-22 18:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冈本吉起啊，虽然山寨鬼武者不行但是怪物弹珠老牛逼了好像
+
+再排下来三丧已经可以了，现在最多说是被小妹害了，名声晚节不保（
+

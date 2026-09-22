@@ -3816,3 +3816,21 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 这第一部真的越玩越变态，配合迪特利希线后面这更变态的剧情，我想骂人了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ShitOverflow  
+##### 4792#       发表于 2026-9-22 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271781&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-22 18:39</a>
+
+哪个村民</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">穆，雷达线的假小子，就这代良成长的拥有者
+
+*****
+
+####  lilod  
+##### 4793#       发表于 2026-9-22 18:50
+
+蕾达线的剧情展开真的很舒服，已经完爆了某些同样 2～30 小时体量的经典 JRPG 了
+

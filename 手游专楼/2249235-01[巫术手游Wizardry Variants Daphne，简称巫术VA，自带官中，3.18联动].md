@@ -108,3 +108,15 @@
 
 游侠命中套比攻击套好做吧..总之还是攒石头等周年<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orz100  
+##### 906#       发表于 2026-9-22 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263264&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2026-9-21 00:48</a>
+把万紫千红升到5级发现上限打不出来，现在转了游侠也没打出来，好亏啊</blockquote>
+五级的攻击力阈值是多少，我有点想升一下
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

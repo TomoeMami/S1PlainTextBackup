@@ -14091,3 +14091,34 @@ mimov2.6系列是神还是鬼</blockquote>
 
 用opc的免费mimo2.6试了个任务，这玩意瞬间给我开了20几个rg把自己卡死了
 
+
+*****
+
+####  御坂MKII  
+##### 14446#       发表于 2026-9-22 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271744&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-22 18:28</a>
+
+https://www.bilibili.com/video/BV1CuYg6XEi9</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> v4.1 flash 果然比 v4 倒退了
+
+只要便宜的话填个 api 方便各个设备都直接用
+
+*****
+
+####  Promeus  
+##### 14447#       发表于 2026-9-22 18:53
+
+北京,9月22日(路透社)--两位知情人士表示,中国人工智能初创公司DeepSeek将成为本周向联合国安理会就人工智能带来的风险作简报的公司之一, 此时世界各国领导人正齐聚纽约参加一年一度的联合国大会
+由15个成员国组成的安理会定于周三举行会议,讨论人工智能与国际安全问题。数周前,多位人工智能行业领袖呼吁协调放缓日益强大的人工智能系统的开发, 警告称这些系统可能很快就会自我改进,并脱离人类控制。
+
+梁子据说不去<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绝地潜兵  
+##### 14448#       发表于 2026-9-22 18:56
+
+想骗梁子过去噶了是吧，肯定不去啊
+
