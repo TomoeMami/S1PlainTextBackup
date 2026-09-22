@@ -4310,3 +4310,14 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 我现在嫌弃给的回合太少了一点，还有好多地方没去呢
 
+
+*****
+
+####  zhoutai354  
+##### 4838#       发表于 2026-9-23 04:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273141&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-22 23:18</a>
+
+可以看下这个表  能抓的马 鸵 龙都有标注</blockquote>
+请问这是什么表
+

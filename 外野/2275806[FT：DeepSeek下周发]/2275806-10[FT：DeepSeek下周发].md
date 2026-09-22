@@ -14641,3 +14641,24 @@ opus5.5震撼发布，看跑分是比gpt6强的，最近OA两家更新的频率�
 
 gpt反而感觉拉了，性能没啥提升单纯是降价？
 
+
+*****
+
+####  gp1390  
+##### 14496#       发表于 2026-9-23 03:59
+
+a÷确实有点东西啊，昨天一个前端任务用astra max调了大半天，pro5x用了周额度的20%还有些小bug，结果刚刚用opus5.5extra档位半小时搞定，没有bug不说还只用了plus周额度的5%不到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  squallx  
+##### 14497#       发表于 2026-9-23 04:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273611&amp;ptid=2275806" target="_blank">jojog 发表于 2026-9-23 03:45</a>
+
+看来A/确实急了 OPUS基本没有甲，重口能随便写
+
+gpt反而感觉拉了，性能没啥提升单纯是降价？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真的吗 要是文笔好的话就不得不支持了
+
