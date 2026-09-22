@@ -2986,3 +2986,59 @@ engage被很多人诟病后面新来的角色太猛，不过这种正常来说�
 
 第一次4选1选哪条好？
 
+
+*****
+
+####  纯夏  
+##### 4715#       发表于 2026-9-22 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268778&amp;ptid=2261859" target="_blank">lbj5454 发表于 2026-9-22 09:01</a>
+
+第一次4选1选哪条好？</blockquote>
+推荐顺序为：凯伊&gt;女王&gt;迪特里希&gt;蕾达
+
+这个顺序可以在凯伊线中掌握游戏的基本流程 在女王线中专注于部队部署 在迪特里希线中体验战斗 并在蕾达线中感受探索元素
+
+*****
+
+####  PigMourne  
+##### 4716#       发表于 2026-9-22 09:21
+
+迪线的锻造师职业居然要强化十次战技，服了呀。现在通关了，只能方尖碑回去重打吗？第二部还有没有机会解锁10次战技拿职业<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  エリ  
+##### 4717#       发表于 2026-9-22 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268346&amp;ptid=2261859" target="_blank">5ew47 发表于 2026-9-22 01:38</a>
+
+地图右侧可以去堡垒残迹，能走海路的话再往右有个岛也能刷，但是出货率我就不清楚了
+
+ ...</blockquote>
+感谢老哥，找到了，刷了20个回合出了1个
+
+爆率有点感人
+
+打了快20小时才发现大地图也能按R查阅……
+
+
+*****
+
+####  mggr  
+##### 4718#       发表于 2026-9-22 09:24
+
+100个回合篇章建议每天做啥？周常和跑图？感觉好墨迹啊，能不能直接旅店托管跳过，只想玩主线。
+
+*****
+
+####  cloudztj  
+##### 4719#       发表于 2026-9-22 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268778&amp;ptid=2261859" target="_blank">lbj5454 发表于 2026-9-22 09:01</a>
+
+第一次4选1选哪条好？</blockquote>
+凯伊线可以解锁三个上级职业：神鸵鸟，法骑，飞龙，看你觉得重不重要
+
+不考虑职业解锁的话凯伊推荐最后一个打，第一条线又要做支线又要开地图都没什么空闲去抓马了，凯伊线的精髓全在坐骑上了
+
