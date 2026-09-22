@@ -14452,3 +14452,34 @@ mimo2.6好的时候看起来不错
 大家每天几个亿的用不心疼钱么。。。我每天大概下班梁文谷蹬一两个亿的ds4.1，感觉好贵啊。让大肥鱼给我找 ...</blockquote>
 workbuddy签到然后去codebuddy code用，模仿claude code的，还有webui
 
+
+*****
+
+####  雨昼斯基  
+##### 14478#       发表于 2026-9-22 23:57
+
+为什么几家/公司都乐于扫库上传，是因为开源仓库吃完了，优质 coding 训练资源只剩下私有库了吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  novem  
+##### 14479#       发表于 2026-9-23 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273288&amp;ptid=2275806" target="_blank">雨昼斯基 发表于 2026-9-22 23:57</a>
+
+为什么几家/公司都乐于扫库上传，是因为开源仓库吃完了，优质 coding 训练资源只剩下私有库了吗    Re:Sour ...</blockquote>
+所以还是不要小看用户数量带来的优势啊
+
+deepseek还是不够重视市场方面
+
+*****
+
+####  ycjiang1337  
+##### 14480#       发表于 2026-9-23 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272310&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-22 20:37</a>
+
+910C连推理都不行，这机器整个方向都错了，说实话不如对着DS的需求造卡呢，DS之前说要自己造，不如华为拉着 ...</blockquote>
+910C本质上就是910B两个拼一块，底子还是910B，方向肯定是老的
+
