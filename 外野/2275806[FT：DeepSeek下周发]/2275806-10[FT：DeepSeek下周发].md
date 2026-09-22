@@ -14005,3 +14005,24 @@ mimov2.6系列是神还是鬼
 属于当了前浪了，晟腾的架构方向有明显错误，才纠正 ...</blockquote>
 训练现在其他家倒是也都还没做，血条本来也不耐造，推理上量到一定阶段才会考虑训练了
 
+
+*****
+
+####  neptunehs  
+##### 14438#       发表于 2026-9-22 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271571&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-9-22 17:42</a>
+现在4.1只有flash吧？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+姑且没取消pro呢 上次也不是这几天的事情（
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  jyj256  
+##### 14439#       发表于 2026-9-22 17:57
+
+话说坛友给的邀请链接注册的网站里的网站里的tierflow_pro这个模型怎么没见过啊 是哪个模型微调的吗？
+
