@@ -271,3 +271,20 @@ boss的招里头疼的有：1.源神二阶段开局的大脚，至今没有弹�
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  手铐君  
+##### 1921#       发表于 2026-9-22 12:49
+
+返魂镜和回生香还是不一样的，毕竟这作伤害判定没啥问题，其实一周目剑戟除了源神我也没用过。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">留着差一点点过的时候保险的
+
+
+*****
+
+####  osborn  
+##### 1922#       发表于 2026-9-22 12:55
+
+也许这代武藏只是单纯的菜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/b4ad83b2a80d9c9effb611b2ea15d603/image.jpg" referrerpolicy="no-referrer">
+

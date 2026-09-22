@@ -13067,3 +13067,25 @@ r1可以说是划时代不为过
 大炼模型的新时代，现在怎么感觉搓个模型很简单的样子？ 国内这还是算力被限的状况，如果没有限制……  ...</blockquote>
 你把中美去掉，再看看简不简单 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 14348#       发表于 2026-9-22 12:48
+
+这不是又来了吗？又没提出新范式或者新架构，创新程度比4.1差多少？
+
+*****
+
+####  Promeus  
+##### 14349#       发表于 2026-9-22 12:48
+
+现在知道为啥一看到就骂了吧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cloude_L  
+##### 14350#       发表于 2026-9-22 12:53
+
+营销半天打不过41f也很军
+
