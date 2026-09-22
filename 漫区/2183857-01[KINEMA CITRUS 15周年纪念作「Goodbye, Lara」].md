@@ -2293,3 +2293,15 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 —— 来自 vivo V2303A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  故障机器人  
+##### 599#       发表于 2026-9-22 09:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268765&amp;ptid=2183857" target="_blank">cmnewfan 发表于 2026-9-22 08:57</a>
+所以结局是拉拉大人献祭了族群，成为海王吗。。。
+
+—— 来自 vivo V2303A, Android 16, 鹅球 v4.0 ...</blockquote>
+族群一个没死啊，可以看到拉拉爹带着拉拉姐姐们在琵琶湖狩猎人类的未来
+
