@@ -44,3 +44,11 @@
 
 但现在是蓝白配色啊<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 2123#       发表于 2026-9-22 20:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好球也不是蓝白啊，蓝白的是福利蛋（（
+

@@ -3927,3 +3927,44 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 现在有角色推荐职业表吗？
 
+
+*****
+
+####  夜留歌  
+##### 4804#       发表于 2026-9-22 20:37
+
+女王线4月6号观战白发鬼有啥特殊奖励吗？刚想起来错过了
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  夜留歌  
+##### 4805#       发表于 2026-9-22 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272088&amp;ptid=2261859" target="_blank">ascomnet 发表于 2026-9-22 19:48</a>
+你们凯伊外传怎么打的，boss打不死，下面的兵又追不上</blockquote>
+带一个天马打下方烟雾延迟杂兵移动，其他人全部去打boss，善用加护提高存活率
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  风祭果凛  
+##### 4806#       发表于 2026-9-22 20:41
+
+难道不是法师+雷剑直接糊脸，这关大部分怪的ai都是往前走，往前走的怪不会回头的，大概第三回合上去拦路，大概也就会吸到3-4个杂兵仇恨，我打的时候结束得很快（
+
+*****
+
+####  风祭果凛  
+##### 4807#       发表于 2026-9-22 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272304&amp;ptid=2261859" target="_blank">夜留歌 发表于 2026-9-22 20:37</a>
+
+女王线4月6号观战白发鬼有啥特殊奖励吗？刚想起来错过了
+
+—— 来自 vivo V2502A, Android 16, 鹅球 v3.4.9 ...</blockquote>
+观战应该都只有经验奖励？
+

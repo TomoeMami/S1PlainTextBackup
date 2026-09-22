@@ -438,3 +438,13 @@ v2-0ae7091590a14f8c0b1b7b12deaf9172_720w.webp
 
 进了二周目发现武器防具这些都不继承还得通一遍马桶果断放弃打第二次了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  隔壁老黄  
+##### 1933#       发表于 2026-9-22 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270457&amp;ptid=2210366" target="_blank">osborn 发表于 2026-9-22 14:27</a>
+我一直感觉幻魔这东西就是按照二战的蝗军为原型做的，尤其这代，人体实验室都出来了。杂兵那个长相跟戴个 ...</blockquote>
+哈哈确实像，尤其是那猥琐的动作，随机堵路人那演出，大哒滴坏！
+

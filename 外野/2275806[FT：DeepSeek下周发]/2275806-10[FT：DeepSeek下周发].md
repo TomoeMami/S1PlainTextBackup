@@ -14206,3 +14206,33 @@ https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2290207&amp;page=1&amp;
 
 来人了
 
+
+*****
+
+####  nxmonitor  
+##### 14456#       发表于 2026-9-22 20:37
+
+ 本帖最后由 nxmonitor 于 2026-9-22 20:41 编辑 
+
+910C连推理都不行，这机器整个方向都错了，说实话不如对着DS的需求造卡呢，DS之前说要自己造，不如华为拉着一堆厂直接造。现在国内有点实力的大模型，Qwen绑定真武，Kimi和阿里也走得近，GLM拿的是海光的卡，我前面就说华为自己想不清楚。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  overflowal  
+##### 14457#       发表于 2026-9-22 20:42
+
+910c归根结底就是被制裁前的设计，那时候知道个鬼的现状，甚至夏core都坦言，之前认为MoE这种东西不可能存在。。
+梁子不硬上说明还是懂行的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  chronicle  
+##### 14458#       发表于 2026-9-22 20:45
+
+[https://www.bilibili.com/video/B ... arch-card.all.click](https://www.bilibili.com/video/BV1s1hE6VEo9/?spm_id_from=333.337.search-card.all.click)
+
+mimo自家魔改opencode的客户端不行，第三方好很多，国产平均水平吧，比不过k3逆天的前端能力
+
+不过现在互联网上测大模型都是鹈鹕测试这种偏前端的测试，虽然直观，其实意义不是很大。
+
