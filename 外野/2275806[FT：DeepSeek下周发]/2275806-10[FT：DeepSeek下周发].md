@@ -13839,3 +13839,20 @@ MiMo 2.6 Flash 水果忍者
 960提前三季度出世，自产duv开始上量了</blockquote>
 目前看来各家厂的策略是把推理服务尽量迁移到国产平台上，把省下来的黄卡拿去做训练
 
+
+*****
+
+####  nxmonitor  
+##### 14422#       发表于 2026-9-22 16:41
+
+如果今天的泄露的内容没问题，DeepSeek估计要挑战960DT训练了，卡应该是没问题，实际上研究所在北京，后面还有北大的关系
+
+*****
+
+####  qwased  
+##### 14423#       发表于 2026-9-22 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271172&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-22 16:35</a>
+那低价卖给opencode这个二道贩子不也等于定向补贴中转站（oc就是中转站）。这从来不是问题，官方出订阅需 ...</blockquote>
+从ds涨价之后ocg马上削额度来看，梁子给的折扣不会很大，而且也不是固定价
+
