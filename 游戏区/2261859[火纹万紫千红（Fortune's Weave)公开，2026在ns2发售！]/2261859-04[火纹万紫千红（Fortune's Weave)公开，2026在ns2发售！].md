@@ -3579,3 +3579,18 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 这代是不是没光弓了，一直没看到
 
+
+*****
+
+####  cloudztj  
+##### 4768#       发表于 2026-9-22 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270225&amp;ptid=2261859" target="_blank">陆久舟 发表于 2026-9-22 13:30</a>
+
+对用斧和黑魔法</blockquote>
+谢谢大佬
+
+这职业的成长率应该是 15 10 10 0 5 10 10 0 5
+
+看起来确实是还行的双刀职业，就是武器只有斧头和黑魔选择少了点
+

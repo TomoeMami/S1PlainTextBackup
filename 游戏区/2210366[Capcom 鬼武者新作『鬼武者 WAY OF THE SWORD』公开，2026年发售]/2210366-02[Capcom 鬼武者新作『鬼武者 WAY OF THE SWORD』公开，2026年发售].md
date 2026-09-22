@@ -288,3 +288,14 @@ boss的招里头疼的有：1.源神二阶段开局的大脚，至今没有弹�
 也许这代武藏只是单纯的菜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/35/b4ad83b2a80d9c9effb611b2ea15d603/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀仁老登  
+##### 1923#       发表于 2026-9-22 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270065&amp;ptid=2210366" target="_blank">osborn 发表于 2026-9-22 12:55</a>
+
+也许这代武藏只是单纯的菜这代幻魔也没多强，3里进了巴黎立刻在街头搞大屠杀把巴黎变成浣熊市，这代也就在 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起来幻魔杂兵还会胆怯，感觉要么是抄对马岛的时候没过脑子，要么是立项的时候就不是鬼武者
+
