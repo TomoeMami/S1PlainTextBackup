@@ -14132,3 +14132,16 @@ https://www.bilibili.com/video/BV1CuYg6XEi9</blockquote>
 想骗梁子过去噶了是吧，肯定不去啊</blockquote>
 要去肯定不会是自己去啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真敢弄事那怕不是想似了
 
+
+*****
+
+####  phorcys02  
+##### 14450#       发表于 2026-9-22 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271861&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-22 19:02</a>
+
+要去肯定不会是自己去啊真敢弄事那怕不是想似了</blockquote>
+10w亿的AI泡泡呢。懂子有需要都给你噶了，还怕一个小梁子。
+
+除了另外上二常手拿核按钮的例外...
+

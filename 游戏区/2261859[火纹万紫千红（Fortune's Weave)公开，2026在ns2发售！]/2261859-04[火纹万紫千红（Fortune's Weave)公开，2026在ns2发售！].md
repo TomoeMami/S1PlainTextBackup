@@ -3860,3 +3860,14 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 四条线的第一章打完了，该进战争篇了
 
+
+*****
+
+####  黑上シグマ  
+##### 4797#       发表于 2026-9-22 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271870&amp;ptid=2261859" target="_blank">neoaska 发表于 2026-9-22 19:04</a>
+
+现在有wiki或者攻略本扫描了吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这才发售一个礼拜不到哪儿来的攻略本，完全攻略本都是至少一两个月才会出
+
