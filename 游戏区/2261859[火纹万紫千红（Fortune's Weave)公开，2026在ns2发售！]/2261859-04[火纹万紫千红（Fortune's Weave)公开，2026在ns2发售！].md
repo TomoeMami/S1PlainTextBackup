@@ -3797,3 +3797,22 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 第二部大桥攻防战的BGM是叫啥？
 
+
+*****
+
+####  新HGCG  
+##### 4790#       发表于 2026-9-22 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70271402&amp;ptid=2261859" target="_blank">ShitOverflow 发表于 2026-9-22 17:10</a>
+
+这代村民太猛了，棋盘无双，rpg暴击一下对面半管血，对方还打不中她，还能拿手枪开罐 ...</blockquote>
+哪个村民
+
+
+*****
+
+####  铁拳圣裁  
+##### 4791#       发表于 2026-9-22 18:44
+
+这第一部真的越玩越变态，配合迪特利希线后面这更变态的剧情，我想骂人了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
