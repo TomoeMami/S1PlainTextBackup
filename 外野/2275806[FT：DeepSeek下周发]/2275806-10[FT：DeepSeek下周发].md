@@ -14287,3 +14287,28 @@ dsh部署一直报错。想用ai做个简单的文字刷宝游戏，用什么好
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Milarvoz  
+##### 14463#       发表于 2026-9-22 21:19
+
+呃啊，蹬api就会焦虑觉得好贵，但是蹬plan就会觉得蹬满了就是我赚了。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  frankCC  
+##### 14464#       发表于 2026-9-22 21:21
+
+<img src="https://img.stage1st.com/forum/202609/22/212042ibq25bm50j19j50r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (275.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 21:20 上传
+
+gpt现在的暗号笑死我了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
