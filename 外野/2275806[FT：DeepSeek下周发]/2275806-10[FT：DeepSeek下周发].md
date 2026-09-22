@@ -14236,3 +14236,17 @@ mimo自家魔改opencode的客户端不行，第三方好很多，国产平均�
 
 不过现在互联网上测大模型都是鹈鹕测试这种偏前端的测试，虽然直观，其实意义不是很大。
 
+
+*****
+
+####  AraTurambar  
+##### 14459#       发表于 2026-9-22 20:53
+
+目前使用的静态工具，langfuse结果：
+
+ast-grep、Ruff、ty最好。
+
+LibCST、Semgrep OSS、Serena有时候有用。
+
+CodeGraph、basedpyright、Difftastic没用。
+
