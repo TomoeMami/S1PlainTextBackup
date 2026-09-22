@@ -14182,3 +14182,27 @@ qwen4居然发预告了，看来阿里很有信心？<img src="https://static.st
 由手机上传
 2026-9-22 20:14 上传
 
+
+*****
+
+####  静哮苍穹  
+##### 14454#       发表于 2026-9-22 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272133&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-22 19:57</a>
+
+qwen4居然发预告了，看来阿里很有信心？
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+谁知道是不是为了庆祝有人接班刷版本，看看呗
+
+*****
+
+####  德尔惠净水器  
+##### 14455#       发表于 2026-9-22 20:20
+
+<blockquote>静哮苍穹 发表于 2026-9-22 20:19
+谁知道是不是为了庆祝有人接班刷版本，看看呗</blockquote>
+https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2290207&amp;page=1&amp;mobile=2#pid70268409
+
+来人了
+

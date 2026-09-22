@@ -1483,3 +1483,14 @@ re1奠定系列底层框架</blockquote>
 
 生化危机跟合金装备不是一个情况吧，三上真司贵为生化危机之父，但是又没绑定太死，而且第二部就放权给神谷英树做了，合金装备基本跟KJP和小岛秀夫绑定了，真做完全现代化的操作改进，又会被骂没那味，最后名声没讨到，惹得一身骚。
 
+
+*****
+
+####  madcow  
+##### 122#       发表于 2026-9-22 20:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">KONAMI在小岛滚了没多久以后就卖过一个叫合金装备生存的游戏吧，当时还有媒体起了个《对不起小岛但是它真的很好玩》的标题。那个质量只能说一坨就是了
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">当然要说到外人做的合金装备游戏也不是没有评价好的，就是都被岛鸽鸽开除了。这点确实蛮绿茶的（？？
+
+顺便我记得洛克人那个情况更草，当时岩男11记得是30周年还什么的，卡婊员工出来说以前大家都想做洛克人续作但是不太敢做怕搞砸了。看到稻船的M9以后觉得我们也可以试试了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
