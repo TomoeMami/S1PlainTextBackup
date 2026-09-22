@@ -4007,3 +4007,14 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 —— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  风祭果凛  
+##### 4812#       发表于 2026-9-22 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272612&amp;ptid=2261859" target="_blank">夜留歌 发表于 2026-9-22 21:41</a>
+
+算一个支线任务，应该是不是在斗技场观战，有特殊剧情。话说这剧情拆的还蛮散的，蕾达线里岩进提出要和白 ...</blockquote>
+草，我女王线打完了毫无印象，意思是这段剧情要先雷达线触发然后去女王线看吗
+
