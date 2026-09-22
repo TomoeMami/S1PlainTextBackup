@@ -588,3 +588,42 @@ Bang Doll说是
 
        [https://x.com/bangdreamon_EN/status/2102051475715137954](https://x.com/bangdreamon_EN/status/2102051475715137954)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42035#       发表于 2026-9-22 12:34
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/22/123429mr9m2zngwzmwr7n3.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-22_12-33-21.png</strong> (1008.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 12:34 上传
+
+       [https://x.com/bang_dream_info/status/2102216316673523985](https://x.com/bang_dream_info/status/2102216316673523985)
+
+       [https://www.youtube.com/@bang_dream_official](https://www.youtube.com/@bang_dream_official)
+
+       <strong>【国际服公测纪念】Abracadabra MV预告解禁！</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/22/123430ywukx933bwkz4eiq.jpg" referrerpolicy="no-referrer">
+
+<strong>67130d9d95934f3392c3c9e9c5c709b80a376683.jpg</strong> (261.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-22 12:34 上传
+
+《BanG Dream! 交织的乐章》预下载现已开启，国际服公测纪念曲「Abracadabra – Cover by Ave Mujica 」MV预告揭幕。
+
+静候这场假面舞会的到来吧。
+
+完整版MV敬请期待。
+
+该歌曲和MV也将先行实装至《BanG Dream! 交织的乐章》国际服，敬请期待！</blockquote>
+       [https://www.bilibili.com/video/BV1Xiha6dEKR](https://www.bilibili.com/video/BV1Xiha6dEKR)
+
