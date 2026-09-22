@@ -14596,3 +14596,17 @@ opus5.5震撼发布，看跑分是比gpt6强的，最近OA两家更新的频率�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  andychen  
+##### 14492#       发表于 2026-9-23 02:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273126&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-22 23:16</a>
+4.1flash完全没法用来讨论需求，反复几轮询问才知道它在说啥，效率太低了
+
+但是拿别的模型讨论好把文档丢给 ...</blockquote>
+今年下半年开始对agentic coding优化的低参数量模型都是这样。说白了就是过拟合了
+
+使用大参数量的模型会好一点
+
