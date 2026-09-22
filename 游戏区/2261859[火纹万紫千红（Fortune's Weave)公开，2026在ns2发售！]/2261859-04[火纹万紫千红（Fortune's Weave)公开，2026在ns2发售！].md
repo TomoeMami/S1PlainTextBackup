@@ -3995,3 +3995,15 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 搞了半天哈尔温好感度到3了跟我说要10个椰枣结果我一个都没有，也是服了
 
+
+*****
+
+####  夜留歌  
+##### 4811#       发表于 2026-9-22 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272330&amp;ptid=2261859" target="_blank">风祭果凛 发表于 2026-9-22 20:42</a>
+观战应该都只有经验奖励？</blockquote>
+算一个支线任务，应该是不是在斗技场观战，有特殊剧情。话说这剧情拆的还蛮散的，蕾达线里岩进提出要和白发鬼决斗，女王线才能看到决斗具体过程。
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
