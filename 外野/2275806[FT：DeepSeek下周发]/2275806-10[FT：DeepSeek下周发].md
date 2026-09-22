@@ -13089,3 +13089,85 @@ r1可以说是划时代不为过
 
 营销半天打不过41f也很军
 
+
+*****
+
+####  tillnight  
+##### 14351#       发表于 2026-9-22 12:57
+
+你们忽略了一个很严重的问题，她强调自己部分参与了r1，而众所周知r1论文署名里有很多人但是没有她，而且ds一向不排斥把已离职但对论文有贡献的员工署名上去。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ zhanglei1943 + 1欢乐多
+
+查看全部评分
+
+*****
+
+####  Promeus  
+##### 14352#       发表于 2026-9-22 12:58
+
+ 本帖最后由 Promeus 于 2026-9-22 12:59 编辑 
+
+另外梁子的闭门会好像又泄露了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概手里真攥着颗核弹在组装
+
+
+*****
+
+####  serj005  
+##### 14353#       发表于 2026-9-22 13:00
+
+ 本帖最后由 serj005 于 2026-9-22 13:03 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270078&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-22 12:58</a>
+另外梁子的闭门会好像又泄露了大概手里真攥着颗核弹在组装</blockquote>
+有信源吗，哪里能看到？
+
+编辑:好像看到有在传ds内部有在训8t规模的模型
+
+*****
+
+####  飛霞精灵  
+##### 14354#       发表于 2026-9-22 13:00
+
+我现在特么深深怀疑这段时间DS的一堆黑稿就这么来的，太眼熟了。
+
+V3.2到V4那个间隔期时候，就看在上蹿下跳了。
+
+*****
+
+####  tonyunreal  
+##### 14355#       发表于 2026-9-22 13:01
+
+mimo 2.6在dsh里运行并发起子代理时，子代理界面和主代理界面都有概率卡在”载入历史...“这个位置，有人遇到过吗？
+
+实际agent还是在后台正常执行任务的
+
+*****
+
+####  Promeus  
+##### 14356#       发表于 2026-9-22 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270083&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-22 13:00</a>
+有信源吗，哪里能看到？
+
+编辑:好像看到有在传ds内部有在训8t规模的模型</blockquote>
+知乎的问题荒原了，看阿b有人发的信息大概是4.1pro是2t，后面有个8t模型<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 14357#       发表于 2026-9-22 13:05
+
+还是希望flash不要落下
+就算是ds8t我也是用不起的 2t也要掂量掂量除非有plan
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
