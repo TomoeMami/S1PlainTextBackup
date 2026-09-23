@@ -16706,3 +16706,11 @@ dsh这几个版本优化了工具调用的，之前的工具调用频繁还没�
 
 今天零可能，等中秋后。
 
+
+*****
+
+####  cscbzcbz  
+##### 14677#       发表于 2026-9-24 07:26
+
+v4.1f已经足够用了，不奢求<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
