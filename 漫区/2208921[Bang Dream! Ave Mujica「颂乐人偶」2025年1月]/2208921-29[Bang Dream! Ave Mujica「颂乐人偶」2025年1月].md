@@ -714,3 +714,136 @@ Bilibili @尾崎流夏 @栗島凛</blockquote>
 
        [https://www.bilibili.com/video/BV1vsh864EYf](https://www.bilibili.com/video/BV1vsh864EYf)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42042#       发表于 2026-9-23 23:33
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/23/233339vsey7dmm7aans7a5.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-09-23_23-31-57.jpg</strong> (273.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 23:33 上传
+
+       [https://x.com/bang_dream_on/status/2102714603247456700](https://x.com/bang_dream_on/status/2102714603247456700)
+
+       [https://bang-dream-on.bushimo.jp/pre-register/](https://bang-dream-on.bushimo.jp/pre-register/)
+
+       <strong>Ave Mujica ——SSR成员卡面立绘展示</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/23/233340yscracecpfs5mscm.jpg" referrerpolicy="no-referrer">
+
+<strong>ddb5febc2c8540df673c4d4b3845047ce6006ae5.jpg</strong> (90.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 23:33 上传
+
+🌙现在为大家介绍的是Ave Mujica ——SSR成员卡面立绘展示汇总✨
+
+SSR成员附带专属动画演出！该动画也会在抽卡及节奏游戏画面中显示哦！
+
+更多详情请关注后续官方公告，敬请期待！
+
+#BanGDream# #OurNotes# #交织的乐章# #交织的乐章0924#</blockquote>
+       [https://www.bilibili.com/video/BV18Vh46TEsf](https://www.bilibili.com/video/BV18Vh46TEsf)
+
+*****
+
+####  堀内爱里衣  
+##### 42043#       发表于 2026-9-23 23:35
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/23/233540lu0ub7sy7yu67s66.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-23_23-34-52.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 23:35 上传
+
+       [https://x.com/bang_dream_info/status/2102775001955127426](https://x.com/bang_dream_info/status/2102775001955127426)
+
+       [https://www.youtube.com/watch?v=_SWjjX0ocPw](https://www.youtube.com/watch?v=_SWjjX0ocPw)
+
+       <strong>BanG Dream! Our Notes 国际服上线纪念｜Abracadabra – Cover by Ave Mujica</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/23/233541jcwec3zqh3vhync9.jpg" referrerpolicy="no-referrer">
+
+<strong>fa8506245c0b3b5df8ed3df6445e0f24aed67aeb.jpg</strong> (263.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 23:35 上传
+
+BanG Dream! 企划最新节奏手游 ──《BanG Dream! Our Notes》国际服上线纪念！
+
+5支风格各异的乐队将奏响全新乐曲，谱写出动人心弦的音乐篇章。
+
+奏响吧！属于我们的乐章！
+
+详情：[https://bdon.biligames.com/launch](https://bdon.biligames.com/launch)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Cover：Ave Mujica
+
+MV：BILIBILI
+
+作词：
+
+Lady Gaga
+
+Andrew Watt
+
+Henry Russell Walter
+
+Susan Ballion
+
+Steven Severin
+
+John McGeoch
+
+Peter Edward Clarke
+
+作曲：
+
+Lady Gaga
+
+Andrew Watt
+
+Henry Russell Walter
+
+Susan Ballion
+
+Steven Severin
+
+John McGeoch
+
+Peter Edward Clarke
+
+编曲：
+
+长谷川大介（SUPA LOVE）
+
+版权支持：
+
+张曲家
+
+唐宁冰倩
+
+出品：
+
+Bushiroad Music
+
+哔哩哔哩音乐制作中心
+
+哔哩哔哩游戏发行中心</blockquote>
+       [https://www.bilibili.com/video/BV1ZLeG6JEha](https://www.bilibili.com/video/BV1ZLeG6JEha)
+
