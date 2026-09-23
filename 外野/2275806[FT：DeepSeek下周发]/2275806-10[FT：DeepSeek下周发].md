@@ -15630,3 +15630,62 @@ ds现在服务全部中断了，有大的要来了吗？
 
 2026-9-23 15:36 上传
 
+
+*****
+
+####  noneoneone  
+##### 14582#       发表于 2026-9-23 15:43
+
+还有，我对agi是偏乐观的，确实有可能ai会走到能左脚踩右脚那一步。
+只不过oa现在喊的是agi后技术能以指数级爆发，把对手远远甩到身后。但技术爆发的前提是有相应的生产能力，你提前三个月到了agi，设计出精美的次世代图纸，然后多长时间能落地呢，另一边三个月后已经开始造不那么精美的次世代产品了。
+说白了agi要真出现，首先被抹平的是老黄的护城河，抹不平的是生产建造成本。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  novem  
+##### 14583#       发表于 2026-9-23 15:45
+
+偷代码丑闻叠加AO两家大降价
+
+今日智谱大跌12％
+
+*****
+
+####  不让用大写  
+##### 14584#       发表于 2026-9-23 15:45
+
+刚抢过7号的车票回来一看任务报错了
+
+Status 503 | URL: [https://api.deepseek.com/chat/completions](https://api.deepseek.com/chat/completions)
+
+Service is too busy. We advise users to temporarily switch to alternative LLM API service 
+
+大的要来了吗<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/23/154502ghzhd4qqbb6n6c42.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20260923154418.png</strong> (87.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 15:45 上传
+
+*****
+
+####  来都来了  
+##### 14585#       发表于 2026-9-23 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276032&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-23 15:37</a>
+想了想觉得oa有点惨。
+历来技术革新都是一群资本中杀出几个胜利者圈好地开始挣钱，用专利大棒打破那些挑战 ...</blockquote>
+这个世界上要是没有老钟该多好啊（美国人心理活动）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 14586#       发表于 2026-9-23 15:47
+
+之前有个传闻就是923来着？
+
