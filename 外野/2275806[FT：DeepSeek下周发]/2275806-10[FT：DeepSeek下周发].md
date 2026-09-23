@@ -16397,3 +16397,62 @@ kimi 做 PPT 确实很强，他们应该花了很大功夫优化 PPT 的制作
 
 —— 来自 HONOR PTP-AN70, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Tomorrow_D  
+##### 14651#       发表于 2026-9-23 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277474&amp;ptid=2275806" target="_blank">cody198879 发表于 2026-9-23 20:56</a>
+
+都可以，这些不难，你要把要求提清楚，啥都可以做到。
+
+国内方便就用workbuddy，一遍没做好就叼他让他改</blockquote>
+多谢！我之前都是用Qwen的桌面端，因为不能识别Word文档里面的MathType公式，所以有的时候我还得截图发上去，而且在提出意见以后我得自己去整理讲义，有点麻烦<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 14652#       发表于 2026-9-23 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277467&amp;ptid=2275806" target="_blank">Tomorrow_D 发表于 2026-9-23 20:54</a>
+请教一下，假如我有若干个Word文档，里面都是题库，我需要让AI帮忙选取题目并按逻辑把选取的题目自动整理成 ...</blockquote>
+这个对AI应该是非常简单的任务了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛拉斯  
+##### 14653#       发表于 2026-9-23 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277467&amp;ptid=2275806" target="_blank">Tomorrow_D 发表于 2026-9-23 20:54</a>
+请教一下，假如我有若干个Word文档，里面都是题库，我需要让AI帮忙选取题目并按逻辑把选取的题目自动整理成 ...</blockquote>
+这个需求基本上是个harness都能完成吧
+
+试试腾讯的WorkBuddy？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ Tomorrow_D + 2
+
+查看全部评分
+
+*****
+
+####  Tomorrow_D  
+##### 14654#       发表于 2026-9-23 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277508&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-9-23 21:02</a>
+
+这个需求基本上是个harness都能完成吧
+
+试试腾讯的WorkBuddy？</blockquote>
+多谢！深感自己落后时代了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
