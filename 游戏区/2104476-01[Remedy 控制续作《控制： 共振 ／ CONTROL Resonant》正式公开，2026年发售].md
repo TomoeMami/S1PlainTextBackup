@@ -1174,3 +1174,13 @@ MC现在下到83了
 游戏又不出意外泄露了，pc预载都没有，最近一堆游戏全都跑不了泄露，感觉就是自媒体干的，都是差不多这个时 ...</blockquote>
 没有泄露，是ps5豪华版提前48小时游玩
 
+
+*****
+
+####  BK10  
+##### 122#       发表于 2026-9-23 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277186&amp;ptid=2104476" target="_blank">断翼 发表于 2026-9-23 19:49</a>
+没有泄露，是ps5豪华版提前48小时游玩</blockquote>
+破解资源都有了，我当然知道ps5有提前试玩<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

@@ -16309,3 +16309,23 @@ DS做HTML演示倒是挺好的，现在没啥特殊需求真不如用html了
 我试过学术ppt，最好的是k3，5.6sol的审美也很一般，astra才大进步</blockquote>
 等 k3.1 降价了，太鸡儿贵了
 
+
+*****
+
+####  jinuzuktII  
+##### 14642#       发表于 2026-9-23 20:00
+
+说起来, 让OA之类的大模型搞逆向/破解之类的活儿有办法么
+
+
+*****
+
+####  李少卿  
+##### 14643#       发表于 2026-9-23 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277235&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-23 20:00</a>
+说起来, 让OA之类的大模型搞逆向/破解之类的活儿有办法么</blockquote>
+同求其他模型逆向 prompt
+
+—— 来自 OnePlus CPH2581, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
