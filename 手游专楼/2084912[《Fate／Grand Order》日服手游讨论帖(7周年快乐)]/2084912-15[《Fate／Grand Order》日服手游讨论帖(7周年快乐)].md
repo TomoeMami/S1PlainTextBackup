@@ -139,3 +139,12 @@ FSR漫画版作者雾月（剑阶羁绊礼装也是他画的）认领了杰士�
 
 如果出个横飞姬类型的卡，用这张当满破，必抽！
 
+
+*****
+
+####  alucardcz  
+##### 21616#       发表于 2026-9-23 19:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">彩卷 狂！ 有本事再歪 哦 没歪
+<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">那么问题来了 我为什么要抽这张卡来着
+
