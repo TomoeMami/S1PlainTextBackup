@@ -5886,3 +5886,14 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 白嫁外传 有啥AOE技能吗 全员30级不到  不难过 但是打盾感觉有点难度
 
+
+*****
+
+####  新HGCG  
+##### 4982#       发表于 2026-9-24 02:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278391&amp;ptid=2261859" target="_blank">巨馍蘸酱 发表于 2026-9-24 01:09</a>
+
+妮涅转什么比较好？</blockquote>
+同问同问
+
