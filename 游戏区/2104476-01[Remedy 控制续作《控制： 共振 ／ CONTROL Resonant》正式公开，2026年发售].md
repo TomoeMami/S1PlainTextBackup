@@ -1113,3 +1113,14 @@ MC现在下到83了
 
 战斗非常无聊，不如前作。据说后期资源充足能凑多样化build了会好玩一点
 
+
+*****
+
+####  madcow  
+##### 116#       发表于 2026-9-23 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274730&amp;ptid=2104476" target="_blank">kelveen 发表于 2026-9-23 11:03</a>
+
+绿美迪游戏从阿兰醒醒开始就是这么个调调了，为什么一定要孜孜不倦地找玩法亮点啊 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然这个事也有心理预期啦，但是它又不肯老老实实做步行模拟器对不对（
+

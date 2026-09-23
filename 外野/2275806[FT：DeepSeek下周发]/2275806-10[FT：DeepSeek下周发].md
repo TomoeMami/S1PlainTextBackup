@@ -15973,3 +15973,46 @@ max有雷霆大思考，时间消耗极其长</blockquote>
 慢倒是能接受，反正我几个一起跑的，都在挂着跑的，只要质量可以</blockquote>
 信不信比原来差？
 
+
+*****
+
+####  间宮夏生  
+##### 14616#       发表于 2026-9-23 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276373&amp;ptid=2275806" target="_blank">未知伤亡 发表于 2026-9-23 16:43</a>
+如果门口是踏实做事呢？</blockquote>
+OA 谁没有踏实做事？OA 模型现在不是第一档？国内互联网三巨头我看也一直在做事啊，阿里字节模型也不是完全不行，也就一个腾讯真菜了点还在努力。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lly778  
+##### 14617#       发表于 2026-9-23 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276596&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-23 17:24</a>
+
+真的，虽然便宜了很多</blockquote>
+那感觉没意义啊，5.6的luna本来就用不完
+
+*****
+
+####  moekyo  
+##### 14618#       发表于 2026-9-23 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276623&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-23 17:29</a>
+
+信不信比原来差？</blockquote>
+原来的就没多好，我都不是一下搞完了，我一般最后还会让网页版做个 fresh review，不行继续改的，之前搭配 5.6 sol 折腾得人想吐。。
+
+*****
+
+####  紧那罗  
+##### 14619#       发表于 2026-9-23 17:38
+
+问个略冷门的需求 现在全双工的语音大模型哪家相对不弱智点
+
+豆包说话很顺 但是比较傻还嘴硬
+
+gpt的中文说的一股abc味 而且体感智商也一般
+
