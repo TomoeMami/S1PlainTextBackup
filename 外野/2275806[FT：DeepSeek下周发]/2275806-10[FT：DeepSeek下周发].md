@@ -15367,3 +15367,35 @@ one shot非常有用，相当于对很多现在AI生成的程序和内容明码�
 冷知识冷知识 真正的长任务 比如几乎永久性的代码仓维护开发 所有模型都是不如去大学找个一天200块的实习 ...</blockquote>
 不是，你长维护不雇人的吗？那肯定是雇一个人来维护，然后这个人用AI去帮助他工作啊。哪个岗位是可以不要人，纯用AI来工作的？
 
+
+*****
+
+####  jinuzuktII  
+##### 14560#       发表于 2026-9-23 13:00
+
+推上看到的OPUS5.5测试：[https://claude-opus-5-5.riba2534.cn/](https://claude-opus-5-5.riba2534.cn/)
+
+<img src="https://img.stage1st.com/forum/202609/23/130025cuzve11y1y1zyzgu.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-09-23_12-59-48.jpg</strong> (126.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 13:00 上传
+
+<img src="https://img.stage1st.com/forum/202609/23/130025be25reoxzxw5o7xr.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-09-23_12-59-57.jpg</strong> (271.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 13:00 上传
+
+<img src="https://img.stage1st.com/forum/202609/23/130025z99qi653x4wai433.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-09-23_13-00-08.jpg</strong> (319.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 13:00 上传
+
