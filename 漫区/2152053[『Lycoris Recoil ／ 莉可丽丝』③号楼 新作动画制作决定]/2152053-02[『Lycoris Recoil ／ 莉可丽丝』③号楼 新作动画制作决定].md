@@ -70,3 +70,11 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  osore  
+##### 2543#       发表于 2026-9-23 14:33
+
+永远的十七岁<img src="https://static.stage1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+

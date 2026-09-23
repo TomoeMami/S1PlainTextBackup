@@ -15474,3 +15474,16 @@ OA投资方很多，国内则是自己都不一定知道确定的时间吧（尤
 
 Kimi的后训练水平要打个问号了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  omnitoken  
+##### 14569#       发表于 2026-9-23 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70275197&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-23 12:26</a>
+
+因为oneshot意义不大不代表oneshot评测意义不大（
+
+况且也不是说oneshot意义不大，这方面意义肯定巨大的， ...</blockquote>
+比如这楼里发的3维鹈鹕，用threejs之类的搞出来的类似独立游戏水平的画面但是又毫无独立游戏那种独特审美，画面风格，也没有什么让人简单上手的玩法，看了生理性厌恶
+
