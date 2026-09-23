@@ -15431,3 +15431,38 @@ one shot非常有用，相当于对很多现在AI生成的程序和内容明码�
 
 k3.1应该是29号，b站很多评测up都收到评测邀请了
 
+
+*****
+
+####  drodchang  
+##### 14564#       发表于 2026-9-23 13:57
+
+国内厂商的模型发布太不透明了，也是真是保密做得太好，根本不知道进度，oa这两家的内鬼太多，提前几个星期就知道了。
+
+*****
+
+####  startraveller  
+##### 14565#       发表于 2026-9-23 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70275427&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-23 13:24</a>
+k3.1应该是29号，b站很多评测up都收到评测邀请了</blockquote>
+拖好久了，不会像grok 3.7一样拉了吧
+
+
+*****
+
+####  wandeeees  
+##### 14566#       发表于 2026-9-23 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70275555&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-9-23 13:57</a>
+
+国内厂商的模型发布太不透明了，也是真是保密做得太好，根本不知道进度，oa这两家的内鬼太多，提前几个星期 ...</blockquote>
+OA投资方很多，国内则是自己都不一定知道确定的时间吧（尤其是deepseek）
+
+*****
+
+####  Lorraine_Kinney  
+##### 14567#       发表于 2026-9-23 14:04
+
+可惜 6 sol拉了，不是期望的astra minor
+
