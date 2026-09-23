@@ -16572,3 +16572,21 @@ Claude好像非常麻烦，还是不搞了，先看看别的吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cscbzcbz  
+##### 14666#       发表于 2026-9-24 00:19
+
+0.1.7-rc1用了一下，确实不错，好像工具调用速度也变快了，错觉吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狭义文具爱好者  
+##### 14667#       发表于 2026-9-24 00:24
+
+疑似minimax新模，space bunny，又是动物家族。
+
+鹈鹕测试本来都不想看了，能出gpt一家三口还是太搞笑了，不得不提一下
+
