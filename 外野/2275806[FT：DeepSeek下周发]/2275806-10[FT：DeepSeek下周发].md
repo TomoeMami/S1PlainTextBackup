@@ -16478,3 +16478,15 @@ kimi 做 PPT 确实很强，他们应该花了很大功夫优化 PPT 的制作
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
 
+
+*****
+
+####  serj005  
+##### 14657#       发表于 2026-9-23 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277611&amp;ptid=2275806" target="_blank">ml1642879 发表于 2026-9-23 21:23</a>
+4.1f这视觉能力是不是可以给大肥鱼加个近视眼戴眼镜萌点了
+
+Re:Source · Xiaomi 15 ...</blockquote>
+比4fv好，4fv那800x800等效分辨率是真近视，ui截图认不出字
+
