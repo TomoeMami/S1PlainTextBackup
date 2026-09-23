@@ -16549,3 +16549,16 @@ dsh更新0.1.7版本了，感觉当前官方版本已经可以直接用了，基
 还是等官方桌面版吧，打算赖在0.15rc了，懒得追了</blockquote>
 0.1.7rc建议更新，会话管理和稳定性整体提升很大
 
+
+*****
+
+####  aki1ostt  
+##### 14664#       发表于 2026-9-23 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277940&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-23 22:52</a>
+
+完全不够. 最近O畜太拉了. 额度太低了.
+
+建议开Claude opus5.5 high 我今天蹬了差不多1.5E 也没事. ...</blockquote>
+Claude好像非常麻烦，还是不搞了，先看看别的吧
+
