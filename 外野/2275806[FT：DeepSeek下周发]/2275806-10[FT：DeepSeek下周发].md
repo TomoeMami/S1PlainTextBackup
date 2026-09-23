@@ -15399,3 +15399,35 @@ one shot非常有用，相当于对很多现在AI生成的程序和内容明码�
 
 2026-9-23 13:00 上传
 
+
+*****
+
+####  FACS  
+##### 14561#       发表于 2026-9-23 13:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">英语不说人话有wait-what，中文不说人话有相应的skill吗
+
+
+*****
+
+####  matthewsteel  
+##### 14562#       发表于 2026-9-23 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70275070&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-9-23 12:02</a>
+
+确实啊，同样是2月的模型，同样现在是国庆前夕。
+
+去年2月的模型是gemini2.5pro，9月底的模型是4.5sonnet ...</blockquote>
+3.1pro聊天的ai味道已经让我想不起当初的小甜甜2.5pro什么样子了
+
+2月份opus4.6时刻也是核弹
+
+现在已经是opus5.5体素的水面有夕阳光斑波动，震惊瘫坐<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 14563#       发表于 2026-9-23 13:24
+
+k3.1应该是29号，b站很多评测up都收到评测邀请了
+
