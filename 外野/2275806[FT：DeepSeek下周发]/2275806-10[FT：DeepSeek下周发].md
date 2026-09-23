@@ -15555,3 +15555,78 @@ OA等着天价IPO需要议论造势，那些泄漏和大新闻你可以理解成
 
 国内前沿实验室和美国那边的技术差距一直是6个月，只是双方的产品发布节奏导致公开的模型性能差距有时大一些有时小一些
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 14576#       发表于 2026-9-23 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70275230&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-23 12:33</a>
+不是，你长维护不雇人的吗？那肯定是雇一个人来维护，然后这个人用AI去帮助他工作啊。哪个岗位是可以不要 ...</blockquote>
+那裁员的理由可不就是ai把你替代了吗 虽然是借口 但是很多人真的信了啊
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  hugosol  
+##### 14577#       发表于 2026-9-23 15:34
+
+是的，我也发现GPT同一个模型切思考强度缓存会失效，这鸡贼的infra<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  spaceblue  
+##### 14578#       发表于 2026-9-23 15:35
+
+<blockquote>hugosol 发表于 2026-9-23 15:34
+是的，我也发现GPT同一个模型切思考强度缓存会失效，这鸡贼的infra</blockquote>
+Claude也是，这个官方提到过的，不管是切模型还是思考强度缓存都会失效
+
+*****
+
+####  蓝色梦魇  
+##### 14579#       发表于 2026-9-23 15:36
+
+ds现在服务全部中断了，有大的要来了吗？
+
+*****
+
+####  noneoneone  
+##### 14580#       发表于 2026-9-23 15:37
+
+想了想觉得oa有点惨。
+历来技术革新都是一群资本中杀出几个胜利者圈好地开始挣钱，用专利大棒打破那些挑战者的脑袋。
+可是这次资本自己还没决出胜负就已经看到外面有人在免费发放大棒了。智能手机那会好歹还有个硬件的生产成本在那卡着，这次好好的工业革命领导者居然要和消费级显卡竞争，只能靠规模效应来赚钱。
+肉眼可见的，再卷下去sota就变成把跑车卖给普通人了，好，但用不用得到那么好很难说。
+
+那就请政府里的大人物们出手，管管那些乱七八糟的东西吧。
+
+可惜那个真正能管用的政府和他们不是一路。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  moekyo  
+##### 14581#       发表于 2026-9-23 15:37
+
+有人用过这个吗，号称比 Pi 还 cost efficiency
+
+<img src="https://img.stage1st.com/forum/202609/23/153545r41ccxfcokmuqscx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (129.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 15:35 上传
+
+<img src="https://img.stage1st.com/forum/202609/23/153635cx8w0we5uxkwc525.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (762.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 15:36 上传
+
