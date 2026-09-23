@@ -15249,3 +15249,50 @@ Sol-6真的性价比很不错啊，现在价格减半之后，只是拿来做需
 /wait-what
 /no-ai-slop    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  RookieTnT  
+##### 14549#       发表于 2026-9-23 11:58
+
+用了一上午的opus5.5 medium 感觉这模型太好用. 速度飞快 额度还高. 我是20$的pro 从9:30 到现在完全没有停止. 他现在还有30%的5 小时额度.
+
+*****
+
+####  neptunehs  
+##### 14550#       发表于 2026-9-23 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274692&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-9-23 10:59</a>
+每次O/和A/更新，嘉豪不是都会来刷一下存在感么...
+
+现在 ocg/ccg的 4.1f, 平均每B token不到10元</blockquote>
+主要是ocg延长到27 也不知道之后怎么样
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  狭义文具爱好者  
+##### 14551#       发表于 2026-9-23 12:02
+
+<blockquote>matthewsteel 发表于 2026-9-23 09:25
+Opus 4.6 是今年2月的模型....
+
+只是过去了七个月而已
+
+好快</blockquote>
+确实啊，同样是2月的模型，同样现在是国庆前夕。
+
+去年2月的模型是gemini2.5pro，9月底的模型是4.5sonnet。今年2月是4.6opus，，9月底都是astra，fable，op5.5了
+
+
+*****
+
+####  neptunehs  
+##### 14552#       发表于 2026-9-23 12:05
+
+要我说的话今年的进度是近三年最慢的。
+只是因为各种原因价格打下来加后训练大家都学会了 终于可以让很多原本用不上api的人用上了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
