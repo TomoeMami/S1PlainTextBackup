@@ -16158,3 +16158,39 @@ https://huggingface.co/deepseek-ai/DeepSeek-V4-Flash-0731/blob/main/encoding/REA
 原来思考强度也这么草台，我还一直以为是有逻辑的参数，原来就一段提示词么 ...</blockquote>
 但是这玩意还真的非常关键，我最近在折腾本地部署，发现极致量化的情况下，作者以xhigh强度校准尽可能保持智力，就会导致medium变成流口水的傻子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 14629#       发表于 2026-9-23 18:39
+
+靠提示词确实不够优雅，改成数字类型的确实更符合直觉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 14630#       发表于 2026-9-23 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276738&amp;ptid=2275806" target="_blank">未知伤亡 发表于 2026-9-23 17:49</a>
+OA踏实做事了啊，国内大厂还差一点</blockquote>
+踏实做事在哪 
+看别人对话记录写小作文的A\ 
+还是偷别人数学的逻辑宣称自己突破的O\ 
+而且和国内大厂对标的不是谷歌微软亚马逊 最大的功绩不是把Jeff Dean干跑路了
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  drodchang  
+##### 14631#       发表于 2026-9-23 18:43
+
+我试用了gpt 6 sol，还行，和5.6 sol差不多，但是便宜一半，可以了。
+
+*****
+
+####  lly778  
+##### 14632#       发表于 2026-9-23 18:44
+
+现在所有的harness不都是提示词，llm模型最根本的东西
+

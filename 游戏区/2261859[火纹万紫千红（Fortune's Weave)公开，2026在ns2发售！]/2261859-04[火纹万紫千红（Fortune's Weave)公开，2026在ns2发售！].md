@@ -5344,3 +5344,30 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 你通的是什么线？
 
+
+*****
+
+####  土卫七  
+##### 4933#       发表于 2026-9-23 18:33
+
+粉天马我玩的雷达线和凯伊线都救不回来，雷达线第二部都快通了当了一辈子土匪打人都不疼，凯伊线刚招到手直接上红鸵鸟26级还是只有17力<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ShitOverflow  
+##### 4934#       发表于 2026-9-23 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70275321&amp;ptid=2261859" target="_blank">谢云流 发表于 2026-9-23 12:55</a>
+
+艹，我次次吃饭都是凯伊再配两个2星的，都没注意原来凑够4颗星就能效果最大了吗        Re:Source ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">凯伊主要胃口好，自己稳定一两星，雷达必有一个-1，2星忘了有没有，ditto哥除了什么糖浆两眼放光其他基本都是0，大姐还没玩
+
+*****
+
+####  真田源次郎信繁  
+##### 4935#       发表于 2026-9-23 18:37
+
+凯伊喜欢吃，但是他妈的神殿都没供奉加成，带孝子了
+
