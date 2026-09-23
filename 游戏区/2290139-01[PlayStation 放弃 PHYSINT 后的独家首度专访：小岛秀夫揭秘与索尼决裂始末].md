@@ -1863,3 +1863,38 @@ MGS5生存跟DS估计最早就是一起策划的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">  不过打完这串字发现为什么评论逐渐歪倒 KONAMI 时期的历史遗留问题上了。。。
 
+
+*****
+
+####  御坂铃兰  
+##### 151#         楼主| 发表于 2026-9-24 05:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278587&amp;ptid=2290139" target="_blank">穿越护城河 发表于 2026-9-24 05:41</a>
+
+仔细一看，冈村手下五十多人造反的话，小岛肯定也容不得他继续在这个位置啊
+
+—— 来自 OnePlus PKG110,  ...</blockquote>
+小岛当初想法就是把他保在小岛组，毕竟是合作了多年的干将，小岛的想法是把冈村先从大部队隔离，找个理由让他一个人去想 MGS 的在线内容开发。不过后面上头的人事调动下达了，他就没啥办法了。
+
+
+*****
+
+####  穿越护城河  
+##### 152#       发表于 2026-9-24 05:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278591&amp;ptid=2290139" target="_blank">御坂铃兰 发表于 2026-9-24 05:47</a>
+小岛当初想法就是把他保在小岛组，毕竟是合作了多年的干将，小岛的想法是把冈村先从大部队隔离，找个理由 ...</blockquote>
+那kce方面想的还是对的，冈村做合金装备2的在线研发那才是蹲冷板凳
+
+—— 来自 OnePlus PKG110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  センコウ  
+##### 153#       发表于 2026-9-24 05:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278588&amp;ptid=2290139" target="_blank">御坂铃兰 发表于 2026-9-24 05:41</a>
+
+我说一下我的观点，你和我的核心分歧在于如何定义「实权」，我想表达的观点是「小岛在自己的项目内拥有实 ...</blockquote>
+主要就是小岛11年上台之后整个konami游戏部门开始逐渐减产，到14，15年这两年除了那堆体育年货以外几乎整个游戏部门都要绝收了（甚至实况棒球这玩意2013年开始属于实质断代了）反正整个KDE自己的东西那几年除了小岛的mgs外你说其他项目那几乎就是等于根本没有了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
