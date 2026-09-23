@@ -16498,3 +16498,16 @@ Re:Source · Xiaomi 15 ...</blockquote>
 
 wrokbuddy的ds优惠到期了，不知道换个啥用，想问下现在大概每天平均1.5e token的工作量openai的plus够用吗，用sol的话
 
+
+*****
+
+####  RookieTnT  
+##### 14659#       发表于 2026-9-23 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277852&amp;ptid=2275806" target="_blank">aki1ostt 发表于 2026-9-23 22:23</a>
+
+wrokbuddy的ds优惠到期了，不知道换个啥用，想问下现在大概每天平均1.5e token的工作量openai的plus够用吗 ...</blockquote>
+完全不够. 最近O畜太拉了. 额度太低了.
+
+建议开Claude opus5.5 high 我今天蹬了差不多1.5E 也没事.
+
