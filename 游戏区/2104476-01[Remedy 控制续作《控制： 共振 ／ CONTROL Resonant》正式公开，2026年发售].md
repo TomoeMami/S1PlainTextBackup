@@ -1097,3 +1097,11 @@ MC现在下到83了
 
 1代我的感受就是故弄玄虚，如果2代真能做出什么亮眼的近战动作玩法倒是可以考虑入手
 
+
+*****
+
+####  kelveen  
+##### 114#       发表于 2026-9-23 11:03
+
+绿美迪游戏从阿兰醒醒开始就是这么个调调了，为什么一定要孜孜不倦地找玩法亮点啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

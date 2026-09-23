@@ -4599,3 +4599,15 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 挖人和探地图可以用重置章节刷满吧，理论上不会缺人和地图</blockquote>
 为啥我探完地图重开章节探的地图又没了哇<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PigMourne  
+##### 4867#       发表于 2026-9-23 11:04
+
+5级红羽鸟加成下的鸵甲骑兵一共有15力15防15速5技，全方位包圆了其他中级近战职业，只在技巧上略输剑客5点、防御上略输重装10点，但其他方面只有完爆 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 除了武器不能练拳套以外，基本上所有近战都可以无脑转，只要肯SL抓红鸟
+
+到上级职业，红羽神鸵有15力15防15速10技，同样能完爆勇士侍道龙骑，只输一手汗血马森林骑士，但后者能练的武器太少。神鸵除了3武器之外甚至还能练黑魔法，黑羽神鸵有20魔20速5技，比先知低10技但高了整整15速，还有坐骑给的10必杀，等效20点实际技巧幸运的效果 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我说菜刀抓一只红羽可以从入队开始用到45级有没有懂的
+
