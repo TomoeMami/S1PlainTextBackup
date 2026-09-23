@@ -16364,3 +16364,36 @@ kimi 做 PPT 确实很强，他们应该花了很大功夫优化 PPT 的制作
 
 我之前尝试GPT, 道德感高得吓人
 
+
+*****
+
+####  misuzu0723  
+##### 14648#       发表于 2026-9-23 20:50
+
+看了下各种评测，opus5.5 是真的强，这下 o/估计压力很大了。国模的话反正差距一直存在，而且有开源和合规的优势，反而也不在这一时半会
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  Tomorrow_D  
+##### 14649#       发表于 2026-9-23 20:54
+
+请教一下，假如我有若干个Word文档，里面都是题库，我需要让AI帮忙选取题目并按逻辑把选取的题目自动整理成一个新的Word文档里，并在复制粘贴的时候保留原有内容不变（包括版式），目前有哪家agent能完成吗？
+
+先谢谢大家<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cody198879  
+##### 14650#       发表于 2026-9-23 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277467&amp;ptid=2275806" target="_blank">Tomorrow_D 发表于 2026-9-23 20:54</a>
+请教一下，假如我有若干个Word文档，里面都是题库，我需要让AI帮忙选取题目并按逻辑把选取的题目自动整理成 ...</blockquote>
+都可以，这些不难，你要把要求提清楚，啥都可以做到。
+
+国内方便就用workbuddy，一遍没做好就叼他让他改
+
+—— 来自 HONOR PTP-AN70, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

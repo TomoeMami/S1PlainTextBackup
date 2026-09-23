@@ -148,3 +148,15 @@ FSR漫画版作者雾月（剑阶羁绊礼装也是他画的）认领了杰士�
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">彩卷 狂！ 有本事再歪 哦 没歪
 <img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">那么问题来了 我为什么要抽这张卡来着
 
+
+*****
+
+####  angelooo  
+##### 21617#       发表于 2026-9-23 20:51
+
+<blockquote>Jamaisvu 发表于 2026-9-23 17:34
+FSR漫画版作者雾月（剑阶羁绊礼装也是他画的）认领了杰士卡父女的立绘，还画了贺图：
+
+</blockquote>
+这个贺图真的太漂亮了，有种就算落地之后的满破也肯定比不过的感觉
+
