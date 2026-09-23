@@ -1648,3 +1648,16 @@ KONAMI时期把研发逐步发给欧美开发工作室就是他整的。恶魔�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最开始不是说银行高管是岛蜜很快就批了他们的贷款吗
 
+
+*****
+
+####  ppa11  
+##### 135#       发表于 2026-9-23 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70270634&amp;ptid=2290139" target="_blank">tachikoma27 发表于 2026-9-22 15:02</a>
+是什么样，说起逆转裁判只会想到巧舟啊</blockquote>
+这不就是结果？
+我们的太阳出了这么多部有多少人知道中村？只有小子吹小岛超绝创意的时候才会连带着吹一下。
+
+—— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
