@@ -5382,3 +5382,33 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 女王线主角还干了点事，在凯伊线感觉就给了个沙子（但凯伊线本身比女王线好看一点）。我之前还以为每个角色 ...</blockquote>
 凯伊线，自捏不是从生化危机里救下了小孩们的狗命了。
 
+
+*****
+
+####  纯夏  
+##### 4937#       发表于 2026-9-23 19:03
+
+ 本帖最后由 纯夏 于 2026-9-23 19:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276922&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-23 18:29</a>
+
+没找到人啊
+
+你通的是什么线？</blockquote>
+去上层 往神殿走  到欧若拉神殿入口有个神殿兵会跑出来对话 然后就可以接任务了 具体位置看截图
+
+<img src="https://img.stage1st.com/forum/202609/23/190203wu1112kkezsjw1ku.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (83.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 19:02 上传
+
+<img src="https://img.stage1st.com/forum/202609/23/190203hh154a2w52hcczww.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (724.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 19:02 上传
+

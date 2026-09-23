@@ -16216,3 +16216,16 @@ DSec 这篇论文介绍的是 DeepSeek 为大规模 Agent 训练和评测建设�
 
 作者报告，单个部署单元约 160 个 CPU 节点，每天服务约 300 万个沙箱实例，峰值并发约 38 万，每秒创建超过 5,000 个实例。
 
+
+*****
+
+####  M乔梦  
+##### 14634#       发表于 2026-9-23 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274782&amp;ptid=2275806" target="_blank">fzlong 发表于 2026-9-23 11:11</a>
+
+让翻译入间人间新作gpt和deepseek都不肯干
+
+应该怎么说呢</blockquote>
+翻译就用本地模型呗。入间人间太坏了，玩得越来越刺激，ai都接受不了了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
