@@ -16287,3 +16287,25 @@ kimi 是完全不鸟 skill 那些确认，雷霆大思考出活，质量确实�
 他哪部作品这么扭曲？</blockquote>
 最新那个，人妻和初中生
 
+
+*****
+
+####  qwased  
+##### 14640#       发表于 2026-9-23 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277055&amp;ptid=2275806" target="_blank">kiddolck 发表于 2026-9-23 19:09</a>
+
+今天用 ppt master 做 ppt，因为公司只有 workbuddy，再次尝试 ds4.1f 和 kimi 2.8 preview，提纲布局我都 ...</blockquote>
+DS做HTML演示倒是挺好的，现在没啥特殊需求真不如用html了
+
+
+*****
+
+####  kiddolck  
+##### 14641#       发表于 2026-9-23 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277117&amp;ptid=2275806" target="_blank">med 发表于 2026-9-23 19:27</a>
+
+我试过学术ppt，最好的是k3，5.6sol的审美也很一般，astra才大进步</blockquote>
+等 k3.1 降价了，太鸡儿贵了
+
