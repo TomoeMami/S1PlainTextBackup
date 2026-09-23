@@ -16663,3 +16663,18 @@ dsh这几个版本优化了工具调用的，之前的工具调用频繁还没�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tonyunreal  
+##### 14673#       发表于 2026-9-24 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278404&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-9-24 01:17</a>
+在左边会话栏的上面，有个ds官方插件管理
+
+—— 来自 鹅球 v3.5.99</blockquote>
+找到了，感谢
+自制插件只显示包名了，而且外观看不出来可以点击进去设置，难绷
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
