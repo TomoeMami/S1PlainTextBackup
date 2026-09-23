@@ -4724,3 +4724,18 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 小孩哥线想补数值的都可以上战车，双倍坐骑的成长率加成，清杂刷经验也好用
 
+
+*****
+
+####  是谁的书画  
+##### 4879#       发表于 2026-9-23 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273906&amp;ptid=2261859" target="_blank">铁拳圣裁 发表于 2026-9-23 08:44</a>
+
+老乡线打完了，作为单独的故事，刨去一些很诡异的部分，算是比较有趣的水平。
+
+但考虑到这是角色引入，IS你 ...</blockquote>
+怎么会呢，不是全程都在吗
+
+那沙袋子已经通过救队友改变了无数次时间线了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

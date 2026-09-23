@@ -15321,3 +15321,39 @@ Opus 4.6 是今年2月的模型....
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 在S1发帖说oneshot评测意义不大， 还被一堆人说不是的blahblah
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 14556#       发表于 2026-9-23 12:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+冷知识冷知识 真正的长任务 比如几乎永久性的代码仓维护开发 所有模型都是不如去大学找个一天200块的实习生 因为人是有能力提升的而模型没有
+至于那些记忆插件特定工作流更是rot到没边
+最终还是只有sdd靠人来驱动
+transformer没有未来可言
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  simonroam  
+##### 14557#       发表于 2026-9-23 12:24
+
+one shot非常有用，相当于对很多现在AI生成的程序和内容明码标价了
+
+你折腾了半天agent做的东西还不如one shot那就别做了
+
+*****
+
+####  hugosol  
+##### 14558#       发表于 2026-9-23 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70275141&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-9-23 12:16</a>
+
+在S1发帖说oneshot评测意义不大， 还被一堆人说不是的blahblah</blockquote>
+因为oneshot意义不大不代表oneshot评测意义不大（
+
+况且也不是说oneshot意义不大，这方面意义肯定巨大的，但未来要不要一直往这个方向卷，牺牲其他方面的体验还是有待权衡
+
