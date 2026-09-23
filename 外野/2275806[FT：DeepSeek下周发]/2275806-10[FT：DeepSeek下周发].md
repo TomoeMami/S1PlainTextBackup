@@ -16590,3 +16590,52 @@ Claude好像非常麻烦，还是不搞了，先看看别的吧
 
 鹈鹕测试本来都不想看了，能出gpt一家三口还是太搞笑了，不得不提一下
 
+
+*****
+
+####  qz66618  
+##### 14668#       发表于 2026-9-24 00:28
+
+dsh这几个版本优化了工具调用的，之前的工具调用频繁还没意义，后面有机会试试这个agent team功能<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Tomorrow_D  
+##### 14669#       发表于 2026-9-24 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277584&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-9-23 21:16</a>
+
+下载一个workbuddy试试直接对ai提出自己的需求吧，立马就能感觉到楼里每天都在说的震惊瘫坐核爆是什么感 ...</blockquote>
+我试了千问办公和workbuddy，用后感：真香<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+很多时候还需要人为干预，而且哪怕完成傻瓜式任务（比如把题目重新编号）速度有些慢，但是还是方便多了。
+
+哪怕成傻瓜式任务的速度再慢，我也可以摸鱼啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 14670#       发表于 2026-9-24 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278293&amp;ptid=2275806" target="_blank">Tomorrow_D 发表于 2026-9-24 00:29</a>
+我试了千问办公和workbuddy，用后感：真香
+
+很多时候还需要人为干预。而且哪怕完成傻瓜任务（比如把题目重 ...</blockquote>
+我两个屏幕，左边屏幕玩游戏，右边屏幕让ai干活<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ Tomorrow_D + 1欢乐多
+
+查看全部评分
+
