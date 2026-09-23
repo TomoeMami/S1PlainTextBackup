@@ -5532,3 +5532,14 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 比如雷达线没有的上级职业，其他线解锁了第二部会可以使用吗？
 
+
+*****
+
+####  新HGCG  
+##### 4950#       发表于 2026-9-23 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277277&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-9-23 20:08</a>
+
+神仙加护先刷出哪个比较好？这玩意打不同线时会继承吗？</blockquote>
+马尔斯和卡拉和奥罗拉优先
+
