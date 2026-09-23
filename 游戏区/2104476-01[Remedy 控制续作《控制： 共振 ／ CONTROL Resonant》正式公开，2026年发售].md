@@ -1272,3 +1272,11 @@ MC现在下到83了
 
 在阿B云了一下，美术是真的牛，不过战斗也真是一眼无聊。
 
+
+*****
+
+####  wwmmddqqbbpp  
+##### 130#       发表于 2026-9-23 21:48
+
+云了一下，感觉翻译有点一般，导致台词味道怪怪的，继而配音也很难绷<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

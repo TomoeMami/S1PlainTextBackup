@@ -5597,3 +5597,14 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
  ...</blockquote>
 不知道什么名字，地图上显示？？？。我这东部只有一个龙哮海岬捕获野生龙，西部还有4个捕获点，3个带稀有。
 
+
+*****
+
+####  Jabeck  
+##### 4956#       发表于 2026-9-23 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277277&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-9-23 20:08</a>
+
+神仙加护先刷出哪个比较好？这玩意打不同线时会继承吗？</blockquote>
+卡拉一级直接全体增加50闪避，哪怕BOSS都很难打中人。
+

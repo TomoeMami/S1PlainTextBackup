@@ -693,3 +693,24 @@ gaga的版权都敢买，mggm这是真的（从老钟身上）挣到钱了
 
        [https://t.bilibili.com/1251122182375866373](https://t.bilibili.com/1251122182375866373)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42041#       发表于 2026-9-23 21:51
+
+ 本帖最后由 堀内爱里衣 于 2026-9-23 21:52 编辑 
+
+       <strong>Abracadabra - Ave Mujica</strong> <blockquote><img src="http://p2.music.126.net/6ifZ29Ex2vBC8IyYgVb7xg==/109951173987968384.jpg" referrerpolicy="no-referrer">
+
+介绍： BanGDream 游戏解包音频 + 部分FULL 仅供试听
+
+标题前带【乐队名】的为游戏拆包音频
+
+其余则为full
+
+Bilibili @尾崎流夏 @栗島凛</blockquote>
+       [https://music.163.com/#/program?id=3729456176](https://music.163.com/#/program?id=3729456176)
+
+       [https://www.bilibili.com/video/BV1vsh864EYf](https://www.bilibili.com/video/BV1vsh864EYf)
+
