@@ -16714,3 +16714,11 @@ dsh这几个版本优化了工具调用的，之前的工具调用频繁还没�
 
 v4.1f已经足够用了，不奢求<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 14678#       发表于 2026-9-24 07:41
+
+早上服务又出问题了，但是绝对不是高峰期，这几天服务中断都是在奇怪的时间，九月出还是有可能的，今天或者下周三…
+
