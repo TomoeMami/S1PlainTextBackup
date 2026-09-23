@@ -16070,3 +16070,52 @@ max档 100</blockquote>
 
 0731和其他国模一样，都是自然语言提示，比如qwen也是从“你不需要思考直接回答”到“进行详细思考，不要遗漏任何方面再回答”
 
+
+*****
+
+####  hugosol  
+##### 14622#       发表于 2026-9-23 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276740&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-23 17:49</a>
+
+但是你要告诉模型怎么思考，这里就一起传进去了啊
+
+DS4.1是0-100的值
+
+Reasoning Effort: {n} (range 1-100 ...</blockquote>
+这是哪一层的代码，能否给个出处看看。。。
+
+*****
+
+####  蜇灵  
+##### 14623#       发表于 2026-9-23 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273598&amp;ptid=2275806" target="_blank">jonarryn 发表于 2026-9-23 03:16</a>
+求问一下 有没有什么现成方案是能让Agent 软件的工作区和会话库同步到两台电脑上用的，我现在用的是 OneDri ...</blockquote>
+如果不是公司电脑，建议固定一台开发电脑使用webui远程访问
+
+
+*****
+
+####  StrangerJ  
+##### 14624#       发表于 2026-9-23 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274301&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-23 09:59</a>
+数学也是一样，oa文章都没发，就有一堆营销号吹
+
+之前hy3搞出来的数学成果都是peer review了的，达摩院前段 ...</blockquote>
+手机打口水仗能增加销量，大模型在算力受限的情况下增加宣发除了能让你在网络口水仗里挺起胸膛，还有什么好处？
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qwased  
+##### 14625#       发表于 2026-9-23 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276859&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-23 18:17</a>
+这是哪一层的代码，能否给个出处看看。。。</blockquote>
+https://huggingface.co/deepseek-ai/DeepSeek-V4-Flash-0731/blob/main/encoding/README.md
+
+另外gpt6改成把思考强度附加在对话的最后传入了，改思考强度掉缓存可能也是codex的bug吧
+

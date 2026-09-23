@@ -5257,3 +5257,77 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 有没有进度快的坛友推荐下，转头打其他线担心打完4线第一部分，把首次玩的蕾达剧情忘差不多了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 4927#       发表于 2026-9-23 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276852&amp;ptid=2261859" target="_blank">哲学向黑子 发表于 2026-9-23 18:16</a>
+
+蕾达线的第一部快打通了，现在是该转头打其他角色还是继续打完蕾达线
+
+有没有进度快的坛友推荐下，转头打其 ...</blockquote>
+个人感觉还是先通了战争篇再打别人的
+
+否则最后局面要5支队伍40个主力根本凑不齐
+
+*****
+
+####  Jabeck  
+##### 4928#       发表于 2026-9-23 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276852&amp;ptid=2261859" target="_blank">哲学向黑子 发表于 2026-9-23 18:16</a>
+
+蕾达线的第一部快打通了，现在是该转头打其他角色还是继续打完蕾达线
+
+有没有进度快的坛友推荐下，转头打其 ...</blockquote>
+打完会有不少奖励，还是建议打完。
+
+*****
+
+####  黑卷轴陶德传  
+##### 4929#       发表于 2026-9-23 18:20
+
+ 本帖最后由 黑卷轴陶德传 于 2026-9-23 18:21 编辑 
+
+<img src="https://img.stage1st.com/forum/202609/23/181850tmq76fgqit7dvvhu.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260923085813_59_481.jpg</strong> (247.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 18:18 上传
+
+两个重甲两个重甲跑的慢跑的慢，一个打不中人一个没有力度，真奇怪，真奇怪
+[https://weibo.com/1223501302/RjiHg880Q](https://weibo.com/1223501302/RjiHg880Q)
+
+
+*****
+
+####  新HGCG  
+##### 4930#       发表于 2026-9-23 18:22
+
+问下，第三部汇合的话，道具是两队加在一起吗
+
+*****
+
+####  索非亚  
+##### 4931#       发表于 2026-9-23 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276580&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-23 17:21</a>
+稀有坐骑第1部就能抓全了
+
+记得把第7章车队老板的支线任务做了 解锁车站 能跑更多的地方
+
+不过凯伊线并不需 ...</blockquote>
+我是整个西部进不去，地图是一周目蕾达线开的，显示的3个稀有龙捕获点都在西部。车站标识橙色也无法选中，反而现在玩的a少线可以直接跨过名声锁坐马车过去。车夫的任务只接到一个，还有后续吗？
+
+<img src="https://img.stage1st.com/forum/202609/23/182233eg3daoed3u88re4a.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1790158952556_2.webp</strong> (203.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 18:22 上传
+
