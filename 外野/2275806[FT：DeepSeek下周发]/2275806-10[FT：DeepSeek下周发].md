@@ -15689,3 +15689,48 @@ Service is too busy. We advise users to temporarily switch to alternative LLM AP
 
 之前有个传闻就是923来着？
 
+
+*****
+
+####  qz66618  
+##### 14587#       发表于 2026-9-23 15:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  唠叨  
+##### 14588#       发表于 2026-9-23 15:49
+
+比起deepseek我更期待qwen，代码能力4.1对我完全够用了，现在需要的是干活说人话的模型，比如qwen3.8f
+
+*****
+
+####  cscbzcbz  
+##### 14589#       发表于 2026-9-23 15:50
+
+恢复了，无事发生<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  misuzu0723  
+##### 14590#       发表于 2026-9-23 15:53
+
+<img src="https://img.stage1st.com/forum/202609/23/155330tj8cncjl55joznn2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 15:53 上传
+
+所以说性能没有提升反而下降了？
+
+
+*****
+
+####  love4aids  
+##### 14591#       发表于 2026-9-23 15:56
+
+怪不得价格下降了，智力下降，但是作为干活模型的性价比提高了
+
