@@ -15837,3 +15837,30 @@ max有雷霆大思考，时间消耗极其长
 还有为 OA 担心的，真是大开眼界，OA 的成长速度已经够匪夷所思了，尤其是 A，两年就几乎迈入小巨头行列， ...</blockquote>
 如果门口是踏实做事呢？
 
+
+*****
+
+####  drodchang  
+##### 14603#       发表于 2026-9-23 16:47
+
+A/的问题是太依赖toB用户了，toC基本啥都不是，以后收入增长很难了。
+
+*****
+
+####  qwased  
+##### 14604#       发表于 2026-9-23 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276098&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-9-23 15:49</a>
+
+比起deepseek我更期待qwen，代码能力4.1对我完全够用了，现在需要的是干活说人话的模型，比如qwen3.8f ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/23/165039osdgwpgsg9dtm9cw.jpg" referrerpolicy="no-referrer">
+
+<strong>FA33AE7BBAAF2FD3F00CB2D01B9EE7CD.jpg</strong> (301.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 16:50 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">人话在哪
+
