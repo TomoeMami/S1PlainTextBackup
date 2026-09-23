@@ -15815,3 +15815,14 @@ opus5.5初步看下来写作还行，智商本来也有进步，如楼上所说�
 
 luna 默认不是用 max 的吗，而且现在 6-luna 会起 subagent 了，之前我是没看到过的
 
+
+*****
+
+####  nxmonitor  
+##### 14601#       发表于 2026-9-23 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276269&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-9-23 16:21</a>
+
+luna 默认不是用 max 的吗，而且现在 6-luna 会起 subagent 了，之前我是没看到过的 ...</blockquote>
+max有雷霆大思考，时间消耗极其长
+
