@@ -5489,3 +5489,38 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 所以“来自盛托利翁的救援请求”是有什么前置条件吗？
 
+
+*****
+
+####  没取名啊  
+##### 4946#       发表于 2026-9-23 20:08
+
+神仙加护先刷出哪个比较好？这玩意打不同线时会继承吗？
+
+*****
+
+####  纯夏  
+##### 4947#       发表于 2026-9-23 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277069&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-23 19:14</a>
+
+没出来
+
+我倒回第二节了也没触发
+
+你也用蕾达通的吗？</blockquote>
+我第1部4位主角线都通完才打的第2部和第3部 
+
+如果你没任务出现 应该有哪个是前置条件 
+
+*****
+
+####  燃烧的石头  
+##### 4948#       发表于 2026-9-23 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277277&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-9-23 20:08</a>
+神仙加护先刷出哪个比较好？这玩意打不同线时会继承吗？</blockquote>
+继承，我用的比较多的是欧若拉，全伤减半和一回合冥护无效很爽
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

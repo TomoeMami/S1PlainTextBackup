@@ -16329,3 +16329,11 @@ DS做HTML演示倒是挺好的，现在没啥特殊需求真不如用html了
 
 —— 来自 OnePlus CPH2581, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  小野賢章  
+##### 14644#       发表于 2026-9-23 20:15
+
+kimi 做 PPT 确实很强，他们应该花了很大功夫优化 PPT 的制作
+
