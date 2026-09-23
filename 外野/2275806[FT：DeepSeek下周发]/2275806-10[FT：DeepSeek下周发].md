@@ -15864,3 +15864,40 @@ A/的问题是太依赖toB用户了，toC基本啥都不是，以后收入增长
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">人话在哪
 
+
+*****
+
+####  donmlar  
+##### 14605#       发表于 2026-9-23 16:55
+
+现在gpt6有什么省事的api渠道吗？
+
+*****
+
+####  qwased  
+##### 14606#       发表于 2026-9-23 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276015&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-23 15:34</a>
+
+是的，我也发现GPT同一个模型切思考强度缓存会失效，这鸡贼的infra</blockquote>
+因为思考强度是在系统提示词里面的，改了肯定整个前缀都不对了啊
+
+能够更改思考强度不掉缓存的只有DSH+DS4.1能做到，DS4.1不需要完全命中前缀也能复用KV缓存，魔法一样的架构<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bartholo4  
+##### 14607#       发表于 2026-9-23 16:57
+
+现在来看也没便宜多少 对任务有质量要求还是得用 Astra
+
+*****
+
+####  qwased  
+##### 14608#       发表于 2026-9-23 16:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276123&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-9-23 15:53</a>
+
+所以说性能没有提升反而下降了？</blockquote>
+luna加思考预算限制了，难一点的内容思考不完就被截断导致变成弱智
+
