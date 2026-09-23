@@ -1607,3 +1607,15 @@ KONAMI时期把研发逐步发给欧美开发工作室就是他整的。恶魔�
 KONAMI时期把研发逐步发给欧美开发工作室就是他整的。恶魔城寂静岭啥的都扔给欧美开发 ...</blockquote>
 三年前科乐美又重组游戏工作室和捡起来牢IP了，虽然大部分目前还是外包形式，毕竟南泵的重新造轮子，但是科乐美其实是日本本土层面上除了老任以外的老二，野球桃铁啥的本土卖麻了，只是除了日本人基本都不玩而已，风评比海外人见人骂完全不同
 
+
+*****
+
+####  穿越护城河  
+##### 131#       发表于 2026-9-23 07:58
+
+什么叫冈村宪明保不住<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+还不是冈村提议自己拿宇宙骑警PS版引擎去做心跳AVG 之后，就给小岛有意安排放到造血梯队去了，虹色的青春的第一批测试员就是要进合金装备组的应届生。后面他还不是跟小岛一起搞狂热节拍的家用工作。等到kcej与东日本KONAMI各组再编完成，你看这人又在哪呢<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKG110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
