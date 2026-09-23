@@ -15235,3 +15235,17 @@ Sol-6真的性价比很不错啊，现在价格减半之后，只是拿来做需
 
 —— 来自 HONOR PTP-AN70, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  SmterC  
+##### 14548#       发表于 2026-9-23 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274713&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-9-23 11:01</a>
+比起卷思考效率，我觉得说人话更重要。
+
+不断的let me,but wait其实很正常，人自己在脑海里思考的也是不断 ...</blockquote>
+不说人话可以试试这两个技能
+/wait-what
+/no-ai-slop    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

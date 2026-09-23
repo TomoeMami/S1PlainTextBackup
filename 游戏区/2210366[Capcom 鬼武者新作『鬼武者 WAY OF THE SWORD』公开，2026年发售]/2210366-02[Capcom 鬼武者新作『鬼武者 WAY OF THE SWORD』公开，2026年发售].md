@@ -477,3 +477,11 @@ v2-0ae7091590a14f8c0b1b7b12deaf9172_720w.webp
 妈的，越玩下去越喜欢女角色的塑造，无论是静御前嫁鸡随鸡嫁狗随狗的小媳妇性格还是阿国的古灵精怪少女心都 ...</blockquote>
 更可恶的是，打到通关的时候，我已经看习惯了，开始觉得她们并不很丑了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 1937#       发表于 2026-9-23 11:52
+
+感觉静静侧面确实不算丑，阿国就算了，不过续作搞不好女大十八变
+
