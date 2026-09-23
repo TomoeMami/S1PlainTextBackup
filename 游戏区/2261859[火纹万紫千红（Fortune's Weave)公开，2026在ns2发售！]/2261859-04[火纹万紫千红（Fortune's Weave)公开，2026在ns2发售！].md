@@ -5664,3 +5664,18 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 我就知道一个鲁智深，还有各对手队的队长
 
+
+*****
+
+####  Jabeck  
+##### 4962#       发表于 2026-9-23 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277909&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-23 22:44</a>
+
+好了，既然要玩的爽的前提是四条线都通
+
+而各条路线固定队友肯定是必定能收到的也培养得最好的
+
+那么哪些角色 ...</blockquote>
+鲁智深是迪特里希线的教程挖角角色。
+

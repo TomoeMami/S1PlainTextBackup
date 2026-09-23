@@ -16511,3 +16511,24 @@ wrokbuddy的ds优惠到期了，不知道换个啥用，想问下现在大概每
 
 建议开Claude opus5.5 high 我今天蹬了差不多1.5E 也没事.
 
+
+*****
+
+####  问题修士  
+##### 14660#       发表于 2026-9-23 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277306&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-9-23 20:15</a>
+kimi 做 PPT 确实很强，他们应该花了很大功夫优化 PPT 的制作</blockquote>
+做了几份给大纲、内容之后出的不太行，一股 ai 味，大色块大字体，kimi 自己弄了个 pptd 格式，格式遵从比 ppt master 强不少
+
+从 kimi 桌面端提取出来的 kimi-ppt 和 kimi-deisgn skill 丢给其他模型许愿其实审美也都还行
+
+不过最后还是选择 reveal.js，把 ppt 当成 html 来写，反正都是指挥 ai 干活，html+css+js 更在 AI 的舒适区里    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  qz66618  
+##### 14661#       发表于 2026-9-23 23:05
+
+dsh更新0.1.7版本了，感觉当前官方版本已经可以直接用了，基础插件都挺齐全
+
