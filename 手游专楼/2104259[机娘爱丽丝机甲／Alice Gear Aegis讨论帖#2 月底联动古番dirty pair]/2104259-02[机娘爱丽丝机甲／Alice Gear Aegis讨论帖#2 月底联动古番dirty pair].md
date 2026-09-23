@@ -60,3 +60,11 @@
 
 不要在意细节，就说是不是高达的配色吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 2125#       发表于 2026-9-23 23:16
+
+加纯的装备换色怎么还带渐变色的好高级
+
