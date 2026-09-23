@@ -4588,3 +4588,14 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 这代回避有点难堆啊，为什么剑圣特性不是青草制造者<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  newtypezeta  
+##### 4866#       发表于 2026-9-23 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70268993&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-22 09:36</a>
+
+挖人和探地图可以用重置章节刷满吧，理论上不会缺人和地图</blockquote>
+为啥我探完地图重开章节探的地图又没了哇<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
