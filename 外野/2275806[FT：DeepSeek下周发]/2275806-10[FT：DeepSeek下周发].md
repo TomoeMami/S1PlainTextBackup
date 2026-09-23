@@ -14973,3 +14973,49 @@ luna降价一半还是没有ds4.1f的谷价便宜 那个是差不多0.08-0.1/m
 5.6luna差不多是0.25</blockquote>
 sol也降价一半，性价比还是提升的，luna也不能api价格，实际上luna在plus都可以无限用了。
 
+
+*****
+
+####  simonroam  
+##### 14525#       发表于 2026-9-23 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274114&amp;ptid=2275806" target="_blank">matthewsteel 发表于 2026-9-23 09:25</a>
+
+Opus 4.6 是今年2月的模型....
+
+只是过去了七个月而已
+
+好快</blockquote>
+不够快，憋了这么久才出来
+
+*****
+
+####  lactone  
+##### 14526#       发表于 2026-9-23 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273857&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-23 08:31</a>
+现在看问题最大的就是字节腾讯了，字节占了一大堆卡做出来个糖包，引以为傲的视频模型无论更新速度还是价格 ...</blockquote>
+字节主要算力在sd2和sd2.5，真正的视频sota
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  retp  
+##### 14527#       发表于 2026-9-23 09:54
+
+呵呵哒，买个mac排队 4个月，什么时候mac也成猴系产品了
+
+<img src="https://img.stage1st.com/forum/202609/23/095327c2vqs8q251uc6vjn.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1790128406349_1.webp</strong> (56.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 09:53 上传
+
+这10月底的512g不得排队半年起步
+
+—— 来自 vivo V2547A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

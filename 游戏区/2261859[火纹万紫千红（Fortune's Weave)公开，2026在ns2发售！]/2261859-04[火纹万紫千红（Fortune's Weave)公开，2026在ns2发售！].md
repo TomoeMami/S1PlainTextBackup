@@ -4432,3 +4432,31 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 打完一条线第一部后在神殿里和芙托娜对话，有段台词大概就是说，四条线的因果律变动可能导向不同的世界线 ...</blockquote>
 这段话不用打完第一条线，第一条线我打了两三章的时候出来跟芙托娜对话就出现了。我当时就吐槽你这tm不是老滚的龙破吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这故事还没开始讲呢就跟我说你万策劲打算摆烂了
 
+
+*****
+
+####  黑上シグマ  
+##### 4850#       发表于 2026-9-23 09:46
+
+<blockquote>引用第4848楼铁拳圣裁于2026-09-23 09:26发表的  :
+
+本帖最后由 铁拳圣裁 于 2026-9-23 09:37 编辑 夜留歌 发表于 2026-9-23 ......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能都不用打两三章，第一次选线之前和她对话就会这样说
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+
+*****
+
+####  Jabeck  
+##### 4851#       发表于 2026-9-23 09:54
+
+山贼五年后变化最大的就是那个嫖娼的西蒙了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来底子好，换个发型就大帅哥了。
+
+*****
+
+####  JOJOROY  
+##### 4852#       发表于 2026-9-23 09:54
+
+做完的外传不继承到另一条线吗还需要再打一遍？
+
