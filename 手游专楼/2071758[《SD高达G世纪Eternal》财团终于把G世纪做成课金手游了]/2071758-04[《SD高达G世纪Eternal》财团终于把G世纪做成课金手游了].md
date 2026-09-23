@@ -129,3 +129,11 @@ v的msv就是一堆钢伊吉变种和杰维林变种，没什么意思。
 
 其实今晚我最期待就是看G-UNIT是几月活动了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dio999  
+##### 4722#       发表于 2026-9-23 19:21
+
+我暴论一个，V2ab是蓝鸡<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

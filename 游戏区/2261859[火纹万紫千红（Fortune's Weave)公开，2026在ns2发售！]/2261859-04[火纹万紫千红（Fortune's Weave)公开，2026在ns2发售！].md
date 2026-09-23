@@ -5434,3 +5434,31 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 这作一条路线打完重新再打声望会继承吗？
 
+
+*****
+
+####  linyc0010  
+##### 4940#       发表于 2026-9-23 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277070&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-9-23 19:16</a>
+
+这作一条路线打完重新再打声望会继承吗？</blockquote>
+声望？名声？好像不继承
+
+*****
+
+####  Jabeck  
+##### 4941#       发表于 2026-9-23 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277109&amp;ptid=2261859" target="_blank">linyc0010 发表于 2026-9-23 19:24</a>
+
+声望？名声？好像不继承</blockquote>
+那可惜了。
+
+*****
+
+####  Jabeck  
+##### 4942#       发表于 2026-9-23 19:26
+
+霉拉拉哪里有？
+

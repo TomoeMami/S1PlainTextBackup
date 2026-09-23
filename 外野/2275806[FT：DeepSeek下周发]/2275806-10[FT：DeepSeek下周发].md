@@ -16257,3 +16257,13 @@ kimi 是完全不鸟 skill 那些确认，雷霆大思考出活，质量确实�
 应该怎么说呢</blockquote>
 那啥部分单独想办法，毕竟是初中生，模型天然排斥，不过日常部分应该不会拒绝翻译吧
 
+
+*****
+
+####  来都来了  
+##### 14637#       发表于 2026-9-23 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277004&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-9-23 18:56</a>
+翻译就用本地模型呗。入间人间太坏了，玩得越来越刺激，ai都接受不了了</blockquote>
+他哪部作品这么扭曲？
+
