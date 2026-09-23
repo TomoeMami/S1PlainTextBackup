@@ -1124,3 +1124,16 @@ MC现在下到83了
 绿美迪游戏从阿兰醒醒开始就是这么个调调了，为什么一定要孜孜不倦地找玩法亮点啊 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然这个事也有心理预期啦，但是它又不肯老老实实做步行模拟器对不对（
 
+
+*****
+
+####  FBC档案部专员  
+##### 117#       发表于 2026-9-23 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276706&amp;ptid=2104476" target="_blank">madcow 发表于 2026-9-23 17:41</a>
+
+虽然这个事也有心理预期啦，但是它又不肯老老实实做步行模拟器对不对（ ...</blockquote>
+干嘛要跟阿兰醒醒一样呢
+
+像1代那种轻战斗重探索的就好了
+

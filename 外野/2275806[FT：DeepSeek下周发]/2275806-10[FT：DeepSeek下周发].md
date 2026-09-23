@@ -16016,3 +16016,57 @@ OA 谁没有踏实做事？OA 模型现在不是第一档？国内互联网三�
 
 gpt的中文说的一股abc味 而且体感智商也一般
 
+
+*****
+
+####  未知伤亡  
+##### 14620#       发表于 2026-9-23 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276672&amp;ptid=2275806" target="_blank">间宮夏生 发表于 2026-9-23 17:36</a>
+
+OA 谁没有踏实做事？OA 模型现在不是第一档？国内互联网三巨头我看也一直在做事啊，阿里字节模型也不是完 ...</blockquote>
+OA踏实做事了啊，国内大厂还差一点
+
+*****
+
+####  qwased  
+##### 14621#       发表于 2026-9-23 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276543&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-23 17:16</a>
+
+一般思考强度都是单独参数呀，不会塞到system_prompt里的
+
+https://api-docs.deepseek.com/zh-cn/</blockquote>
+但是你要告诉模型怎么思考，这里就一起传进去了啊
+
+DS4.1是0-100的值
+<blockquote>Reasoning Effort: {n} (range 1-100, the higher the value, the more thorough
+
+the reasoning)
+
+如提示词所述，现在的思考程度由数值控制
+
+思考默认值是75，映射到high档
+
+目前只有四个档位：
+
+---
+
+无思考
+
+low档 50
+
+high档 75
+
+max档 100</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/23/174838o5m8y4hz5h2h4847.jpg" referrerpolicy="no-referrer">
+
+<strong>856838cbd1c8a78678fd080d2109c93d71cf5053.jpg</strong> (136.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 17:48 上传
+
+0731和其他国模一样，都是自然语言提示，比如qwen也是从“你不需要思考直接回答”到“进行详细思考，不要遗漏任何方面再回答”
+

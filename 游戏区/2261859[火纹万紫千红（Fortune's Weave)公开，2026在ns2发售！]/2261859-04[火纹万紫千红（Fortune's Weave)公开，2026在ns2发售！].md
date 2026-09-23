@@ -5222,3 +5222,15 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 莫非要凯伊通第一部才能有？
 
+
+*****
+
+####  Jabeck  
+##### 4924#       发表于 2026-9-23 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276649&amp;ptid=2261859" target="_blank">Bani82 发表于 2026-9-23 17:33</a>
+
+直接按跳过是指剧情，探索和主要战斗还是要打四遍是吧</blockquote>支线马桶会每章开头直接结算你奖励。
+
+探索是的，地图会按照之前路线开好，不过四个人有不同的新玩法。主线战斗也有会有几场不一样。
+
