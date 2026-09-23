@@ -661,3 +661,35 @@ gaga的版权都敢买，mggm这是真的（从老钟身上）挣到钱了
 
 话说这么大的开服企划成鸡团独占，别的团粉丝没意见吗？
 
+
+*****
+
+####  堀内爱里衣  
+##### 42040#       发表于 2026-9-23 12:39
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/23/123924we552lav2b9v488a.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-09-23_12-35-59.jpg</strong> (213.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 12:39 上传
+
+       [https://x.com/bang_dream_info/status/2102595056012017897](https://x.com/bang_dream_info/status/2102595056012017897)
+
+       [https://anime.bang-dream.com/bandorichan/story/](https://anime.bang-dream.com/bandorichan/story/)
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/23/123925n48ucux8p6w3i77i.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-23_12-37-13.png</strong> (484.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 12:39 上传
+
+       [https://t.bilibili.com/1251122182375866373](https://t.bilibili.com/1251122182375866373)
+
