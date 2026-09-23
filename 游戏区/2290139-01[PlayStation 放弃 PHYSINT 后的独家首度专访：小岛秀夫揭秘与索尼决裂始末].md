@@ -1724,3 +1724,34 @@ ps初期的项目到ps末期基本上都没再现辉煌
 
 加上KCEJ还包下了狂热节拍的家用机版制作，资源、人力往那边倾斜是理所当然的事情
 
+
+*****
+
+####  鱼雷鲨  
+##### 141#       发表于 2026-9-24 00:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272251&amp;ptid=2290139" target="_blank">凉良 发表于 2026-9-22 20:24</a>
+
+插个楼
+
+我最近一直很疑惑国内小岛粉是不是云子太多了
+
+小岛本人算是日本制作人里最明牌支持dei的了吧，小岛 ...</blockquote>
+小岛就是年轻十年的富野，当然反保守
+
+那些网民是不是根本没看过他写的男男关系，男女关系
+
+*****
+
+####  鱼雷鲨  
+##### 142#       发表于 2026-9-24 00:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273926&amp;ptid=2290139" target="_blank">GALLADE 发表于 2026-9-23 08:49</a>
+
+这事我觉得最难绷的还是DS居然没有把岛孝子杀绝，还要等今天？
+
+不是说DS不是一个好游戏，但从游戏的整体来 ...</blockquote>
+DS算是让旋转轮胎和太空工程师玩家狂喜，科幻送货题材终于上台面了，也是蹭了生存捡垃圾高峰的尾声
+
+MGS5生存跟DS估计最早就是一起策划的
+
