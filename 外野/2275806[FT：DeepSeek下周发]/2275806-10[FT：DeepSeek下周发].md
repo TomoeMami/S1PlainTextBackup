@@ -16456,3 +16456,25 @@ kimi 做 PPT 确实很强，他们应该花了很大功夫优化 PPT 的制作
 试试腾讯的WorkBuddy？</blockquote>
 多谢！深感自己落后时代了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Milarvoz  
+##### 14655#       发表于 2026-9-23 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277521&amp;ptid=2275806" target="_blank">Tomorrow_D 发表于 2026-9-23 21:04</a>
+多谢！深感自己落后时代了</blockquote>
+下载一个workbuddy试试直接对ai提出自己的需求吧，立马就能感觉到楼里每天都在说的震惊瘫坐核爆是什么感觉。<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  ml1642879  
+##### 14656#       发表于 2026-9-23 21:23
+
+4.1f这视觉能力是不是可以给大肥鱼加个近视眼戴眼镜萌点了<img src="https://static.stage1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+
