@@ -1619,3 +1619,32 @@ KONAMI时期把研发逐步发给欧美开发工作室就是他整的。恶魔�
 
 —— 来自 OnePlus PKG110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  madcow  
+##### 132#       发表于 2026-9-23 08:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">恶魔城那事我记得是西班牙人和五十岚的各交了个demo给高层看了下然后五十岚的被干掉了吧。
+
+*****
+
+####  GALLADE  
+##### 133#       发表于 2026-9-23 08:49
+
+这事我觉得最难绷的还是DS居然没有把岛孝子杀绝，还要等今天？
+
+不是说DS不是一个好游戏，但从游戏的整体来看，第一感觉就是小岛自己单飞绝不可能做得出合金的新作了
+
+本质就是相亲界的“慢热”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鸟耶稣  
+##### 134#       发表于 2026-9-23 08:53
+
+我也曾向银行借款获取资金。起初［在我们刚成立工作室时］，他们根本不理会我们。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最开始不是说银行高管是岛蜜很快就批了他们的贷款吗
+

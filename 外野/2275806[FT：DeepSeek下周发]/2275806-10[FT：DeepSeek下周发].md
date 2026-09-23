@@ -14900,3 +14900,13 @@ opus5.5这个看样子依然是后训练主导的
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  serj005  
+##### 14519#       发表于 2026-9-23 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273833&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-9-23 08:23</a>
+有人觉得最近ds4.1降智了么？不管啥问题都是开局先几十个工具调用，然后弯弯绕绕无效大思考。昨天整了几个 ...</blockquote>
+建议优先看看agent是不是有什么问题，4.1f目前用起来从发布至今没什么变化
+
