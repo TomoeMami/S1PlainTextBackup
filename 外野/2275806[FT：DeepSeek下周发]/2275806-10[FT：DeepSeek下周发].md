@@ -16337,3 +16337,22 @@ DS做HTML演示倒是挺好的，现在没啥特殊需求真不如用html了
 
 kimi 做 PPT 确实很强，他们应该花了很大功夫优化 PPT 的制作
 
+
+*****
+
+####  qwased  
+##### 14645#       发表于 2026-9-23 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277235&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-23 20:00</a>
+
+说起来, 让OA之类的大模型搞逆向/破解之类的活儿有办法么</blockquote>
+有破甲或者直接给他逆向用的mcp然后让他复刻应用两种套路吧
+
+
+*****
+
+####  deviljz  
+##### 14646#       发表于 2026-9-23 20:35
+
+看你要逆向什么了，逆向手游的话我都是直接扔给claude或者codex，它们自己就会搞，不会拒绝这类请求。当然你提供工具给它效率更高。也试着逆向过酒馆的提示词，简单试了下做的很差就没继续。
+
