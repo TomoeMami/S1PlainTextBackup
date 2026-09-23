@@ -14936,3 +14936,13 @@ opus终于降了一点价，之前烧token的速度也太狠了
 
 —— 来自 HONOR PTP-AN70, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  来都来了  
+##### 14522#       发表于 2026-9-23 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273833&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-9-23 08:23</a>
+有人觉得最近ds4.1降智了么？不管啥问题都是开局先几十个工具调用，然后弯弯绕绕无效大思考。昨天整了几个 ...</blockquote>
+你的agent有问题，换Pi。
+

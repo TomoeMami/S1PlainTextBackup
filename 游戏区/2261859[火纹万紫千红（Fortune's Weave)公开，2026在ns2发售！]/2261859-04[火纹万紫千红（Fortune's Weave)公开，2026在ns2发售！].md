@@ -4396,3 +4396,29 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 坐骑技能能Sl吗？ 第十一章了前期没好好抓，对魔法、再动这些好技能的一个都没抓到
 
+
+*****
+
+####  夜留歌  
+##### 4847#       发表于 2026-9-23 09:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273906&amp;ptid=2261859" target="_blank">铁拳圣裁 发表于 2026-9-23 08:44</a>
+老乡线打完了，作为单独的故事，刨去一些很诡异的部分，算是比较有趣的水平。
+但考虑到这是角色引入，IS你 ...</blockquote>
+蕾达线倒是有体现，中了敌人陷阱差点关冥界里出不来了，救世主现身指了条路
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  夜留歌  
+##### 4848#       发表于 2026-9-23 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273972&amp;ptid=2261859" target="_blank">铁拳圣裁 发表于 2026-9-23 09:00</a>
+我猜到可能放在第二部了，但是考虑到四个主角的第一部大概率都是不同世界线了，救世主全程没参与的情况下提 ...</blockquote>
+打完一条线第一部后在神殿里和芙托娜对话，有段台词大概就是说，四条线的因果律变动可能导向不同的世界线，最后汇合时大家会发现互相之间记忆有差异云云，但是都要去拯救世界了，这点小事就别在意了吧！
+就是编剧不想写的太复杂偷了下懒，借女神口给自己辩护下<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
