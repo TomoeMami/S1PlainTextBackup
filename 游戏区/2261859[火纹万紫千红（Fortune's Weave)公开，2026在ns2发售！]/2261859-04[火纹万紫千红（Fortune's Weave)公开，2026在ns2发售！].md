@@ -4460,3 +4460,13 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 做完的外传不继承到另一条线吗还需要再打一遍？
 
+
+*****
+
+####  光之阶梯  
+##### 4853#       发表于 2026-9-23 10:02
+
+是不是没法凹点了？普通难度也不行？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2548A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
