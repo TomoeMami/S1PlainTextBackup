@@ -14873,3 +14873,30 @@ opus5.5这个看样子依然是后训练主导的
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Promeus  
+##### 14516#       发表于 2026-9-23 08:31
+
+现在看问题最大的就是字节腾讯了，字节占了一大堆卡做出来个糖包，引以为傲的视频模型无论更新速度还是价格都一坨。腾讯虽然成果还行还是实际都是跟跑<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">严重的分散了资源
+
+*****
+
+####  狭义文具爱好者  
+##### 14517#       发表于 2026-9-23 08:35
+
+我对豆包没意见，c端用户不用豆包去用ds，kimi，glm只会让训练算力更短缺，体验还不一定好。不能真不把普通c端用户不当人吧？
+
+*****
+
+####  neptunehs  
+##### 14518#       发表于 2026-9-23 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273857&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-23 08:31</a>
+现在看问题最大的就是字节腾讯了，字节占了一大堆卡做出来个糖包，引以为傲的视频模型无论更新速度还是价格 ...</blockquote>
+大厂还有领先就不开源的问题
+不管是糖包系 还是qwen领先了一点点就打算停止开源 还是真•开源领先的hunyuan3d一看到自己领先了就停止开源（明明只看闭源的话是被吊打的
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
