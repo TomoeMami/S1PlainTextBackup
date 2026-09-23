@@ -15221,3 +15221,17 @@ Sol-6真的性价比很不错啊，现在价格减半之后，只是拿来做需
 
 应该怎么说呢
 
+
+*****
+
+####  cody198879  
+##### 14547#       发表于 2026-9-23 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274782&amp;ptid=2275806" target="_blank">fzlong 发表于 2026-9-23 11:11</a>
+让翻译入间人间新作gpt和deepseek都不肯干
+
+应该怎么说呢</blockquote>
+把原文都给他翻译就好了，你让他自己去盗版会碰到道德限制
+
+—— 来自 HONOR PTP-AN70, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
