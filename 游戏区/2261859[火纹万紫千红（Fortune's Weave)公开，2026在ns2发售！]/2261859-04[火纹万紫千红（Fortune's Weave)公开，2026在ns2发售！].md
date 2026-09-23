@@ -4814,3 +4814,11 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 这代好像没看到风花雪月白毛和契约安娜那种可以追击的法师
 
+
+*****
+
+####  agllags  
+##### 4888#       发表于 2026-9-23 13:10
+
+这作最强法师应该是凯伊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
