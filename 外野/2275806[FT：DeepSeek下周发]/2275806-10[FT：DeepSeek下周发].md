@@ -15530,3 +15530,28 @@ three.js的鹈鹕都可以，那视频的鹈鹕也可以，豆包的oneshot<img 
 
 [https://x.com/Lcxxx_Lee/status/2102449281663738286](https://x.com/Lcxxx_Lee/status/2102449281663738286)
 
+
+*****
+
+####  80后卢瑟  
+##### 14574#       发表于 2026-9-23 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273374&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-23 00:29</a>
+发现了个项目 https://github.com/miuuyy/Astra-Ares
+
+根据任务 调整思考强度. 对我来说太实用了. gpt-6-As ...</blockquote>
+不一定是好事，因为有可能丢缓存
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  andychen  
+##### 14575#       发表于 2026-9-23 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70275555&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-9-23 13:57</a>
+国内厂商的模型发布太不透明了，也是真是保密做得太好，根本不知道进度，oa这两家的内鬼太多，提前几个星期 ...</blockquote>
+OA等着天价IPO需要议论造势，那些泄漏和大新闻你可以理解成官方软文
+
+国内前沿实验室和美国那边的技术差距一直是6个月，只是双方的产品发布节奏导致公开的模型性能差距有时大一些有时小一些
+
