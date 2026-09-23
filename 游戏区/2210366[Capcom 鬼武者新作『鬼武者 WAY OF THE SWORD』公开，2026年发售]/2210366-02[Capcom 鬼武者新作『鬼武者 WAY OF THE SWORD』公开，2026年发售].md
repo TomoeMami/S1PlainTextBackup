@@ -466,3 +466,14 @@ v2-0ae7091590a14f8c0b1b7b12deaf9172_720w.webp
 
 我是先二周目拿完一闪刀再去通的一周目马桶，一闪刀爽完正好消磨掉最后一点游戏热情
 
+
+*****
+
+####  osborn  
+##### 1936#       发表于 2026-9-23 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70272378&amp;ptid=2210366" target="_blank">相棒 发表于 2026-9-22 20:52</a>
+
+妈的，越玩下去越喜欢女角色的塑造，无论是静御前嫁鸡随鸡嫁狗随狗的小媳妇性格还是阿国的古灵精怪少女心都 ...</blockquote>
+更可恶的是，打到通关的时候，我已经看习惯了，开始觉得她们并不很丑了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

@@ -15157,3 +15157,15 @@ WorkBuddy上面的能破甲吗  今天想让它整理一下网页的翻译小�
 开源模型才有思维链效率问题，闭源模型又看不到，不知道是效率高还是速度快 ...</blockquote>
 反正哈基米3.8的思维链应该是极其低效的，思考越久越垃圾<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 14541#       发表于 2026-9-23 10:50
+
+不管怎么算，DS4.1F也实在是太便宜了。
+
+Nous上都10美分输入50美分输出了，想不出有什么理由不用。
+
+哪怕有订阅，也可以把订阅省下来给Astra用。
+
