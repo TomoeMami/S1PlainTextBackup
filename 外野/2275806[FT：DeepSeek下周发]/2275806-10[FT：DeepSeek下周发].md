@@ -15129,3 +15129,21 @@ WorkBuddy上面的能破甲吗  今天想让它整理一下网页的翻译小�
 
 羡慕第一批下单的，这两天都已经用上了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  simonroam  
+##### 14538#       发表于 2026-9-23 10:28
+
+趁着刚发布赶紧都去蹬OA，给ds腾算力
+
+*****
+
+####  临界点  
+##### 14539#       发表于 2026-9-23 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274455&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-9-23 10:25</a>
+
+这种国内的应用干这种事你不怕被封号吗好歹用开源的agent+ocg这种中转站的api干啊 ...</blockquote>
+就是让它整理一下网上个人翻译的小说而已，都是公开可以看的
+
