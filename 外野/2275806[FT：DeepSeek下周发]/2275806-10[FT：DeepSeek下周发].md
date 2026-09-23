@@ -15057,3 +15057,75 @@ WorkBuddy上面的能破甲吗  今天想让它整理一下网页的翻译小�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  发呆的龙虾  
+##### 14532#       发表于 2026-9-23 10:19
+
+试了一下我果然不适合做游戏。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  SmterC  
+##### 14533#       发表于 2026-9-23 10:19
+
+MIMO真不行吧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+初始化一个新项目，用的 /setup-matt-pocock-skills 这个技能，就只是建立一个本地md文件组成的工单、项目内术语表之类的
+
+想的这任务简单，交给MIMO吧，打开opencode，用的这个新MiMo-V2.6-Flash Free
+
+没想到这么简单的任务都没干好，开发了半天，最后验收的时候发现怎么这么多货不对板呢？
+
+<img src="https://img.stage1st.com/forum/202609/23/101923fb9vbdv570a85zw5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 10:19 上传
+
+好嘛，有东西漏了
+
+*****
+
+####  小野賢章  
+##### 14534#       发表于 2026-9-23 10:21
+
+开源模型才有思维链效率问题，闭源模型又看不到，不知道是效率高还是速度快<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lly778  
+##### 14535#       发表于 2026-9-23 10:24
+
+6的sol和luna，好像没啥提升？
+
+*****
+
+####  蛋黄酱Release  
+##### 14536#       发表于 2026-9-23 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274386&amp;ptid=2275806" target="_blank">临界点 发表于 2026-9-23 10:14</a>
+WorkBuddy上面的能破甲吗  今天想让它整理一下网页的翻译小说结果都搞不了</blockquote>
+这种国内的应用干这种事你不怕被封号吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好歹用开源的agent+ocg这种中转站的api干啊
+
+*****
+
+####  星野あさみ  
+##### 14537#       发表于 2026-9-23 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274275&amp;ptid=2275806" target="_blank">retp 发表于 2026-9-23 09:54</a>
+
+呵呵哒，买个mac排队 4个月，什么时候mac也成猴系产品了
+
+这10月底的512g不得排队半年起步</blockquote>
+
+我的Mac Studio 256G刚下单时提示12.2发货，后来发邮件说提前到10.24那周
+
+羡慕第一批下单的，这两天都已经用上了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
