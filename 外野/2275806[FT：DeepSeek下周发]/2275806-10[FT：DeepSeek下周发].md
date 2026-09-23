@@ -15901,3 +15901,14 @@ A/的问题是太依赖toB用户了，toC基本啥都不是，以后收入增长
 所以说性能没有提升反而下降了？</blockquote>
 luna加思考预算限制了，难一点的内容思考不完就被截断导致变成弱智
 
+
+*****
+
+####  zy450  
+##### 14609#       发表于 2026-9-23 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276098&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-9-23 15:49</a>
+
+比起deepseek我更期待qwen，代码能力4.1对我完全够用了，现在需要的是干活说人话的模型，比如qwen3.8f ...</blockquote>
+我是直接和ds说“请讲大白话”，效果挺好的
+

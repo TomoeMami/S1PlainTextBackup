@@ -1105,3 +1105,11 @@ MC现在下到83了
 
 绿美迪游戏从阿兰醒醒开始就是这么个调调了，为什么一定要孜孜不倦地找玩法亮点啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  warachia  
+##### 115#       发表于 2026-9-23 17:15
+
+战斗非常无聊，不如前作。据说后期资源充足能凑多样化build了会好玩一点
+
