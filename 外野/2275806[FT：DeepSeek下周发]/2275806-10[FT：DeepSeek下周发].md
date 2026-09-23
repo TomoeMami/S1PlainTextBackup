@@ -15466,3 +15466,11 @@ OA投资方很多，国内则是自己都不一定知道确定的时间吧（尤
 
 可惜 6 sol拉了，不是期望的astra minor
 
+
+*****
+
+####  nxmonitor  
+##### 14568#       发表于 2026-9-23 14:12
+
+Kimi的后训练水平要打个问号了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
