@@ -4526,3 +4526,57 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 玩完一条线另一条线的人物好感不继承吗？
 
+
+*****
+
+####  newtypezeta  
+##### 4860#       发表于 2026-9-23 10:38
+
+看前面说重开可以探地图，为啥我重开探的地图不保留啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 4861#       发表于 2026-9-23 10:39
+
+现在啥价了啊 我看pdd还要460+ 忒贵了
+
+*****
+
+####  lbj5454  
+##### 4862#       发表于 2026-9-23 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274566&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-9-23 10:39</a>
+
+现在啥价了啊 我看pdd还要460+ 忒贵了</blockquote>
+392日本店头买的，还送了本小册子<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangchunsiyue  
+##### 4863#       发表于 2026-9-23 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274523&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-9-23 10:35</a>
+
+玩完一条线另一条线的人物好感不继承吗？</blockquote>
+你凯线刷的是凯和所有人的好感，其他线换线了，要靠其他人的好感啊。
+
+我看他们说是可以在凯线吃饭的时候让女王和她将来要挖的人吃的。
+
+你想在哪条线挖谁，就用谁去和被挖的人猛猛吃饭吃到需要的好感度就行。这个好感是继承的。
+
+
+*****
+
+####  渡边加奈子  
+##### 4864#       发表于 2026-9-23 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273806&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-9-23 08:11</a>
+
+这一代玻璃大炮是谁
+
+论坛助手,iPhone</blockquote>
+菲亚娜,全游戏最高的魔力成长,个人天赋需要运来发动,但是速防运都是倒数.而且输出能力也不及奥林匹亚和红花.从废物论角度来看,菲亚娜是游戏最弱的女性角色
+
+希罗克,奥林匹亚,红花都是输出型魔法角色,希罗克的生存能力极强且有水桶型全高成长,奥林匹亚有第二高魔力成长,而且天赋与圣吸适配度极高,可以打出极其过量的伤害而且吸血续航能力强,红花有火山爆发的含金量
+
