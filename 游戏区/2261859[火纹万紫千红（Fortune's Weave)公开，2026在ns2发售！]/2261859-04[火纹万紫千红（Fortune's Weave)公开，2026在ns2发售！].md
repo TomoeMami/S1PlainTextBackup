@@ -4739,3 +4739,43 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 那沙袋子已经通过救队友改变了无数次时间线了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 4880#       发表于 2026-9-23 12:29
+
+小孩姐在我这已经玩成拳圣了，凡人根本摸不到她，无敌
+
+从来不刻意sl，到现在这个程度我已经很满意了。能比她强的我这里就只有佣兵哥了，此男已经化神了
+
+
+*****
+
+####  风祭果凛  
+##### 4881#       发表于 2026-9-23 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274677&amp;ptid=2261859" target="_blank">newtypezeta 发表于 2026-9-23 10:58</a>
+
+为啥我探完地图重开章节探的地图又没了哇</blockquote>
+地图是打完一条线继承的，和重开无关。你一条线地图全开后，其他三线就是全开的状态
+
+
+*****
+
+####  燃烧的石头  
+##### 4882#       发表于 2026-9-23 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274816&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-9-23 11:16</a>
+女王线的兵团只能靠剧情获得吗？</blockquote>
+第一个是剧情给的，然后就开放招募了，名声越高得到的兵团等级越高
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Sai!  
+##### 4883#       发表于 2026-9-23 12:37
+
+占卜有什么用啊？
+
