@@ -16490,3 +16490,11 @@ kimi 做 PPT 确实很强，他们应该花了很大功夫优化 PPT 的制作
 Re:Source · Xiaomi 15 ...</blockquote>
 比4fv好，4fv那800x800等效分辨率是真近视，ui截图认不出字
 
+
+*****
+
+####  aki1ostt  
+##### 14658#       发表于 2026-9-23 22:23
+
+wrokbuddy的ds优惠到期了，不知道换个啥用，想问下现在大概每天平均1.5e token的工作量openai的plus够用吗，用sol的话
+
