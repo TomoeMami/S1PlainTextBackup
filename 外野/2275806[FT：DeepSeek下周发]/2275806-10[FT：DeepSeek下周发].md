@@ -15826,3 +15826,14 @@ luna 默认不是用 max 的吗，而且现在 6-luna 会起 subagent 了，之�
 luna 默认不是用 max 的吗，而且现在 6-luna 会起 subagent 了，之前我是没看到过的 ...</blockquote>
 max有雷霆大思考，时间消耗极其长
 
+
+*****
+
+####  未知伤亡  
+##### 14602#       发表于 2026-9-23 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276237&amp;ptid=2275806" target="_blank">间宮夏生 发表于 2026-9-23 16:14</a>
+
+还有为 OA 担心的，真是大开眼界，OA 的成长速度已经够匪夷所思了，尤其是 A，两年就几乎迈入小巨头行列， ...</blockquote>
+如果门口是踏实做事呢？
+
