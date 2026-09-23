@@ -15953,3 +15953,23 @@ luna比原来还蠢？真的假的？
 luna比原来还蠢？真的假的？</blockquote>
 真的，虽然便宜了很多
 
+
+*****
+
+####  moekyo  
+##### 14614#       发表于 2026-9-23 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276298&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-23 16:27</a>
+
+max有雷霆大思考，时间消耗极其长</blockquote>
+慢倒是能接受，反正我几个一起跑的，都在挂着跑的，只要质量可以
+
+*****
+
+####  nxmonitor  
+##### 14615#       发表于 2026-9-23 17:29
+
+<blockquote>moekyo 发表于 2026-9-23 17:27
+慢倒是能接受，反正我几个一起跑的，都在挂着跑的，只要质量可以</blockquote>
+信不信比原来差？
+

@@ -5194,3 +5194,21 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 第2部有点像传统火纹 一路打打打<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 4921#       发表于 2026-9-23 17:26
+
+黑皮多我觉得不是什么问题，但是这个室内打光很多人都变成那种人不人鬼不鬼的灰皮真的很难看
+
+
+*****
+
+####  Bani82  
+##### 4922#       发表于 2026-9-23 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276560&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-9-23 17:18</a>
+重复的支线任务可以自动过，开头会直接结算，但名声不会保留。第二部4人内容应该大致相同，但小地方有差 ...</blockquote>
+直接按跳过是指剧情，探索和主要战斗还是要打四遍是吧
+
