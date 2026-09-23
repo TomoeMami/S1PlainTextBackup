@@ -14958,3 +14958,18 @@ Opus 4.6 是今年2月的模型....
 
 好快
 
+
+*****
+
+####  drodchang  
+##### 14524#       发表于 2026-9-23 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273855&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-9-23 08:30</a>
+
+只看api价格的话
+
+luna降价一半还是没有ds4.1f的谷价便宜 那个是差不多0.08-0.1/m
+
+5.6luna差不多是0.25</blockquote>
+sol也降价一半，性价比还是提升的，luna也不能api价格，实际上luna在plus都可以无限用了。
+
