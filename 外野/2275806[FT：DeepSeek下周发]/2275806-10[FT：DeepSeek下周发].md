@@ -15734,3 +15734,42 @@ Service is too busy. We advise users to temporarily switch to alternative LLM AP
 
 怪不得价格下降了，智力下降，但是作为干活模型的性价比提高了
 
+
+*****
+
+####  tillnight  
+##### 14592#       发表于 2026-9-23 15:58
+
+Minimax新旗舰9月底-10月（信源官方财报电话会），Glm5.5最迟10月底（信源两个月前财报电话会就已经透露），kimi3.1月底（kimi特色土味泄露式营销已确定，方式类似k3当时在7月初就被传锁定7月底发布），Qwen正代旗舰按往年惯例是昨天的年度云栖大会（确实已发布coming soon，只是不可抗力暂时不能这几天上线）。广义速败论的一个特点是先定结论，再找论据，连国模消息不透明都能扯，两边不都是提前一个月左右通过各种途径营销造势吗（ds例外），已经上市的更是会在财报里预告的。
+
+*****
+
+####  很久就在那边l  
+##### 14593#       发表于 2026-9-23 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276123&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-9-23 15:53</a>
+所以说性能没有提升反而下降了？</blockquote>
+果然就是个6风味的5.6terra
+
+*****
+
+####  小野賢章  
+##### 14594#       发表于 2026-9-23 16:00
+
+<img src="https://img.stage1st.com/forum/202609/23/160016wavarcv4h40q3vrr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (180.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 16:00 上传
+
+*****
+
+####  木谷高明  
+##### 14595#       发表于 2026-9-23 16:02
+
+https://bughunt.productcompass.pm/?preset=featured
+
+群里看到的，就算是同家高低档模型，不同思考强度，跑完整个任务，也不是高档的就一定好
+
