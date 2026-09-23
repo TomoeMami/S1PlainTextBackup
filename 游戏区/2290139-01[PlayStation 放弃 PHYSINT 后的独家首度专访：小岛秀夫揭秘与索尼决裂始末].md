@@ -1763,3 +1763,14 @@ MGS5生存跟DS估计最早就是一起策划的
 
 结论是索尼把新建文件夹扔给巨硬了？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼热的小市民  
+##### 144#       发表于 2026-9-24 02:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274018&amp;ptid=2290139" target="_blank">ppa11 发表于 2026-9-23 09:10</a>
+这不就是结果？
+我们的太阳出了这么多部有多少人知道中村？只有小子吹小岛超绝创意的时候才会连带着吹一 ...</blockquote>
+我们的太阳不是小岛做的？有信源吗？玩过感觉小岛味挺浓的
+
