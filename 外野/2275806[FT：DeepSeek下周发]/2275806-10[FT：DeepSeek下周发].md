@@ -16649,3 +16649,17 @@ dsh这几个版本优化了工具调用的，之前的工具调用频繁还没�
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qz66618  
+##### 14672#       发表于 2026-9-24 01:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278396&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-24 01:12</a>
+把自己的插件修好了，但这dsh 0.1.7的插件设置面板跑哪去了
+
+—— 来自 Xiaomi 25060RK16C, Android 16, 鹅 ...</blockquote>
+在左边会话栏的上面，有个ds官方插件管理
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
