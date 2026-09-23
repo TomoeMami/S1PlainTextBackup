@@ -1774,3 +1774,24 @@ MGS5生存跟DS估计最早就是一起策划的
 我们的太阳出了这么多部有多少人知道中村？只有小子吹小岛超绝创意的时候才会连带着吹一 ...</blockquote>
 我们的太阳不是小岛做的？有信源吗？玩过感觉小岛味挺浓的
 
+
+*****
+
+####  穿越护城河  
+##### 145#       发表于 2026-9-24 03:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274018&amp;ptid=2290139" target="_blank">ppa11 发表于 2026-9-23 09:10</a>
+
+这不就是结果？
+
+我们的太阳出了这么多部有多少人知道中村？只有小子吹小岛超绝创意的时候才会连带着吹一 ...</blockquote>
+中村如哉吧，但我们的太阳的确是小岛了解到玩具部门在出感应式健康设备后鬼脑发动的产物，因为知道本社在做口臭传感器和湿度传感器相关的玩具，他就问有没有太阳传感器的，答曰有（也就是UV teddy），这也是为什么我们的太阳有圣水杀吸血鬼或者大蒜杀吸血鬼
+
+<img src="https://img.stage1st.com/forum/202609/24/033739txtx779btxjbhm7o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (393.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 03:37 上传
+
