@@ -16678,3 +16678,15 @@ dsh这几个版本优化了工具调用的，之前的工具调用频繁还没�
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  bixinhaner  
+##### 14674#       发表于 2026-9-24 01:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277940&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-23 22:52</a>
+完全不够. 最近O畜太拉了. 额度太低了.
+
+建议开Claude opus5.5 high 我今天蹬了差不多1.5E 也没事. ...</blockquote>
+多少刀的套餐？1.5亿是opus5.5吗
+

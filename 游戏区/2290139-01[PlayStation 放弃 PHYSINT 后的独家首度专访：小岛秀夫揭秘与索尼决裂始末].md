@@ -1755,3 +1755,11 @@ DS算是让旋转轮胎和太空工程师玩家狂喜，科幻送货题材终于
 
 MGS5生存跟DS估计最早就是一起策划的
 
+
+*****
+
+####  liuguokobe  
+##### 143#       发表于 2026-9-24 01:49
+
+结论是索尼把新建文件夹扔给巨硬了？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
