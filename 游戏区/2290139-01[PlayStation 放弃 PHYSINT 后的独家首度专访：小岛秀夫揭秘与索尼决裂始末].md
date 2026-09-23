@@ -1661,3 +1661,15 @@ KONAMI时期把研发逐步发给欧美开发工作室就是他整的。恶魔�
 
 —— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  御坂铃兰  
+##### 136#         楼主| 发表于 2026-9-23 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70273778&amp;ptid=2290139" target="_blank">穿越护城河 发表于 2026-9-23 07:58</a>
+
+什么叫冈村宪明保不住
+
+还不是冈村提议自己拿宇宙骑警PS版引擎去做心跳AVG 之后，就给小岛有意安排放到造血 ...</blockquote><blockquote>什么叫冈村宪明保不住</blockquote><img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 这有什么问题，保不住冈村宪明指的是他作为导演开发《ZOE 1》期间因为态度问题被员工集体举报，下属觉得冈村态度不好而且过于严格，要求《ZOE 2》换人换导演。这事闹到了时任 KCEJ 社长吉冈基行那，于是他同意了下令把他从 KJP 所在惠比寿流放到了 KCEJ 新宿分部。小岛和冈村私交是很好的，冈村从参加工作以来就一直在小岛的手下工作，是小岛组的绝对核心骨干和左膀右臂，小岛当然也想保住他手下的其他导演，所以和吉冈基行明确提出了反对意见。但当时社长觉得开发动画改编游戏的 KCEJ 新宿分部当时需要一名制作人，小岛作为副社长根本反驳不了来自社长的命令，所以冈村只能走人，而原本冈村自己的计划是准备继续开发 ZOE 的续作的，这段流放对他来说就黑暗历史。1996 年到 2004 期间小岛组隶属 KCEJ，直到 2003 年 7 月 KCEJ 的惠比寿和新宿部门在六本木区合并，他才又回到了小岛组。
+

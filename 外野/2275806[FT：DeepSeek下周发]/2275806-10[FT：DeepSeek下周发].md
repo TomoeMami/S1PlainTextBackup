@@ -15296,3 +15296,28 @@ Opus 4.6 是今年2月的模型....
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 14553#       发表于 2026-9-23 12:12
+
+主要是fable之后大家开始卷oneshot，实际上专门针对后其实没啥意义，我桥接一个建模专用模型，直接吊打现在的通用顶模
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  七氷  
+##### 14554#       发表于 2026-9-23 12:15
+
+试了下pi-web，pi-web-ui，不趁手啊，得鼠标点点点，我用yazi早跳到工作目录打开tui了，web还是不适合我<[img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  omnitoken  
+##### 14555#       发表于 2026-9-23 12:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 在S1发帖说oneshot评测意义不大， 还被一堆人说不是的blahblah
+
