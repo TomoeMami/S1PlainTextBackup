@@ -15912,3 +15912,44 @@ luna加思考预算限制了，难一点的内容思考不完就被截断导致�
 比起deepseek我更期待qwen，代码能力4.1对我完全够用了，现在需要的是干活说人话的模型，比如qwen3.8f ...</blockquote>
 我是直接和ds说“请讲大白话”，效果挺好的
 
+
+*****
+
+####  hugosol  
+##### 14610#       发表于 2026-9-23 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276440&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-23 16:56</a>
+
+因为思考强度是在系统提示词里面的，改了肯定整个前缀都不对了啊
+
+能够更改思考强度不掉缓存的只有DSH+DS4 ...</blockquote>
+一般思考强度都是单独参数呀，不会塞到system_prompt里的
+[https://api-docs.deepseek.com/zh-cn/](https://api-docs.deepseek.com/zh-cn/) curl https://api.deepseek.com/chat/completions \   -H "Content-Type: application/json" \   -H "Authorization: Bearer ${DEEPSEEK_API_KEY}" \   -d '{         "model": "deepseek-flash",         "messages": [           {"role": "system", "content": "You are a helpful assistant."},           {"role": "user", "content": "Hello!"}         ],         "thinking": {"type": "enabled"},         "reasoning_effort": "high",         "stream": false       }'复制代码
+不过我也不知道是不是transformer架构里这玩意改了就要整块重算，可能DS的KV Cache方案优化过这一块之类的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  knnknn  
+##### 14611#       发表于 2026-9-23 17:20
+
+workbuddy的软件设计太神秘了，回复中强行跳到最后看他不怎么想给你看思考过程，我想看之前回复的信息都看不到
+
+也没有个fork，就算不在回复也会跳bug弹到最后。神秘产品力。
+
+*****
+
+####  lly778  
+##### 14612#       发表于 2026-9-23 17:21
+
+luna比原来还蠢？真的假的？
+
+
+*****
+
+####  德尔惠净水器  
+##### 14613#       发表于 2026-9-23 17:24
+
+<blockquote>lly778 发表于 2026-9-23 17:21
+luna比原来还蠢？真的假的？</blockquote>
+真的，虽然便宜了很多
+

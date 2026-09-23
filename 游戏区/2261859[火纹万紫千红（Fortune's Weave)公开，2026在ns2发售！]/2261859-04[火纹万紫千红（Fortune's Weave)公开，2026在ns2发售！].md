@@ -5151,3 +5151,46 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 主要是engage全是大地图跑酷吓得我都准备一开始就朝飞天和骑兵训练去了
 
+
+*****
+
+####  Jabeck  
+##### 4918#       发表于 2026-9-23 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276497&amp;ptid=2261859" target="_blank">Bani82 发表于 2026-9-23 17:06</a>
+
+4条线的钱、装备、坐骑最后会合并么？
+
+一个主句通关后重复的支线任务可以自动过，那名声值保留么？
+
+第二部4 ...</blockquote>
+重复的支线任务可以自动过，开头会直接结算，但名声不会保留。第二部4人内容应该大致相同，但小地方有差异，打过一次后面都可以直接按跳过了。
+
+*****
+
+####  Jabeck  
+##### 4919#       发表于 2026-9-23 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276539&amp;ptid=2261859" target="_blank">虚无缥缈的分身 发表于 2026-9-23 17:15</a>
+
+这一作好像都是小地图，是不是不用追求上天和上马了来拉满移动力了？转成步兵会好点吗
+
+主要是engage全是大 ...</blockquote>
+看情况吧，第二部好几个地图有飞兵会舒服些。第二部大概可以出动12个人加两个NPC，飞兵能在没法站立的地形待机伺机突袭，队伍站位会更舒适。
+
+*****
+
+####  纯夏  
+##### 4920#       发表于 2026-9-23 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276278&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-23 16:22</a>
+
+第二部不能抓坐骑那稀有龙如何捕获？玩凯伊线的时候整个西部都没开放，是我错过任务了？ ...</blockquote>
+稀有坐骑第1部就能抓全了
+
+记得把第7章车队老板的支线任务做了 解锁车站 能跑更多的地方
+
+不过凯伊线并不需要去沙漠
+
+第2部有点像传统火纹 一路打打打<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
