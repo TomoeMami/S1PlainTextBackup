@@ -16562,3 +16562,13 @@ dsh更新0.1.7版本了，感觉当前官方版本已经可以直接用了，基
 建议开Claude opus5.5 high 我今天蹬了差不多1.5E 也没事. ...</blockquote>
 Claude好像非常麻烦，还是不搞了，先看看别的吧
 
+
+*****
+
+####  qz66618  
+##### 14665#       发表于 2026-9-24 00:07
+
+我更新了一下，最新版本确实相较于我上一个版本好了太多，有一些辅助型插件可以扔掉了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
