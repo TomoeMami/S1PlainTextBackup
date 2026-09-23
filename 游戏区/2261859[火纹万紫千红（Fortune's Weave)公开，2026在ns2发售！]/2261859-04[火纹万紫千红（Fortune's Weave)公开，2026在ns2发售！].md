@@ -5608,3 +5608,32 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 神仙加护先刷出哪个比较好？这玩意打不同线时会继承吗？</blockquote>
 卡拉一级直接全体增加50闪避，哪怕BOSS都很难打中人。
 
+
+*****
+
+####  白昼梦DD  
+##### 4957#       发表于 2026-9-23 22:05
+
+战神+5力量和击杀回血这代里算挺好用的
+
+*****
+
+####  无知的小鼠人  
+##### 4958#       发表于 2026-9-23 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276947&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-9-23 18:37</a>
+
+凯伊喜欢吃，但是他妈的神殿都没供奉加成，带孝子了</blockquote>
+哪家小孩会喜欢给自己老妈打扫卫生，不是 debuff 都是孝顺了
+
+
+*****
+
+####  中野梓  
+##### 4959#       发表于 2026-9-23 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277431&amp;ptid=2261859" target="_blank">Bani82 发表于 2026-9-23 20:45</a>
+
+再降临是整个序章要重新打么？</blockquote>
+是的  要重新打到方尖碑大厅
+

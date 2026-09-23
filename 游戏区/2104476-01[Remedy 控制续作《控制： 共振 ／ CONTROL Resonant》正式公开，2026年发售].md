@@ -1280,3 +1280,11 @@ MC现在下到83了
 
 云了一下，感觉翻译有点一般，导致台词味道怪怪的，继而配音也很难绷<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yygundam  
+##### 131#       发表于 2026-9-23 22:07
+
+control 1的翻译就不太行，而且还经常有字幕的轴打错。
+
