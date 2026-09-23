@@ -15505,3 +15505,28 @@ glm这种见风使舵发模型的还是有道理的
 
 从时间上看V4pro大概率练到一半就放弃了，4.1的架构比4优秀很多，现在就看Pro的基模能不能拉开差距了
 
+
+*****
+
+####  经验值UP  
+##### 14572#       发表于 2026-9-23 14:49
+
+大的要来了吗。
+
+*****
+
+####  小野賢章  
+##### 14573#       发表于 2026-9-23 14:50
+
+three.js的鹈鹕都可以，那视频的鹈鹕也可以，豆包的oneshot<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/23/145025e1z4bsm1b4mio5bz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-23 14:50 上传
+
+[https://x.com/Lcxxx_Lee/status/2102449281663738286](https://x.com/Lcxxx_Lee/status/2102449281663738286)
+
