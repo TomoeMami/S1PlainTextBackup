@@ -16267,3 +16267,23 @@ kimi 是完全不鸟 skill 那些确认，雷霆大思考出活，质量确实�
 翻译就用本地模型呗。入间人间太坏了，玩得越来越刺激，ai都接受不了了</blockquote>
 他哪部作品这么扭曲？
 
+
+*****
+
+####  med  
+##### 14638#       发表于 2026-9-23 19:27
+
+<blockquote>kiddolck 发表于 2026-9-23 19:09
+今天用 ppt master 做 ppt，因为公司只有 workbuddy，再次尝试 ds4.1f 和 kimi 2.8 preview，提纲布局我都 ...</blockquote>
+我试过学术ppt，最好的是k3，5.6sol的审美也很一般，astra才大进步
+
+
+*****
+
+####  蜇灵  
+##### 14639#       发表于 2026-9-23 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277102&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-23 19:22</a>
+他哪部作品这么扭曲？</blockquote>
+最新那个，人妻和初中生
+

@@ -137,3 +137,13 @@ v的msv就是一堆钢伊吉变种和杰维林变种，没什么意思。
 
 我暴论一个，V2ab是蓝鸡<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arthes  
+##### 4723#       发表于 2026-9-23 19:30
+
+限定强度的话其实蓝机也没啥所谓，OOR不也挺强吗
+
+不过这次卡池挺良心的PT通用，我有机会补一个海牛了
+
