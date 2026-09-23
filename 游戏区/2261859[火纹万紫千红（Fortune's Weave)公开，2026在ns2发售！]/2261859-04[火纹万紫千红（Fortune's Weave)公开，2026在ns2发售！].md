@@ -5926,3 +5926,26 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 问下，咒怨力怎么算？
 
+
+*****
+
+####  Bani82  
+##### 4986#       发表于 2026-9-24 03:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278231&amp;ptid=2261859" target="_blank">铁拳圣裁 发表于 2026-9-24 00:08</a>
+
+就不让拿吧，本身也只有蕾达能转舞娘吧
+
+——来自 PKR110 上的 S1er 客户端</blockquote>
+是那个证解锁舞娘吧？我看其他人也有舞娘的模型，应该是可以转的吧
+
+*****
+
+####  Bani82  
+##### 4987#       发表于 2026-9-24 03:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278529&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-24 02:48</a>
+
+问下，咒怨力怎么算？</blockquote>
+看咒怨武器有个咒力，攻击一次涨对应的咒力
+
