@@ -5331,3 +5331,16 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 2026-9-23 18:22 上传
 
+
+*****
+
+####  新HGCG  
+##### 4932#       发表于 2026-9-23 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276790&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-23 18:01</a>
+
+第3部第2区分 给36回合自由行动的时候就可以接了</blockquote>
+没找到人啊
+
+你通的是什么线？
+

@@ -16119,3 +16119,42 @@ https://huggingface.co/deepseek-ai/DeepSeek-V4-Flash-0731/blob/main/encoding/REA
 
 另外gpt6改成把思考强度附加在对话的最后传入了，改思考强度掉缓存可能也是codex的bug吧
 
+
+*****
+
+####  舞以  
+##### 14626#       发表于 2026-9-23 18:30
+
+ 本帖最后由 舞以 于 2026-9-23 18:31 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">思考强度实际生效是靠在提示最开始的一个关键词啊，这都是老生常谈了。不然你后训练怎么做？大模型本身只看得懂文本。
+
+思考强度之前的做法是做几套后训练，然后压到一起，靠关键词启动不同的推理模式。
+
+df41是在开头引入自然数，来结合奖惩（我记得是超长惩罚根据数值指数衰减），让模型在后训练中学会根据这个自然数来改变推理的模式。
+
+*****
+
+####  hugosol  
+##### 14627#       发表于 2026-9-23 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276888&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-23 18:23</a>
+
+https://huggingface.co/deepseek-ai/DeepSeek-V4-Flash-0731/blob/main/encoding/README.md
+
+另外gpt6改 ...</blockquote>
+草，让agent搜了下找到了
+
+原来思考强度也这么草台，我还一直以为是有逻辑的参数，原来就一段提示词么<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 14628#       发表于 2026-9-23 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276924&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-23 18:30</a>
+草，让agent搜了下找到了
+
+原来思考强度也这么草台，我还一直以为是有逻辑的参数，原来就一段提示词么 ...</blockquote>
+但是这玩意还真的非常关键，我最近在折腾本地部署，发现极致量化的情况下，作者以xhigh强度校准尽可能保持智力，就会导致medium变成流口水的傻子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
