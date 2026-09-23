@@ -16229,3 +16229,31 @@ DSec 这篇论文介绍的是 DeepSeek 为大规模 Agent 训练和评测建设�
 应该怎么说呢</blockquote>
 翻译就用本地模型呗。入间人间太坏了，玩得越来越刺激，ai都接受不了了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kiddolck  
+##### 14635#       发表于 2026-9-23 19:09
+
+今天用 ppt master 做 ppt，因为公司只有 workbuddy，再次尝试 ds4.1f 和 kimi 2.8 preview，提纲布局我都提前写好了
+
+就，ds4.1f 视觉真的一坨，我有预先设置好的模版，完全…不照着搞，skill 倒是正常遵从
+
+kimi 是完全不鸟 skill 那些确认，雷霆大思考出活，质量确实不错
+
+对比 credits 一个 150 一个 530…150 那个是完全浪费了不过
+
+评价是都不如 5.6 Sol…可惜公司没有
+
+
+*****
+
+####  蜇灵  
+##### 14636#       发表于 2026-9-23 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70274782&amp;ptid=2275806" target="_blank">fzlong 发表于 2026-9-23 11:11</a>
+让翻译入间人间新作gpt和deepseek都不肯干
+
+应该怎么说呢</blockquote>
+那啥部分单独想办法，毕竟是初中生，模型天然排斥，不过日常部分应该不会拒绝翻译吧
+
