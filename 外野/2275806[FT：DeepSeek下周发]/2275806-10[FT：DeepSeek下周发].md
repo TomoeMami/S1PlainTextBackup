@@ -17387,3 +17387,23 @@ Dsh桌面版好像要出来了，官网有下载链接了
 
 [https://download.deepseek.com/ds ... 60924.1-win-x64.exe](https://download.deepseek.com/dsh-desk/bin/win-x64/deepseek-harness-0.1.7-rc.1.20260924.1-win-x64.exe)
 
+
+*****
+
+####  自由之紫roy  
+##### 14738#       发表于 2026-9-24 20:19
+
+mimo 2.6pro到底强吗？
+
+*****
+
+####  moekyo  
+##### 14739#       发表于 2026-9-24 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282423&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-24 19:43</a>
+
+但是你现在就可以5080运行27b啊我都用5070ti爽玩一个月了
+
+这个月出了一个很高质量的量化，16G显卡完全可以 ...</blockquote>
+哪个，可以说说吗
+
