@@ -17352,3 +17352,13 @@ Dsh桌面版好像要出来了，官网有下载链接了
 硬盘顶不住读写的…</blockquote>
 都是只读查表，没啥写入
 
+
+*****
+
+####  overflowal  
+##### 14735#       发表于 2026-9-24 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281787&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-24 17:21</a>
+看到一个很关键的消息，说DS内部存在能在游戏显卡上跑的模型，不知道是16G还是24G可以… ...</blockquote>
+我感觉他们的意思是游戏显卡可以用来推理。。不是说有个模型有游戏卡的内存那么大    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
