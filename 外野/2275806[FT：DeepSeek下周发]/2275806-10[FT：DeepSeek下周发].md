@@ -16884,3 +16884,42 @@ ds的桌面端社区版本都有不同，沙盒回滚的2.0.13体验比较好。
 
 还有代码版dsh我昨天晚上用git拉能构建4个版本，社区桌面版支持度不够别乱升级。
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 14692#       发表于 2026-9-24 11:46
+
+ds的桌面端社区版本都有不同，沙盒回滚的2.0.13体验比较好。有个0.9的维护版本搜索引擎权重比其他的高容易下错，数据记录也不是引用官方目录还是另开目录的，回迁都麻烦。
+
+还有代码版dsh我昨天晚上用git拉能构建4个版本，社区桌面版支持度不够别乱升级。
+
+*****
+
+####  巨魔已被忠诚  
+##### 14693#       发表于 2026-9-24 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279933&amp;ptid=2275806" target="_blank">kingtigerc 发表于 2026-9-24 11:29</a>
+dsh不会自动升级，强制升级到0.1.7rc插件市场崩了，怎么整</blockquote>
+dsh奔溃最大的就是侧边栏的那个需要通过dsh执行会话去安装（妈的好几次才定位到），干脆别装，直接备份插件json还原100%失败无法启动。
+
+*****
+
+####  astrayveller  
+##### 14694#       发表于 2026-9-24 11:52
+
+现在dsh有啥操作office好用的插件么
+
+— from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  marrrk  
+##### 14695#       发表于 2026-9-24 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279849&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-9-24 11:16</a>
+
+Credits消耗纯黑箱模型抵扣系数是没有的，用量统计和查看也没有，而且没有登录状态保留，过几个小时查看 ...</blockquote>
+方舟 Agent Plan ， 邀请码来一个，刚好准备充个 agent plan
+
