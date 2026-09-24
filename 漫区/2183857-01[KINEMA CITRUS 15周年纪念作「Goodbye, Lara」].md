@@ -2532,3 +2532,21 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 [https://x.com/nitalPuarF192/status/2102369359259996583](https://x.com/nitalPuarF192/status/2102369359259996583)
 <img src="https://p.sda1.dev/35/0213c98481e771628d7750f229a34d57/HS0dycOboAAdx79.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 616#         楼主| 发表于 2026-9-24 22:23
+
+『さよならララ』の誕生秘話と知られざる演出意図　クリエイティブPが明かす作品への情熱
+[https://realsound.jp/movie/2026/09/post-2531497.html](https://realsound.jp/movie/2026/09/post-2531497.html)
+
+<img src="https://p.sda1.dev/35/62020282c9775e797c6961b105c3ebb8/20260921-sayorara-12.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/ee7cdc623d6fc271e8167287e85fb8d1/20260921-sayorara-13.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/4b3402e7bac3fe7dcfcbeeaff7e66785/20260921-sayorara-14.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/a3e8e62277db31620a1ca315efa18fd1/20260921-sayorara-15.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/7988db517a7a71cbd40d507280ae2eda/20260921-sayorara-16.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/8ccbf0ff869d86fcb2b2b34790b705d5/20260921-sayorara-17.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/c9d99fbaa78168c7c8b62adc46ce2936/20260921-sayorara-18.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/5ced97ebb472ccde211a7d0ec8ab1009/20260921-sayorara-19.jpg" referrerpolicy="no-referrer">
+
