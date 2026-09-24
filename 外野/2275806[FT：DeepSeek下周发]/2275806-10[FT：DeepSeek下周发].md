@@ -17866,3 +17866,324 @@ waybill-index.html
 
 89.68 KB, 下载次数: 1
 
+
+*****
+
+####  crow_wine  
+##### 14765#       发表于 2026-9-24 23:47
+
+这年头还有吹glm 5.3 flash，luna flash说 ds 没有性价比的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+40tps都难稳定的flash还好意思叫自己flash，建议改名叫cheap <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  needagf  
+##### 14766#       发表于 2026-9-24 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283410&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-9-24 23:14</a>
+
+https://download.deepseek.com/dsh-desk/bin/mac-arm64/deepseek-harness-0.1.7-rc.1.20260924.1-mac-ar ...</blockquote>
+多谢，我这翻了半天没找到。。。
+
+*****
+
+####  qz66618  
+##### 14767#       发表于 2026-9-24 23:59
+
+dsh更新0.1.7-rc2了，目前桌面端好像可以自动更新了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  贝恩德塔  
+##### 14768#       发表于 2026-9-25 00:07
+
+ 本帖最后由 贝恩德塔 于 2026-9-25 00:16 编辑 
+
+**做了个 DeepSeek Harness 的 Windows 伴航工具，开源免费**
+
+不想每次都敲命令启动模型、手动配置 API，于是做了这个。
+
+<img src="https://img.stage1st.com/forum/202609/25/000640a1uboa97j7cb7ta7.png" referrerpolicy="no-referrer">
+
+<strong>app-preview.png</strong> (66.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 00:06 上传
+
+主要能做这些：
+
+- 一键启动本地模型并接入 Harness
+
+- 管理 Harness 的本地、云端 API 提供方
+
+- 模型试聊、参数预设、一键导入导出
+
+- 提供4个 16GB 显存的 Qwen 配置参考方案，n卡16g显存应该是通用的，包含破限模型的已经本地验证过能行得通的配置方案，模型自行从 Hugging Face 下载
+
+Windows 原生界面，MIT 开源，**v0.1.0 已提供安装包**。这是独立社区项目，欢迎试用和反馈，点个小星星也行。
+
+👉 [下载与源码]([https://github.com/toydream525/deepseek-harness-companion](https://github.com/toydream525/deepseek-harness-companion))  
+
+👉 [项目介绍]([https://yuriaqua.com/harness/](https://yuriaqua.com/harness/))
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ jonarryn + 1好评加鹅
+
+查看全部评分
+
+*****
+
+####  qwased  
+##### 14769#       发表于 2026-9-25 00:16
+
+说起来DSH其实不太适合上下文预算很紧张的本地模型，标准模式第一句话就灌差不多20K上下文，极简又只有bash
+
+pi这种只要4K左右的就舒服很多了
+
+*****
+
+####  贝恩德塔  
+##### 14770#       发表于 2026-9-25 00:19
+
+ 本帖最后由 贝恩德塔 于 2026-9-25 00:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283610&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-25 00:16</a>
+
+说起来DSH其实不太适合上下文预算很紧张的本地模型，标准模式第一句话就灌差不多20K上下文，极简又只有bash ...</blockquote>
+那当个本地模型配置器也行，起码比单纯用llama.cpp好用点（自我感觉），链接dsh只是顺带的
+
+*****
+
+####  洛拉斯  
+##### 14771#       发表于 2026-9-25 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283610&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-25 00:16</a>
+说起来DSH其实不太适合上下文预算很紧张的本地模型，标准模式第一句话就灌差不多20K上下文，极简又只有bash ...</blockquote>
+你让老师自己调用本地模型就是，我现在12g的4070，d老师给我安装了一个bonsai27b，优化了下配置，上下文128k，速度45t/s
+
+现在让d老师写提纲，本地模型扩写测试下
+
+*****
+
+####  相见恨晚  
+##### 14772#       发表于 2026-9-25 00:48
+
+<blockquote>M乔梦 发表于 2026-9-24 20:01
+官方的桌面端
+
+</blockquote>
+话说下载后登录了，在选模型的时候有个DeepSeek账号和DeepSeek，是啥区别呢
+
+*****
+
+####  tonyunreal  
+##### 14773#       发表于 2026-9-25 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283536&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-9-24 23:47</a>
+这年头还有吹glm 5.3 flash，luna flash说 ds 没有性价比的
+40tps都难稳定的flash还好意思叫自己flash，建 ...</blockquote>
+mimo 2.6也从上线时的150 tok/s下降到现在不到50了
+真是只有梁子是实在人
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  M乔梦  
+##### 14774#       发表于 2026-9-25 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283696&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-9-25 00:48</a>
+
+话说下载后登录了，在选模型的时候有个DeepSeek账号和DeepSeek，是啥区别呢</blockquote>
+一样的，一个是用账号调用特殊api，一个是调用你自己创建的官方api。你可以去开放平台那里看一下，账号登录本质是官方给你创建了一个特殊的api
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 相见恨晚 + 1
+
+查看全部评分
+
+*****
+
+####  mintslime  
+##### 14775#       发表于 2026-9-25 04:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282024&amp;ptid=2275806" target="_blank">天堂懵懂人 发表于 2026-9-24 18:10</a>
+
+用豆包部署的DSH，自己上DS官网买的API
+
+大概是因为要求是让它找到对应单号所在的照片吧，不光是把照片提 ...</blockquote>
+dsh真的不行（
+
+但是你的要求也确实可以优化，我的感觉是最好做成一个html，使用时拖入或者选取对应的照片文件夹
+
+实验了一下，这个是我整理了你的需求后喂给Opus的需求prompt <blockquote>我们这边做快递的，客户最近退货单他们自己打印在纸上，遇到有纠纷的单号我们需要从退货单上找单号核对，不给我们电子文档,要求是让找到对应单号所在的照片。这个照片collection可能会被多次重复使用，可能有多个照片collection，我们可能会往照片collection里加入新图。我们会使用视觉模型来从退货单里提取对应信息，会提供对应的base url和api key。 我目前的想法是写一个单页的html文件（这样简洁并且随处可用），用户可以选取或者拖入整个图片文件夹，然后它会在文件夹内生成对应的db文件（或者找到已生成的），将每张图片和退货单号一一对应，然后有一个单号输入区域（并且支持一定的模糊match，所以比如说用户输入单号后六位就只有一个match），你觉得如何，还有什么可以做得更精简或者需要补充的，帮我一并整理并写成一条会被丢给Deepseek生成对应的文件的prompt。</blockquote>
+然后Opus生成了以下prompt，耗资0.15刀，然后我看都没看直接把这个prompt丢进了pi <blockquote>请帮我编写一个【单文件 HTML 应用】（HTML + CSS + 原生 JavaScript 全部写在一个 .html 文件中，不依赖任何 CDN、框架或构建工具，双击即可在 Chrome/Edge 中打开使用）。
+
+## 业务背景
+
+我们是快递公司。客户把退货单打印在纸上并拍照给我们，照片按文件夹存放（称为"图片集合"）。出现纠纷时，我们需要根据快递单号快速找到它所在的照片。一个图片集合会被反复使用，并且会不断往里面加新照片；我们可能有多个图片集合。单号信息由一个兼容 OpenAI 接口的视觉大模型从照片中提取。
+
+## 核心功能
+
+### 1. 设置
+
+- 可配置：API Base URL（例如 https://xxx/v1）、API Key、模型名、并发数（默认 3）、图片压缩长边像素（默认 2000）。
+
+- 提供"记住 API Key"复选框：勾选时保存在 localStorage，不勾选则只保存在内存中。
+
+- 提供"测试连接"按钮。如果请求失败，需要区分并提示以下几种情况：CORS 跨域被拦截（提示需要使用支持跨域的接口或加一层代理）、401 鉴权失败、网络错误。
+
+- 发给视觉模型的提取指令（system prompt）可以在界面上编辑，并提供一个默认值（见下文）。
+
+### 2. 打开图片集合
+
+- 优先使用 File System Access API：
+
+  - "选择文件夹"按钮使用 window.showDirectoryPicker({mode:'readwrite'})；
+
+  - 同时支持把文件夹拖入页面，通过 DataTransferItem.getAsFileSystemHandle() 获取目录句柄。
+
+- 递归扫描子文件夹，识别 jpg/jpeg/png/webp/bmp 格式的图片；遇到 heic/heif 文件时提示"浏览器不支持此格式，请转换为 JPG"并跳过。
+
+- 在该文件夹根目录读取或创建索引文件 `.waybill-index.json`。
+
+- 用 IndexedDB 保存最近打开过的目录句柄，形成"最近集合"列表，点击即可重新打开（需要时重新申请读写权限）。
+
+- 支持同时加载多个集合，搜索时跨集合查找，搜索结果中注明来自哪个集合。
+
+- 降级方案：如果浏览器不支持 showDirectoryPicker（Firefox/Safari），改用 &lt;input type="file" webkitdirectory&gt; 只读导入，处理完成后提供"下载索引文件"按钮，并提示用户手动把它放回该文件夹；下次导入时，如果在文件列表中找到 .waybill-index.json，就直接读取。
+
+### 3. 索引文件结构（JSON）
+
+{
+
+  "version": 1,
+
+  "updatedAt": "ISO时间",
+
+  "model": "所用模型名",
+
+  "items": {
+
+    "相对路径/xxx.jpg": {
+
+      "size": 123456,
+
+      "lastModified": 1700000000000,
+
+|      "status": "ok" | "failed" | "empty",|
+|      "numbers": [ { "value": "原始识别值", "norm": "归一化值", "type": "tracking|return|order|other", "label": "单据上该编号旁边的文字标签" } ],|
+
+      "manual": false,
+
+      "error": "失败原因",
+
+      "processedAt": "ISO时间"
+
+    }
+
+  }
+
+}
+
+- 增量处理：只处理新增的文件，以及 size 或 lastModified 发生变化的文件。已从文件夹中删除的文件，在索引中标记为"缺失"，不要直接删除它的记录。
+
+- manual 为 true 的条目（人工修正过）永远不会被自动识别结果覆盖。
+
+- 每处理完 10 张图片，以及全部完成或用户暂停时，都要写回一次索引文件，保证中途关闭页面也不丢失进度。
+
+### 4. 识别流程
+
+- 在浏览器中用 createImageBitmap(file, {imageOrientation:'from-image'}) 读取图片，确保按 EXIF 方向转正；再用 canvas 按设置的长边像素等比缩放，导出为质量 0.85 的 JPEG base64。
+
+- 调用 POST {baseUrl}/chat/completions，messages 中包含 system 提示词，以及带 image_url（data URL 格式）的 user 消息；temperature 设为 0。
+
+- 默认的 system 提示词：
+
+|  "你是快递退货单信息提取器。请识别图片中所有退货单/快递面单上的编号，包括快递单号、退货单号、订单号。图中可能有多张单据。只输出 JSON，不要任何解释，格式：{"numbers":[{"value":"编号原文","type":"tracking|return|order|other","label":"编号旁的文字标签"}]}。若没有任何编号，输出 {"numbers":[]}。不要猜测看不清的字符。"|
+
+- 解析模型输出时要容错：先去掉 ```json 这类代码块标记，再截取第一个 { 到最后一个 } 之间的内容，然后用 JSON.parse 解析。
+
+- 按设置的并发数并行处理。遇到 429 或 5xx 错误时，用指数退避重试，最多 3 次。
+
+- 界面显示：总进度条、已完成/失败/无结果的数量、当前正在处理的文件名；提供"暂停/继续"按钮。
+
+- 提供"重试失败项"和"重新识别所选图片"两个按钮。
+
+### 5. 单号归一化与模糊搜索
+
+- 归一化函数 norm()：转成大写；去掉空格、横线、下划线、点号等非字母数字字符；把易混淆的字符统一映射为 O→0、I→1、L→1、S→5、B→8、Z→2。查询词和索引中的编号都使用同一个 norm()。
+
+- 搜索规则（输入时实时搜索，加 200ms 防抖），按以下优先级排序：
+
+  1. 完全相等
+
+  2. 后缀匹配（例如用户输入单号的后六位）
+
+  3. 包含匹配
+
+  4. 当查询长度 ≥ 8 且以上都没有结果时，做编辑距离 ≤ 1 的近似匹配，并在结果中标注"近似"
+
+- 结果列表：每一条显示缩略图、匹配到的单号（高亮匹配部分）、编号类型、文件相对路径、所属集合。只有唯一结果时，自动展开大图。
+
+- 查询框上方显示结果数量；没有结果时，提示用户检查"失败/无结果"列表中的图片。
+
+### 6. 查看与人工修正
+
+- 点击结果打开大图查看器：支持滚轮缩放、拖拽平移、旋转，并显示文件路径（带复制按钮）。
+
+- 在大图旁边显示这张图片识别到的所有编号，可以编辑、删除、新增。保存后把该条目标记为 manual:true，并立即写回索引文件。
+
+- 提供"浏览全部"视图：可按状态（成功/失败/无结果/人工修正/缺失）筛选图片，方便集中处理问题图片。
+
+### 7. 导出
+
+- 可把当前集合的索引导出为 CSV（列：文件路径、编号、类型、标签、状态、是否人工修正），导出时文件开头加上 UTF-8 BOM，保证 Excel 打开中文不乱码。
+
+## 界面与代码要求
+
+- 界面全部为中文，简洁实用，布局为：左侧是集合与设置，中间是搜索框和结果，右侧或弹窗是大图查看。
+
+- 缩略图用 URL.createObjectURL 生成，不再使用时及时 revoke，避免数千张图片撑爆内存；结果列表里的图片使用懒加载。
+
+- 代码结构清晰，把以下功能分别封装成函数：文件系统、索引读写、图片压缩、模型调用、归一化与搜索、界面渲染，并在关键位置写中文注释。
+
+- 所有错误都要在界面上友好提示，不能只输出到控制台。
+
+- 请直接输出完整、可运行的 HTML 文件，不要省略任何部分。</blockquote>
+pi最后给了我一个html文件，用edge或者chrome就可以打开配置，耗资0.34元，我放在附件里了，你可以看一下是不是你想要的东西，有不对的地方让dsh在它的基础上改。
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/html.gif" referrerpolicy="no-referrer">
+
+waybill-index.html
+
+2026-9-25 04:35 上传
+点击文件名下载附件
+
+89.68 KB, 下载次数: 1
+
+*****
+
+####  cscbzcbz  
+##### 14776#       发表于 2026-9-25 06:15
+
+DSH客户端和web现在可以互相修了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
