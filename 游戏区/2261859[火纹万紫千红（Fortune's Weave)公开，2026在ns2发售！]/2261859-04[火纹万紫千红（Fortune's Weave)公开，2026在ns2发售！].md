@@ -7090,3 +7090,24 @@ A少是真的不怎麼在意顏值。地底人大叔對A少說我可以換個美
 
 古扎兰可不是一般人，ta 和很多角色都有牵绊
 
+
+*****
+
+####  han110022  
+##### 5089#       发表于 2026-9-24 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281358&amp;ptid=2261859" target="_blank">忘却旋律 发表于 2026-9-24 16:11</a>
+
+啊 还能这样的 大佬顺便问下 收妮捏的那个 鱼是哪里探索出来的 昨天声望刚到 要一条鱼  ...</blockquote>
+没记错的话是地图下面萨拉米斯那块的一个湖那里
+
+*****
+
+####  忘却旋律  
+##### 5090#       发表于 2026-9-24 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281490&amp;ptid=2261859" target="_blank">han110022 发表于 2026-9-24 16:29</a>
+
+没记错的话是地图下面萨拉米斯那块的一个湖那里</blockquote>
+感谢 感谢
+
