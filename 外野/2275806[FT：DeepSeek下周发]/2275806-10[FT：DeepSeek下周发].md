@@ -17155,3 +17155,18 @@ The Information 说梁子70%算力在训练，30%用来推理。不知道这个�
 
 mimo2.6吐字就是这么慢吗
 
+
+*****
+
+####  mintslime  
+##### 14716#       发表于 2026-9-24 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281348&amp;ptid=2275806" target="_blank">天堂懵懂人 发表于 2026-9-24 16:08</a>
+
+AI小白一枚
+
+我们这边做快递的，客户最近退货单他们自己打印在纸上，遇到有纠纷的单号我们需要从退货单上找 ...</blockquote>
+DS的视觉拉中拉，屎中屎，但是你扫82张照片绝对不可能用10元，肯定还有别的问题……你具体用的是DSH还是啥？
+
+目前性价比最高的视觉识别是glm5.3 flash，去智谱官网bigmodelcn上直接充API，他们的弱智套餐非常恶心人。千问和glm都是有api直充的，虽然贵一点，但是你这个用量是绝对没问题的。
+
