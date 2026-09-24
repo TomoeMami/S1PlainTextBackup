@@ -16947,3 +16947,15 @@ dsh不会自动升级，强制升级到0.1.7rc插件市场崩了，怎么整</bl
 
 dsp plugin --profile web add dshmarket@latest
 
+
+*****
+
+####  RookieTnT  
+##### 14698#       发表于 2026-9-24 12:26
+
+ 本帖最后由 RookieTnT 于 2026-9-24 12:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278470&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-9-24 01:50</a>
+
+多少刀的套餐？1.5亿是opus5.5吗</blockquote>
+20刀 都是opus5.5 中和高混合着用的. claude code  2.1.280 中途改变思考强度不会丢掉缓存.
+
