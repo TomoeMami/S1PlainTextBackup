@@ -6034,3 +6034,23 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 转斗士补一补力？
 
+
+*****
+
+####  绕指流光  
+##### 4995#       发表于 2026-9-24 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278599&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-24 05:58</a>
+
+那么我用白娘子和男主和绿毛猫娘这种自带特殊气槽的是不是就不会涨咒怨槽了
+
+每次咒怨槽满破了都要扣体力 ...</blockquote>
+A少初期探洞就能搞到一把魔剑，本身他速度又高，经常turn1飞出去砍两刀再闪几下就爆气了，然后就是一路爽砍，反正不减上限，特技战技都能回血。我拿把斩马刀从地图东头杀到西头
+
+*****
+
+####  lelouchwang  
+##### 4996#       发表于 2026-9-24 08:35
+
+知道支援度能刷后，就不去费心研究谁喜欢啥了，众生平等一块甜点交个朋友然后去当酒肉朋友，省钱去买装备<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
