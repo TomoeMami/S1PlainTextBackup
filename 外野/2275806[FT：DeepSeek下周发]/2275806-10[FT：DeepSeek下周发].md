@@ -17362,3 +17362,18 @@ Dsh桌面版好像要出来了，官网有下载链接了
 看到一个很关键的消息，说DS内部存在能在游戏显卡上跑的模型，不知道是16G还是24G可以… ...</blockquote>
 我感觉他们的意思是游戏显卡可以用来推理。。不是说有个模型有游戏卡的内存那么大    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qwased  
+##### 14736#       发表于 2026-9-24 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281980&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-24 18:00</a>
+
+如果ds能在5080单卡跑出qwen3.8 27b的性能，我给梁圣磕头
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5. ...</blockquote>
+但是你现在就可以5080运行27b啊<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我都用5070ti爽玩一个月了
+
+这个月出了一个很高质量的量化，16G显卡完全可以接入工作
+
