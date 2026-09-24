@@ -542,3 +542,14 @@ v2-0ae7091590a14f8c0b1b7b12deaf9172_720w.webp
 那么升级素材可以带到下周目吗，先屯好一堆铁啊布啊什么的开新周目直接升个几级 ...</blockquote>
 似乎是可以，因为仓库的东西保留的，但我没细看过材料保不保留
 
+
+*****
+
+####  一见大吉  
+##### 1944#       发表于 2026-9-25 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283612&amp;ptid=2210366" target="_blank">黑暗之眼 发表于 2026-9-25 00:17</a>
+
+似乎是可以，因为仓库的东西保留的，但我没细看过材料保不保留</blockquote>
+强化装备的材料不保留，力石和魂石强化技能的保留
+

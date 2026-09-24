@@ -17669,3 +17669,28 @@ pi这种只要4K左右的就舒服很多了
 
 现在让d老师写提纲，本地模型扩写测试下
 
+
+*****
+
+####  相见恨晚  
+##### 14761#       发表于 2026-9-25 00:48
+
+<blockquote>M乔梦 发表于 2026-9-24 20:01
+官方的桌面端
+
+</blockquote>
+话说下载后登录了，在选模型的时候有个DeepSeek账号和DeepSeek，是啥区别呢
+
+*****
+
+####  tonyunreal  
+##### 14762#       发表于 2026-9-25 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283536&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-9-24 23:47</a>
+这年头还有吹glm 5.3 flash，luna flash说 ds 没有性价比的
+40tps都难稳定的flash还好意思叫自己flash，建 ...</blockquote>
+mimo 2.6也从上线时的150 tok/s下降到现在不到50了
+真是只有梁子是实在人
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
