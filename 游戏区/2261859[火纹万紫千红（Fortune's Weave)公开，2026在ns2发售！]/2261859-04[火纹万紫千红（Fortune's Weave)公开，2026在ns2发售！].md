@@ -6210,3 +6210,44 @@ SLG的占比太大了。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  u2deack  
+##### 5013#       发表于 2026-9-24 10:16
+
+凯伊一口一个姐姐一个哥哥叔叔真的听着就很烦，正常点就什么什么桑不行么搞得像是谁都跟你很熟一样
+
+*****
+
+####  纯夏  
+##### 5014#       发表于 2026-9-24 10:17
+
+按角色个人特色技能做的角色职业推荐 不过职业选择也没啥绝对的
+
+  
+
+<img src="https://img.stage1st.com/forum/202609/24/101627wsf9n9xliw966ayn.jpg" referrerpolicy="no-referrer">
+
+<strong>11.JPG</strong> (773.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 10:16 上传
+
+<img src="https://img.stage1st.com/forum/202609/24/101628zzd62f1f5pmfs0mf.jpg" referrerpolicy="no-referrer">
+
+<strong>22.JPG</strong> (613.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 10:16 上传
+
+<img src="https://img.stage1st.com/forum/202609/24/101629v4vtvgc22av232vv.jpg" referrerpolicy="no-referrer">
+
+<strong>33.JPG</strong> (401.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 10:16 上传
+

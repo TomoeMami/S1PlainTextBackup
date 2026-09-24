@@ -396,3 +396,25 @@ helix应该对应的是XDK吧，xdk参数本身就挺夸张的，实际零售机
 
 不做特殊处理的话按泄露的配置怕不是要被搞ai的抢爆
 
+
+*****
+
+####  zid99825  
+##### 44#       发表于 2026-9-24 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279375&amp;ptid=2290349" target="_blank">xzzfft 发表于 2026-9-24 10:00</a>
+不做特殊处理的话按泄露的配置怕不是要被搞ai的抢爆</blockquote>
+肯定不会让随便跑未验证程序的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Troywest  
+##### 45#       发表于 2026-9-24 10:22
+
+<blockquote>ultraseven 发表于 2026-9-24 09:16
+90年代3DO卖到700刀，放今天同等价格早就过1000了。而且Steam Machine不算游戏机吗？ ...</blockquote>
+蒸汽机是人民的v社出的，那能一样吗.jpg
+
