@@ -6619,3 +6619,49 @@ SLG的占比太大了。
 
 另外感觉这作的ai也很迷，好几次我的残血角色在脸上一下必死的不打，去打另外的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯夏  
+##### 5047#       发表于 2026-9-24 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280347&amp;ptid=2261859" target="_blank">The_Fool_ 发表于 2026-9-24 12:59</a>
+
+话说，没有大象兵吗，宣传阶段专门有个安娜骑大象撞人的画面啊，现在安娜不能入队，大象兵也没有吗
+
+——  ...</blockquote>
+你打到第3部第2区分就解锁战象兵了 而且战象并不需要抓
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ The_Fool_ + 1好评加鹅
+
+查看全部评分
+
+*****
+
+####  铁拳圣裁  
+##### 5048#       发表于 2026-9-24 13:10
+
+<blockquote>[-マユ‐](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280110&amp;ptid=2261859) 发表于 09-24 12:03
+我蕾妲线声望 8 已经差不多挖到 15 人了，是不是这阶段请客观剧已经收益不大不用搞了？还有这代道具的重量普遍好高啊，为一点加成扣 5 速搞得我都没怎么带装备</blockquote>
+
+支援等级全局保留，你现在可以帮另外三主角刷其他角色的支援了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+——来自 PKR110 上的 [S1er 客户端](https://s1er.pages.dev)
+
+
+*****
+
+####  白昼梦DD  
+##### 5049#       发表于 2026-9-24 13:17
+
+这代确实是迷之上瘾，就是太费时间了
+
