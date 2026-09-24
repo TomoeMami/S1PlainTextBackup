@@ -6665,3 +6665,18 @@ SLG的占比太大了。
 
 这代确实是迷之上瘾，就是太费时间了
 
+
+*****
+
+####  纯夏  
+##### 5050#       发表于 2026-9-24 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279337&amp;ptid=2261859" target="_blank">夜留歌 发表于 2026-9-24 09:56</a>
+
+斩马刀在哪卖的，好像没见到过</blockquote>
+菲娜的渔村‌里的武器店
+
+帝都鞑古席翁的万达尔商会（ヴァンダル商会）
+
+售价3000
+

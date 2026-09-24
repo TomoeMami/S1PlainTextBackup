@@ -16959,3 +16959,14 @@ dsp plugin --profile web add dshmarket@latest
 多少刀的套餐？1.5亿是opus5.5吗</blockquote>
 20刀 都是opus5.5 中和高混合着用的. claude code  2.1.280 中途改变思考强度不会丢掉缓存.
 
+
+*****
+
+####  相见恨晚  
+##### 14699#       发表于 2026-9-24 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279895&amp;ptid=2275806" target="_blank">Baccano 发表于 2026-9-24 11:24</a>
+
+WorkBuddy的DeepSeek-4.1-Flash 竟然从0.03涨到0.11，只能含泪换成0.06 的glm5.3flash了。</blockquote>
+其实workbuddy里的4.1f在上班时间就已经是0.06了，只是标着0.03然后里面写着高峰期翻倍。
+
