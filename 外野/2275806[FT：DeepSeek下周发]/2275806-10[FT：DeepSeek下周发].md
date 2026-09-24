@@ -17377,3 +17377,13 @@ Dsh桌面版好像要出来了，官网有下载链接了
 
 这个月出了一个很高质量的量化，16G显卡完全可以接入工作
 
+
+*****
+
+####  M乔梦  
+##### 14737#       发表于 2026-9-24 20:01
+
+官方的桌面端
+
+[https://download.deepseek.com/ds ... 60924.1-win-x64.exe](https://download.deepseek.com/dsh-desk/bin/win-x64/deepseek-harness-0.1.7-rc.1.20260924.1-win-x64.exe)
+
