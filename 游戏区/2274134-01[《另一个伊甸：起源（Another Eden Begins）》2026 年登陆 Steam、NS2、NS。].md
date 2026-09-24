@@ -181,3 +181,14 @@ NS2版居然不是钥匙卡？</blockquote>
 
 这次Begins是第六次上封面
 
+
+*****
+
+####  稻叶敦志  
+##### 66#       发表于 2026-9-24 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69442038&amp;ptid=2274134" target="_blank">alucardcz 发表于 2026-4-5 08:20</a>
+
+卖给还在玩手游的玩家 让他们怀旧下至少以前还能稍微看下主线的时光？ 毕竟后面23部主线根本不是人类能写 ...</blockquote>
+还有8年前因为太非弃坑，等ns版等了8年的我
+

@@ -17455,3 +17455,11 @@ MiMo-V2.6-Distill-Qwen-9B        17.6 GiB        蒸馏小模型
 
 据说另一个米也要搞大模型了，国内是不是入场的太多了
 
+
+*****
+
+####  无尽的牙刷  
+##### 14745#       发表于 2026-9-24 21:02
+
+网络出问题上不了codex了，于是用dsh来修，然后发现是让dsh之前弄网络的时候把网络跟自己都搞炸了，只好再用Cherry Studio来先修dsh<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

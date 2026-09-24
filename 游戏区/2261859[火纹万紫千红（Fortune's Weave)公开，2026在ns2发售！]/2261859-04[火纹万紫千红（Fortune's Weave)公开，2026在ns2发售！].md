@@ -7339,3 +7339,11 @@ Fire Emblem万缕千丝使用了dlss
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ascomnet  
+##### 5114#       发表于 2026-9-24 20:58
+
+怪不得画质好，没看到锯齿。我还纳闷呢。看看后面能不能给个40帧模式<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
