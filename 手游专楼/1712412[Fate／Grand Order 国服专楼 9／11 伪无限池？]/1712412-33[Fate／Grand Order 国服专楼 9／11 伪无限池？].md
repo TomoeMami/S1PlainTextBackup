@@ -77,3 +77,11 @@ MuMu-20260919-205429-531.jpg
 
 无语，80抽五宝小男孩，抽水飞嫂时候死活不出，这四星抽起来真气人
 
+
+*****
+
+####  khxooo  
+##### 48228#       发表于 2026-9-24 20:28
+
+900石头2宝，硬是将诺亚的欧的概率拉回来了<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
