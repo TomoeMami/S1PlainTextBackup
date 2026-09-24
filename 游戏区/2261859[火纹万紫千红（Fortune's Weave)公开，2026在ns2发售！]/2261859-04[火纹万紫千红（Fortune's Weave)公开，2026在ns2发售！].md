@@ -6806,3 +6806,58 @@ SLG的占比太大了。
 
 不过火纹的老问题是非剧情打手几乎没剧情？这点不如风花雪月起码每个学生都会参与到自己的线里，这作很多纯打手了？
 
+
+*****
+
+####  白昼梦DD  
+##### 5062#       发表于 2026-9-24 14:51
+
+这次A少线除了莫名其妙说男主也爱上女反派之外都挺好看的
+
+*****
+
+####  妮贝雅  
+##### 5063#       发表于 2026-9-24 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280565&amp;ptid=2261859" target="_blank">lilod 发表于 2026-9-24 13:50</a>
+
+这代的无论是剧情还是人物的写作和台词水平都超过前作太多了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">跟结合比感觉有点胜之不武吧
+
+
+*****
+
+####  qiyu1234  
+##### 5064#       发表于 2026-9-24 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280865&amp;ptid=2261859" target="_blank">白昼梦DD 发表于 2026-9-24 14:51</a>
+这次A少线除了莫名其妙说男主也爱上女反派之外都挺好看的</blockquote>
+是不是少看一段（第八章）7月份夜晚 达古西翁下层 的剧情
+
+*****
+
+####  白昼梦DD  
+##### 5065#       发表于 2026-9-24 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280888&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-9-24 14:56</a>
+是不是少看一段（第八章）7月份夜晚 达古西翁下层 的剧情</blockquote>
+地图随机剧情吗 太容易错过了
+
+*****
+
+####  u2deack  
+##### 5066#       发表于 2026-9-24 14:57
+
+风花雪月也是因为是真分线所以大多数角色都能分到出场时间，但是五年后也基本就是核心角色有戏份了
+Engage就更不用说了除了皇族那些跟班我印象中除了出场部分有几句话之外是完全不参与到剧情里面的，播片永远是几个龙族皇族和四狗
+
+*****
+
+####  lilod  
+##### 5067#       发表于 2026-9-24 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280875&amp;ptid=2261859" target="_blank">妮贝雅 发表于 2026-9-24 14:53</a>
+
+跟结合比感觉有点胜之不武吧</blockquote>
+我是觉得也比三房好很多
+
