@@ -7771,3 +7771,51 @@ OK，还有个疑问。
 
 查看全部评分
 
+
+*****
+
+####  纯夏  
+##### 5148#       发表于 2026-9-25 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283561&amp;ptid=2261859" target="_blank">风使塞缇 发表于 2026-9-24 23:57</a>
+
+OK，还有个疑问。
+
+当我第三部四选一巴西初音的时候，这四个巴西初音的数值来源是如何的？
+
+那么是不是有两 ...</blockquote>
+第2部打一个主角的就行 重复度太高 剩余3条线直接跳   
+
+到第3部招募的时候系统也会有自动拉等级的选项 人性化的很 看截图
+
+<img src="https://img.stage1st.com/forum/202609/25/002428t0785t78h8gbl595.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (650.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 00:24 上传
+
+<img src="https://img.stage1st.com/forum/202609/25/002428klaame3s5khhth5n.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (641.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 00:24 上传
+
+
+*****
+
+####  新HGCG  
+##### 5149#       发表于 2026-9-25 00:33
+
+西蒙送他什么他才喜欢啊？
+
+*****
+
+####  PigMourne  
+##### 5150#       发表于 2026-9-25 00:36
+
+自动升级会计入职业补正吗？看图好像除了升级属性之外还会加熟练度？
+

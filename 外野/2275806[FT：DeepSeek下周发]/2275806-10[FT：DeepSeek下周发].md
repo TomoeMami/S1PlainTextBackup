@@ -17657,3 +17657,15 @@ pi这种只要4K左右的就舒服很多了
 说起来DSH其实不太适合上下文预算很紧张的本地模型，标准模式第一句话就灌差不多20K上下文，极简又只有bash ...</blockquote>
 那当个本地模型配置器也行，起码比llama.cpp好用点（自我感觉），链接dsh只是顺带的
 
+
+*****
+
+####  洛拉斯  
+##### 14760#       发表于 2026-9-25 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283610&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-25 00:16</a>
+说起来DSH其实不太适合上下文预算很紧张的本地模型，标准模式第一句话就灌差不多20K上下文，极简又只有bash ...</blockquote>
+你让老师自己调用本地模型就是，我现在12g的4070，d老师给我安装了一个bonsai27b，优化了下配置，上下文128k，速度45t/s
+
+现在让d老师写提纲，本地模型扩写测试下
+
