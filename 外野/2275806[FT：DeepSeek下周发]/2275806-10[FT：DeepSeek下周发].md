@@ -17256,3 +17256,27 @@ deepseek更新日志/文档页面结构变动
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  天堂懵懂人  
+##### 14725#       发表于 2026-9-24 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281657&amp;ptid=2275806" target="_blank">mintslime 发表于 2026-9-24 16:58</a>
+
+DS的视觉拉中拉，屎中屎，但是你扫82张照片绝对不可能用10元，肯定还有别的问题……你具体用的是DSH还是 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">用豆包部署的DSH，自己上DS官网买的API
+
+大概是因为要求是让它找到对应单号所在的照片吧，不光是把照片提取成表格
+
+*****
+
+####  nxmonitor  
+##### 14726#       发表于 2026-9-24 18:12
+
+<blockquote>lactone 发表于 2026-9-24 18:00
+如果ds能在5080单卡跑出qwen3.8 27b的性能，我给梁圣磕头
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5. ...</blockquote>
+有可能可以，但是非常需要个大内存，engram往内存里加载就完事了…
+
