@@ -17484,3 +17484,14 @@ agent自带的系统提示词很长影响很大的
 
 —— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  阿刚  
+##### 14748#       发表于 2026-9-24 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282913&amp;ptid=2275806" target="_blank">chenyedgg 发表于 2026-9-24 21:23</a>
+
+agent自带的系统提示词很长影响很大的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">但是hermes就写的还行，两个agent用的同一套提示词，不过思维链可以看出来两边完全不一样
+
