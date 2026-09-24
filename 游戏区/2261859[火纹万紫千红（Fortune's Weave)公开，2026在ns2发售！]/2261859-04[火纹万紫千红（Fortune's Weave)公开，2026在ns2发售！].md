@@ -6588,3 +6588,34 @@ SLG的占比太大了。
 
 顺便乾坤圈太好用了，用了都说好
 
+
+*****
+
+####  The_Fool_  
+##### 5044#       发表于 2026-9-24 12:59
+
+话说，没有大象兵吗，宣传阶段专门有个安娜骑大象撞人的画面啊，现在安娜不能入队，大象兵也没有吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  风使塞缇  
+##### 5045#       发表于 2026-9-24 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279128&amp;ptid=2261859" target="_blank">嘉术2015 发表于 2026-9-24 09:21</a>
+
+这作评价算是有定论了吗，拿engage和风花雪月对比的话，算是什么水平🤔</blockquote>
+我觉得要评价的话，2个月后再来讨论这个问题
+
+现在说实话，能全部通关的人依旧是少数
+
+我凯伊线第一部，已经50小时了，还没通关，这才第一个人的五年前
+
+*****
+
+####  kalavinka  
+##### 5046#       发表于 2026-9-24 13:02
+
+另外感觉这作的ai也很迷，好几次我的残血角色在脸上一下必死的不打，去打另外的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
