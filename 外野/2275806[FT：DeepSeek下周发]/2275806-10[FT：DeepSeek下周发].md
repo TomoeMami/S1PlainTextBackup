@@ -17335,3 +17335,20 @@ engram直接扔ssd就可以了</blockquote>
 
 Dsh桌面版好像要出来了，官网有下载链接了
 
+
+*****
+
+####  nxmonitor  
+##### 14733#       发表于 2026-9-24 18:44
+
+那4.1P还不上线吗？
+
+*****
+
+####  startraveller  
+##### 14734#       发表于 2026-9-24 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282094&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-24 18:29</a>
+硬盘顶不住读写的…</blockquote>
+都是只读查表，没啥写入
+
