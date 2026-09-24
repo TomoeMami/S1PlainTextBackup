@@ -501,3 +501,15 @@ v2-0ae7091590a14f8c0b1b7b12deaf9172_720w.webp
 
   打过岚山了，问下二周目哪些东西可以继承啊，物品都能留到下周目吗？
 
+
+*****
+
+####  夜雨秋水  
+##### 1940#       发表于 2026-9-24 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283147&amp;ptid=2210366" target="_blank">相棒 发表于 2026-9-24 22:11</a>
+打过岚山了，问下二周目哪些东西可以继承啊，物品都能留到下周目吗？</blockquote>
+除了衣装、刀、笼手的强化等级外全继承，但不是一开始全解锁，要推一点流程。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

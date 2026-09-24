@@ -17560,3 +17560,14 @@ karminski-牙医
 
 噗呲噗呲干了一小时了，还会自动根据我网络情况选择镜像下载，下载完看看部署情况
 
+
+*****
+
+####  M乔梦  
+##### 14753#       发表于 2026-9-24 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283213&amp;ptid=2275806" target="_blank">needagf 发表于 2026-9-24 22:29</a>
+
+没找到mac版的</blockquote>
+[https://download.deepseek.com/ds ... 924.1-mac-arm64.dmg](https://download.deepseek.com/dsh-desk/bin/mac-arm64/deepseek-harness-0.1.7-rc.1.20260924.1-mac-arm64.dmg)
+
