@@ -16722,3 +16722,21 @@ v4.1f已经足够用了，不奢求<img src="https://static.stage1st.com/image/s
 
 早上服务又出问题了，但是绝对不是高峰期，这几天服务中断都是在奇怪的时间，九月出还是有可能的，今天或者下周三…
 
+
+*****
+
+####  misuzu0723  
+##### 14679#       发表于 2026-9-24 08:39
+
+openrouter上线了名为space-bunny-alpha的匿名模型，脏token测试命中minimax
+
+<img src="https://img.stage1st.com/forum/202609/24/083817repz5aeza5rp8fx5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 08:38 上传
+
+鹈鹕骑车效果不错，就是这画风感觉挺GPT的
+
