@@ -6861,3 +6861,39 @@ Engage就更不用说了除了皇族那些跟班我印象中除了出场部分�
 跟结合比感觉有点胜之不武吧</blockquote>
 我是觉得也比三房好很多
 
+
+*****
+
+####  lilod  
+##### 5068#       发表于 2026-9-24 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280904&amp;ptid=2261859" target="_blank">lilod 发表于 2026-9-24 14:58</a>
+
+我是觉得也比三房好很多</blockquote>
+比如 Leda 线的金发大小姐，基本二次元中最刻板印象的角色（也是我最讨厌的刻板印象类角色），但是 ta 在剧情里的人设 + 台词真的非常讨喜
+
+
+*****
+
+####  caps洛奇  
+##### 5069#       发表于 2026-9-24 15:16
+
+ 本帖最后由 caps洛奇 于 2026-9-24 15:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280842&amp;ptid=2261859" target="_blank">Bani82 发表于 2026-9-24 14:47</a>
+
+除了大部分演出还是日呆站桩对话，这作其实剧情和人物塑造还不错？不过火纹的老问题是非剧情打手几乎没剧情 ...</blockquote>
+这作的非核心角色的剧情主要在地图对话里面，是会随着主线更新的
+
+比如快决赛了，初赛打过的重甲大妈会说 “把我淘汰的队伍竟然打进决赛了，说明我也不简单，最近佣兵的活变多了嘻嘻”
+
+每章节开篇我都要扫一遍地图所有人对话一遍，特别凯伊线老爸老妈每章都有新唠叨，常回家看看属于是
+
+*****
+
+####  clyde-wang  
+##### 5070#       发表于 2026-9-24 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280981&amp;ptid=2261859" target="_blank">lilod 发表于 2026-9-24 15:09</a>
+比如 Leda 线的金发大小姐，基本二次元中最刻板印象的角色（也是我最讨厌的刻板印象类角色），但是 ta 在 ...</blockquote>
+金发大小姐意外的很照顾蕾达的感受，真的是比形象更讨喜
+

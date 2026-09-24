@@ -17078,3 +17078,15 @@ Openrouter</blockquote>
 —— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
 你想通过openrouter用美国闭源模型不要用中国的支付方式，支付宝之类的。。会用不了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  tonyunreal  
+##### 14709#       发表于 2026-9-24 15:13
+
+好像前面问过一次
+
+mimo 2.6 flash在dsh里干活的时候，如果切换会话再切回来，界面经常会卡在“载入历史...”，但是后台会话还是在继续跑的，这个问题有解么
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
