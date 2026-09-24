@@ -6910,3 +6910,33 @@ Engage就更不用说了除了皇族那些跟班我印象中除了出场部分�
 比如快决赛了，初赛打过的重甲大妈会说  ...</blockquote>
 什么轨迹对话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParukiaMKII  
+##### 5072#       发表于 2026-9-24 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281030&amp;ptid=2261859" target="_blank">karastar 发表于 2026-9-24 15:18</a>
+
+什么轨迹对话</blockquote>
+人人都有称号，够轨迹了，陌生人见面也是先叫称号<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陆久舟  
+##### 5073#       发表于 2026-9-24 15:30
+
+迪托利希线就深感不错，迪少虽然是战斗狂，但也是一个很纯粹的人
+
+
+*****
+
+####  bwsusaga  
+##### 5074#       发表于 2026-9-24 15:35
+
+目前只玩了A少线第一部，文案对白很优质，
+
+法毕翁这个角色写的真好，黑皮初音也越看越漂亮。
+
+唯一可惜的是角色虽然多，但大多都没啥支援，也就没什么剧情，没办法随便搞大联宜配对了。
+

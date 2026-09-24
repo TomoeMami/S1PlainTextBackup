@@ -17090,3 +17090,13 @@ mimo 2.6 flash在dsh里干活的时候，如果切换会话再切回来，界面
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  蜇灵  
+##### 14710#       发表于 2026-9-24 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279933&amp;ptid=2275806" target="_blank">kingtigerc 发表于 2026-9-24 11:29</a>
+dsh不会自动升级，强制升级到0.1.7rc插件市场崩了，怎么整</blockquote>
+再开一个dsh，让他俩互相修
+
