@@ -6277,3 +6277,37 @@ SLG的占比太大了。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  嘲风  
+##### 5017#       发表于 2026-9-24 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279645&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-9-24 10:46</a>
+
+上级证好缺啊，第一部转不了几个人
+
+论坛助手,iPhone</blockquote>
+第一部应该可以拿到至少6个上级证，城里先后卖4个，右下角的王都里卖一个，再往东那走35级的迷宫宝箱里还有一个
+
+*****
+
+####  紫菜粉丝煲  
+##### 5018#       发表于 2026-9-24 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279221&amp;ptid=2261859" target="_blank">duraa 发表于 2026-9-24 09:36</a>
+看社区的包容度，让我真想看看假如三房是is+任天堂做的大伙会怎么吹的if路线 ...</blockquote>
+立什么靶子呢，这跟任天堂有什么关系
+
+
+*****
+
+####  土卫七  
+##### 5019#       发表于 2026-9-24 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279652&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-9-24 10:49</a>
+第一部应该可以拿到至少6个上级证，城里先后卖4个，右下角的王都里卖一个，再往东那走35级的迷宫宝箱里还 ...</blockquote>
+右下角王都的高级证是每章刷新的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
