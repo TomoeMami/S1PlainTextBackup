@@ -7347,3 +7347,26 @@ Fire Emblem万缕千丝使用了dlss
 
 怪不得画质好，没看到锯齿。我还纳闷呢。看看后面能不能给个40帧模式<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 5115#       发表于 2026-9-24 21:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">原来是DLSS
+
+不过比起火纹，更应该期待其他NS2游戏能不能这么搞
+
+
+*****
+
+####  纯夏  
+##### 5116#       发表于 2026-9-24 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281259&amp;ptid=2261859" target="_blank">DARK_HGCG 发表于 2026-9-24 15:53</a>
+
+问下
+
+手_枪有几把？后期能买吗？只能靠队友自带？</blockquote>
+两把 除了角色自带以外 据点探索能挖到强化版
+
