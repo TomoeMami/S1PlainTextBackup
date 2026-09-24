@@ -17694,3 +17694,14 @@ mimo 2.6也从上线时的150 tok/s下降到现在不到50了
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  M乔梦  
+##### 14763#       发表于 2026-9-25 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283696&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-9-25 00:48</a>
+
+话说下载后登录了，在选模型的时候有个DeepSeek账号和DeepSeek，是啥区别呢</blockquote>
+一样的，一个是用账号调用特殊api，一个是调用你自己创建的官方api。你可以去开放平台那里看一下，账号登录本质是官方给你创建了一个特殊的api
+
