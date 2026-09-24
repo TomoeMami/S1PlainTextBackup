@@ -17296,3 +17296,42 @@ DS的视觉拉中拉，屎中屎，但是你扫82张照片绝对不可能用10�
 
 Google AI Pro用户好像每周可以通过Colab使用大约20小时的A100，而且模型可以直接放在Google Drive里，挂载后直接调用，不需要每次重新下载。有人试过吗？
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 14729#       发表于 2026-9-24 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282067&amp;ptid=2275806" target="_blank">lubo 发表于 2026-9-24 18:22</a>
+Google AI Pro用户好像每周可以通过Colab使用大约20小时的A100，而且模型可以直接放在Google Drive里，挂载 ...</blockquote>
+以前colab就有 就正常挺好用的云gpu但是可能要排队什么的
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  mitzvah  
+##### 14730#       发表于 2026-9-24 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282033&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-24 18:12</a>
+
+有可能可以，但是非常需要个大内存，engram往内存里加载就完事了…</blockquote>
+engram直接扔ssd就可以了
+
+*****
+
+####  nxmonitor  
+##### 14731#       发表于 2026-9-24 18:29
+
+<blockquote>mitzvah 发表于 2026-9-24 18:25
+engram直接扔ssd就可以了</blockquote>
+硬盘顶不住读写的…
+
+
+*****
+
+####  Promeus  
+##### 14732#       发表于 2026-9-24 18:31
+
+Dsh桌面版好像要出来了，官网有下载链接了
+
