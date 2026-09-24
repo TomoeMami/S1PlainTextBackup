@@ -7837,3 +7837,26 @@ OK，还有个疑问。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">还是有代价的，A少线主角团之外招的到的角色各种丑和区
 
+
+*****
+
+####  zwqcm  
+##### 5153#       发表于 2026-9-25 01:38
+
+<blockquote>索非亚 发表于 2026-9-24 22:16
+A少线升级太快，11章打完爱娜外传就45级，不敢再刷了。</blockquote>
+理论上45级已经是第三部开头的等级了，最上级职业也是45级转职。强迫症想要不亏属性的话，别说第一部后半，连第二部都得上观众席了。。。
+
+*****
+
+####  夜留歌  
+##### 5154#       发表于 2026-9-25 01:41
+
+ 本帖最后由 夜留歌 于 2026-9-25 01:42 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282943&amp;ptid=2261859" target="_blank">clyde-wang 发表于 2026-9-24 21:28</a>
+话说打完一个角色的章节之后想要再刷一下没有拿到的东西就直接重置章节吗？
+
+重置进度继承哪些东西啊？ ...</blockquote>
+编辑，回错了
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
