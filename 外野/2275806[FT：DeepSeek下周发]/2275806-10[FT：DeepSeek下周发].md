@@ -17495,3 +17495,47 @@ agent自带的系统提示词很长影响很大的
 agent自带的系统提示词很长影响很大的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">但是hermes就写的还行，两个agent用的同一套提示词，不过思维链可以看出来两边完全不一样
 
+
+*****
+
+####  needagf  
+##### 14749#       发表于 2026-9-24 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282510&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-9-24 20:01</a>
+
+官方的桌面端</blockquote>
+没找到mac版的
+
+*****
+
+####  chronicle  
+##### 14750#       发表于 2026-9-24 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282601&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-9-24 20:19</a>
+
+mimo 2.6pro到底强吗？</blockquote>
+
+karminski-牙医
+
+9-22 23:54
+
+来自 微博网页版
+
+给大家带来小米 MiMo-v2.6-pro 的测试速报! 
+
+简单来讲, 这次不愧是直播RL带来的效果, AgenticCoding 能力提升明显, 之前的 MiMo-v2.5-Pro 在我的向量数据库测试中得分只有2505, 而这次直接翻了3倍, 得分来到了7810. 与 Claude Fable-5 分数接近了.
+
+而且算法也进化为了单图HNSW分层近邻图(M=16/M0=28) + AVX-512精确距离 + 每线程visited stamp. 可以说只要再优化一下算法细节就是SOTA水平了. 
+
+而前端测试则是MiMo需要提升的重点了, 这次演示效果虽然有提升, 但是无奈横评的其他模型都太强大了, 而小米的加分项也是本身的算法Coding能力, 比如它是可以 one-shot 写出一个光追引擎的. 但是由于空间理解/物理模拟能力不到位, 小球没办法完成把墙壁撞破的演示. 
+
+另外本次还给大家测试了输出速度, MiMo-v2.6-pro-ultraspeed 版本可以达到464tps的速度, 着实恐怖. 而根据MiMo的技术报告, 峰值可以达到900tps,  常态化请求也可以稳定在500tps左右, 考虑到模型 1.02T 的总参数量, 以及高达 42B 的激活参数量, 再加上同等规模模型一般都在60-80tps的水平, 这个成绩相当亮眼. 
+
+当然也有值得注意的点, 比如这次测试我发现它还是有早停的问题的, 上面的向量数据库测试, 每轮最大迭代50次, 但是三次测试中, 有两次它迭代到30轮左右就没办法提升分数, 于是选择了直接交卷, 浪费了测试机会.
+
+以及, 模型思考偏长, 而且暂时不支持调整思考强度, 加上普速接口现在异常火爆, 所以最好给大一些超时, 避免无法输出结果.
+
+总结: MiMo-v2.6-Pro 适合搞后端AgenticCoding开发! 要算法有算法要质量有质量. 但是前端空间理解和美学还需要加强. 考虑到直播后训练的时候看到的67%的训练语料都是Coding, 这个结果丝毫不惊讶了. 希望下个版本前端能力也有提升!
+
+#HOW I AI##专业视频创作季##mimo##mimov26##mimov26pro##x小米mimo#收起
+
