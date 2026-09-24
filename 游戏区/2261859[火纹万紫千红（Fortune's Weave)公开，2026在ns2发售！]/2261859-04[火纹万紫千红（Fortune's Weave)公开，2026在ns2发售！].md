@@ -7708,3 +7708,38 @@ A少没有明显短板，35级侍道之后基本就是单杀，本作普攻不�
 
 还有就是 只有你通关第1部的4位主角线才可以在第3部招全4位主角  2区分在据点内逐个对话即可加入
 
+
+*****
+
+####  纯夏  
+##### 5145#       发表于 2026-9-24 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283458&amp;ptid=2261859" target="_blank">ascomnet 发表于 2026-9-24 23:29</a>
+
+需要转土匪练练力量么，还是直接转奇兵，现在22级 22力量</blockquote>
+我觉得没必要 骑兵系HP和力量成长都很高 女王满力50 第3部45-60级怎么说力也满了  <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风使塞缇  
+##### 5146#       发表于 2026-9-24 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283540&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-24 23:48</a>
+
+第3部招募是这样的：比如巴西初音你在第1部4条主角线都挖了她 那么第3部你对话让她加入的时候 系统就会让 ...</blockquote>
+OK，还有个疑问。
+
+当我第三部四选一巴西初音的时候，这四个巴西初音的数值来源是如何的？
+
+那么是不是有两种情况：
+
+情况1：
+
+我四个战争篇都打了，那么我就从四个战争篇的巴西初音里四选一
+
+情况2：
+
+假设我只打了2个战争篇，另外2个战争篇直接跳过，那么这个时候的四选一是：2个战争篇的巴西初音+第一部的两个巴西初音 四选一
+
+我这样描述对么？
+

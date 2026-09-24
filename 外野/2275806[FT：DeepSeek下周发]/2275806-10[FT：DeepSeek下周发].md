@@ -17591,3 +17591,13 @@ karminski-牙医
 https://download.deepseek.com/dsh-desk/bin/mac-arm64/deepseek-harness-0.1.7-rc.1.20260924.1-mac-ar ...</blockquote>
 多谢，我这翻了半天没找到。。。
 
+
+*****
+
+####  qz66618  
+##### 14756#       发表于 2026-9-24 23:59
+
+dsh更新0.1.7-rc2了，目前桌面端好像可以自动更新了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
