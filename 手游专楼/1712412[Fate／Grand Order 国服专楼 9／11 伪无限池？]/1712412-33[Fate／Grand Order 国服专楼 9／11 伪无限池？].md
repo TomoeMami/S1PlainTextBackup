@@ -111,3 +111,11 @@ MuMu-20260919-205429-531.jpg
 420石剑心二宝 还行</blockquote>
 欧，羡慕啊<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 48231#       发表于 2026-9-24 20:56
+
+感觉藤堂画得不太行，再加上泳装被限定四星坑了波大的，果断放弃
+

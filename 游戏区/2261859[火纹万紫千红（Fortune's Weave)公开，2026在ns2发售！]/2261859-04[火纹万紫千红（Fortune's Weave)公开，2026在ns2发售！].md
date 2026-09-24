@@ -7324,3 +7324,18 @@ A少线没怎么打过刃鸣，后期太忙了，我看有人说10次强化的�
 
 咒怨武器最好的处理方式是不是给救世主白娘子猫猫头这种特殊气槽的人用？不用怕砍多了爆气然后扣HP上限
 
+
+*****
+
+####  UltramanPain  
+##### 5113#       发表于 2026-9-24 20:51
+
+<img src="https://p.sda1.dev/35/9657afdcdea6bc1b9e31360091b42dac/image.jpg" referrerpolicy="no-referrer">
+转自群里
+数毛社：
+Fire Emblem万缕千丝使用了dlss
+携带540p升到1080p
+底座720p升到1440p
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
