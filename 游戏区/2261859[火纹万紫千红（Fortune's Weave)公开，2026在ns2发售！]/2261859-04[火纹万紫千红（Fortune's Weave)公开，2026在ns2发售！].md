@@ -6146,3 +6146,40 @@ A少初期探洞就能搞到一把魔剑，本身他速度又高，经常turn1�
 
 看社区的包容度，让我真想看看假如三房是is+任天堂做的大伙会怎么吹的if路线<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 5008#       发表于 2026-9-24 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279128&amp;ptid=2261859" target="_blank">嘉术2015 发表于 2026-9-24 09:21</a>
+
+这作评价算是有定论了吗，拿engage和风花雪月对比的话，算是什么水平🤔</blockquote>
+engage和风花雪月的评价都已经是食草动物和食肉动物评价食物好不好吃这种一团浆糊了，这作这种大杂烩更没法评价了
+
+反正量大，垃圾时间不少，但也不算很垃圾，买可是太值得买了
+
+
+*****
+
+####  真田源次郎信繁  
+##### 5008#       发表于 2026-9-24 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279128&amp;ptid=2261859" target="_blank">嘉术2015 发表于 2026-9-24 09:21</a>
+
+这作评价算是有定论了吗，拿engage和风花雪月对比的话，算是什么水平🤔</blockquote>
+engage和风花雪月的评价都已经是食草动物和食肉动物评价食物好不好吃这种一团浆糊了，这作这种大杂烩更没法评价了
+
+反正量大，垃圾时间不少，但也不算很垃圾，买可是太值得买了
+
+*****
+
+####  mai6696  
+##### 5009#       发表于 2026-9-24 09:48
+
+体量足够大，买肯定是值的。
+
+但是前期太慢热了，连续几个小时大半都在过剧情或者通马桶，没啥机会下棋。
+
+SLG的占比太大了。
+
