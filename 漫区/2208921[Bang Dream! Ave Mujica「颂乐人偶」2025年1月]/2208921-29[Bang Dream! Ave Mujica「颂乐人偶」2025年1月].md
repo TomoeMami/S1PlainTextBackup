@@ -909,3 +909,22 @@ Bushiroad Music
 
        [https://t.bilibili.com/1251619013454200841](https://t.bilibili.com/1251619013454200841)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42046#       发表于 2026-9-24 22:55
+
+       <strong>[JMAX] [2026.09.24] BanG Dream! Ave Mujica - Abracadabra (Cover) [FLAC 96kHz/24bit]【83MB】</strong> <blockquote><img src="https://i.ibb.co/vCKK12rb/Cover.jpg" referrerpolicy="no-referrer">
+
+Tracklist
+
+01. Abracadabra (Cover)
+
+歌 : Ave Mujica[ドロリス(三角初華)(CV.佐々木李子)、モーティス(若葉睦)(CV.渡瀬結月)、ティモリス(八幡海鈴)(CV.岡田夢以)、アモーリス(祐天寺にゃむ)(CV.米澤茜)、オブリビオニス(豊川祥子)(CV.高尾奏音)]</blockquote>
+       [https://share.dmhy.org/topics/vi ... AC_96kHz_24bit.html](https://share.dmhy.org/topics/view/727655_JMAX_2026_09_24_BanG_Dream%21_Ave_Mujica_-_Abracadabra_Cover_FLAC_96kHz_24bit.html)
+
+       Magnet連接: magnet:?xt=urn:btih:NP3DZFOU4FM7X5723UXUK5L6ZYXWDWDF
+
+       Magnet連接typeII: magnet:?xt=urn:btih:6bf63c95d4e159fbf7fadd2f45757ece2f61d865
+

@@ -17539,3 +17539,14 @@ karminski-牙医
 
 #HOW I AI##专业视频创作季##mimo##mimov26##mimov26pro##x小米mimo#收起
 
+
+*****
+
+####  simonroam  
+##### 14751#       发表于 2026-9-24 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282655&amp;ptid=2275806" target="_blank">qq460262849 发表于 2026-9-24 20:29</a>
+
+0基础小白，这周用dsh做了一个老滚5的构筑模拟器，数据来自一个非官方wiki（uesp），初版花了30元，修修补 ...</blockquote>
+老滚5这种体量的搞逆向还是算了吧，dsh滚起来烧token浪费钱，真能随便逆向那些MOD大佬早出资源了
+
