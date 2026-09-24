@@ -17119,3 +17119,31 @@ dsh不会自动升级，强制升级到0.1.7rc插件市场崩了，怎么整</bl
 
 The Information 说梁子70%算力在训练，30%用来推理。不知道这个占比相比OA两家是高还是低。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  astrayveller  
+##### 14713#       发表于 2026-9-24 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281213&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-9-24 15:46</a>
+
+最新rc版本说是内置了一套Office环境了，不知道好不好用</blockquote>
+只是libreoffice渲染侧边栏预览 但是不能原生改
+
+不过我看dsh-sdk-app的bundle里有skill是操作office的 不知道是不是为了以后的客户端适配
+
+*****
+
+####  天堂懵懂人  
+##### 14714#       发表于 2026-9-24 16:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">AI小白一枚
+
+我们这边做快递的，客户最近退货单他们自己打印在纸上，遇到有纠纷的单号我们需要从退货单上找单号核对，不给我们电子文档，
+
+买了DS的API扫了82张图片用了10元左右，从70多个单号里找到了30多个，还剩下30多个，又用千问找了下剩下的，又找出10多个
+
+不太清楚是不是千问这边文字识别更厉害一点，因为千问没买套餐要再识别一边的时候显示没余量了
+
+我们平时也用不到AI，也就是偶尔用一下，但是从这次的结果上看感觉最好也是用两个AI交叉验证下。但是看了下千问，方舟这些好像都是包月包年的？
+
