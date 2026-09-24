@@ -16800,3 +16800,42 @@ Credits消耗纯黑箱模型抵扣系数是没有的，用量统计和查看也�
 
 WorkBuddy的DeepSeek-4.1-Flash 竟然从0.03涨到0.11，只能含泪换成0.06 的glm5.3flash了。
 
+
+*****
+
+####  kingtigerc  
+##### 14686#       发表于 2026-9-24 11:29
+
+dsh不会自动升级，强制升级到0.1.7rc插件市场崩了，怎么整
+
+
+*****
+
+####  nxmonitor  
+##### 14687#       发表于 2026-9-24 11:30
+
+<blockquote>kingtigerc 发表于 2026-9-24 11:29
+dsh不会自动升级，强制升级到0.1.7rc插件市场崩了，怎么整</blockquote>
+找个其他的agent来修
+
+*****
+
+####  cscbzcbz  
+##### 14688#       发表于 2026-9-24 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279933&amp;ptid=2275806" target="_blank">kingtigerc 发表于 2026-9-24 11:29</a>
+dsh不会自动升级，强制升级到0.1.7rc插件市场崩了，怎么整</blockquote>
+把package.json备份一下，把里面可能有问题吧插件删除了。先把DSH启动了，让他自己给自己修就行
+
+*****
+
+####  kingtigerc  
+##### 14689#       发表于 2026-9-24 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279957&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-24 11:33</a>
+
+把package.json备份一下，把里面可能有问题吧插件删除了。先把DSH启动了，让他自己给自己修就行
+
+ ...</blockquote>
+重启机器后好了
+
