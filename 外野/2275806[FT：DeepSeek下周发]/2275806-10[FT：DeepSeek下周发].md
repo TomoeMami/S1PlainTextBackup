@@ -17571,3 +17571,23 @@ karminski-牙医
 没找到mac版的</blockquote>
 [https://download.deepseek.com/ds ... 924.1-mac-arm64.dmg](https://download.deepseek.com/dsh-desk/bin/mac-arm64/deepseek-harness-0.1.7-rc.1.20260924.1-mac-arm64.dmg)
 
+
+*****
+
+####  crow_wine  
+##### 14754#       发表于 2026-9-24 23:47
+
+这年头还有吹glm 5.3 flash，luna flash说 ds 没有性价比的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+40tps都难稳定的flash还好意思叫自己flash，建议改名叫cheap <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  needagf  
+##### 14755#       发表于 2026-9-24 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283410&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-9-24 23:14</a>
+
+https://download.deepseek.com/dsh-desk/bin/mac-arm64/deepseek-harness-0.1.7-rc.1.20260924.1-mac-ar ...</blockquote>
+多谢，我这翻了半天没找到。。。
+
