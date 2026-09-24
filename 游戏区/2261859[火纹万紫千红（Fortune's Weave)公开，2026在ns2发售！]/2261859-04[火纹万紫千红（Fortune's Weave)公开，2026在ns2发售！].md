@@ -5993,3 +5993,17 @@ A少线升级速度是离谱，10月下旬打完正太外传之后A少45级巴�
 
 每次咒怨槽满破了都要扣体力，不敢用
 
+
+*****
+
+####  bad_alloc  
+##### 4992#       发表于 2026-9-24 08:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278599&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-24 05:58</a>
+那么我用白娘子和男主和绿毛猫娘这种自带特殊气槽的是不是就不会涨咒怨槽了
+
+每次咒怨槽满破了都要扣体力 ...</blockquote>
+那你该玩无敌的a少了，自带抵抗技能，咒怨槽爆了不会扣最大体力
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
