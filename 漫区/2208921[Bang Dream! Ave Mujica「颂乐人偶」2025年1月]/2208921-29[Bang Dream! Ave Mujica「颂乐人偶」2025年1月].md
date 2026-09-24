@@ -847,3 +847,65 @@ Bushiroad Music
 哔哩哔哩游戏发行中心</blockquote>
        [https://www.bilibili.com/video/BV1ZLeG6JEha](https://www.bilibili.com/video/BV1ZLeG6JEha)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42044#       发表于 2026-9-24 21:42
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/24/214231zs1jv0p1kk3kxs3k.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-09-24_21-40-55.jpg</strong> (220.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 21:42 上传
+
+       [https://x.com/bang_dream_info/status/2103097869498511779](https://x.com/bang_dream_info/status/2103097869498511779)
+
+       [https://www.youtube.com/watch?v=TuZNUIoATqM](https://www.youtube.com/watch?v=TuZNUIoATqM)
+
+       <strong>【元祖！BanG Dream Chan】 #51 黎明之星</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/24/214231nwbbtwmw1iq5ntbz.jpg" referrerpolicy="no-referrer">
+
+<strong>7ca77a65b4fd01fdfb2132dd336be0375f8361fc.jpg</strong> (214.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 21:42 上传
+
+</blockquote>
+       [https://www.bilibili.com/video/BV14nac68EzF](https://www.bilibili.com/video/BV14nac68EzF)
+
+*****
+
+####  堀内爱里衣  
+##### 42045#       发表于 2026-9-24 21:44
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/24/214418lqf4jb4xzydy8ddj.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-24_21-43-44.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 21:44 上传
+
+       [https://x.com/miyaji_maseiya/status/2103102147055456603](https://x.com/miyaji_maseiya/status/2103102147055456603)
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/24/214415t7b30w4zg0ioecuz.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-24_21-36-44.png</strong> (451.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 21:44 上传
+
+       [https://t.bilibili.com/1251619013454200841](https://t.bilibili.com/1251619013454200841)
+
