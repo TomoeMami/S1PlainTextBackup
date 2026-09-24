@@ -17437,3 +17437,21 @@ MiMo-V2.6-Distill-Qwen-9B        17.6 GiB        蒸馏小模型
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  qwased  
+##### 14743#       发表于 2026-9-24 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282607&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-9-24 20:20</a>
+
+哪个，可以说说吗</blockquote>
+看我的帖子，27B GSQ RCO
+
+*****
+
+####  很久就在那边l  
+##### 14744#       发表于 2026-9-24 20:41
+
+据说另一个米也要搞大模型了，国内是不是入场的太多了
+

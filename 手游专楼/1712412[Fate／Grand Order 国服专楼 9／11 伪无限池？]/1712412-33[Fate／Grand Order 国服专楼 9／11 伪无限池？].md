@@ -85,3 +85,29 @@ MuMu-20260919-205429-531.jpg
 
 900石头2宝，硬是将诺亚的欧的概率拉回来了<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonkoism  
+##### 48229#       发表于 2026-9-24 20:46
+
+<img src="https://img.stage1st.com/forum/202609/24/204537ttfphfl8gegl8z2a.jpg" referrerpolicy="no-referrer">
+
+<strong>N)VOAVSD`PLWTC6VRMI8MOD_tmb.jpg</strong> (159.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 20:45 上传
+
+抽了1200石头 3宝剑心 还歪了个娄系，13个小男孩，抽呕吐了<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 48230#       发表于 2026-9-24 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282223&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-9-24 19:00</a>
+
+420石剑心二宝 还行</blockquote>
+欧，羡慕啊<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
