@@ -17170,3 +17170,36 @@ DS的视觉拉中拉，屎中屎，但是你扫82张照片绝对不可能用10�
 
 目前性价比最高的视觉识别是glm5.3 flash，去智谱官网bigmodelcn上直接充API，他们的弱智套餐非常恶心人。千问和glm都是有api直充的，虽然贵一点，但是你这个用量是绝对没问题的。
 
+
+*****
+
+####  Promeus  
+##### 14717#       发表于 2026-9-24 17:09
+
+你这样直接用个workbuddy薅羊毛呗
+
+
+*****
+
+####  schneehertz  
+##### 14718#       发表于 2026-9-24 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280047&amp;ptid=2275806" target="_blank">astrayveller 发表于 2026-9-24 11:52</a>
+现在dsh有啥操作office好用的插件么
+
+— from Xiaomi 2410DPN6CC, Android 16, S1 Next Goose v4.0-alpha ...</blockquote>
+如果装了msoffice，就让大肥鱼写个office-com插件，libreoffice效果还是差了点
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  雨昼斯基  
+##### 14719#       发表于 2026-9-24 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281348&amp;ptid=2275806" target="_blank">天堂懵懂人 发表于 2026-9-24 16:08</a>
+AI小白一枚
+
+我们这边做快递的，客户最近退货单他们自己打印在纸上，遇到有纠纷的单号我们需要从退货单上找 ...</blockquote>
+如果只是识别文字的话不妨叫 dsh 给部署一个本地 OCR 模型，OCR 不比大模型，即使是 sota 水平也可以轻易本地部署运行    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
