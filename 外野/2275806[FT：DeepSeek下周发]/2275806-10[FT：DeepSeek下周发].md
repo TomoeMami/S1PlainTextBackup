@@ -17637,3 +17637,23 @@ Windows 原生界面，MIT 开源，**v0.1.0 已提供安装包**。这是独立
 
 👉 [项目介绍]([https://yuriaqua.com/harness/](https://yuriaqua.com/harness/))
 
+
+*****
+
+####  qwased  
+##### 14758#       发表于 2026-9-25 00:16
+
+说起来DSH其实不太适合上下文预算很紧张的本地模型，标准模式第一句话就灌差不多20K上下文，极简又只有bash
+
+pi这种只要4K左右的就舒服很多了
+
+*****
+
+####  贝恩德塔  
+##### 14759#       发表于 2026-9-25 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283610&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-25 00:16</a>
+
+说起来DSH其实不太适合上下文预算很紧张的本地模型，标准模式第一句话就灌差不多20K上下文，极简又只有bash ...</blockquote>
+那当个本地模型配置器也行，起码比llama.cpp好用点（自我感觉），链接dsh只是顺带的
+
