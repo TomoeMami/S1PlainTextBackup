@@ -17066,3 +17066,15 @@ Openrouter</blockquote>
 
 我宣布ds 4.1f high 比 claude opus 4.7 high 牛逼。同一个实际的几何算法的问题，这两个模型都能正确理解。但是ds给出的正确的方案而且能够实施，用时和速度10倍秒杀 claude。（注：公司的claude是aws的Claude）
 
+
+*****
+
+####  overflowal  
+##### 14708#       发表于 2026-9-24 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280656&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-24 14:10</a>
+可以用国内信用卡吗？
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+你想通过openrouter用美国闭源模型不要用中国的支付方式，支付宝之类的。。会用不了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

@@ -1345,3 +1345,33 @@ Steam全球销量才第6，晚上就解锁了，销量估计又不咋地，改�
 
 说起来阿兰醒醒2就这样一直没上蒸汽哦。
 
+
+*****
+
+####  BK10  
+##### 139#       发表于 2026-9-24 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280886&amp;ptid=2104476" target="_blank">安瓦尔阿明 发表于 2026-9-24 14:55</a>
+
+说起来阿兰醒醒2就这样一直没上蒸汽哦。</blockquote>
+EPIC投资发行，必须EPIC点头，这次共振就是绿美迪第一次自己发行了，风险全部自己背了，不知道会咋样
+
+*****
+
+####  FBC档案部专员  
+##### 140#       发表于 2026-9-24 15:02
+
+steam还没解锁很多人学习版已经玩上了
+
+*****
+
+####  FBC档案部专员  
+##### 141#       发表于 2026-9-24 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280419&amp;ptid=2104476" target="_blank">HellMaster 发表于 2026-9-24 13:16</a>
+
+由于remedy的尿性，死忠都可能死等终极版最终版加强版完整版。现在不买太正常了 ...</blockquote>
+死忠会两个版本都买
+
+像我还会跨平台买
+
