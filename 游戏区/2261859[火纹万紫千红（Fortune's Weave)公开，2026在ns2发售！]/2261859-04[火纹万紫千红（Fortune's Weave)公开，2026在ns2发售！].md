@@ -7529,3 +7529,44 @@ engage原本技能不够用，dlc用到撑，万紫千红dlc大概也会搞这�
 
 官方访谈繁中: [https://www.nintendo.com/tw/interview/aacsa/index.html](https://www.nintendo.com/tw/interview/aacsa/index.html)
 
+
+*****
+
+####  ascomnet  
+##### 5129#       发表于 2026-9-24 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282921&amp;ptid=2261859" target="_blank">铁拳圣裁 发表于 2026-9-24 21:25</a>
+
+突然想到。
+
+难道说万贼千寇角色冗余这么严重，是因为这个角色量是按照八个主角的流程量设计的。
+
+并且每个角 ...</blockquote>
+可以是可以但不善于规划的玩家会很难受
+
+*****
+
+####  ShitOverflow  
+##### 5130#       发表于 2026-9-24 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282921&amp;ptid=2261859" target="_blank">铁拳圣裁 发表于 2026-9-24 21:25</a>
+
+突然想到。
+
+难道说万贼千寇角色冗余这么严重，是因为这个角色量是按照八个主角的流程量设计的。
+
+并且每个角 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没有啥好说的 ，这代不就水浒章回，每个角交待如何上山完事来，角色冗余在哪
+
+*****
+
+####  纯夏  
+##### 5131#       发表于 2026-9-24 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283020&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-9-24 21:42</a>
+
+要40个角色这么多吗，这游戏真就开始做了8主角然后硬砍。每条线都能这么多人入队关卡总是六个人上就有点有 ...</blockquote>
+第3部多部队运用 每个部队8位角色 编制3到4个部队就够了 
+
+没必要编那么多 
+

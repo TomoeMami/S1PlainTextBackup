@@ -119,3 +119,37 @@ MuMu-20260919-205429-531.jpg
 
 感觉藤堂画得不太行，再加上泳装被限定四星坑了波大的，果断放弃
 
+
+*****
+
+####  kyonkoism  
+##### 48232#       发表于 2026-9-24 21:49
+
+<img src="https://img.stage1st.com/forum/202609/24/214718x8u5ipcbr52zf5ip.png" referrerpolicy="no-referrer">
+
+<strong>Q0QBFSVA66L3T`FOW~_NBRW.png</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 21:47 上传
+
+<img src="https://img.stage1st.com/forum/202609/24/214717m6z6ltd6lhed9uz6.jpg" referrerpolicy="no-referrer">
+
+<strong>13S4VQSD8WDPHEHGN[%VQ%T_tmb.jpg</strong> (166.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 21:47 上传
+
+<img src="https://img.stage1st.com/forum/202609/24/214717xvj88yqmimmewixq.jpg" referrerpolicy="no-referrer">
+
+<strong>J8GS6D]MT}E]1WDJ1N3{SYB_tmb.jpg</strong> (164.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 21:47 上传
+
+气不过跑回去抽满宝了，记录一下，2800进来 1170出去，前面的3宝抽了1200 也就是说最后两宝430出的，也不算太黑了
+
+前面各种一个十连3个小男孩 一个十连2个小男孩，金圈都是小男孩唯一彩圈还是歪的，还好结果不错<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
