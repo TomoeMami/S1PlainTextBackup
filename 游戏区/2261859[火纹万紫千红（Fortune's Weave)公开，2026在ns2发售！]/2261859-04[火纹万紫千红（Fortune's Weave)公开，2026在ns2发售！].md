@@ -7670,3 +7670,16 @@ A少没有明显短板，35级侍道之后基本就是单杀，本作普攻不�
 
 我的女王转职路线是飞鸵兵→轻骑兵→荣光骑士→奥利哈铁骑
 
+
+*****
+
+####  ascomnet  
+##### 5142#       发表于 2026-9-24 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283436&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-24 23:21</a>
+
+当然转 
+
+我的女王转职路线是飞鸵兵→轻骑兵→荣光骑士→奥利哈铁骑</blockquote>
+需要转土匪练练力量么，还是直接转奇兵，现在22级 22力量
+
