@@ -17463,3 +17463,14 @@ MiMo-V2.6-Distill-Qwen-9B        17.6 GiB        蒸馏小模型
 
 网络出问题上不了codex了，于是用dsh来修，然后发现是让dsh之前弄网络的时候把网络跟自己都搞炸了，只好再用Cherry Studio来先修dsh<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chenyedgg  
+##### 14746#       发表于 2026-9-24 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281807&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-9-24 17:25</a>
+
+大烧货完全不能写文，是因为思维链模式的关系吗。文风指导和参考样本都一样，写出来的都不算人话，感觉某些 ...</blockquote>
+agent自带的系统提示词很长影响很大的
+
