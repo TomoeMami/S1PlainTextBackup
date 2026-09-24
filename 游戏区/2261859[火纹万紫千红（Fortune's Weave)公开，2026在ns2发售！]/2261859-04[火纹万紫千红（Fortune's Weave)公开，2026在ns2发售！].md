@@ -7425,3 +7425,67 @@ Fire Emblem万缕千丝使用了dlss
 
 ——来自 PKR110 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  真田源次郎信繁  
+##### 5121#       发表于 2026-9-24 21:28
+
+engage原本技能不够用，dlc用到撑，万紫千红dlc大概也会搞这么一下子吧，想养自己喜欢的角色还是得花钱<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  clyde-wang  
+##### 5122#       发表于 2026-9-24 21:28
+
+话说打完一个角色的章节之后想要再刷一下没有拿到的东西就直接重置章节吗？
+
+重置进度继承哪些东西啊？
+
+*****
+
+####  新HGCG  
+##### 5123#       发表于 2026-9-24 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281269&amp;ptid=2261859" target="_blank">fireadol 发表于 2026-9-24 15:55</a>
+
+这作男人真没几个行的，想给女王配对都找不到人</blockquote>
+凯伊啊
+
+这一开就是要被柯南卡车压过去的
+
+
+*****
+
+####  flyingover  
+##### 5124#       发表于 2026-9-24 21:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282921&amp;ptid=2261859" target="_blank">铁拳圣裁 发表于 2026-9-24 21:25</a>
+
+突然想到。
+
+难道说万贼千寇角色冗余这么严重，是因为这个角色量是按照八个主角的流程量设计的。
+
+并且每个角 ...</blockquote>
+我觉得大概是那些高挖角要求的人会在其他四个主角里挖的要求很低或者初始角色，便于养成
+
+然后也不至于像盖茨一样a少错过就挖不了
+
+*****
+
+####  新HGCG  
+##### 5125#       发表于 2026-9-24 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282921&amp;ptid=2261859" target="_blank">铁拳圣裁 发表于 2026-9-24 21:25</a>
+
+突然想到。
+
+难道说万贼千寇角色冗余这么严重，是因为这个角色量是按照八个主角的流程量设计的。
+
+并且每个角 ...</blockquote>
+不不不，到了最终局面要在防守主基地的情况下限时分头占领敌人据点
+
+届时你需要5支部队满员40人
+
+外加随叫随到的自捏，等于你需要培养41个主力
+
