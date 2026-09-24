@@ -2511,3 +2511,24 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 2026-9-24 09:41 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 615#         楼主| 发表于 2026-9-24 22:14
+
+合田浩章 绘
+<img src="https://p.sda1.dev/35/be9c3840fe0c720d1ce381b2def1fd0d/HSsrcFdaQAAuWSX.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/4b4ec0bec573816a53afb8be70a45a70/HS18fxqaAAAkX08.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/2dd1a6f7cf2ddd167f70af5beb4f9420/HS1-GLlaAAArkUi.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/erizabes1012/status/2102386792414720111](https://x.com/erizabes1012/status/2102386792414720111)
+
+改めて、さよならララと言う、素晴らしい作品に参加出来て楽しかったです！ありがとうございました！
+
+お疲れ様でした！
+<img src="https://p.sda1.dev/35/045fb04d903c8382084693d255fbcc9c/HS0sedybYAAQuEZ.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/nitalPuarF192/status/2102369359259996583](https://x.com/nitalPuarF192/status/2102369359259996583)
+<img src="https://p.sda1.dev/35/0213c98481e771628d7750f229a34d57/HS0dycOboAAdx79.jpg" referrerpolicy="no-referrer">
+
