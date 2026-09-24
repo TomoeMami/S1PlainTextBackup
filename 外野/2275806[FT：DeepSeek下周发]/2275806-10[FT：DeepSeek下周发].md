@@ -16970,3 +16970,27 @@ dsp plugin --profile web add dshmarket@latest
 WorkBuddy的DeepSeek-4.1-Flash 竟然从0.03涨到0.11，只能含泪换成0.06 的glm5.3flash了。</blockquote>
 其实workbuddy里的4.1f在上班时间就已经是0.06了，只是标着0.03然后里面写着高峰期翻倍。
 
+
+*****
+
+####  qwased  
+##### 14700#       发表于 2026-9-24 13:37
+
+<img src="https://img.stage1st.com/forum/202609/24/133646b2ayty4z2kbbvp6y.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-09-24_13-36-27.jpg</strong> (138.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 13:36 上传
+
+<img src="https://img.stage1st.com/forum/202609/24/133654nnq4wcfbuukyjdvs.jpg" referrerpolicy="no-referrer">
+
+<strong>AE4414BDBD2746C84F109C9C78AD2B48.jpg</strong> (54.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 13:36 上传
+
+qoder的3.8flash频繁流口水，会突然忘记自己要干什么，感觉要变成臭鸡蛋了
+
