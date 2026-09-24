@@ -1320,3 +1320,20 @@ Steam全球销量才第6，晚上就解锁了，销量估计又不咋地，改�
 
 由于remedy的尿性，死忠都可能死等终极版最终版加强版完整版。现在不买太正常了
 
+
+*****
+
+####  chizuru  
+##### 136#       发表于 2026-9-24 13:21
+
+这个工作室如果能招一些更好的游戏设计，档次能一下子提高一大截
+
+*****
+
+####  BK10  
+##### 137#       发表于 2026-9-24 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280419&amp;ptid=2104476" target="_blank">HellMaster 发表于 2026-9-24 13:16</a>
+由于remedy的尿性，死忠都可能死等终极版最终版加强版完整版。现在不买太正常了 ...</blockquote>
+不是他家有什么加强啊，不就是dlc打包，心灵杀手2都没有什么更新了dlc出完结束了
+
