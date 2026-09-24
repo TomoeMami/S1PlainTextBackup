@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 20694,
+    "totalreply": 20695,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼7月]",
-    "lastedit": 1790271605,
+    "lastedit": 1790293565,
     "category": "外野",
     "active": true,
     "update": false
@@ -13977,10 +13977,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 17323,
+    "totalreply": 17325,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1790282525,
+    "lastedit": 1790293565,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16835,7 +16835,7 @@
     "newtitle": "[华盛顿凯旋门将改建为军事综合体]",
     "lastedit": 1790034246,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2288109": {
@@ -17797,6 +17797,15 @@
     "title": "[『ARMED FANTASIA』和『Penny Blood』家庭用开发决定]",
     "newtitle": "[『ARMED FANTASIA』和『Penny Blood』家庭用开发决定]",
     "lastedit": 1790292846,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2096307": {
+    "totalreply": 42,
+    "title": "[荒野兵器精神续作《武装幻想谭 ／ ARMED FANTASIA》众筹开发中]",
+    "newtitle": "[荒野兵器精神续作《武装幻想谭 ／ ARMED FANTASIA》众筹开发中]",
+    "lastedit": 1790293445,
     "category": "游戏区",
     "active": true,
     "update": false
