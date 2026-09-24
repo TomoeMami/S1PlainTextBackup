@@ -17601,3 +17601,39 @@ dsh更新0.1.7-rc2了，目前桌面端好像可以自动更新了<img src="http
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  贝恩德塔  
+##### 14757#       发表于 2026-9-25 00:07
+
+ 本帖最后由 贝恩德塔 于 2026-9-25 00:08 编辑 
+
+**做了个 DeepSeek Harness 的 Windows 伴航工具，开源免费**
+
+不想每次都敲命令启动模型、手动配置 API，于是做了这个。
+
+<img src="https://img.stage1st.com/forum/202609/25/000640a1uboa97j7cb7ta7.png" referrerpolicy="no-referrer">
+
+<strong>app-preview.png</strong> (66.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 00:06 上传
+
+主要能做这些：
+
+- 一键启动本地模型并接入 Harness
+
+- 管理 Harness 的本地、云端 API 提供方
+
+- 模型试聊、参数预设、一键导入导出
+
+- 提供4个 16GB 显存的 Qwen 配置参考方案，n卡16g显存应该是通用的，包含破限模型的配置方案，模型自行从 Hugging Face 下载
+
+Windows 原生界面，MIT 开源，**v0.1.0 已提供安装包**。这是独立社区项目，欢迎试用和反馈，点个小星星也行。
+
+👉 [下载与源码]([https://github.com/toydream525/deepseek-harness-companion](https://github.com/toydream525/deepseek-harness-companion))  
+
+👉 [项目介绍]([https://yuriaqua.com/harness/](https://yuriaqua.com/harness/))
+
