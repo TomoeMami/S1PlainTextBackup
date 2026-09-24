@@ -513,3 +513,14 @@ v2-0ae7091590a14f8c0b1b7b12deaf9172_720w.webp
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  我王  
+##### 1941#       发表于 2026-9-24 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283147&amp;ptid=2210366" target="_blank">相棒 发表于 2026-9-24 22:11</a>
+
+打过岚山了，问下二周目哪些东西可以继承啊，物品都能留到下周目吗？</blockquote>
+一周目尽量把鬼灯袋升满，红魂进二周目前花光，换材料升级前面说的鬼灯袋，升技能升御守换反魂镜之类道具，装备别强行换材料升级了，带不到下周目
+

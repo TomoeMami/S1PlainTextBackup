@@ -160,3 +160,16 @@ FSR漫画版作者雾月（剑阶羁绊礼装也是他画的）认领了杰士�
 </blockquote>
 这个贺图真的太漂亮了，有种就算落地之后的满破也肯定比不过的感觉
 
+
+*****
+
+####  少女人形  
+##### 21618#       发表于 2026-9-24 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70277146&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-9-23 19:38</a>
+
+彩卷 狂！ 有本事再歪 哦 没歪
+
+那么问题来了 我为什么要抽这张卡来着</blockquote>
+她声优是你头像算不算理由<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

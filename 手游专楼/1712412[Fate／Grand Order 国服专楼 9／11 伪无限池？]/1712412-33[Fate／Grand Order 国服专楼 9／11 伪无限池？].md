@@ -176,3 +176,11 @@ MuMu-20260919-205429-531.jpg
 
 810石，70护符，剑心2宝了，歪了七个平助，NEW了一个毛给<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，礼装满破了两排还多。。。。
 
+
+*****
+
+####  snakeling  
+##### 48236#       发表于 2026-9-24 23:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">麻蛋，第一次手滑卖了四星，三百石一剑心三新四星，然后手滑卖掉两个四星了。
+
