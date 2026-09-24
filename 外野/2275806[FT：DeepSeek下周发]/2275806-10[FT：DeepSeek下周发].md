@@ -17280,3 +17280,19 @@ DS的视觉拉中拉，屎中屎，但是你扫82张照片绝对不可能用10�
 —— 来自 vivo V2520A, Android 16, 鹅球 v3.5. ...</blockquote>
 有可能可以，但是非常需要个大内存，engram往内存里加载就完事了…
 
+
+*****
+
+####  cscbzcbz  
+##### 14727#       发表于 2026-9-24 18:16
+
+文谷时间到<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lubo  
+##### 14728#       发表于 2026-9-24 18:22
+
+Google AI Pro用户好像每周可以通过Colab使用大约20小时的A100，而且模型可以直接放在Google Drive里，挂载后直接调用，不需要每次重新下载。有人试过吗？
+
