@@ -17219,3 +17219,19 @@ AI小白一枚
 
 <img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">大烧货完全不能写文，是因为思维链模式的关系吗。文风指导和参考样本都一样，写出来的都不算人话，感觉某些地方缺了一环，反正完全不能写文
 
+
+*****
+
+####  zhanglei1943  
+##### 14722#       发表于 2026-9-24 17:43
+
+<img src="https://img.stage1st.com/forum/202609/24/174245oaose4sooowrox48.png" referrerpolicy="no-referrer">
+
+<strong>1cfcdc23eafc3e899cce89d0f9f97b20.png</strong> (162.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 17:42 上传
+
+deepseek更新日志/文档页面结构变动
+

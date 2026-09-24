@@ -153,3 +153,31 @@ NS2版居然不是钥匙卡？</blockquote>
 
 另外这游戏能给老玩家提供一个一周目剧情直接跳过的选项就好了，这个围绕时之精IF线才是这作单机版主打的要素吧。
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 65#       发表于 2026-9-24 17:40
+
+<img src="https://img.stage1st.com/forum/202609/24/173502obgkb3aa83y88ca8.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AF3EC1CB-1C50-4A9A-87EB-BFCDD530D99A.jpeg</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 17:35 上传
+
+2021年，4周年出过一次专栏但没上封面。年底クロノ・クロス(CC/超时空之轮2)联动定下这游戏的真本家。从此每年年底上一次封面：
+
+21联动CC 加藤正人狂喜
+
+22联动仙乐传说&amp;破晓传说
+
+23联动八方旅人1+2+大陆霸者
+
+24联动莱莎1
+
+25联动FF9
+
+这次Begins是第六次上封面
+
