@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 45565,
+    "totalreply": 45568,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1790222647,
+    "lastedit": 1790223965,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12024,10 +12024,10 @@
     "update": false
   },
   "2261859": {
-    "totalreply": 5033,
+    "totalreply": 5036,
     "title": "[火纹万紫千红（Fortune's Weave)公开，2026在ns2发售！]",
     "newtitle": "[火纹万紫千红（Fortune's Weave)公开，2026.9.17在ns2发售！／8.4晚22点专场nd]",
-    "lastedit": 1790223487,
+    "lastedit": 1790223846,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13995,10 +13995,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 16819,
+    "totalreply": 16829,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1790223246,
+    "lastedit": 1790223965,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -15611,7 +15611,7 @@
     "newtitle": "[DS算法师：正因AI可能毁灭人类文明，所以我选择相信真正会造福人类的信仰并留在DS]",
     "lastedit": 1789964770,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289811": {
@@ -17181,10 +17181,10 @@
     "update": false
   },
   "2290176": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[2026汉化爆发总结楼]",
     "newtitle": "[2026汉化爆发总结楼]",
-    "lastedit": 1790213527,
+    "lastedit": 1790223846,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17487,10 +17487,10 @@
     "update": false
   },
   "2290305": {
-    "totalreply": 75,
+    "totalreply": 76,
     "title": "[中老铁路货物运输突破9000万吨，老挝将于十一月脱离最贫困国家行列]",
     "newtitle": "[中老铁路货物运输突破9000万吨，老挝将于十一月脱离最贫困国家行列]",
-    "lastedit": 1790219529,
+    "lastedit": 1790223847,
     "category": "外野",
     "active": true,
     "update": false
@@ -17523,10 +17523,10 @@
     "update": false
   },
   "2290340": {
-    "totalreply": 99,
+    "totalreply": 100,
     "title": "[军训期间谎称上厕所，擅自离校飞到上海旅游，校方：其已申请退学]",
     "newtitle": "[军训期间谎称上厕所，擅自离校飞到上海旅游，校方：其已申请退学]",
-    "lastedit": 1790221575,
+    "lastedit": 1790223606,
     "category": "外野",
     "active": true,
     "update": false
@@ -17631,10 +17631,10 @@
     "update": false
   },
   "2290376": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "[一个小时之内吃完这盘肘子饭奖励888元]",
     "newtitle": "[一个小时之内吃完这盘肘子饭奖励888元]",
-    "lastedit": 1790223126,
+    "lastedit": 1790223606,
     "category": "外野",
     "active": true,
     "update": false
@@ -17658,19 +17658,19 @@
     "update": false
   },
   "2290391": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "[游本昌逝世，享年93岁]",
     "newtitle": "[游本昌逝世，享年93岁]",
-    "lastedit": 1790223246,
+    "lastedit": 1790223846,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2290346": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[任正非重申华为不造车，但是很乐意发挥在智能化方面的特长帮助造好车]",
     "newtitle": "[任正非重申华为不造车，但是很乐意发挥在智能化方面的特长帮助造好车]",
-    "lastedit": 1790222888,
+    "lastedit": 1790223606,
     "category": "外野",
     "active": true,
     "update": false
@@ -17681,6 +17681,15 @@
     "newtitle": "[o 初 a 初双双大降价]",
     "lastedit": 1790222887,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2290366": {
+    "totalreply": 41,
+    "title": "[简单聊聊手柄背键]",
+    "newtitle": "[简单聊聊手柄背键]",
+    "lastedit": 1790223847,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
