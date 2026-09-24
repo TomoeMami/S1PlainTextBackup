@@ -168,3 +168,11 @@ MuMu-20260919-205429-531.jpg
 
 5个十连3宝，感觉这几个池子都好欧，快要还债了
 
+
+*****
+
+####  麻花疼  
+##### 48235#       发表于 2026-9-24 22:36
+
+810石，70护符，剑心2宝了，歪了七个平助，NEW了一个毛给<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，礼装满破了两排还多。。。。
+
