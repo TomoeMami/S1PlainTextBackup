@@ -16839,3 +16839,48 @@ dsh不会自动升级，强制升级到0.1.7rc插件市场崩了，怎么整</bl
  ...</blockquote>
 重启机器后好了
 
+
+*****
+
+####  Milarvoz  
+##### 14690#       发表于 2026-9-24 11:37
+
+插件版本跟不上dsh版本会炸，dsh版本跟不上插件版本也会炸，还得常备一个急救专用agent。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  BarricadeMKXX  
+##### 14691#       发表于 2026-9-24 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279973&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-9-24 11:37</a>
+
+插件版本跟不上dsh版本会炸，dsh版本跟不上插件版本也会炸，还得常备一个急救专用agent。
+
+—— 来自 samsu ...</blockquote>
+dsh命令行有个rescue来着，不知道行不行
+
+
+*****
+
+####  BarricadeMKXX  
+##### 14691#       发表于 2026-9-24 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279973&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-9-24 11:37</a>
+
+插件版本跟不上dsh版本会炸，dsh版本跟不上插件版本也会炸，还得常备一个急救专用agent。
+
+—— 来自 samsu ...</blockquote>
+dsh命令行有个rescue来着，不知道行不行
+
+*****
+
+####  巨魔已被忠诚  
+##### 14692#       发表于 2026-9-24 11:46
+
+ds的桌面端社区版本都有不同，沙盒回滚的2.0.13体验比较好。有个0.9的维护版本搜索引擎权重比其他的高容易下错，数据记录也不是引用官方目录还是另开目录的，回迁都麻烦。
+
+还有代码版dsh我昨天晚上用git拉能构建4个版本，社区桌面版支持度不够别乱升级。
+
