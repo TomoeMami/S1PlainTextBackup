@@ -121,3 +121,35 @@ NS2版居然不是钥匙卡？</blockquote>
 
 问下大家NS版玩的时候有没有遇到异常掉帧的问题。人物移动伴随地图背景移动的时候感觉远不到30帧，肉眼可见一卡一卡的。作为对比，原版免费版应该是有30帧的吧，两者丝滑程度完全不同。是游戏问题还是我机器的问题，NS2系统版本23.0.0……
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 64#       发表于 2026-9-24 17:31
+
+<img src="https://img.stage1st.com/forum/202609/24/172611v911nws1wfn4cmve.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FFCB6EC0-2A35-4853-B61F-23B1687DFC38.jpeg</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 17:26 上传
+
+9月24日1963期号Begins封面来了
+
+主角可以，菲娜好看，艾米不错，莉卡……
+
+莉卡有点在恐怖谷边缘试探的赶脚
+
+<img src="https://img.stage1st.com/forum/202609/24/172611mffdd6crafwadawd.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B33DD781-2E2A-4963-AEA2-346A55CD94AA.jpeg</strong> (848.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 17:26 上传
+
+明明立绘看起来还算正常，为什么封面比例失调如此严重。
+
+另外这游戏能给老玩家提供一个一周目剧情直接跳过的选项就好了，这个围绕时之精IF线才是这作单机版主打的要素吧。
+
