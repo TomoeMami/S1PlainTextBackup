@@ -16768,3 +16768,35 @@ openrouter上线了名为space-bunny-alpha的匿名模型，脏token测试命中
 
 大烧货0.1.7rc感觉比0.1.5强了不少，让他照着图复刻一张ppt，执行力强得惊人，修改几次后效果也很好
 
+
+*****
+
+####  Hattle  
+##### 14683#       发表于 2026-9-24 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279496&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-9-24 10:17</a>
+
+阿里的token plan值得买吗</blockquote>
+Credits消耗纯黑箱模型抵扣系数是没有的，用量统计和查看也没有，而且没有登录状态保留，过几个小时查看用量就要重新登录，纯粹就是恶心人，我还是更推荐火山云的AGENT PLAN，新用户有2个月的2.5折，50块钱能用差不多20亿的DeepSeekV4.1
+
+
+*****
+
+####  tillnight  
+##### 14684#       发表于 2026-9-24 11:23
+
+ 本帖最后由 tillnight 于 2026-9-24 11:25 编辑 
+<blockquote>蛋黄酱Release 发表于 2026-9-24 10:17
+阿里的token plan值得买吗</blockquote>
+
+昨天抖音有10块买60块的套餐，试了以后认定为完全不值，跑4.1f大约只有5e token不到，还是自部署的只有100tps，也就9.9勉强不亏，原价和小米套餐一桌。
+
+然后刨除订阅产品本身，阿里云百炼这个官网页面是同类产品里最差的，光这个就不会考虑用。
+
+*****
+
+####  Baccano  
+##### 14685#       发表于 2026-9-24 11:24
+
+WorkBuddy的DeepSeek-4.1-Flash 竟然从0.03涨到0.11，只能含泪换成0.06 的glm5.3flash了。
+
