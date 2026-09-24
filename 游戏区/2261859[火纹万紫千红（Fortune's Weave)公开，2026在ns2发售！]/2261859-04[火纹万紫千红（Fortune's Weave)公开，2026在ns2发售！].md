@@ -6897,3 +6897,16 @@ Engage就更不用说了除了皇族那些跟班我印象中除了出场部分�
 比如 Leda 线的金发大小姐，基本二次元中最刻板印象的角色（也是我最讨厌的刻板印象类角色），但是 ta 在 ...</blockquote>
 金发大小姐意外的很照顾蕾达的感受，真的是比形象更讨喜
 
+
+*****
+
+####  karastar  
+##### 5071#       发表于 2026-9-24 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281018&amp;ptid=2261859" target="_blank">caps洛奇 发表于 2026-9-24 15:16</a>
+
+这作的非核心角色的剧情主要在地图对话里面，是会随着主线更新的
+
+比如快决赛了，初赛打过的重甲大妈会说  ...</blockquote>
+什么轨迹对话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
