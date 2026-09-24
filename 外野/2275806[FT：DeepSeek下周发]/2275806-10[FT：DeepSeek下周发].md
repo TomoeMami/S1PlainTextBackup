@@ -17100,3 +17100,22 @@ mimo 2.6 flash在dsh里干活的时候，如果切换会话再切回来，界面
 dsh不会自动升级，强制升级到0.1.7rc插件市场崩了，怎么整</blockquote>
 再开一个dsh，让他俩互相修
 
+
+*****
+
+####  空き地卯木  
+##### 14711#       发表于 2026-9-24 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280047&amp;ptid=2275806" target="_blank">astrayveller 发表于 2026-9-24 11:52</a>
+现在dsh有啥操作office好用的插件么
+
+— from Xiaomi 2410DPN6CC, Android 16, S1 Next Goose v4.0-alpha ...</blockquote>
+最新rc版本说是内置了一套Office环境了，不知道好不好用
+
+*****
+
+####  overflowal  
+##### 14712#       发表于 2026-9-24 15:49
+
+The Information 说梁子70%算力在训练，30%用来推理。不知道这个占比相比OA两家是高还是低。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

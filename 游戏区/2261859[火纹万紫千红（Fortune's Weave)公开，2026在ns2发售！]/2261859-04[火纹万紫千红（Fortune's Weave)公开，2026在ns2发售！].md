@@ -6958,3 +6958,45 @@ A少這次根本魅魔一個。人人開口都說他美。女反派迷上他，�
 
 地底人大叔跟A少的一些對話跟支援簡直羅曼蒂克的無法直視。
 
+
+*****
+
+####  白昼梦DD  
+##### 5077#       发表于 2026-9-24 15:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">可惜巴西初音五年后长残了
+
+*****
+
+####  Niu  
+##### 5078#       发表于 2026-9-24 15:51
+
+<blockquote>Jabeck 发表于 2026-9-23 23:38
+巴西初音问A少看中女人外表吗？如果你选择不看中巴西初音会看出来你是在骗她，说明A少也是看中颜值的。女反 ...</blockquote>
+A少是真的不怎麼在意顏值。地底人大叔對A少說我可以換個美女肉體陪你。但A少卻回答沒有比要，外表美醜不重要，你的為人就已經很美了。
+
+*****
+
+####  DARK_HGCG  
+##### 5079#       发表于 2026-9-24 15:53
+
+问下
+
+手_枪有几把？后期能买吗？只能靠队友自带？
+
+
+*****
+
+####  trotsky  
+##### 5080#       发表于 2026-9-24 15:55
+
+甚至蕾达线两次碰A少都是三句不离颜值<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fireadol  
+##### 5081#       发表于 2026-9-24 15:55
+
+这作男人真没几个行的，想给女王配对都找不到人<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
