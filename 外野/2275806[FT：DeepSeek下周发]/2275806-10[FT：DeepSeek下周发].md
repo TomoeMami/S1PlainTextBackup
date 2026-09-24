@@ -17015,3 +17015,35 @@ qoder的3.8flash频繁流口水，会突然忘记自己要干什么，感觉要�
 
 但是，百度怎么就直接查无此人了。
 
+
+*****
+
+####  lactone  
+##### 14703#       发表于 2026-9-24 14:07
+
+现在最简单的用astra的方法是啥？用不了多少，可能几十万token，所以不想注册一个账号
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  startraveller  
+##### 14704#       发表于 2026-9-24 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280640&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-24 14:07</a>
+现在最简单的用astra的方法是啥？用不了多少，可能几十万token，所以不想注册一个账号
+
+—— 来自 vivo V25 ...</blockquote>
+Openrouter
+
+*****
+
+####  lactone  
+##### 14705#       发表于 2026-9-24 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280644&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-9-24 14:08</a>
+Openrouter</blockquote>
+可以用国内信用卡吗？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

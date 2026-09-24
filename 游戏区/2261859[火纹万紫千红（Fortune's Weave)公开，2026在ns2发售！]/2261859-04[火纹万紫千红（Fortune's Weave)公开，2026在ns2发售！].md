@@ -6752,3 +6752,14 @@ SLG的占比太大了。
 
 这代的无论是剧情还是人物的写作和台词水平都超过前作太多了
 
+
+*****
+
+####  白昼梦DD  
+##### 5058#       发表于 2026-9-24 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280563&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-9-24 13:50</a>
+
+我感觉我第一条线大概率会再其他主角的线通关后再打一遍了 挖角安排不是很理想，有几个路线限定/低名声要求 ...</blockquote>
+功利点感觉就凯伊线最后再打一遍开个战车连得了
+
