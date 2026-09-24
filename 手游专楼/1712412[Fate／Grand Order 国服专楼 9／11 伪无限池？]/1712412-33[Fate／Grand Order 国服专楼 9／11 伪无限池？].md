@@ -41,3 +41,31 @@ MuMu-20260919-205429-531.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">420石剑心二宝 还行
 
+
+*****
+
+####  史艳文  
+##### 48225#       发表于 2026-9-24 19:29
+
+<img src="https://img.stage1st.com/forum/202609/24/192907jcz48465tv8svjlx.png" referrerpolicy="no-referrer">
+
+<strong>9291D7ADA06F93746B310C5D13FBB02A.png</strong> (229.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 19:29 上传
+
+我敲，我今年第四次保底了，这合理吗，四次都是中途1个五星都没有
+
+
+*****
+
+####  赤备传承  
+##### 48226#       发表于 2026-9-24 19:35
+
+一发十连跑了1.7mb
+
+一个三星活动礼装，一个五星活动礼装，金枪哪吒，两个new四星
+
+狂出四星时候多半没五星，还是慢慢来了
+
