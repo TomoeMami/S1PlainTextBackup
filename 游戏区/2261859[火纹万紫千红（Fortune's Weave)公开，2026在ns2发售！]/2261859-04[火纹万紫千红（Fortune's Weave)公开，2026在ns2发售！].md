@@ -6394,3 +6394,71 @@ SLG的占比太大了。
 这作如果捏女主可以搞姬吗？</blockquote>
 可以，和以前一样
 
+
+*****
+
+####  Rainwedell  
+##### 5026#       发表于 2026-9-24 11:59
+
+战车给的数值过于变态，抓完宝可梦全部上车就完事了，力防技成长都不错，要合成的其他线去补速度魔防，肌无力直接变数值怪了
+
+*****
+
+####  蓝色暴鲤龙  
+##### 5027#       发表于 2026-9-24 12:01
+
+这作很多设定都是服务于均练基础上的多战斗的，比如魔法和体力在遭遇战后不会回满，以及武器普攻没有耐久，魔法有耐久等，具体分析起有点复杂，就不多说了。不喜欢均练的是不能体会这作的很多设计有多牛逼的。
+
+我目前40小时，蕾达线第一部第8章。反正是给我玩爽了，未来如果没有这样的火纹，我就要惆怅了。
+
+*****
+
+####  ShitOverflow  
+##### 5028#       发表于 2026-9-24 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279488&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-9-24 10:16</a>
+
+凯伊一口一个姐姐一个哥哥叔叔真的听着就很烦，正常点就什么什么桑不行么搞得像是谁都跟你很熟一样
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">王道仔是这样的，够资格跟他打的都有点眼力见，不然大姐开局挡车一拳给头都打飞了
+
+*****
+
+####  caps洛奇  
+##### 5029#       发表于 2026-9-24 12:02
+
+我凯伊线终盘妮涅的面板，成长是天马（ntr粉毛的马）和红驼兵
+
+拿的妈妈枪 罐头也能开
+
+准备最终转岚枪神将
+
+<img src="https://img.stage1st.com/forum/202609/24/120055t89u8n38imss3upq.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-09-24_120037_425.png</strong> (629.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-24 12:00 上传
+
+*****
+
+####  -マユ‐  
+##### 5030#       发表于 2026-9-24 12:03
+
+我蕾妲线声望 8 已经差不多挖到 15 人了，是不是这阶段请客观剧已经收益不大不用搞了？还有这代道具的重量普遍好高啊，为一点加成扣 5 速搞得我都没怎么带装备<img src="https://static.stage1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  忘却旋律  
+##### 5031#       发表于 2026-9-24 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279049&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-9-24 09:06</a>
+
+妮涅转战车了，确实很强，但不能换衣服了
+
+转了战车有种间桐脏砚的感觉</blockquote>
+能换啊 一样 按+号就能玩 ，我其他职业转 骑兵 战车是都能换的 
+

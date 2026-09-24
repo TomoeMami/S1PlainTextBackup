@@ -16923,3 +16923,27 @@ dsh奔溃最大的就是侧边栏的那个需要通过dsh执行会话去安装�
 Credits消耗纯黑箱模型抵扣系数是没有的，用量统计和查看也没有，而且没有登录状态保留，过几个小时查看 ...</blockquote>
 方舟 Agent Plan ， 邀请码来一个，刚好准备充个 agent plan
 
+
+*****
+
+####  Hattle  
+##### 14696#       发表于 2026-9-24 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70280062&amp;ptid=2275806" target="_blank">marrrk 发表于 2026-9-24 11:55</a>
+
+方舟 Agent Plan ， 邀请码来一个，刚好准备充个 agent plan</blockquote>
+方舟 Agent Plan，最新支持 GLM-5.3 系列、Deepseek-V4 系列（正式版）、 Kimi-K3、Doubao-Seed-Evolving 等模型。胜任 Coding，不止 Coding，提供全模态模型与 Harness 能力，扩展更多的探索与实践空间。点击链接订阅 Small/Medium 可叠加 9.5 折，低至 9.4 元。立即订阅：[https://volcengine.com/L/hP_R2w4i8N8/](https://volcengine.com/L/hP_R2w4i8N8/)  邀请码：CBUU8VGE
+
+
+*****
+
+####  小野賢章  
+##### 14697#       发表于 2026-9-24 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70279933&amp;ptid=2275806" target="_blank">kingtigerc 发表于 2026-9-24 11:29</a>
+
+dsh不会自动升级，强制升级到0.1.7rc插件市场崩了，怎么整</blockquote>
+如果是 dshmarket 的话，手动升级可以解决
+
+dsp plugin --profile web add dshmarket@latest
+
