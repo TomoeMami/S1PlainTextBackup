@@ -7860,3 +7860,25 @@ A少线升级太快，11章打完爱娜外传就45级，不敢再刷了。</bloc
 编辑，回错了
 —— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  夜留歌  
+##### 5155#       发表于 2026-9-25 01:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283334&amp;ptid=2261859" target="_blank">月华刹那 发表于 2026-9-24 22:52</a>
+蕾达那个酒馆声望10跳舞任务的素材玄妙利芙在哪拿的？我问豆包说要等11章的任务才能获得？
+
+我现在9章不能提 ...</blockquote>
+在南边，马哈里帕之国
+<img src="https://p.sda1.dev/35/5ade52b6d4eb189fcfc6a2187f3cfe80/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  Nez  
+##### 5156#       发表于 2026-9-25 01:47
+
+有什么职业的精通技能是值得拿的吗，看了下好像都一般
+
