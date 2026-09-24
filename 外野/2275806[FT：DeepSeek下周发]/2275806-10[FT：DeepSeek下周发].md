@@ -17235,3 +17235,14 @@ AI小白一枚
 
 deepseek更新日志/文档页面结构变动
 
+
+*****
+
+####  飞天荷兰人  
+##### 14723#       发表于 2026-9-24 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70281807&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-9-24 17:25</a>
+
+大烧货完全不能写文，是因为思维链模式的关系吗。文风指导和参考样本都一样，写出来的都不算人话，感觉某些 ...</blockquote>
+你让他用中文思考试试,coding提示词的原因,他的输出是非常格式化的,不适合写文.
+
