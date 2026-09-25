@@ -18215,3 +18215,19 @@ ppt目前效果最好的流程就是把文本大纲和设计指导塞给chatgpt�
 这桌面端不会就是套了一个electron的壳外加一些账号功能吧，那和我直接用webui有啥区别 ...</blockquote>
 要考虑到大众用户的上手难度，webui装node再敲命令行已经超标了
 
+
+*****
+
+####  love4aids  
+##### 14780#       发表于 2026-9-25 11:26
+
+webui现在还是0.1.5 rc吧，对话都不通用<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moekyo  
+##### 14781#       发表于 2026-9-25 11:33
+
+不知道为啥，昨天晚上开始，o 家这边感觉变聪明了，网页版完全不偷懒了，tibo 那个 I smell fear 的回旋镖来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
