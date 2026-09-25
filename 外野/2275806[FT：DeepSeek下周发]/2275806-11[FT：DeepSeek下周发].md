@@ -975,3 +975,127 @@ qwen4的27b啥时候出啊，眼巴巴等着。
 今天爽玩了一天qwen3.8 27b的swift gsq版本，速度快到怀疑人生，也不会雷霆思考，能力还很微妙的强。。本地 ...</blockquote>
 试了一下破甲的版本，有点厉害
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 14884#       发表于 2026-9-25 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286287&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-9-25 20:52</a>
+我看了小红书上分析的，Work消耗的额度速度是code的三倍起步，读缓存价格更是逆天。我就是不懂为什么会这 ...</blockquote>
+大概是work不受5小时额度限制吧
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  相见恨晚  
+##### 14885#       发表于 2026-9-25 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286560&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-25 22:11</a>
+
+他只能看自己搜出来的网页</blockquote>
+可以的，我先把当前对话的分享链接给了他，他看了还评价了，结果话锋一转又说他看了是骗我的，实际不行，我又把本贴链接给他，他又是一顿评价然后又说是虚构的
+
+*****
+
+####  FeteFete  
+##### 14886#       发表于 2026-9-25 23:17
+
+mimo思考太长了
+
+他的pro版本你们觉得是什么水平?
+
+*****
+
+####  nxmonitor  
+##### 14887#       发表于 2026-9-25 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286773&amp;ptid=2275806" target="_blank">FeteFete 发表于 2026-9-25 23:17</a>
+
+mimo思考太长了
+
+他的pro版本你们觉得是什么水平?</blockquote>
+命令遵循非常差，被4.1F路过的水平
+
+*****
+
+####  大肥鱼  
+##### 14888#       发表于 2026-9-26 00:09
+
+话说回来，各位其实或多或少有可能都已经知道的情况下，但也再通知一下吧。
+
+手机上的客户端从253直接更新到了260，有兴趣的朋友但还没更新的话，就去更新一下吧。
+
+这好像也不属于是强制大更新，只有在系统商城自己去找才能够发现的更新。
+
+只不过这么大的版本号变化，应该说大的要来了吗？该不该期待一下呢？
+
+*****
+
+####  andychen  
+##### 14889#       发表于 2026-9-26 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286427&amp;ptid=2275806" target="_blank">夜游宫 发表于 2026-9-25 21:30</a>
+
+有没有本地无甲的NSFW文字模型推荐？</blockquote>
+去HF搜qwen的无审查版，有不少选择
+
+*****
+
+####  夜游宫  
+##### 14890#       发表于 2026-9-26 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286944&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-26 00:15</a>
+
+去HF搜qwen的无审查版，有不少选择</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">试了下，14B模型只能说还是太勉强。
+
+*****
+
+####  苇原雪道  
+##### 14891#       发表于 2026-9-26 00:29
+
+DS 4.1是不是改啥了？前几天缓存命中都是98%以上，今天就93%了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 14892#       发表于 2026-9-26 00:46
+
+缓存命中率这种东西，第一需要考虑的不是模型有什么变化，而是你的agent工具有什么变化。
+
+*****
+
+####  kinfox  
+##### 14893#       发表于 2026-9-26 00:54
+
+今天爽玩了一天qwen3.8 27b的swift gsq版本，速度快到怀疑人生，也不会雷霆思考，能力还很微妙的强。。本地模型真的太好玩了。每天都有新东西。
+
+qwen4的27b啥时候出啊，眼巴巴等着。
+
+本地模型党的快乐就靠qwen了
+
+*****
+
+####  tonyunreal  
+##### 14894#       发表于 2026-9-26 02:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70287005&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-9-26 00:54</a>
+
+今天爽玩了一天qwen3.8 27b的swift gsq版本，速度快到怀疑人生，也不会雷霆思考，能力还很微妙的强。。本地 ...</blockquote>
+试了一下破甲的版本，有点厉害
+
+*****
+
+####  80后卢瑟  
+##### 14895#       发表于 2026-9-26 06:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286773&amp;ptid=2275806" target="_blank">FeteFete 发表于 2026-9-25 23:17</a>
+mimo思考太长了
+
+他的pro版本你们觉得是什么水平?</blockquote>
+只要他不动脑子，就是好模型
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
