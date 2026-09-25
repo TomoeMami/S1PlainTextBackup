@@ -8209,3 +8209,21 @@ A少白发鬼外传是可以做的吗？亏了没做，我看17号接任务会�
 
 A少线是9章的9月17接这个任务 错过这个点就没有了
 
+
+*****
+
+####  Antidote丶  
+##### 5184#       发表于 2026-9-25 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284297&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-9-25 10:10</a>
+
+高级武器箱凹</blockquote>
+概率是不是非常低，我sl了一段都没见过
+
+*****
+
+####  索非亚  
+##### 5185#       发表于 2026-9-25 13:27
+
+回去重看了下是跳转到9月17号21点，当时看成21号了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

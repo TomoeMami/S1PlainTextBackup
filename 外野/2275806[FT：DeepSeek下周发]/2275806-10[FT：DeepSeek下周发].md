@@ -18339,3 +18339,21 @@ DSH 的桌面版后续能够把升级做好，不要每次升级都因为大量�
 
 2026-9-25 12:45 上传
 
+
+*****
+
+####  便当爱  
+##### 14792#       发表于 2026-9-25 13:19
+
+这桌面版感觉token用的起飞啊，一眨眼2000W的token用出去了，吓死人，让他自己写个插件显示本次会话用的token花费多少，然后显示在输入卡片下面。就写插件这个新会话才过了几分钟就两次对话又走了3800W的token，虽然命中高也花了1.4rmb。<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  巨魔已被忠诚  
+##### 14793#       发表于 2026-9-25 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284962&amp;ptid=2275806" target="_blank">便当爱 发表于 2026-9-25 13:19</a>
+
+这桌面版感觉token用的起飞啊，一眨眼2000W的token用出去了，吓死人，让他自己写个插件显示本次会话用的tok ...</blockquote>
+雷霆思考。目前用下来还社区的套壳web好用。
+
