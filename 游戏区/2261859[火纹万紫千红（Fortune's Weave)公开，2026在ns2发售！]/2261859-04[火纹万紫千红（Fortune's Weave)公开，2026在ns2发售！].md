@@ -8168,3 +8168,13 @@ A少白发鬼外传是可以做的吗？亏了没做，我看17号接任务会�
 
 战场上的亲密度能力加成怎么查看？
 
+
+*****
+
+####  pf67  
+##### 5180#       发表于 2026-9-25 12:28
+
+让朋友香港买了寄回，发现最后还要被税，还不如pdd便宜<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/35/10b5346aff0f5a2738a0871f351ef158/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

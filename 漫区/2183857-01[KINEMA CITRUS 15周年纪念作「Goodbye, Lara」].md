@@ -2550,3 +2550,17 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 <img src="https://p.sda1.dev/35/c9d99fbaa78168c7c8b62adc46ce2936/20260921-sayorara-18.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/35/5ced97ebb472ccde211a7d0ec8ab1009/20260921-sayorara-19.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 617#         楼主| 发表于 2026-9-25 12:26
+
+˚🐚⁺‧┈ #さよならララ Blu-ray＆DVD情報┈‧⁺ 🧜‍♀️˚.
+
+キャラクターデザイン #谷紫織 さん描き下ろしBlu-ray&amp;DVD BOX 下巻のパッケージデザイン＆デジパックを公開❣
+
+温かさのあるデザインを、ぜひお手元に置いていただけると嬉しいです🧜‍♀️
+<img src="https://p.sda1.dev/35/7969b85f4d705d4f2f1ab417f358e245/HS-NgsTboAELMbH.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/3c07a478e0fb1ae440dd37ebdac4b331/HS-NjO1acAATwvo.jpg" referrerpolicy="no-referrer">
+

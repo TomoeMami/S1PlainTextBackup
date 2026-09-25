@@ -18286,3 +18286,16 @@ DSH 的桌面版后续能够把升级做好，不要每次升级都因为大量�
 
 搞一个安全模式之类的玩意不就行了么，崩了就进用户没法自定义的安全模式，在安全模式去修问题不就行了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 14787#       发表于 2026-9-25 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284718&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-25 12:08</a>
+如果DSH桌面端和网页端可以互修，那不就说明崩的是UI层，核心层根本不会受影响
+
+搞一个安全模式之类的玩意不 ...</blockquote>
+好像是独立的，我桌面端是0.1.7rc2，web还是0.1.7rc1
+另外现在dsh桌面端玩崩了，有个弹窗，可以一键禁用全部第三方插件，但是错的情况太千奇百怪了，有可能禁用完还是启动不了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
