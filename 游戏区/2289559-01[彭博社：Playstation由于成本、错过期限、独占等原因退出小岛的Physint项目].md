@@ -18,3 +18,16 @@ https://youtu.be/ZDkwFIMqNEQ?si=ng8AHfb5IUFvclSe
 
 如果真是4亿刀的话，不给IP不给长时独占SIE肯定是答应不了的
 
+
+*****
+
+####  ナルバレック  
+##### 157#       发表于 2026-9-25 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284289&amp;ptid=2289559" target="_blank">SergeGlenn 发表于 2026-9-25 10:06</a>
+
+Jason新视频里又说到小岛这事儿了
+
+在一段新视频中，Schreier表示，索尼与这家日本工作室之间的谈判已持续 ...</blockquote>
+4亿刀的话，尼尔大仙贝做了好多年的大光头都不知道有没有这个预算吧
+
