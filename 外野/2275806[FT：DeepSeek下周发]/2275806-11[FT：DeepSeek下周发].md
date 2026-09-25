@@ -964,3 +964,14 @@ qwen4的27b啥时候出啊，眼巴巴等着。
 
 本地模型党的快乐就靠qwen了
 
+
+*****
+
+####  tonyunreal  
+##### 14883#       发表于 2026-9-26 02:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70287005&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-9-26 00:54</a>
+
+今天爽玩了一天qwen3.8 27b的swift gsq版本，速度快到怀疑人生，也不会雷霆思考，能力还很微妙的强。。本地 ...</blockquote>
+试了一下破甲的版本，有点厉害
+
