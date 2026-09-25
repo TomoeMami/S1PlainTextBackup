@@ -175,3 +175,20 @@ Kimi 新模倒是据说29号
 
 O畜还真敢出500刀订阅啊. 疯了吧. 100刀的订阅和tmd Claude pro额度差不多... 我有500刀我去买A畜2个 max 20x订阅不好吗?
 
+
+*****
+
+####  nxmonitor  
+##### 14817#       发表于 2026-9-25 15:59
+
+Kimi code上好像也测出K4了
+
+*****
+
+####  qwased  
+##### 14818#       发表于 2026-9-25 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285346&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-25 15:59</a>
+Kimi code上好像也测出K4了</blockquote>
+请求不存在的模型会回落k2.6<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

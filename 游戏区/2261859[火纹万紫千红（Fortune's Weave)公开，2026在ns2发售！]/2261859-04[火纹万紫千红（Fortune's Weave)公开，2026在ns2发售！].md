@@ -8463,3 +8463,25 @@ A少线是9章的9月17接这个任务 错过这个点就没有了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">这鞑古席翁什么待客之道，偌大的迎宾馆连张床都没有，我女王想休息还得去旅店
 
+
+*****
+
+####  mggr  
+##### 5204#       发表于 2026-9-25 16:00
+
+为什么有的时候支援度和名声都满了，但是对话没法挖角？
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jabeck  
+##### 5205#       发表于 2026-9-25 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285350&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-25 16:00</a>
+
+为什么有的时候支援度和名声都满了，但是对话没法挖角？
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, 鹅球  ...</blockquote>
+你要先送礼物后才能挖
+
