@@ -18357,3 +18357,16 @@ DSH 的桌面版后续能够把升级做好，不要每次升级都因为大量�
 这桌面版感觉token用的起飞啊，一眨眼2000W的token用出去了，吓死人，让他自己写个插件显示本次会话用的tok ...</blockquote>
 雷霆思考。目前用下来还社区的套壳web好用。
 
+
+*****
+
+####  便当爱  
+##### 14794#       发表于 2026-9-25 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284969&amp;ptid=2275806" target="_blank">巨魔已被忠诚 发表于 2026-9-25 13:21</a>
+
+目前用下来还社区的套壳web好用。
+
+装插件都不好装了。</blockquote>
+不敢用了，用不起，等后面稳定点的版本了。<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
