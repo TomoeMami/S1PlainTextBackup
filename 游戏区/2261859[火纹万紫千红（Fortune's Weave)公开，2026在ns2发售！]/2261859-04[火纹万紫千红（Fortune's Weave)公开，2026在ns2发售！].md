@@ -8485,3 +8485,26 @@ A少线是9章的9月17接这个任务 错过这个点就没有了
 —— 来自 Xiaomi 25113PN0EC, Android 16, 鹅球  ...</blockquote>
 你要先送礼物后才能挖
 
+
+*****
+
+####  mai6696  
+##### 5206#       发表于 2026-9-25 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285350&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-25 16:00</a>
+
+为什么有的时候支援度和名声都满了，但是对话没法挖角？
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, 鹅球  ...</blockquote>
+如果有“完成？？？之后”，那大概是要打支线或者外传。
+
+*****
+
+####  mggr  
+##### 5207#       发表于 2026-9-25 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285356&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-9-25 16:02</a>
+
+你要先送礼物后才能挖</blockquote>
+肯定都给过礼物，支援度都3星了
+
