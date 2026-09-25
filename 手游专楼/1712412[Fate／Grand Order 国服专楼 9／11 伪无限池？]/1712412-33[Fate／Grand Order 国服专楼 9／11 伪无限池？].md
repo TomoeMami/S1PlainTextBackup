@@ -194,3 +194,13 @@ MuMu-20260919-205429-531.jpg
 四星小男孩有用不，怎么好像毫无存在感</blockquote>
 不好用，充能少，想开宝具都难。又没有特攻或者独特功能。
 
+
+*****
+
+####  Kon-El  
+##### 48238#       发表于 2026-9-25 10:47
+
+700石全投了，剑心一宝，这下尴尬了...一宝剑心和一宝王哈哪个更适合戴冠<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
