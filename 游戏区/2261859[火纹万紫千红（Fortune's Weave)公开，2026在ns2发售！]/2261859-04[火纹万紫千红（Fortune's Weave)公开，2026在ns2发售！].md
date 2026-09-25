@@ -9121,3 +9121,31 @@ PS：同样的外传选一个线完成即 ...</blockquote>
 
 第二部因为有把全队等级都拉到最低需求这个功能，所以也可以用来凹那些等级低的角色。
 
+
+*****
+
+####  噗呸破屁诚  
+##### 5262#       发表于 2026-9-26 01:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">所以其实新手第一周目第一个第一部最好打的是女王线吗？
+
+*****
+
+####  mggr  
+##### 5263#       发表于 2026-9-26 01:09
+
+怎么判断角色适合什么职业？就按照初始职业一直升上去吗？
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ascomnet  
+##### 5264#       发表于 2026-9-26 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70287028&amp;ptid=2261859" target="_blank">噗呸破屁诚 发表于 2026-9-26 01:08</a>
+
+所以其实新手第一周目第一个第一部最好打的是女王线吗？</blockquote>
+雷达吧，雷达没啥事钱也多，开地图做支线有大把的时间。
+
