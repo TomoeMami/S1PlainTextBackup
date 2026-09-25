@@ -8946,3 +8946,27 @@ a少线打了一大半，我现在就一个感想，要是我第一条线选a少
 
 45小时才通关小孩哥第一部，一开始埋头升级吃饭收人，等二十多级才知道坐骑加成长率的事，稀有的坐骑还没抓几只。后半程四处出击抓宝可梦，顺便章节重开大法给蕾达a少刷前期能收的人的好感，准备接下来开蕾达线。        [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  新HGCG  
+##### 5248#       发表于 2026-9-25 22:28
+
+就算你是花和尚，考资格证的时候也要把纹身除了！ ​​​
+
+<img src="https://img.stage1st.com/forum/202609/25/222639bkbm5v7n5gqqk5ec.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (317.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 22:26 上传
+
+<img src="https://img.stage1st.com/forum/202609/25/222749vyxzqgcwpxz79ykp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (343.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 22:27 上传
+
