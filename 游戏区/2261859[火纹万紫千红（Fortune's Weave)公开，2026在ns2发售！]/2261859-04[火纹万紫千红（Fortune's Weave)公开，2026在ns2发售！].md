@@ -9208,3 +9208,14 @@ PS：同样的外传选一个线完成即 ...</blockquote>
 凯伊线开不了马车？还是要跟着剧情开？</blockquote>
 刚打完，第七章的支线才能开<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  magicc  
+##### 5271#       发表于 2026-9-26 02:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70287074&amp;ptid=2261859" target="_blank">DancingAndy 发表于 2026-9-26 01:39</a>
+
+商会真有第二个外传？我在十一那会在城里看不到感叹号啊</blockquote>
+没，就一个，只是有两个时间段给你接任务而已。
+
