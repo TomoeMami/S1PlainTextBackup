@@ -338,3 +338,11 @@ v的开发机，不知道艮高佐能不能给力点。
 新的限定船十有八九会是新词条 重击(狼王新加了)</blockquote>
 肯定是紅，就看強度了
 
+
+*****
+
+####  plok201  
+##### 4743#       发表于 2026-9-26 06:12
+
+一般主角最终机体都是红的，除非留着出V2ABC，但是ABC也不好说内部UCE之间关系如何了，毕竟UCE这游戏从永恒出来后收入就一直在关服边缘<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
