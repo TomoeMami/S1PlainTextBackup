@@ -653,3 +653,37 @@ pi v0.85.1
 
 我这没显示pwsh工具，不过他确实会用就是了
 
+
+*****
+
+####  奈落的孤火花  
+##### 14854#       发表于 2026-9-25 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284413&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-9-25 10:46</a>
+
+关键是速度太慢，k3改一版ppt的时间v4.1f可能已经出到第5第6版了。
+
+虽然审美还是k3好，但是我现在学会让 ...</blockquote>
+我是打算让他出了一个PPT之后，其他的PPT就用那个OpenKimi PPT Skill让dsvf出看看
+
+*****
+
+####  奈落的孤火花  
+##### 14855#       发表于 2026-9-25 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284514&amp;ptid=2275806" target="_blank">chronicle 发表于 2026-9-25 11:14</a>
+
+ppt目前效果最好的流程就是把文本大纲和设计指导塞给chatgpt生图，和那种直接通过代码生成的完全不是一个 ...</blockquote>
+不行，ChatGPT生的图没法编辑，这个是需要提交上去的，而且还需要人工改字再修，不能是直接生图
+
+
+*****
+
+####  奈落的孤火花  
+##### 14856#       发表于 2026-9-25 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284233&amp;ptid=2275806" target="_blank">宏. 发表于 2026-9-25 09:49</a>
+
+kimi涉及排版的都是雷霆大思考，pptx、docx、pdf都是，想要省额度就让它直出文字，然后自己排版 ...</blockquote>
+我看了小红书上分析的，Work消耗的额度速度是code的三倍起步，读缓存价格更是逆天。我就是不懂为什么会这样
+

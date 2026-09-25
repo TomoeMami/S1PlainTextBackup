@@ -928,3 +928,35 @@ Tracklist
 
        Magnet連接typeII: magnet:?xt=urn:btih:6bf63c95d4e159fbf7fadd2f45757ece2f61d865
 
+
+*****
+
+####  堀内爱里衣  
+##### 42047#       发表于 2026-9-25 20:55
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/25/205537zhucnh95icf6g624.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-09-25_20-53-36.jpg</strong> (288.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 20:55 上传
+
+       [https://x.com/bang_dream_info/status/2103439645581492311](https://x.com/bang_dream_info/status/2103439645581492311)
+
+       [https://anime.bang-dream.com/bandorichan/special/68](https://anime.bang-dream.com/bandorichan/special/68)
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/25/205537jscg7nlzle75gesl.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-25_20-54-33.png</strong> (332.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 20:55 上传
+
+       [https://t.bilibili.com/1251966648073584693](https://t.bilibili.com/1251966648073584693)
+
