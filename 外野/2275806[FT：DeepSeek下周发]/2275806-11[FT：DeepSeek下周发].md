@@ -856,3 +856,25 @@ opencode那几个玩意说不定是真的</blockquote>
 帮你补个链接：
 [https://www.qianwenai.com/drops/qwen-0922](https://www.qianwenai.com/drops/qwen-0922)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 14873#       发表于 2026-9-25 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286287&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-9-25 20:52</a>
+我看了小红书上分析的，Work消耗的额度速度是code的三倍起步，读缓存价格更是逆天。我就是不懂为什么会这 ...</blockquote>
+大概是work不受5小时额度限制吧
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  相见恨晚  
+##### 14874#       发表于 2026-9-25 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286560&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-25 22:11</a>
+
+他只能看自己搜出来的网页</blockquote>
+可以的，我先把当前对话的分享链接给了他，他看了还评价了，结果话锋一转又说他看了是骗我的，实际不行，我又把本贴链接给他，他又是一顿评价然后又说是虚构的
+
