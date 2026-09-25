@@ -218,3 +218,22 @@ command code 的 4.1f 优惠是 28 号到期
 
 不过充值的是千问办公，因为混元和智谱很多工作都没有达到我预期，最让我惊喜的还是千问，很复杂的工作都能顺利完成。不过要是选Qwen3.8-Max但是太tm贵了，而且还不能中途换模型<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 14821#       发表于 2026-9-25 16:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿里的战略对了！
+
+*****
+
+####  qwased  
+##### 14822#       发表于 2026-9-25 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285452&amp;ptid=2275806" target="_blank">Tomorrow_D 发表于 2026-9-25 16:36</a>
+用了几天以后，已经充值付费上班了
+
+不过充值的是千问办公，因为混元和智谱很多工作都没有达到我预期，最让 ...</blockquote>
+你可以优先用3.8flash
+

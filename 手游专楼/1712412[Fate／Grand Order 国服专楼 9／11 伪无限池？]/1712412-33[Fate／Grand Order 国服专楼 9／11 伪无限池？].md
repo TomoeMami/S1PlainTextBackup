@@ -214,3 +214,16 @@ MuMu-20260919-205429-531.jpg
 
 抽个2宝勉强够格上班，然而梦火全烧完可能都不够填的
 
+
+*****
+
+####  khxooo  
+##### 48240#       发表于 2026-9-25 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284415&amp;ptid=1712412" target="_blank">Kon-El 发表于 2026-9-25 10:47</a>
+
+700石全投了，剑心一宝，这下尴尬了...一宝剑心和一宝王哈哪个更适合戴冠
+
+—— 来自 OnePlus PKR110, Andr ...</blockquote>
+硬要说的剑心吧，王哈虽然宝具即死，但是伤害不够，到最后还是要补刀，那为什么不选择伤害更高的剑心。
+
