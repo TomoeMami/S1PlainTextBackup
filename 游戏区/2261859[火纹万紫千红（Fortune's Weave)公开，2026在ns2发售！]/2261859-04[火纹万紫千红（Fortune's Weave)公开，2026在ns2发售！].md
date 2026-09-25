@@ -8127,3 +8127,13 @@ engage首周fami销量144558，两周合计173000，首次财报161万，此后�
 
 A少白发鬼外传是可以做的吗？亏了没做，我看17号接任务会跳到21号就没去打，先主线外传直接没了。
 
+
+*****
+
+####  bbluekid  
+##### 5176#       发表于 2026-9-25 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284408&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-9-25 10:44</a>
+这些外传都挤在一起到底怎么想的，很多人前八章都没外传一下全塞到最后</blockquote>
+剧情上能理解，但是游玩体验确实有点束手束脚。其他支线任务根本没时间去打了
+
