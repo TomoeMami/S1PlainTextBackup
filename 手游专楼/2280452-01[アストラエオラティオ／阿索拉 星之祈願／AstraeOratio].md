@@ -324,3 +324,13 @@ PV的导入部分，用 ...</blockquote>
 
 另外就是刚见到厅长的那一段关于抽卡的描述有一种非常强烈的意象即【主任是厅长抽卡抽出来的结果】这种程度的暗示，也符合主任从【现代人】去往【AO1889年】的状况
 
+
+*****
+
+####  astrayveller  
+##### 69#       发表于 2026-9-25 10:44
+
+角色+武器+志愿卡都是叠卡 氪金深度畏惧了
+
+— from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
