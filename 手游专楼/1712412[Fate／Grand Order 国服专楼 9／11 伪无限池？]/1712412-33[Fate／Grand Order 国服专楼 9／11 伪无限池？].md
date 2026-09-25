@@ -235,3 +235,15 @@ MuMu-20260919-205429-531.jpg
 
 我发现自己还有50个梦火，感觉要学会怎么用自动刷了，我之前一直全手动
 
+
+*****
+
+####  Kon-El  
+##### 48242#       发表于 2026-9-25 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285458&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-9-25 16:39</a>
+硬要说的剑心吧，王哈虽然宝具即死，但是伤害不够，到最后还是要补刀，那为什么不选择伤害更高的剑心。 ...</blockquote>
+好的，谢谢...
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
