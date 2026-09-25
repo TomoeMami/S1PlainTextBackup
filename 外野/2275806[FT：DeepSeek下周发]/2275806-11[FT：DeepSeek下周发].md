@@ -757,3 +757,14 @@ qwen3.8max preview开试用申请了
 opencode那几个玩意说不定是真的</blockquote>
 拿出K4和5.5Flash的名字，还有4.1Pro的十几次调用就很真了，前两个是完全没预期的，最后一个DeepSeek整套东西都更新了，就模型本体没有
 
+
+*****
+
+####  RookieTnT  
+##### 14864#       发表于 2026-9-25 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286427&amp;ptid=2275806" target="_blank">夜游宫 发表于 2026-9-25 21:30</a>
+
+有没有本地无甲的NSFW文字模型推荐？</blockquote>
+挺多的吧. qwen3.8. 开源基本上都能涩涩.
+
