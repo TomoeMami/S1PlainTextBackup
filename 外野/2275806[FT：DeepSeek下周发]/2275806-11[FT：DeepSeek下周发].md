@@ -888,3 +888,16 @@ mimo思考太长了
 
 他的pro版本你们觉得是什么水平?
 
+
+*****
+
+####  nxmonitor  
+##### 14876#       发表于 2026-9-25 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286773&amp;ptid=2275806" target="_blank">FeteFete 发表于 2026-9-25 23:17</a>
+
+mimo思考太长了
+
+他的pro版本你们觉得是什么水平?</blockquote>
+命令遵循非常差，被4.1F路过的水平
+

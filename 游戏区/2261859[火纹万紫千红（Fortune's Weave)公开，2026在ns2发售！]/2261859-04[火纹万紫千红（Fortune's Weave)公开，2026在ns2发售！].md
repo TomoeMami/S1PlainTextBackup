@@ -9021,3 +9021,21 @@ a少线打了一大半，我现在就一个感想，要是我第一条线选a少
 
 如果和自捏好感度高的话，迷宫里的战斗打不过可以sl自捏来秒杀对面…但是不知道每次探索有没有限制
 
+
+*****
+
+####  oniwarud  
+##### 5253#       发表于 2026-9-25 23:25
+
+有所有蓝标隐藏剧情的触发攻略吗，这一部分的剧情量还挺大的
+
+
+*****
+
+####  ShitOverflow  
+##### 5254#       发表于 2026-9-25 23:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">穆和他妈都是大猩猩啊，俩人单刷一路，难怪她爹跑路了，她爹不会是古栅栏吧
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
