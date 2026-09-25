@@ -135,3 +135,27 @@ Kimi 新模倒是据说29号
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285167&amp;ptid=2275806" target="_blank">四氧化三铅 发表于 2026-9-25 14:39</a></blockquote>
 吃瓜大肥鱼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tillnight  
+##### 14813#       发表于 2026-9-25 14:50
+
+<blockquote>猫不理prime 发表于 2026-9-25 14:45
+无话可说
+
+—— 来自 鹅球 v4.0-alpha</blockquote>
+不知道为什么你就信了一个非常容易证伪的辩解，你大可以现在就调用一个不存在的模型名字看看这个页面会不会新增。光头他现在这么说反而证实了可信度，他这会只能瞎扯淡来遮掩oc意外提前泄露模型名。
+
+*****
+
+####  qwased  
+##### 14814#       发表于 2026-9-25 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285199&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-25 14:50</a>
+
+不知道为什么你就信了一个非常容易证伪的辩解，你大可以现在就调用一个不存在的模型名字看看这个页面会不 ...</blockquote>
+确实，毕竟前几天大家都猜K3.1，没人想过会是K4
+
+如果真的像他说的那样，K3.1的记录会多得多
+

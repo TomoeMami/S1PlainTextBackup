@@ -51,3 +51,16 @@ Jason新视频里又说到小岛这事儿了
 
 杰森斯莱耶有点发狂了真的<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 160#       发表于 2026-9-25 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284289&amp;ptid=2289559" target="_blank">SergeGlenn 发表于 2026-9-25 10:06</a>
+
+Jason新视频里又说到小岛这事儿了
+
+在一段新视频中，Schreier表示，索尼与这家日本工作室之间的谈判已持续 ...</blockquote>
+4亿美元是不是除了游戏制作经费，还有多媒体发展方向的费用，什么动画化，真人化之类的
+
