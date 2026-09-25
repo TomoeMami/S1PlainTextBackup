@@ -18231,3 +18231,27 @@ webui现在还是0.1.5 rc吧，对话都不通用<img src="https://static.stage1
 
 不知道为啥，昨天晚上开始，o 家这边感觉变聪明了，网页版完全不偷懒了，tibo 那个 I smell fear 的回旋镖来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 14782#       发表于 2026-9-25 11:46
+
+ 本帖最后由 cscbzcbz 于 2026-9-25 11:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284477&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-9-25 11:04</a>
+
+这桌面端不会就是套了一个electron的壳外加一些账号功能吧，那和我直接用webui有啥区别 ...</blockquote>
+
+还多了个检查新版本，一键自动升级的功能<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tillnight  
+##### 14783#       发表于 2026-9-25 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284556&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-9-25 11:26</a>
+
+webui现在还是0.1.5 rc吧，对话都不通用</blockquote>
+首先，webui也升级了版本号，其次，你想通用会话需要自己配置或者交给agent工具。
+
