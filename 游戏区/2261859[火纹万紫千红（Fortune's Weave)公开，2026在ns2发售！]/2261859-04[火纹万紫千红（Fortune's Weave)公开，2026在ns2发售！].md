@@ -9057,3 +9057,20 @@ a少线打了一大半，我现在就一个感想，要是我第一条线选a少
 体感好感LV3还是不容易随着主线推进就达到的，在城里的时间太少礼物太费钱，我是用bug刷起来的，难以想象bu ...</blockquote>
 这作挖人主要还是卡声望，想挖的声望到了一般好感也到了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯夏  
+##### 5257#       发表于 2026-9-26 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286844&amp;ptid=2261859" target="_blank">风祭果凛 发表于 2026-9-25 23:41</a>
+
+反正只要有一条线开了全图，剩下三条线都是收益很大的（凯伊线相对比较小，毕竟只能在东边活动，而且凯伊线 ...</blockquote>
+战象不用抓 你打到第3部第2区分会解锁战象兵 
+
+至于西部3个稀有动物是两个稀有龙和一匹稀有马 
+
+红巴乌 黑巴乌 红圣飞马 
+
+可以第3部去抓
+
