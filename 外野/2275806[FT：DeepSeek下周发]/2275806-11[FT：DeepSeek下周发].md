@@ -450,3 +450,31 @@ qoder的plan看不懂到底有多少量，有没有人解释一下。
 
 最近白嫖qoder和千问办公，感觉可以适当给阿里上供了。
 
+
+*****
+
+####  scikirbypoke  
+##### 14841#       发表于 2026-9-25 19:48
+
+win下哪个tui好用
+
+*****
+
+####  BarricadeMKXX  
+##### 14842#       发表于 2026-9-25 19:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286062&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-9-25 19:48</a>
+
+win下哪个tui好用</blockquote>
+上手opencode，之后可以换pi自己装修
+
+
+*****
+
+####  scikirbypoke  
+##### 14843#       发表于 2026-9-25 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286076&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-9-25 19:52</a>
+上手opencode，之后可以换pi自己装修</blockquote>
+pi居然能用吗，那我直接复制Linux的pi了
+
