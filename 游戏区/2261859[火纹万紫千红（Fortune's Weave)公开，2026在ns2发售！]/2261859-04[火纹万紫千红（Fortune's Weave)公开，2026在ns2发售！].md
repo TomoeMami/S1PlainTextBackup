@@ -9177,3 +9177,16 @@ PS：同样的外传选一个线完成即 ...</blockquote>
 
 刚打到女王第一部12章，怎么感觉已经被凯伊攻略完毕了<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">这就是真后宫男主的威力吗
 
+
+*****
+
+####  DancingAndy  
+##### 5268#       发表于 2026-9-26 01:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286636&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-9-25 22:36</a>
+
+一不小心就错过了商会的第二个外传，真的服了但是我已经打完这章不想重开了。
+
+除了这个外传没有提示之外这 ...</blockquote>
+商会真有第二个外传？我在十一那会在城里看不到感叹号啊
+
