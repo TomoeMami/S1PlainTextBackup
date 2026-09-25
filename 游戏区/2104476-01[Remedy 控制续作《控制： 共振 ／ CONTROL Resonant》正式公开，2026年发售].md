@@ -1541,3 +1541,13 @@ remedy真是有点东西的，控制2最开始两个战点就给我打力竭了
 
 “完整套件”这个支线任务让我做得有些意识模糊，到处跑图抓宝可梦（不是），最后居然还是个坏结局，明天读档试试能不能改成好结局。
 
+
+*****
+
+####  pgain2004  
+##### 160#       发表于 2026-9-26 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285723&amp;ptid=2104476" target="_blank">Formidable 发表于 2026-9-25 17:56</a>
+有些人对这直播不知道压了几倍的画质聊画面和光影，那我是不知道说什么了 ...</blockquote>
+VFX很炫酷，但全红光战点+一堆扭曲散晕是真的很伤眼，遭不住滴眼药水去了<img src="https://static.stage1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">
+
