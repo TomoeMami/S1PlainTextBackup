@@ -653,3 +653,11 @@ END
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这叫众筹吗 明明是没有成本不需要负责的白嫖
 
+
+*****
+
+####  无动于衷  
+##### 51#       发表于 2026-9-25 22:09
+
+aniplex能不能接盘，反正他们也能发行
+

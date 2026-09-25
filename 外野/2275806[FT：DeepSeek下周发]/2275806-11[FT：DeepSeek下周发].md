@@ -768,3 +768,30 @@ opencode那几个玩意说不定是真的</blockquote>
 有没有本地无甲的NSFW文字模型推荐？</blockquote>
 挺多的吧. qwen3.8. 开源基本上都能涩涩.
 
+
+*****
+
+####  相见恨晚  
+##### 14865#       发表于 2026-9-25 22:07
+
+网页版DeepSeek一直要说他看不了网页，气死我了
+
+*****
+
+####  qwased  
+##### 14866#       发表于 2026-9-25 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286546&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-9-25 22:07</a>
+网页版DeepSeek一直要说他看不了网页，气死我了</blockquote>
+他只能看自己搜出来的网页
+
+
+*****
+
+####  neptunehs  
+##### 14867#       发表于 2026-9-25 22:12
+
+这个星际兔女郎模型是啥？minimaxm3.1？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

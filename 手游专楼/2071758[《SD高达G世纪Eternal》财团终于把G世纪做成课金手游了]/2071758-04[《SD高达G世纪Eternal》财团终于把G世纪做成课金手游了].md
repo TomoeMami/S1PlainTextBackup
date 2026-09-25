@@ -303,3 +303,25 @@ v的开发机，不知道艮高佐能不能给力点。
 
 一直觉得艮高佐是v里面敌方设计得最好的机体，有最终boss范，可惜没成最终boss机
 
+
+*****
+
+####  Abomination  
+##### 4741#       发表于 2026-9-25 22:13
+
+有小道消息指v2ab是红机，因为周边是红的
+
+<img src="https://img.stage1st.com/forum/202609/25/220012qlhaca3hvalhohbo.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>43rqgy50bgrh1.jpeg</strong> (120.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 22:00 上传
+
+新的限定船十有八九会是新词条 重击(狼王新加了)
+
+但如果根据上一次复刻限定船，应该和王牌船互斥才对，可能是专用机(狼王)或者双冷门词条(指挥官机/大型机+换装)等等
+
+不过出牌一直都是乱来的，直接出电光(海牛)就最好<img src="https://static.stage1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
