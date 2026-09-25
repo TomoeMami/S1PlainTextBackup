@@ -393,3 +393,11 @@ opencode石锤会注入弱智提示词了</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Promeus  
+##### 14835#       发表于 2026-9-25 18:49
+
+Ds客户端好像又多了一批新功能
+
