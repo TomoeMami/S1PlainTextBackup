@@ -325,3 +325,16 @@ v的开发机，不知道艮高佐能不能给力点。
 
 不过出牌一直都是乱来的，直接出电光(海牛)就最好<img src="https://static.stage1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中野梓  
+##### 4742#       发表于 2026-9-25 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286566&amp;ptid=2071758" target="_blank">Abomination 发表于 2026-9-25 22:13</a>
+
+有小道消息指v2ab是红机，因为周边是红的
+
+新的限定船十有八九会是新词条 重击(狼王新加了)</blockquote>
+肯定是紅，就看強度了
+

@@ -795,3 +795,26 @@ opencode那几个玩意说不定是真的</blockquote>
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  nxmonitor  
+##### 14868#       发表于 2026-9-25 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286565&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-25 22:12</a>
+
+这个星际兔女郎模型是啥？minimaxm3.1？
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0 ...</blockquote>
+脏token测出来就是这个
+
+
+*****
+
+####  neptunehs  
+##### 14869#       发表于 2026-9-25 22:22
+
+mimo炸了 我用星际兔女郎继续打下手 应该不会把我东西搞砸吧（之前m3搞砸过我东西
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
