@@ -192,3 +192,29 @@ Kimi code上好像也测出K4了
 Kimi code上好像也测出K4了</blockquote>
 请求不存在的模型会回落k2.6<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  misuzu0723  
+##### 14819#       发表于 2026-9-25 16:33
+
+deepseek 27 28 号是不是真有啥
+dsh 桌面端用户协议是 27 号生效 
+command code 的 4.1f 优惠是 28 号到期
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  Tomorrow_D  
+##### 14820#       发表于 2026-9-25 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70278293&amp;ptid=2275806" target="_blank">Tomorrow_D 发表于 2026-9-24 00:29</a>
+
+我试了千问办公和workbuddy，用后感：真香
+
+很多时候还需要人为干预，而且哪怕完成傻瓜任务（比如把题目重 ...</blockquote>
+用了几天以后，已经充值付费上班了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过充值的是千问办公，因为混元和智谱很多工作都没有达到我预期，最让我惊喜的还是千问，很复杂的工作都能顺利完成。不过要是选Qwen3.8-Max但是太tm贵了，而且还不能中途换模型<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
