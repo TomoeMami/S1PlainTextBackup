@@ -43,3 +43,14 @@
 又是录音的一天，另外chico这推发的时间有点意思</blockquote>
 没看明白 是有可能回归 还是没参加xbg有怨气？
 
+
+*****
+
+####  misya  
+##### 2098#       发表于 2026-9-25 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285833&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-9-25 18:32</a>
+
+没看明白 是有可能回归 还是没参加xbg有怨气？</blockquote>
+CHICO去看的公演和光田、清水录音是同一个地方，时间点也很接近
+

@@ -401,3 +401,23 @@ opencode石锤会注入弱智提示词了</blockquote>
 
 Ds客户端好像又多了一批新功能
 
+
+*****
+
+####  zerona  
+##### 14836#       发表于 2026-9-25 19:03
+
+dsh的插件市场现在用哪个比较好？
+
+*****
+
+####  zerona  
+##### 14837#       发表于 2026-9-25 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285606&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-9-25 17:25</a>
+
+支持pi和harness 桌面端了，设计应该更合理了
+
+**DSH 伴航 v0.2.0 更新：加入 Pi WebUI，支持切换模型前端* ...</blockquote>
+看着不错的样子。
+

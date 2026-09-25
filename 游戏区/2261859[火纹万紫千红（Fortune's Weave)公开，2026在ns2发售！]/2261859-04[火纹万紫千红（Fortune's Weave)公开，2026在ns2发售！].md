@@ -8732,3 +8732,18 @@ A少线是9章的9月17接这个任务 错过这个点就没有了
 
 咒怨武器你第1部4位主角线 每位都有的话 第3部就都给你了
 
+
+*****
+
+####  纯夏  
+##### 5227#       发表于 2026-9-25 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285887&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-9-25 18:49</a>
+
+地拖线可以打所有支线，不要钱和经验的话其他线是不是外传可以不用管了
+
+论坛助手,iPhone ...</blockquote>
+不管哪条线 所有外传建议全都做完 
+
+因为很多外传是第3部招募人物的前置条件 还有外传给武器和材料
+
