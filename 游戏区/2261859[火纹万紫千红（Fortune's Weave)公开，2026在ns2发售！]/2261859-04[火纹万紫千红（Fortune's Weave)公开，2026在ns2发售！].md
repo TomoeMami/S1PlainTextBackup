@@ -8147,3 +8147,16 @@ A少白发鬼外传是可以做的吗？亏了没做，我看17号接任务会�
 
 ——来自 PKR110 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  Jabeck  
+##### 5178#       发表于 2026-9-25 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284345&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-25 10:25</a>
+
+话说有谁第一部见过周六那个神吗？就是加护列表最右边那一位。
+
+凯伊线救他头像一直黑着。 ...</blockquote>
+反正到第二部会出现。
+

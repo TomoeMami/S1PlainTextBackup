@@ -18195,3 +18195,23 @@ DSH客户端和web现在可以互相修了<img src="https://static.stage1st.com/
 
 这桌面端不会就是套了一个electron的壳外加一些账号功能吧，那和我直接用webui有啥区别<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chronicle  
+##### 14778#       发表于 2026-9-25 11:14
+
+<blockquote>奈落的孤火花 发表于 2026-9-25 09:37
+要是用这个 Kimi Pro 去做 PPT，我这 699 的套餐，一个五十页的普通图文 PPT 就能干掉 10% 的额度。 ...</blockquote>
+ppt目前效果最好的流程就是把文本大纲和设计指导塞给chatgpt生图，和那种直接通过代码生成的完全不是一个等级的东西
+
+
+*****
+
+####  serj005  
+##### 14779#       发表于 2026-9-25 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284477&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-9-25 11:04</a>
+这桌面端不会就是套了一个electron的壳外加一些账号功能吧，那和我直接用webui有啥区别 ...</blockquote>
+要考虑到大众用户的上手难度，webui装node再敲命令行已经超标了
+

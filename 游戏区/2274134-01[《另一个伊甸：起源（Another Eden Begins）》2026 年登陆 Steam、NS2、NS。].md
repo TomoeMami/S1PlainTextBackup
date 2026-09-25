@@ -192,3 +192,21 @@ NS2版居然不是钥匙卡？</blockquote>
 卖给还在玩手游的玩家 让他们怀旧下至少以前还能稍微看下主线的时光？ 毕竟后面23部主线根本不是人类能写 ...</blockquote>
 还有8年前因为太非弃坑，等ns版等了8年的我
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 67#       发表于 2026-9-25 11:17
+
+<img src="https://img.stage1st.com/forum/202609/25/111605dcchzckwqpa5ehkc.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8528DC68-E5CD-4291-B668-8BDC148F7B72.jpeg</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 11:16 上传
+
+来猜一下这个写着Custom Jacket的纸的作用是什么吧，看到答案之前我是真没猜到。
+
+1天后揭晓答案。
+
