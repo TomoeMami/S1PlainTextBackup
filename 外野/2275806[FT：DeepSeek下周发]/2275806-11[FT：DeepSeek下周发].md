@@ -713,3 +713,14 @@ kimi涉及排版的都是雷霆大思考，pptx、docx、pdf都是，想要省�
 
 其实现在本地端的生图模型已经很强了. qwen-image-2.1 16G显存 三十秒能出图. 还无审查
 
+
+*****
+
+####  奈落的孤火花  
+##### 14860#       发表于 2026-9-25 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286338&amp;ptid=2275806" target="_blank">chronicle 发表于 2026-9-25 21:06</a>
+
+其实生图模型都是支持局部编辑的，从实用的角度来说这样的流程完全没问题，只是生产流程换了一套。只是企 ...</blockquote>
+对，这个是没法接受的，而且还忘了说，chatgpt那个文风和审美，简直拉得让人恶心，就是非常死板，一点生动性都没有
+

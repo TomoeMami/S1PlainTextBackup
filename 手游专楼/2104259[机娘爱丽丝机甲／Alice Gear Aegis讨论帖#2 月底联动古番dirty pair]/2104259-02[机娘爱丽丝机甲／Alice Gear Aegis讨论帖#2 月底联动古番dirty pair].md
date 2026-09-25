@@ -110,3 +110,16 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  madcow  
+##### 2130#       发表于 2026-9-25 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286160&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2026-9-25 20:18</a>
+
+30连蓝天白云，早知道不抽伊芙琳去抽新吴京了
+
+—— 来自 realme RMX6699, Android 16, 鹅球 v4.0.100-alph ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">没事我30连抽新京姐也是蓝天白云
+
