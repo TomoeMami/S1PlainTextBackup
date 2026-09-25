@@ -559,3 +559,38 @@ windows下pi也是优先用bash（是它自带的还是用git给的git-bash我�
 看着不错的样子。</blockquote>
 欢迎点个star<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 14852#       发表于 2026-9-25 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286122&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-25 20:06</a>
+
+我这只要不是调bash开始用pwsh就开始疯狂肘击给他挂了个pwsh7 skill才好点</blockquote>
+我刚才灵机一动把 pi 的提示词导出来了，这是它工具调用的部分。可见并不像网上说的那样Pi只有4个工具可用， PowerShell 也在它的工具之中，它的默认工具应该是 5 个才对。
+
+&lt;tools&gt;
+
+- read: Read file contents
+
+- bash: Execute bash commands (ls, grep, find, etc.)
+
+- powershell: Execute PowerShell commands
+
+- edit: Make precise file edits with exact text replacement, including multiple disjoint edits in one call
+
+- write: Create or overwrite files
+
+#本条是我安装的扩展提示词 - skill_flags: List or update skill visibility flags (auto / manual / unset)
+
+#本条是我安装的扩展提示词 - subagent: Delegate tasks to specialized sub-agents with automatic role-based model routing
+
+#本条是我安装的扩展提示词 - herdr: Control delegated herdr pane agents (list/status/read/prompt/cancel/focus/close-tab/forget)
+
+#本条是我安装的扩展提示词 - vcc_recall: vcc_recall: Search history; default scope is active lineage. Use scope:'all' for off-lineage branches. Use scope:'compaction:N' or scope:'compaction:latest' for targeted search within a compaction segment. expand:[indices] returns full content for those entries, composable with query to expand matched results.
+
+In addition to the tools above, you may have access to other custom tools depending on the project.
+
+&lt;/tools&gt;
+
