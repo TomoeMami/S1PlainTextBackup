@@ -842,3 +842,17 @@ mimo炸了 我用星际兔女郎继续打下手 应该不会把我东西搞砸�
 应该是小作坊用m3做的微调模型</blockquote>
 蒸馏了巨量的GPT语料，抽卡有很区完全不可用的垃圾和GPT风格拉满的半神作品
 
+
+*****
+
+####  tonyunreal  
+##### 14872#       发表于 2026-9-25 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286465&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-25 21:41</a>
+
+qwen3.8max preview 0922开试用申请了
+
+opencode那几个玩意说不定是真的</blockquote>
+帮你补个链接：
+[https://www.qianwenai.com/drops/qwen-0922](https://www.qianwenai.com/drops/qwen-0922)
+
