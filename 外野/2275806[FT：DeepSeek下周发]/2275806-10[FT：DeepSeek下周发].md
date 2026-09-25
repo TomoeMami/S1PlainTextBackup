@@ -18299,3 +18299,27 @@ DSH 的桌面版后续能够把升级做好，不要每次升级都因为大量�
 好像是独立的，我桌面端是0.1.7rc2，web还是0.1.7rc1
 另外现在dsh桌面端玩崩了，有个弹窗，可以一键禁用全部第三方插件，但是错的情况太千奇百怪了，有可能禁用完还是启动不了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lazia  
+##### 14788#       发表于 2026-9-25 12:41
+
+桌面版有安全模式啊，启动失败就有选项。
+
+网页版用的是操作系统下公用的nodejs，桌面版有自己独立的一套环境在安装目录，会话插件这些在系统用户目录下的才是相通的。
+
+*****
+
+####  阿刚  
+##### 14789#       发表于 2026-9-25 12:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">话说你们有没有感觉0.17干活的方式比原来更莽了，而且特别容易跳进兔子洞出不来，一个小地方纠结修改半天
+
+*****
+
+####  Kazuhira  
+##### 14790#       发表于 2026-9-25 12:45
+
+同样的模型使用不同agent，水平差距会有多大？<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">我电脑里装了trae、codebuddy、zcode、cc、codex，都不知道用哪个好
+
