@@ -901,3 +901,38 @@ mimo思考太长了
 他的pro版本你们觉得是什么水平?</blockquote>
 命令遵循非常差，被4.1F路过的水平
 
+
+*****
+
+####  大肥鱼  
+##### 14877#       发表于 2026-9-26 00:09
+
+话说回来，各位其实或多或少有可能都已经知道的情况下，但也再通知一下吧。
+
+手机上的客户端从253直接更新到了260，有兴趣的朋友但还没更新的话，就去更新一下吧。
+
+这好像也不属于是强制大更新，只有在系统商城自己去找才能够发现的更新。
+
+只不过这么大的版本号变化，应该说大的要来了吗？该不该期待一下呢？
+
+
+*****
+
+####  andychen  
+##### 14878#       发表于 2026-9-26 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286427&amp;ptid=2275806" target="_blank">夜游宫 发表于 2026-9-25 21:30</a>
+
+有没有本地无甲的NSFW文字模型推荐？</blockquote>
+去HF搜qwen的无审查版，有不少选择
+
+*****
+
+####  夜游宫  
+##### 14879#       发表于 2026-9-26 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286944&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-26 00:15</a>
+
+去HF搜qwen的无审查版，有不少选择</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">试了下，14B模型只能说还是太勉强。
+
