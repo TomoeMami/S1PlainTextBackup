@@ -18370,3 +18370,28 @@ DSH 的桌面版后续能够把升级做好，不要每次升级都因为大量�
 装插件都不好装了。</blockquote>
 不敢用了，用不起，等后面稳定点的版本了。<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  love4aids  
+##### 14795#       发表于 2026-9-25 13:36
+
+桌面端也是web版套壳啊
+
+*****
+
+####  cscbzcbz  
+##### 14796#       发表于 2026-9-25 13:38
+
+我感觉是因为工具调用速度明显快了，所以感觉钱花得快了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  来都来了  
+##### 14797#       发表于 2026-9-25 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284962&amp;ptid=2275806" target="_blank">便当爱 发表于 2026-9-25 13:19</a>
+这桌面版感觉token用的起飞啊，一眨眼2000W的token用出去了，吓死人，让他自己写个插件显示本次会话用的tok ...</blockquote>
+体感pi写一个扩展的花费只有DSH的1/4左右。不知道是不是DSH要更多的考虑图形界面的问题，而Pi只需要把文本对齐就可以了。
+
