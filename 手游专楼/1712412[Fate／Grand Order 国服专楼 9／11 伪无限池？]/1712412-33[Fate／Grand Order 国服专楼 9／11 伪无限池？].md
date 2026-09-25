@@ -184,3 +184,13 @@ MuMu-20260919-205429-531.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">麻蛋，第一次手滑卖了四星，三百石一剑心三新四星，然后手滑卖掉两个四星了。
 
+
+*****
+
+####  khxooo  
+##### 48237#       发表于 2026-9-25 08:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283146&amp;ptid=1712412" target="_blank">sandro 发表于 2026-9-24 22:11</a>
+四星小男孩有用不，怎么好像毫无存在感</blockquote>
+不好用，充能少，想开宝具都难。又没有特攻或者独特功能。
+
