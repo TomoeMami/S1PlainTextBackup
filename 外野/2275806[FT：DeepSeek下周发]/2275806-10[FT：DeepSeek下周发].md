@@ -18323,3 +18323,19 @@ DSH 的桌面版后续能够把升级做好，不要每次升级都因为大量�
 
 同样的模型使用不同agent，水平差距会有多大？<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">我电脑里装了trae、codebuddy、zcode、cc、codex，都不知道用哪个好
 
+
+*****
+
+####  cyberalogo  
+##### 14791#       发表于 2026-9-25 12:46
+
+笑死，装了DSH，问它为什么到现在才放出桌面端，感觉被嘲讽了。
+
+<img src="https://img.stage1st.com/forum/202609/25/124559ce8syqsz0geowgzu.jpg" referrerpolicy="no-referrer">
+
+<strong>Harness.jpg</strong> (44.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 12:45 上传
+
