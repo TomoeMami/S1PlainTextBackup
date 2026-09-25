@@ -293,3 +293,52 @@ command code 的 4.1f 优惠是 28 号到期</blockquote>
 
 有**媒体开始讨伐ds可以破甲涉黄了https://www.zhihu.com/question/2083635786902135928
 
+
+*****
+
+####  贝恩德塔  
+##### 14828#       发表于 2026-9-25 17:25
+
+支持pi和harness 桌面端了，设计应该更合理了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+**DSH 伴航 v0.2.0 更新：加入 Pi WebUI，支持切换模型前端**
+
+DSH 伴航是一个 Windows 本地模型控制台，用来管理模型、启动服务，并可以直接连接和控制聊天前端。这次主要更新：
+
+- **加入 Pi WebUI**，可以在浏览器里使用 Pi，并同步本地模型配置。
+
+- **支持 Harness 桌面端**，首页可选择 Harness 网页端、桌面端或 Pi WebUI。
+
+- **一键按顺序启动模型和前端**，也可以单独启动模型、打开前端。
+
+- 显示各前端运行状态，避免重复启动，支持分别手动关闭。
+
+- 支持修改模型显示名称，同步到 Harness 网页端和 Pi 的模型列表。
+
+- 首页布局更紧凑，修复按钮被裁切的问题。
+
+- 安装包支持覆盖升级，保留已有配置和模型路径。
+
+<img src="https://raw.githubusercontent.com/toydream525/deepseek-harness-companion/main/docs/images/app-preview.png" referrerpolicy="no-referrer">
+
+小提示：Pi WebUI 使用第三方开源项目；Harness 桌面端的模型连接目前需要在其设置中完成。安装包不包含模型权重。
+
+项目采用 **MIT 协议开源**，欢迎试用、反馈问题。
+
+👉 [下载 v0.2.0]([https://github.com/toydream525/d ... releases/tag/v0.2.0](https://github.com/toydream525/deepseek-harness-companion/releases/tag/v0.2.0)) · [GitHub]([https://github.com/toydream525/deepseek-harness-companion](https://github.com/toydream525/deepseek-harness-companion)) · [项目官网]([https://yuriaqua.com/harness/](https://yuriaqua.com/harness/))
+
+*****
+
+####  qwased  
+##### 14829#       发表于 2026-9-25 17:29
+
+<img src="https://img.stage1st.com/forum/202609/25/172908unuk2h2r4wqgytqn.jpg" referrerpolicy="no-referrer">
+
+<strong>F28723A704AD1F247020879427CBA791.jpg</strong> (850.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 17:29 上传
+
+opencode石锤会注入弱智提示词了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
