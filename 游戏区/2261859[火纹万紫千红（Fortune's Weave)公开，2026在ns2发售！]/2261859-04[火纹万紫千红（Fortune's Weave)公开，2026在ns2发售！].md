@@ -8508,3 +8508,24 @@ A少线是9章的9月17接这个任务 错过这个点就没有了
 你要先送礼物后才能挖</blockquote>
 肯定都给过礼物，支援度都3星了
 
+
+*****
+
+####  纯夏  
+##### 5208#       发表于 2026-9-25 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285376&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-25 16:08</a>
+
+肯定都给过礼物，支援度都3星了</blockquote>
+你先说你在哪条线 要挖哪个角色？
+
+*****
+
+####  Jabeck  
+##### 5209#       发表于 2026-9-25 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285376&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-25 16:08</a>
+
+肯定都给过礼物，支援度都3星了</blockquote>
+那就是几个外传没打，好几个角色需要外传通了之后才能挖。
+
