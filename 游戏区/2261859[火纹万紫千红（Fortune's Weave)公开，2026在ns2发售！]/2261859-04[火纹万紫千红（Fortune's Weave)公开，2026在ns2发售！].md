@@ -8529,3 +8529,21 @@ A少线是9章的9月17接这个任务 错过这个点就没有了
 肯定都给过礼物，支援度都3星了</blockquote>
 那就是几个外传没打，好几个角色需要外传通了之后才能挖。
 
+
+*****
+
+####  mggr  
+##### 5210#       发表于 2026-9-25 16:48
+
+喂鸟和鸵鸟到支援度 5 星，是不是就不用继续了？
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  松狮酱  
+##### 5211#       发表于 2026-9-25 16:53
+
+说起来这作看新闻貌似销量不错，也不知道首周卖了多少<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

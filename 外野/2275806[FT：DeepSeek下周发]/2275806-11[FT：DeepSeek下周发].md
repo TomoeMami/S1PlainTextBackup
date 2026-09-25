@@ -237,3 +237,29 @@ command code 的 4.1f 优惠是 28 号到期
 不过充值的是千问办公，因为混元和智谱很多工作都没有达到我预期，最让 ...</blockquote>
 你可以优先用3.8flash
 
+
+*****
+
+####  tillnight  
+##### 14823#       发表于 2026-9-25 16:50
+
+<blockquote>misuzu0723 发表于 2026-9-25 16:33
+deepseek 27 28 号是不是真有啥
+
+dsh 桌面端用户协议是 27 号生效 
+
+command code 的 4.1f 优惠是 28 号到期</blockquote>
+优惠到期和ds无关，这家是自部署的。
+
+
+*****
+
+####  misuzu0723  
+##### 14824#       发表于 2026-9-25 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285485&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-25 16:50</a>
+优惠到期和ds无关，这家是自部署的。</blockquote>
+4.1f 是接的官网的，官网炸了他也一起炸<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
