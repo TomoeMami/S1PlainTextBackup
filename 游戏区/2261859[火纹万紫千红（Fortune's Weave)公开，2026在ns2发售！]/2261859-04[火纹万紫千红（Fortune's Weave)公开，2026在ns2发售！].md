@@ -7913,3 +7913,13 @@ A少线升级太快，11章打完爱娜外传就45级，不敢再刷了。</bloc
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  lelouchwang  
+##### 5159#       发表于 2026-9-25 07:52
+
+蕾拉线我的穆没跟上等级咋办，别人都20级了她才11级<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
