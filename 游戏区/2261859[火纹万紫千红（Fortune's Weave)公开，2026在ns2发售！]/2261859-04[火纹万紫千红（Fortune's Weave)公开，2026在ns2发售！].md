@@ -8406,3 +8406,45 @@ A少线是9章的9月17接这个任务 错过这个点就没有了
 
 是不是第一部的时候跟自捏亲密度最高的人会时不时被自捏跳出来抵挡攻击??
 
+
+*****
+
+####  mai6696  
+##### 5201#       发表于 2026-9-25 15:38
+
+ 本帖最后由 mai6696 于 2026-9-25 15:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285267&amp;ptid=2261859" target="_blank">mggr 发表于 2026-9-25 15:21</a>
+
+怎么选择转职的兵种？是按照初始入队兵种一直升级吗？
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, 鹅球 v3 ...</blockquote>
+目前战技、魔法、被动的习得资料还不齐。
+
+通常来说是根据擅长武器和成长率来选择路线。
+
+例如这两位，初始都是斗士
+
+<img src="https://img.stage1st.com/forum/202609/25/154354p7jy7t7ywgq7ggjm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 15:43 上传
+
+<img src="https://img.stage1st.com/forum/202609/25/154241rhmogdcm8v22rs8c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 15:42 上传
+
+<img src="https://img.stage1st.com/forum/202609/25/154256pfnaofp9pupuzuye.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 15:42 上传
+

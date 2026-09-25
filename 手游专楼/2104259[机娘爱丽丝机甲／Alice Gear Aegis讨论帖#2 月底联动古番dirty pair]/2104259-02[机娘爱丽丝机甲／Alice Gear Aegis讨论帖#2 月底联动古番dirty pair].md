@@ -88,3 +88,15 @@
 
 这回这个既然没开盘子也不能配技能是不是盘子就不用点了（
 
+
+*****
+
+####  wilkyway  
+##### 2128#       发表于 2026-9-25 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284488&amp;ptid=2104259" target="_blank">madcow 发表于 2026-9-25 11:08</a>
+抽到加纯没抽到京姐，之前两个虽然也抽到了但是盘子都没点（
+
+这回这个既然没开盘子也不能配技能是不是盘子 ...</blockquote>
+这套虽然不能改技能但max的账面数值加成还是有的吧
+
