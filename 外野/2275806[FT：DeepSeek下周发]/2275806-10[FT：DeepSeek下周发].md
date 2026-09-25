@@ -18187,3 +18187,11 @@ waybill-index.html
 
 DSH客户端和web现在可以互相修了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 14777#       发表于 2026-9-25 11:04
+
+这桌面端不会就是套了一个electron的壳外加一些账号功能吧，那和我直接用webui有啥区别<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
