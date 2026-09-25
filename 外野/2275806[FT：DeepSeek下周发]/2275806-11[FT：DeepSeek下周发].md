@@ -695,3 +695,21 @@ kimi涉及排版的都是雷霆大思考，pptx、docx、pdf都是，想要省�
 
 【把大模型丢进早高峰，它居然把系统玩明白了？Step-5-Preview 实测】 [https://www.bilibili.com/video/B ... aa1e05b1601aeba124a](https://www.bilibili.com/video/BV1iGh26zEf7/?share_source=copy_web&amp;vd_source=64ee1a382d8e7aa1e05b1601aeba124a)
 
+
+*****
+
+####  chronicle  
+##### 14858#       发表于 2026-9-25 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286284&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-9-25 20:51</a>
+
+不行，ChatGPT生的图没法编辑，这个是需要提交上去的，而且还需要人工改字再修，不能是直接生图 ...</blockquote>
+其实生图模型都是支持局部编辑的，从实用的角度来说这样的流程完全没问题，只是生产流程换了一套。只是企业和机构不接受这种不可在office软件里编辑的作业。
+
+*****
+
+####  RookieTnT  
+##### 14859#       发表于 2026-9-25 21:11
+
+其实现在本地端的生图模型已经很强了. qwen-image-2.1 16G显存 三十秒能出图. 还无审查
+
