@@ -8029,3 +8029,16 @@ A少线升级太快，11章打完爱娜外传就45级，不敢再刷了。</bloc
 
 如果你不靠重开本章，一周目肯定挖不完。
 
+
+*****
+
+####  han110022  
+##### 5166#       发表于 2026-9-25 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284164&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-25 09:22</a>
+
+我发现请客吃饭，三个人都是1星以上才能打出PERFECT。
+
+两个人都不爱吃，另一个无感，就是BAD。（三个不爱吃 ...</blockquote>
+没记错的话，0+2+2也是P
+
