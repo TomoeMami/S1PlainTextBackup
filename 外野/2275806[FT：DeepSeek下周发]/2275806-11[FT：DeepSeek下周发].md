@@ -525,3 +525,37 @@ pi默认使用git bash啊</blockquote>
 和bash无关，以前即使默认用Bash还是照样天天大战PowerShell。但是Pi有一次更新的时候，专门提到了优化了 ...</blockquote>
 我这只要不是调bash开始用pwsh就开始疯狂肘击<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">给他挂了个pwsh7 skill才好点
 
+
+*****
+
+####  BarricadeMKXX  
+##### 14849#       发表于 2026-9-25 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286083&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-9-25 19:54</a>
+
+pi居然能用吗，那我直接复制Linux的pi了</blockquote>
+windows下pi也是优先用bash（是它自带的还是用git给的git-bash我有点不记得了），能用powershell但是默认设置没开需要自己改
+
+我这边opencode和pi用pwsh7都没啥大问题（模型主要用ds4.1f，好像也专门训练过）
+
+*****
+
+####  qwased  
+##### 14850#       发表于 2026-9-25 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286135&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-9-25 20:09</a>
+
+windows下pi也是优先用bash（是它自带的还是用git给的git-bash我有点不记得了），能用powershell但是默认 ...</blockquote>
+如果他需要用pwsh传递命令给wsl就会变成地狱绘图<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">聪明一点的模型失败两次就开始写脚本，不聪明的就要肘个五六次才会放弃
+
+
+*****
+
+####  贝恩德塔  
+##### 14851#       发表于 2026-9-25 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285939&amp;ptid=2275806" target="_blank">zerona 发表于 2026-9-25 19:05</a>
+
+看着不错的样子。</blockquote>
+欢迎点个star<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
