@@ -31,3 +31,23 @@ Jason新视频里又说到小岛这事儿了
 在一段新视频中，Schreier表示，索尼与这家日本工作室之间的谈判已持续 ...</blockquote>
 4亿刀的话，尼尔大仙贝做了好多年的大光头都不知道有没有这个预算吧
 
+
+*****
+
+####  ppa11  
+##### 158#       发表于 2026-9-25 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285080&amp;ptid=2289559" target="_blank">ナルバレック 发表于 2026-9-25 14:01</a>
+4亿刀的话，尼尔大仙贝做了好多年的大光头都不知道有没有这个预算吧</blockquote>
+没那么多，大光头顶多2亿出头？看人工价格具体如何。。
+索尼那边4亿成本的是星鸣特工（含工作室购买费）
+
+—— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zris  
+##### 159#       发表于 2026-9-25 14:42
+
+杰森斯莱耶有点发狂了真的<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

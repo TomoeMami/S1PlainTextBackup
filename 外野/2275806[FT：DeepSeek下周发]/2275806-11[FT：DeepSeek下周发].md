@@ -86,3 +86,52 @@ OpenCode 数据页出现多个未公开模型条目，包括 Kimi K4、GLM 5.5 F
 
 有两个被调用过，GLM5.5-Flash和V4.1Pro
 
+
+*****
+
+####  四氧化三铅  
+##### 14809#       发表于 2026-9-25 14:39
+
+<img src="https://img.stage1st.com/forum/202609/25/143851s4xgrbixdckvdxn0.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1790318330763_1.webp</strong> (90.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 14:38 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  startraveller  
+##### 14810#       发表于 2026-9-25 14:44
+
+Kimi 新模倒是据说29号
+
+*****
+
+####  猫不理prime  
+##### 14811#       发表于 2026-9-25 14:45
+
+无话可说
+
+<img src="https://img.stage1st.com/forum/202609/25/144500vdddgpnnqh5nq6p4.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1790318699879_1.webp</strong> (60.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 14:45 上传
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  Promeus  
+##### 14812#       发表于 2026-9-25 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285167&amp;ptid=2275806" target="_blank">四氧化三铅 发表于 2026-9-25 14:39</a></blockquote>
+吃瓜大肥鱼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
