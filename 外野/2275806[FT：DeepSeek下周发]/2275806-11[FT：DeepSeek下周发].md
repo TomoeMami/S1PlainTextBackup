@@ -159,3 +159,11 @@ Kimi 新模倒是据说29号
 
 如果真的像他说的那样，K3.1的记录会多得多
 
+
+*****
+
+####  hugosol  
+##### 14815#       发表于 2026-9-25 15:35
+
+别吧，你是信光头手上掌握了这么多家公司未发布模型的名字，还是有人拿opencode的API调着玩儿<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
