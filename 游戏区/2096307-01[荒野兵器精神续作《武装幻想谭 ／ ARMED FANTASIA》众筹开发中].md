@@ -610,3 +610,14 @@ END
 
 可惜了女角色人设<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Markorca  
+##### 46#       发表于 2026-9-25 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284140&amp;ptid=2096307" target="_blank">ccow 发表于 2026-9-25 09:14</a>
+
+出了钱的人咋办，无偿捐款吗。影之心那边呢。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">众筹就是这样的
+
