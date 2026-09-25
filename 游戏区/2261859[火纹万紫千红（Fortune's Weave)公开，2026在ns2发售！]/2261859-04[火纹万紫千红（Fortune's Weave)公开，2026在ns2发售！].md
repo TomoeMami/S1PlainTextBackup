@@ -8639,3 +8639,38 @@ A少线是9章的9月17接这个任务 错过这个点就没有了
 
 第3部 你前两部的所有角色线的仓库和钱都合并了 东西都在
 
+
+*****
+
+####  纯夏  
+##### 5219#       发表于 2026-9-25 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285506&amp;ptid=2261859" target="_blank">紫菜粉丝煲 发表于 2026-9-25 16:58</a>
+
+凯伊外传大逃亡怎么过，好家伙凯伊大剑祭这么强，当队友连上级职业都没了，开加护都被一刀秒 ...</blockquote>
+并不难 我是女王 索非亚和莉莉安3个人开路 带粉毛和莱桑达两个空中单位收拾开路队没杀死的血皮敌兵 凯伊跟在女王开路队后面 尽量拉开点距离 对于接近凯伊敌人多用圣焰技解决 空中单位机动性好 可以来回上下给敌人补刀  
+
+打盛托利翁用女王的圣焰技和索非亚的魔法轰 物理基本打不动
+
+*****
+
+####  Jabeck  
+##### 5220#       发表于 2026-9-25 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285506&amp;ptid=2261859" target="_blank">紫菜粉丝煲 发表于 2026-9-25 16:58</a>
+
+凯伊外传大逃亡怎么过，好家伙凯伊大剑祭这么强，当队友连上级职业都没了，开加护都被一刀秒 ...</blockquote>
+凯伊独自追下路，注意地上的回血加回避的增益地点，敌人以赶路为主不以打玩家为主。
+
+
+*****
+
+####  嘲风  
+##### 5221#       发表于 2026-9-25 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285125&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-25 14:20</a>
+凯伊的指导只看声望等级。
+
+雷达线目前没发现有指导环节。</blockquote>
+马是一天一喂
+
