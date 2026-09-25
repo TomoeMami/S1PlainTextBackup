@@ -86,3 +86,20 @@ cy挖的那波人，貌似现在还在做那个project awakening，然后引擎�
  ...</blockquote>
 TLOU被砍的网游不都2亿了么，大光头不奔着4亿去我不信
 
+
+*****
+
+####  Linkwjj  
+##### 163#       发表于 2026-9-26 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70230640&amp;ptid=2289559" target="_blank">Errrr 发表于 2026-9-14 01:04</a>
+
+资方就算了。作为一个玩家体验过DS后我不知道有什么理由不继续支持小岛。
+
+DS能让人再次相信游戏作为真正的 ...</blockquote>
+没有跑酷揭秘战斗地下城的游戏多的是。
+
+有没有可能高成本游戏要实现突破的是“高成本”这个问题本身？
+
+游戏要称为艺术品最先要摒弃的就是小岛这种只会依附电影的人
+

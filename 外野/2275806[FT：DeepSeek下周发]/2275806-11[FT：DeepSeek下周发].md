@@ -936,3 +936,11 @@ mimo思考太长了
 去HF搜qwen的无审查版，有不少选择</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">试了下，14B模型只能说还是太勉强。
 
+
+*****
+
+####  苇原雪道  
+##### 14880#       发表于 2026-9-26 00:29
+
+DS 4.1是不是改啥了？前几天缓存命中都是98%以上，今天就93%了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
