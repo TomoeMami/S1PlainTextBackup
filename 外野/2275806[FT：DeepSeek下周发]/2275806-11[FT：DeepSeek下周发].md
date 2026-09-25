@@ -478,3 +478,50 @@ win下哪个tui好用</blockquote>
 上手opencode，之后可以换pi自己装修</blockquote>
 pi居然能用吗，那我直接复制Linux的pi了
 
+
+*****
+
+####  来都来了  
+##### 14844#       发表于 2026-9-25 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286062&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-9-25 19:48</a>
+win下哪个tui好用</blockquote>
+Pi最好，应该是进行过专门的调整，在Pi下运行时很少见到AI大战PowerShell。本身Pi的工作效率也很高。
+
+*****
+
+####  夜游宫  
+##### 14845#       发表于 2026-9-25 19:59
+
+12G显存，本地文字模型有什么推荐的吗？
+
+
+*****
+
+####  qwased  
+##### 14846#       发表于 2026-9-25 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286096&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-25 19:59</a>
+
+Pi最好，应该是进行过专门的调整，在Pi下运行时很少见到AI大战PowerShell。本身Pi的工作效率也很高。 ...</blockquote>
+pi默认使用git bash啊
+
+*****
+
+####  来都来了  
+##### 14847#       发表于 2026-9-25 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286111&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-25 20:02</a>
+pi默认使用git bash啊</blockquote>
+和bash无关，以前即使默认用Bash还是照样天天大战PowerShell。但是Pi有一次更新的时候，专门提到了优化了PowerShell下的表现，之后就很少见到大战转义符和GBK了。
+
+*****
+
+####  qwased  
+##### 14848#       发表于 2026-9-25 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286116&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-25 20:04</a>
+
+和bash无关，以前即使默认用Bash还是照样天天大战PowerShell。但是Pi有一次更新的时候，专门提到了优化了 ...</blockquote>
+我这只要不是调bash开始用pwsh就开始疯狂肘击<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">给他挂了个pwsh7 skill才好点
+
