@@ -64,3 +64,25 @@ Jason新视频里又说到小岛这事儿了
 在一段新视频中，Schreier表示，索尼与这家日本工作室之间的谈判已持续 ...</blockquote>
 4亿美元是不是除了游戏制作经费，还有多媒体发展方向的费用，什么动画化，真人化之类的
 
+
+*****
+
+####  ShiKi847  
+##### 161#       发表于 2026-9-25 21:04
+
+cy挖的那波人，貌似现在还在做那个project awakening，然后引擎也被砍了，全面转向UE5
+
+*****
+
+####  ShiKi847  
+##### 162#       发表于 2026-9-25 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285172&amp;ptid=2289559" target="_blank">ppa11 发表于 2026-9-25 14:40</a>
+
+没那么多，大光头顶多2亿出头？看人工价格具体如何。。
+
+索尼那边4亿成本的是星鸣特工（含工作室购买费）
+
+ ...</blockquote>
+TLOU被砍的网游不都2亿了么，大光头不奔着4亿去我不信
+

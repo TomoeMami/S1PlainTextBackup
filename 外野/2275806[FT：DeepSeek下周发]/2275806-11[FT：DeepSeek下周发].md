@@ -687,3 +687,11 @@ ppt目前效果最好的流程就是把文本大纲和设计指导塞给chatgpt�
 kimi涉及排版的都是雷霆大思考，pptx、docx、pdf都是，想要省额度就让它直出文字，然后自己排版 ...</blockquote>
 我看了小红书上分析的，Work消耗的额度速度是code的三倍起步，读缓存价格更是逆天。我就是不懂为什么会这样
 
+
+*****
+
+####  chronicle  
+##### 14857#       发表于 2026-9-25 21:04
+
+【把大模型丢进早高峰，它居然把系统玩明白了？Step-5-Preview 实测】 [https://www.bilibili.com/video/B ... aa1e05b1601aeba124a](https://www.bilibili.com/video/BV1iGh26zEf7/?share_source=copy_web&amp;vd_source=64ee1a382d8e7aa1e05b1601aeba124a)
+
