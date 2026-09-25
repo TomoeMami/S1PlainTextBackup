@@ -167,3 +167,11 @@ Kimi 新模倒是据说29号
 
 别吧，你是信光头手上掌握了这么多家公司未发布模型的名字，还是有人拿opencode的API调着玩儿<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RookieTnT  
+##### 14816#       发表于 2026-9-25 15:52
+
+O畜还真敢出500刀订阅啊. 疯了吧. 100刀的订阅和tmd Claude pro额度差不多... 我有500刀我去买A畜2个 max 20x订阅不好吗?
+
