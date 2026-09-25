@@ -169,3 +169,16 @@
 
 这雪狼我实在想不出没有某些特定AOE角色能打过的可能，求教楼内大佬？这个boss算是目前为止整个游戏最恶劣的，堆怪强buff地图机制都是恶意
 
+
+*****
+
+####  orz100  
+##### 911#       发表于 2026-9-25 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283189&amp;ptid=2249235" target="_blank">爱上了三个你 发表于 2026-9-24 22:21</a>
+这雪狼我实在想不出没有某些特定AOE角色能打过的可能，求教楼内大佬？这个boss算是目前为止整个游戏最恶劣 ...</blockquote>
+雪路6F的狼boss? 大家都是很普通的打过去了啊，真的没啥难度，特别是现在还有治愈师的情况下。1月第四章开荒的时候我都是用60级队伍过的，带点火卷轴破冰直接莽就是了。
+印主线卡最久的地方就是第三章7f人偶，雪路三周目村长dps check，别的都没啥印象。
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

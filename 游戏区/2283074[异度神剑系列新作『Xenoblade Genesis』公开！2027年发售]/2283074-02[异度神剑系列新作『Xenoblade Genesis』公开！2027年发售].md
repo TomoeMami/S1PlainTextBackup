@@ -32,3 +32,14 @@
 
 2026-9-25 05:45 上传
 
+
+*****
+
+####  woaimiyabi  
+##### 2097#       发表于 2026-9-25 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283906&amp;ptid=2283074" target="_blank">misya 发表于 2026-9-25 05:43</a>
+
+又是录音的一天，另外chico这推发的时间有点意思</blockquote>
+没看明白 是有可能回归 还是没参加xbg有怨气？
+
