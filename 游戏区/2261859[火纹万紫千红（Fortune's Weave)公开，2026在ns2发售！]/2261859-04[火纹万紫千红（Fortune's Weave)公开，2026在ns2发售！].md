@@ -9039,3 +9039,21 @@ a少线打了一大半，我现在就一个感想，要是我第一条线选a少
 
 [论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  风祭果凛  
+##### 5255#       发表于 2026-9-25 23:41
+
+反正只要有一条线开了全图，剩下三条线都是收益很大的（凯伊线相对比较小，毕竟只能在东边活动，而且凯伊线第一部抓不了龙和大象，应该是非得你第三部合流了抓？
+
+*****
+
+####  创始’’’天翔  
+##### 5256#       发表于 2026-9-25 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286208&amp;ptid=2261859" target="_blank">reficul 发表于 2026-9-25 20:28</a>
+
+体感好感LV3还是不容易随着主线推进就达到的，在城里的时间太少礼物太费钱，我是用bug刷起来的，难以想象bu ...</blockquote>
+这作挖人主要还是卡声望，想挖的声望到了一般好感也到了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
