@@ -285,3 +285,11 @@ command code 的 4.1f 优惠是 28 号到期</blockquote>
 论坛助手,iPhone</blockquote>
 他给的qwen3.8flash也是最傻的
 
+
+*****
+
+####  燕山雪  
+##### 14827#       发表于 2026-9-25 17:14
+
+有**媒体开始讨伐ds可以破甲涉黄了https://www.zhihu.com/question/2083635786902135928
+
