@@ -7923,3 +7923,33 @@ A少线升级太快，11章打完爱娜外传就45级，不敢再刷了。</bloc
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Jabeck  
+##### 5160#       发表于 2026-9-25 08:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284011&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-9-25 07:52</a>
+
+蕾拉线我的穆没跟上等级咋办，别人都20级了她才11级
+
+论坛助手,iPhone</blockquote>
+第二部能直接拉等级。
+
+
+*****
+
+####  mai6696  
+##### 5161#       发表于 2026-9-25 08:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284011&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-9-25 07:52</a>
+
+蕾拉线我的穆没跟上等级咋办，别人都20级了她才11级
+
+论坛助手,iPhone</blockquote>
+你找个20级的洞窟，把她带上。
+
+战斗最后一下的时候，找个人带着她连携攻击，就能吃MVP经验。
+
+都说古扎兰是大哥，但穆的成长也不差吧。
+
