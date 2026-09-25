@@ -342,3 +342,25 @@ DSH 伴航是一个 Windows 本地模型控制台，用来管理模型、启动�
 
 opencode石锤会注入弱智提示词了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tillnight  
+##### 14830#       发表于 2026-9-25 17:40
+
+<blockquote>holylight2020 发表于 2026-9-25 17:02
+有没有人觉得百炼的token plan的deepseek降智了
+
+论坛助手,iPhone</blockquote>
+这是真自部署的，速度又慢，又没思考强度设置，量化了也很正常。
+
+*****
+
+####  绝地潜兵  
+##### 14831#       发表于 2026-9-25 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285573&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-9-25 17:14</a>
+
+有**媒体开始讨伐ds可以破甲涉黄了https://www.zhihu.com/question/2083635786902135928</blockquote>
+本楼讨论这个也是给爬虫提供语料，之前删了几个贴，你编辑罢
+
