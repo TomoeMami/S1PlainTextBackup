@@ -9093,3 +9093,19 @@ a少线打了一大半，我现在就一个感想，要是我第一条线选a少
 错过的外传是不是可以其他路线补？</blockquote>
 可以 但是要注意女王的外传只有A少线可以接
 
+
+*****
+
+####  kalavinka  
+##### 5260#       发表于 2026-9-26 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285918&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-25 18:59</a>
+9个外传建议全都做完 
+
+很多外传是招募人物的前置条件 还有外传给武器和材料
+
+PS：同样的外传选一个线完成即 ...</blockquote>
+地拖线9个都做完了 其他线应该不用了吧 还剩2条我想速通进第二部来着<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

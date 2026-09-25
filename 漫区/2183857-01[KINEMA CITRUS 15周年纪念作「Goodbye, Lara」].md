@@ -2564,3 +2564,13 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 <img src="https://p.sda1.dev/35/7969b85f4d705d4f2f1ab417f358e245/HS-NgsTboAELMbH.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/35/3c07a478e0fb1ae440dd37ebdac4b331/HS-NjO1acAATwvo.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Totokei  
+##### 618#       发表于 2026-9-26 00:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有时命运真的很神奇，看到BD1封面的时候原本想冲了，结果当时tb还没人开后来忘了。
+
+然后王子出现了然后一路滑坡
+
