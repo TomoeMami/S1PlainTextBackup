@@ -8684,3 +8684,16 @@ A少线是9章的9月17接这个任务 错过这个点就没有了
 马是一天一喂</blockquote>
 草 居然真的是一天一喂，教程也没讲啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Bani82  
+##### 5223#       发表于 2026-9-25 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285608&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-25 17:25</a>
+
+是 第2部只能带身上的东西过去 
+
+第3部 你前两部的所有角色线的仓库和钱都合并了 东西都在 ...</blockquote>
+合并进去的人是要都打完各自的第二部？还是只要一个人打完第二部，其他人不打也行？那咒怨武器都能有4份？
+

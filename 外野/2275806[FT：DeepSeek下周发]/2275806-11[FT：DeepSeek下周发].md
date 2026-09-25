@@ -374,3 +374,22 @@ opencode石锤会注入弱智提示词了<img src="https://static.stage1st.com/i
 opencode石锤会注入弱智提示词了</blockquote>
 为什么你这个图两边是不全的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看着有点难受
 
+
+*****
+
+####  scikirbypoke  
+##### 14833#       发表于 2026-9-25 18:23
+
+还能故意降智的
+
+*****
+
+####  holylight2020  
+##### 14834#       发表于 2026-9-25 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285569&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-25 17:12</a>
+他给的qwen3.8flash也是最傻的</blockquote>
+话说百炼这个plan到底哪个模型值一点？我感觉用起来都不如glm的coding plan。百炼这个还不禁用。一个月1400多块钱2天就用完了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
