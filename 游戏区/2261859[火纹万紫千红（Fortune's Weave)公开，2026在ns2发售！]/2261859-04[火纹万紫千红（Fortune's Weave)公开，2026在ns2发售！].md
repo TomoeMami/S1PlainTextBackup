@@ -8547,3 +8547,45 @@ A少线是9章的9月17接这个任务 错过这个点就没有了
 
 说起来这作看新闻貌似销量不错，也不知道首周卖了多少<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫菜粉丝煲  
+##### 5212#       发表于 2026-9-25 16:58
+
+凯伊外传大逃亡怎么过，好家伙凯伊大剑祭这么强，当队友连上级职业都没了，开加护都被一刀秒
+
+*****
+
+####  DancingAndy  
+##### 5213#       发表于 2026-9-25 16:59
+
+该洗把脸了感觉<img src="https://static.stage1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">
+
+何意味.jpg
+(662.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-25 16:59 上传
+
+<img src="https://img.stage1st.com/forum/202609/25/165913yorwo0ro4m3vao0p.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  创始’’’天翔  
+##### 5214#       发表于 2026-9-25 17:03
+
+白鸦新娘这个外传还挺难打啊，是不是我平均26的等级太低了
+
+*****
+
+####  mggr  
+##### 5215#       发表于 2026-9-25 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285382&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-25 16:14</a>
+
+你先说你在哪条线 要挖哪个角色？</blockquote>
+哪吒，很奇怪明明之前都送礼旅馆吃过很多次饭了。过几天挖角的时候要再送下礼物才能挖角。
+
