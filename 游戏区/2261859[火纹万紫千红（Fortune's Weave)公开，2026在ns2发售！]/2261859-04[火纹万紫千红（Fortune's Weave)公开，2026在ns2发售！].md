@@ -9190,3 +9190,21 @@ PS：同样的外传选一个线完成即 ...</blockquote>
 除了这个外传没有提示之外这 ...</blockquote>
 商会真有第二个外传？我在十一那会在城里看不到感叹号啊
 
+
+*****
+
+####  嘲风  
+##### 5269#       发表于 2026-9-26 02:02
+
+凯伊线开不了马车？还是要跟着剧情开？
+
+
+*****
+
+####  Booorunestud  
+##### 5270#       发表于 2026-9-26 02:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70287093&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-9-26 02:02</a>
+凯伊线开不了马车？还是要跟着剧情开？</blockquote>
+刚打完，第七章的支线才能开<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
