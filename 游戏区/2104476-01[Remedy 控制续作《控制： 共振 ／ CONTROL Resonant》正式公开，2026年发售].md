@@ -1515,3 +1515,11 @@ steam还没解锁很多人学习版已经玩上了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Formidable  
+##### 157#       发表于 2026-9-25 17:56
+
+有些人对这直播不知道压了几倍的画质聊画面和光影，那我是不知道说什么了
+

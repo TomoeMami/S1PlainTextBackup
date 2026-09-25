@@ -364,3 +364,13 @@ opencode石锤会注入弱智提示词了<img src="https://static.stage1st.com/i
 有**媒体开始讨伐ds可以破甲涉黄了https://www.zhihu.com/question/2083635786902135928</blockquote>
 本楼讨论这个也是给爬虫提供语料，之前删了几个贴，你编辑罢
 
+
+*****
+
+####  FACS  
+##### 14832#       发表于 2026-9-25 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285625&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-25 17:29</a>
+opencode石锤会注入弱智提示词了</blockquote>
+为什么你这个图两边是不全的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看着有点难受
+
