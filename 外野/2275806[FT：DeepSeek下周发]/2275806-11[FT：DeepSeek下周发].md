@@ -429,3 +429,24 @@ dsh的插件市场现在用哪个比较好？
 
 客户端也更新了，基本上能更新的都更新了，但是正主还没出来…
 
+
+*****
+
+####  Hattle  
+##### 14839#       发表于 2026-9-25 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285808&amp;ptid=2275806" target="_blank">holylight2020 发表于 2026-9-25 18:23</a>
+话说百炼这个plan到底哪个模型值一点？我感觉用起来都不如glm的coding plan。百炼这个还不禁用。一个月14 ...</blockquote>
+哪个都感觉不太值得<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，积分点纯黑箱，他后台暗改消耗你也不知道，阿里这个 Token Plan 一股子小家子气
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  noneoneone  
+##### 14840#       发表于 2026-9-25 19:45
+
+qoder的plan看不懂到底有多少量，有没有人解释一下。
+
+最近白嫖qoder和千问办公，感觉可以适当给阿里上供了。
+
