@@ -10728,10 +10728,10 @@
     "update": false
   },
   "1586924": {
-    "totalreply": 1544,
+    "totalreply": 1545,
     "title": "[剧透反白 19.01『不吉波普不笑 ／ ブギーポップは笑わない』]",
     "newtitle": "[剧透反白 19.01『不吉波普不笑 ／ ブギーポップは笑わない』]",
-    "lastedit": 1790344086,
+    "lastedit": 1790351645,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11552,7 +11552,7 @@
     "newtitle": "[SNK 饿狼传说新作『饿狼传说 City of the Wolves』2025年4月24日发售]",
     "lastedit": 1790092567,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2254600": {
@@ -13401,10 +13401,10 @@
     "update": false
   },
   "2273774": {
-    "totalreply": 545,
+    "totalreply": 547,
     "title": "[尼古喵喵 TV动画化 2026年7月]",
     "newtitle": "[尼古喵喵 TV动画化 2026年7月]",
-    "lastedit": 1790348645,
+    "lastedit": 1790351645,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13950,10 +13950,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 17586,
+    "totalreply": 17593,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1790351166,
+    "lastedit": 1790351887,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14260,15 +14260,6 @@
     "title": "[女神异闻录系列30周年纪念特设网站上线，情报陆续公开]",
     "newtitle": "[女神异闻录系列30周年纪念特设网站上线，情报陆续公开]",
     "lastedit": 1789875770,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2255282": {
-    "totalreply": 187,
-    "title": "[开放世界生存建造游戏专楼 深海迷航2抢先体验已开始 英灵神殿正式版已于9.9发布]",
-    "newtitle": "[开放世界生存建造游戏专楼 深海迷航2抢先体验已开始 英灵神殿正式版已于9.9发布]",
-    "lastedit": 1789141810,
     "category": "游戏区",
     "active": false,
     "update": false
@@ -16547,7 +16538,7 @@
     "newtitle": "[美媒：国会对F-35零件被转运至香港一事展开调查]",
     "lastedit": 1790092206,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289720": {
@@ -17352,10 +17343,10 @@
     "update": false
   },
   "2290364": {
-    "totalreply": 116,
+    "totalreply": 117,
     "title": "[字节： 聊天用户不付钱，又抢算力，低质语料浪费硬盘。豆包C端员工大批量转岗&辞退]",
     "newtitle": "[字节： 聊天用户不付钱，又抢算力，低质语料浪费硬盘。豆包C端员工大批量转岗&辞退]",
-    "lastedit": 1790350208,
+    "lastedit": 1790351526,
     "category": "外野",
     "active": true,
     "update": false
@@ -17568,10 +17559,10 @@
     "update": false
   },
   "2290413": {
-    "totalreply": 145,
+    "totalreply": 146,
     "title": "[高铁5个小时和飞机2个小时，坛友们怎么取舍]",
     "newtitle": "[高铁5个小时和飞机2个小时，坛友们怎么取舍]",
-    "lastedit": 1790350208,
+    "lastedit": 1790351886,
     "category": "外野",
     "active": true,
     "update": false
@@ -17595,10 +17586,10 @@
     "update": false
   },
   "2290420": {
-    "totalreply": 392,
+    "totalreply": 395,
     "title": "[国乒男团银牌]",
     "newtitle": "[国乒男团银牌]",
-    "lastedit": 1790350447,
+    "lastedit": 1790351887,
     "category": "外野",
     "active": true,
     "update": false
@@ -17748,10 +17739,10 @@
     "update": false
   },
   "2290441": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[就业市场恐怕已经跌破最悲观者的最差设想了]",
     "newtitle": "[就业市场恐怕已经跌破最悲观者的最差设想了]",
-    "lastedit": 1790333047,
+    "lastedit": 1790351887,
     "category": "外野",
     "active": true,
     "update": false
@@ -17825,6 +17816,15 @@
     "newtitle": "[『Code Geass』系列多部新作锐意制作中 ​​​]",
     "lastedit": 1790346246,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2254201": {
+    "totalreply": 270,
+    "title": "[新开一个食贫道专楼讨论一下吧]",
+    "newtitle": "[新开一个食贫道专楼讨论一下吧]",
+    "lastedit": 1790351890,
+    "category": "外野",
     "active": true,
     "update": false
   }
