@@ -7981,3 +7981,16 @@ A少线升级太快，11章打完爱娜外传就45级，不敢再刷了。</bloc
 
 现在休息会，一会卡带到了，继续干<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 5163#       发表于 2026-9-25 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284038&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-25 08:17</a>
+
+你找个20级的洞窟，把她带上。
+
+战斗最后一下的时候，找个人带着她连携攻击，就能吃MVP经验。</blockquote>
+対，这作最好的练级方式就是走迷宫，五人上场全体吃经验
+
