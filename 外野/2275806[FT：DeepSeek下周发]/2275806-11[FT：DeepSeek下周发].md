@@ -735,3 +735,25 @@ kimi涉及排版的都是雷霆大思考，pptx、docx、pdf都是，想要省�
 其实现在本地端的生图模型已经很强了. qwen-image-2.1 16G显存 三十秒能出图. 还无审查 ...</blockquote>
 有没有本地无甲的NSFW模型推荐？
 
+
+*****
+
+####  qwased  
+##### 14862#       发表于 2026-9-25 21:41
+
+qwen3.8max preview 0922开试用申请了
+
+opencode那几个玩意说不定是真的<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 14863#       发表于 2026-9-25 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286465&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-25 21:41</a>
+
+qwen3.8max preview开试用申请了
+
+opencode那几个玩意说不定是真的</blockquote>
+拿出K4和5.5Flash的名字，还有4.1Pro的十几次调用就很真了，前两个是完全没预期的，最后一个DeepSeek整套东西都更新了，就模型本体没有
+
