@@ -273,3 +273,15 @@ command code 的 4.1f 优惠是 28 号到期</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qwased  
+##### 14826#       发表于 2026-9-25 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70285520&amp;ptid=2275806" target="_blank">holylight2020 发表于 2026-9-25 17:02</a>
+有没有人觉得百炼的token plan的deepseek降智了
+
+论坛助手,iPhone</blockquote>
+他给的qwen3.8flash也是最傻的
+
