@@ -162,3 +162,35 @@ OD都还没发售日呢，小岛才刚给physint扩招了些人，采访里都�
 
 但过去几个月的谈判里SIE对小岛想烧多少钱也有数了，并且已经开始选角超预算的苗头就明显了，独占、IP归属谈不拢现在退出损失很少
 
+
+*****
+
+####  SergeGlenn  
+##### 169#         楼主| 发表于 2026-9-27 07:17
+
+Jason对4亿预算的回应:
+
+我一如既往地不愿在没有看到文件或多个第一手信源佐证的情况下给出确切数字。
+
+而且这里面涉及很多不同的数字。有Physint最初在PlayStation签约时的数字，有它当时接近达到的数字，有谈判过程中出现的数字，有在附上某些一线演员的情况下本会达到的数字，有Xbox同意的数字，还有到它真正发售时实际会花费的数字。
+
+话虽如此，Xbox内部一位了解该交易第一手情况的人告诉我，他们签下Physint的金额远低于这个数字。
+
+I am hesitant to get into exact numbers without seeing documentation or corroborating them with multiple firsthand sources, as always.
+
+And there are a lot of different numbers here. There's the number Physint was originally signed for at PlayStation, the number it was approaching, the number that came up during negotiations, the number it would have been with certain A-list actors attached, the number that Xbox agreed to, and the number it will actually cost by the time it comes out.
+
+All that said, someone at Xbox with firsthand knowledge of the deal told me that they signed Physint for significantly less than this.
+
+肥软Jez Corden对4亿预算的评论:
+
+我同样从直接了解合同内容的第一手信源处得知，PHYSINT的金额远低于此处报道的数字。有人向我暗示，“4亿美元”这个数字可能是索尼和PlayStation在被取消交易之前原本可能需要承担的金额。Xbox和小岛秀夫正以据报道这一数字的“零头”来推进他们的Xbox项目。
+
+我被告知，Xbox与小岛制作公司谈成了一项协议，其中包括PHYSINT的电影和电视改编授权，还包括针对OD的更优条款——OD是小岛秀夫备受期待的Xbox氛围恐怖游戏。
+
+I was told similarly by first-hand sources with direct knowledge of the contracts that the figure for PHYSINT is far lower than what is being reported here. It has been suggested to me that the "$400 million" figure is potentially what Sony and PlayStation might've been on the hook for until they cancelled the deal. Xbox and Kojima are building towards their Xbox projects on a "fraction" of this reported figure.
+
+I'm told Xbox negotiated a deal with Kojima Productions that includes both movie and TV licenses for PHYSINT, and it also included enhanced terms for OD — Kojima's anticipated atmospheric horror game for Xbox.
+
+我猜阿软给的预算可能在2-3亿刀之间？小岛被索尼踹了后能接受的条件肯定低不少，独占可能都更好谈了，但Jason提到的一线演员名单预算可能暗示了目前的主角选角档次明显降级了？
+
