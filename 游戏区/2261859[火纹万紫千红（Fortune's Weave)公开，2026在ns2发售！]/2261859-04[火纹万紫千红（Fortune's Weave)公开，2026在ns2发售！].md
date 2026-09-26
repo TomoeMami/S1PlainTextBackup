@@ -10256,3 +10256,30 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 驭龙兵? 这个是女王线第1部第9章战备增强任务解锁的</blockquote>
 我第九章好像没解锁这个，我战备任务都做了，不过我有重骑和卫士，我还特地章节重开试过也没解锁
 
+
+*****
+
+####  ミズタ  
+##### 5368#       发表于 2026-9-26 23:22
+
+第三部主线剧情，8改4还是太硬伤了，其他四位就真的没一点主线痕迹。
+
+如果这作火纹可以像if拆成双版本卖
+
+一个版本万紫，一个版本千红<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一个版本四主角也挺好
+
+*****
+
+####  kalavinka  
+##### 5369#       发表于 2026-9-26 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290256&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-26 22:57</a>
+魔法武器除了雷电剑 剩余我见到的是特洛伊亚和爱娜特莉亚自带的手甲（高科技手枪）都是魔法攻击 
+
+打重甲 ...</blockquote>
+疾风剑貌似只是轻 2重量
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

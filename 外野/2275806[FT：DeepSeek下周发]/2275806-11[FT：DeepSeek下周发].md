@@ -1444,3 +1444,23 @@ gpt说29号要发布一个叫o的东西，可能类似grok bot
 
 更神的是我让它再改一下，结果居然开始干没交给它的任务了，也不知道是串到其他会话，还是看到计划书或者未提交的修改了。
 
+
+*****
+
+####  qwased  
+##### 14926#       发表于 2026-9-26 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290288&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-26 23:11</a>
+前两天还觉得qoder可以用，今天被qwen3.8flash气晕了。
+
+我让它给现成的项目做个新用户指导，教用户怎么操作 ...</blockquote>
+记得关全局记忆和项目记忆
+另外这两天3.8flash有很明显的降智表现，经常会莫名其妙的觉得用户在提问随机问题或者发空消息，看消息说是阿里在把3.8flash切换到平头哥的gpu，可能是这玩意有问题<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 14927#       发表于 2026-9-26 23:18
+
+另外k4可能就是周一了，评测up拿到免费测试额度正在测
+
