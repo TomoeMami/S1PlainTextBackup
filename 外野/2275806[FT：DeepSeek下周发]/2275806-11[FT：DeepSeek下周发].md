@@ -1297,3 +1297,13 @@ O和A现在对生物类的任务拒绝率非常高的
 大佬们，借楼问一下，医科纯小白不想折腾，打算用智能体定时搜文献，设计湿实验。如果能后台全自动生信跟ad ...</blockquote>
 定时任务推荐选Hermes。当然你坛喜欢给人推Workbuddy，我个人认为Workbuddy就是流氓软件，不过界面更友好一些，你可以自己选。
 
+
+*****
+
+####  lactone  
+##### 14913#       发表于 2026-9-26 19:00
+
+pixel canary这个模型是谁的？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
