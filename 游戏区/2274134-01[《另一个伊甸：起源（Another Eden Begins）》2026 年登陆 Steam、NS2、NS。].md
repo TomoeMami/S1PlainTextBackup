@@ -274,3 +274,27 @@ NS2版居然不是钥匙卡？</blockquote>
 
 实体版游戏(NS1和NS2版)的替换封面
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 74#       发表于 2026-9-27 00:17
+
+<img src="https://img.stage1st.com/forum/202609/27/000610lxx9tam57qsdaddi.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4B6B82A2-4675-4195-9B8D-ADF66E4F9933.jpeg</strong> (792.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 00:06 上传
+
+Fami编辑：アナデン作为一个系列的话，未来还有什么想要实现的想法？
+
+加藤正人：具体还没开始。我想的是接着Another Eden再写一个新作，比如可以叫做Another Eden 2。
+
+根据访谈内容，个人猜测一下
+
+Begins的后续作品可能真的会叫Another Eden 2，从原作1.5部(巨魔篇)开始剧情逐渐变得不一样，到第2部已经面目全非。只是目前还确定不了编号2的这作将来是仍然上移动平台还是登陆主机。
+
+分歧点应该和新登场的人物有重要关系，目前由于没到二周目打出来那10个结局，所以完全无法预测2将来会如何发展。
+
