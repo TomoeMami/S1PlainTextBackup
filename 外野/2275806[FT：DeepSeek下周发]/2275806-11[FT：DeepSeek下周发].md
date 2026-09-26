@@ -1405,3 +1405,30 @@ gpt说29号要发布一个叫o的东西，可能类似grok bot
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lubo  
+##### 14923#       发表于 2026-9-26 22:28
+
+只对Pro用户开放，还要再推一个500美元档位的新套餐，我是预感OpenAI的风评要爆炸了
+
+
+*****
+
+####  jyj256  
+##### 14924#       发表于 2026-9-26 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70289985&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-26 21:35</a>
+
+今天免费测的那个模型，速度极慢……</blockquote>
+真是慢的出奇
+
+<img src="https://img.stage1st.com/forum/202609/26/222956dzqswxx70wfw27fk.png" referrerpolicy="no-referrer">
+
+<strong>911a3cd2-a991-443d-9cbb-d4719f4d9a21.png</strong> (12.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-26 22:29 上传
+
