@@ -9509,3 +9509,16 @@ PS：同样的外传选一个线完成即 ...</blockquote>
 卡带终于到了。听说这作马桶多，昨天还打了会xb2提前适应马桶，然后被气昏过去 ...</blockquote>
 要看马桶的定义，单纯的支线不多，有时缺钱还想多点，大地图玩法会有一定难度，涉及点模拟经营
 
+
+*****
+
+####  ascomnet  
+##### 5298#       发表于 2026-9-26 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70287951&amp;ptid=2261859" target="_blank">milky658 发表于 2026-9-26 11:44</a>
+
+卡带终于到了。听说这作马桶多，昨天还打了会xb2提前适应马桶，然后被气昏过去 ...</blockquote>
+唯一需要通的是外传，看好时间。
+
+其余的看你,做有收益，不做也不会卡关
+
