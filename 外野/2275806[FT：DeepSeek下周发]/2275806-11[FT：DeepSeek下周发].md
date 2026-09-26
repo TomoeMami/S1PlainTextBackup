@@ -1540,3 +1540,11 @@ gpt6 sol &lt; gpt5.6sol
 
 a/赶快降智让我用点别的
 
+
+*****
+
+####  qwased  
+##### 14935#       发表于 2026-9-27 02:28
+
+大肥鱼4.1感觉let me 有回音效果，就算压缩上下文，思考里面的无效let me也会越来越多，猛吃token<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
