@@ -1258,3 +1258,16 @@ gpt6sol也太猛了，这质量和价格我是真的震惊瘫坐了
 大佬们，借楼问一下，医科纯小白不想折腾，打算用智能体定时搜文献，设计湿实验。如果能后台全自动生信跟ad ...</blockquote>
 建议咸鱼买个试用版缇宝用codex，最小白最不用担心，你的需求都能满足，不想给O➗送钱可以连DS，DSH目前毛病太多了不推荐
 
+
+*****
+
+####  qwased  
+##### 14910#       发表于 2026-9-26 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288934&amp;ptid=2275806" target="_blank">mintslime 发表于 2026-9-26 17:12</a>
+
+建议咸鱼买个试用版缇宝用codex，最小白最不用担心，你的需求都能满足，不想给O➗送钱可以连DS，DSH目前 ...</blockquote>
+你确定能过生信甲？<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+O和A现在对生物类的任务拒绝率非常高的
+
