@@ -9955,3 +9955,16 @@ dildo是第三条线了，图已经开好了，那成想最后刷出一个路边
 
 欧露赫露外传好简单，我的弱弱弓箭妹都能跟在队友后边爽爽射天马
 
+
+*****
+
+####  シルフィエット  
+##### 5340#       发表于 2026-9-26 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70289137&amp;ptid=2261859" target="_blank">云玩家 发表于 2026-9-26 18:14</a>
+
+我游戏里其实在九月前已经去过目标地点了，还是要再踩一次才会有判定。
+
+反正我现在游戏里每过一周左右就 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">不是吧，我记得我前一章有踩过这个点（灰变白），这一章地点直接就打勾了
+
