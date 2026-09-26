@@ -10488,3 +10488,14 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 雷达线这个凯伊外传太奇怪了吧，有这么多机关但是给这么点单位，这机关完全没用啊，完全不如集中兵力斩首
 
+
+*****
+
+####  纯夏  
+##### 5390#       发表于 2026-9-27 03:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290604&amp;ptid=2261859" target="_blank">Bani82 发表于 2026-9-27 01:44</a>
+
+我现在女王线第十章有5W多，钱要给后面第三章留么？</blockquote>
+第3部4条线的钱会合并 我第3部合并后65W根本用不完 你自己判断要不要留<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
