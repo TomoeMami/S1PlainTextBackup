@@ -9443,3 +9443,21 @@ PS：同样的外传选一个线完成即 ...</blockquote>
 
 重开的话是除了支线任务和好感度之外都不保留么，不知道重开的话加点的随机数是不是也重新算
 
+
+*****
+
+####  墨染白泉  
+##### 5292#       发表于 2026-9-26 11:12
+
+<blockquote>巴尔干炮 发表于 2026-9-26 10:19
+入选金摇杆最佳主机游戏和最佳叙事。</blockquote>
+最佳配乐反而没有，就这名单不给个提名说不过去<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/26/111212i0ub0fssruxb0svq.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260926_111138.jpg</strong> (88.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-26 11:12 上传
+
