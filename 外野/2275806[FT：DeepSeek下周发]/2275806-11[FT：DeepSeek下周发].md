@@ -1548,3 +1548,27 @@ a/赶快降智让我用点别的
 
 大肥鱼4.1感觉let me 有回音效果，就算压缩上下文，思考里面的无效let me也会越来越多，猛吃token<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 14936#       发表于 2026-9-27 02:51
+
+<img src="https://img.stage1st.com/forum/202609/27/025058f7l5i8888en6x613.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1790448657543_2.webp</strong> (53.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 02:50 上传
+
+<img src="https://img.stage1st.com/forum/202609/27/025058mu47771qs0jn07zd.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1790448657627_3.webp</strong> (78.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 02:50 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">吃白饭的大肥鱼！
+
