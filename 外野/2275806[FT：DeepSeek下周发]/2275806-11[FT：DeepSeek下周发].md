@@ -1217,3 +1217,16 @@ bonsai我测了无数模型 都不太行。。很蠢
 
 大佬们，借楼问一下，医科纯小白不想折腾，打算用智能体定时搜文献，设计湿实验。如果能后台全自动生信跟adobe改矢量图更好，这个需求dsh能够满足吗？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  noneoneone  
+##### 14906#       发表于 2026-9-26 16:22
+
+<blockquote>[天涯墨客](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288752&amp;ptid=2275806) 发表于 09-26 16:13
+大佬们，借楼问一下，医科纯小白不想折腾，打算用智能体定时搜文献，设计湿实验。如果能后台全自动生信跟adobe改矢量图更好，这个需求dsh能够满足吗？    Re:Source</blockquote>
+
+如果是我的话会选hermes，自带cronjob就是用来做定时任务的。或者其他那些办公类的harness应该都行。dsh毕竟是为了编程设计的。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
