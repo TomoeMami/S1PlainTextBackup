@@ -39,3 +39,11 @@
 
 小高牛逼<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oznark  
+##### 7480#       发表于 2026-9-26 21:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">所以他们为什么不把shiny runway做成常驻的游戏模式。
+
