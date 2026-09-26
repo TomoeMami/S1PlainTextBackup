@@ -9532,3 +9532,15 @@ PS：同样的外传选一个线完成即 ...</blockquote>
 
 50%一直失败也是醉了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oniwarud  
+##### 5300#       发表于 2026-9-26 12:32
+
+<blockquote>偎 发表于 2026-9-26 12:21
+转职能凹吗。。。
+
+50%一直失败也是醉了</blockquote>
+可能需要看看你的转职证消耗了，只要点了转职考试就会消耗掉转职证并且存档
+
