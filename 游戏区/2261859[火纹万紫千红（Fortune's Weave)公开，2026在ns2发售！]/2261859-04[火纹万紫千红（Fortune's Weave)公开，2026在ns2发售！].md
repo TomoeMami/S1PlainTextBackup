@@ -9996,3 +9996,15 @@ dildo是第三条线了，图已经开好了，那成想最后刷出一个路边
 估计得单开一周目一直蹲在家里才行吧
 A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候会解锁自带那把剑的改型
 
+
+*****
+
+####  kalavinka  
+##### 5344#       发表于 2026-9-26 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70289304&amp;ptid=2261859" target="_blank">whzfjd 发表于 2026-9-26 19:08</a>
+这作有些过场是地图无提示走过去才能触发吗，太毒了吧，出门前固定舔次图能救吗？ ...</blockquote>
+还是有的 蓝色闪光 不仔细看确实会漏
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
