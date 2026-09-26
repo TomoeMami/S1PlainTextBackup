@@ -1610,3 +1610,13 @@ VFX很炫酷，但全红光战点+一堆扭曲散晕是真的很伤眼，遭不�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  如月尤菲  
+##### 166#       发表于 2026-9-26 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288834&amp;ptid=2104476" target="_blank">沙里昂 发表于 2026-9-26 16:41</a>
+剧情算是给一代做了补完的同时又挖了不少新坑，封锁的 7 年、监视 FBC 的同类组织、阿提的去向、委员会的后 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下一作，来个非物质目标部堂堂登场
+
