@@ -1464,3 +1464,35 @@ gpt说29号要发布一个叫o的东西，可能类似grok bot
 
 另外k4可能就是周一了，评测up拿到免费测试额度正在测
 
+
+*****
+
+####  f0rest  
+##### 14928#       发表于 2026-9-26 23:38
+
+ds4f用来翻译怎么破甲？网上找的提示词都是用来写小说的
+
+
+*****
+
+####  startraveller  
+##### 14929#       发表于 2026-9-26 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290304&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-26 23:18</a>
+另外k4可能就是周一了，评测up拿到免费测试额度正在测</blockquote>
+希望能便宜点，现在199额度还不如Claude pro 用opus 55了
+
+*****
+
+####  trentswd  
+##### 14930#       发表于 2026-9-26 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290370&amp;ptid=2275806" target="_blank">f0rest 发表于 2026-9-26 23:38</a>
+
+ds4f用来翻译怎么破甲？网上找的提示词都是用来写小说的</blockquote>
+我的经验是 完全不用破甲
+
+直接让他翻译 用dsh，他什么都没有抵抗 刷刷刷就帮我翻译好了
+
+不过是4f不是4.1f 升级后我还没试过
+

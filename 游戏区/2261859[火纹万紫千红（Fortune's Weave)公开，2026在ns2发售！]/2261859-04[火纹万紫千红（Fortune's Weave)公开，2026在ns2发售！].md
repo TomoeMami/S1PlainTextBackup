@@ -10300,3 +10300,35 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 佛表是三房里的地底人？
 
+
+*****
+
+####  纯夏  
+##### 5372#       发表于 2026-9-26 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290318&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-9-26 23:24</a>
+
+疾风剑貌似只是轻 2重量
+
+论坛助手,iPhone</blockquote>
+好吧 看来依然是名字长的像魔法武器<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 5373#       发表于 2026-9-26 23:42
+
+人品爆发 ​​​
+<img src="https://p.sda1.dev/35/f8d04bdfe1d09286e1bd7ba6f614ef5e/image.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/35/5b9ed50ff608d23ee703c65055d5fafe/image.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/35/01056dc1984dcf0732e4d52d06d65e41/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嘲风  
+##### 5374#       发表于 2026-9-26 23:44
+
+装备魔法武器以后面板会写明是魔攻
+
