@@ -9908,3 +9908,11 @@ hhh跟我差不多  我的建议是第一条线就先别完美 外传除了迪
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说起来各种nsol云存档招数也算狠狠嘲讽这个单存档设计了，脑回路正常点就算不给分支存档，也是该做个多时间点自动存档回溯的
 
+
+*****
+
+####  milky658  
+##### 5335#       发表于 2026-9-26 17:27
+
+打到大地图探索，不知道从哪的犄角旮旯去找的素材，很忙不知道在忙什么，这就是勾味儿啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
