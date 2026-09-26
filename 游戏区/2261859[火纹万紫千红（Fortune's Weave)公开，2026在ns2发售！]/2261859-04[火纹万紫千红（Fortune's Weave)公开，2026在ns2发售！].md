@@ -10438,3 +10438,37 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 连肝了80小时，好累，第一部第二条线还没通关……
 
+
+*****
+
+####  酒红色的存在  
+##### 5386#       发表于 2026-9-27 02:08
+
+28小时通了女王第一部，女王的派兵采集还是太舒适了，后面战备任务基本接到就能交<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/27/020653wqwo97u7w87p7laz.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-09-27 020309.png</strong> (322.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 02:06 上传
+
+还有女王第九章送的这弓箭手也太吊了
+
+<img src="https://img.stage1st.com/forum/202609/27/020641nvmznnwdmzvigdzc.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-09-26 202108.png</strong> (338.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 02:06 上传
+
+
+*****
+
+####  MrlOst  
+##### 5387#       发表于 2026-9-27 02:12
+
+迪线没去打女王外传有什么影响？ 查了一下攻略，女王外传甚至是迪线独占，在纠结要不要重开
+
