@@ -1307,3 +1307,15 @@ pixel canary这个模型是谁的？
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  空き地卯木  
+##### 14914#       发表于 2026-9-26 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288752&amp;ptid=2275806" target="_blank">天涯墨客 发表于 2026-9-26 16:13</a>
+大佬们，借楼问一下，医科纯小白不想折腾，打算用智能体定时搜文献，设计湿实验。如果能后台全自动生信跟ad ...</blockquote>
+双螺旋在我朋友圈打的生信广告用的还是ds 感觉科研这块用的大模型还是ds和Qwen主流些
+讲道理其实现在这些哪家功能都差不多 dsh出桌面版 最新版本现在也支持定时任务了
+看着dsh还有不少开源插件可以选用 可以问一下生信同行搞这个用哪个比较顺手 属于可以试一试的选择
+
