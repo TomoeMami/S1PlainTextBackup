@@ -9461,3 +9461,14 @@ PS：同样的外传选一个线完成即 ...</blockquote>
 
 2026-9-26 11:12 上传
 
+
+*****
+
+####  fxc731  
+##### 5293#       发表于 2026-9-26 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283932&amp;ptid=2261859" target="_blank">Antidote丶 发表于 2026-9-25 06:43</a>
+除了商会兑换的雷电剑，蕾达篇还有其他渠道弄到吗？
+顺便问下我奥琳琵娅28级就30魔力了，走萨满输出是不是 ...</blockquote>
+我蕾达12章挖了杰斯塔，自带一把，可能别的人身上还有
+

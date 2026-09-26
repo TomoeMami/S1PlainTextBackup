@@ -1099,3 +1099,13 @@ mimo思考太长了
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  干将莫邪  
+##### 14896#       发表于 2026-9-26 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286382&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-9-25 21:20</a>
+对，这个是没法接受的，而且还忘了说，chatgpt那个文风和审美，简直拉得让人恶心，就是非常死板，一点生 ...</blockquote>
+最好的流程是gpt 生图，然后让它还原拆成可编辑ppt。无敌强，6开始才能实现的。
+
