@@ -10050,3 +10050,26 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 第三部有红龙黑龙黑马抓 凯小弟的宝可梦大师之旅不能停啊 全是数值美<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lelouchwang  
+##### 5349#       发表于 2026-9-26 20:32
+
+神道是要对应神的等级三级才能用吗？刚蕾达线通关了也没用过
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  白昼梦DD  
+##### 5350#       发表于 2026-9-26 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70289679&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-9-26 20:32</a>
+神道是要对应神的等级三级才能用吗？刚蕾达线通关了也没用过
+
+论坛助手,iPhone ...</blockquote>
+好像是跟着单线角色剧情锁死的，每条线能用的门永远固定。
+这点就很不机灵，应该做成该线角色通关一部后白鸟大人发力，让其他人也能用同一个门
+

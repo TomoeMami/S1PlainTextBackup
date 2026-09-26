@@ -1338,3 +1338,16 @@ codex额度快用完了，就用了次gpt6luna帮我抓取某页面上的所有�
 
 这又是何意味
 
+
+*****
+
+####  未知伤亡  
+##### 14917#       发表于 2026-9-26 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70289622&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-26 20:23</a>
+
+&gt;用“超级智能”（SI）代替“人工智能”（AI）
+
+这又是何意味</blockquote>
+其实也不是不行，早10年前AI指的还是各种脚本和状态机，现在大家为了赶时髦，把AI的概念不断加码，用“人机”来称呼前AI时代的各种模仿人类行为的程序，借着川子这一轮玩抽象，来一次概念上的正本清源未尝不可
+
