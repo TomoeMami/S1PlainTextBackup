@@ -1523,3 +1523,20 @@ codex写作水平是臭不可闻，人尽皆知，但是翻译出来的东西却
 
 有用过军军的mimo 2.6的么？看着api价格挺便宜的，想问一下翻译效果、速度如何，我日常就翻译翻译新闻、一些游戏和英文小说，DS价格有点高，感觉划不来了。
 
+
+*****
+
+####  jojog  
+##### 14934#       发表于 2026-9-27 01:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70289754&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-9-26 20:46</a>
+
+gpt6luna &lt; gpt5.6luna
+
+gpt6 sol &lt; gpt5.6sol
+
+个人感知</blockquote>
+已经捏着鼻子用opus5.5了
+
+a/赶快降智让我用点别的
+
