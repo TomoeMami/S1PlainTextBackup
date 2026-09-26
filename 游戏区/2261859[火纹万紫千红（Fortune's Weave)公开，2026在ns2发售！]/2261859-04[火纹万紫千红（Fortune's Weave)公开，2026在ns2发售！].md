@@ -9325,3 +9325,14 @@ PS：同样的外传选一个线完成即 ...</blockquote>
 
 如果第一部通关，再返回喜欢的章节重玩，可以补错过的任务以及开图么？
 
+
+*****
+
+####  Jabeck  
+##### 5282#       发表于 2026-9-26 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70287284&amp;ptid=2261859" target="_blank">reficul 发表于 2026-9-26 08:04</a>
+
+凯伊篇声望5，兴冲冲想找双马尾弓进队，结果发现椰枣在目前去不了的沙漠地带= =真是…卡我声望还要卡我材料 ...</blockquote>
+买蔬菜箱，然后用SL大法开出椰枣为止，等后面在种。
+
