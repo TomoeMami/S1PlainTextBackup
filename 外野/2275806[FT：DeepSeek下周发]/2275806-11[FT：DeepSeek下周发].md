@@ -1598,3 +1598,16 @@ a/赶快降智让我用点别的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开始来碰瓷圈地了 真就二游啊 接下来是哪些拳法？以往的总结贴都不见了 
 
+
+*****
+
+####  andychen  
+##### 14939#       发表于 2026-9-27 04:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290164&amp;ptid=2275806" target="_blank">lubo 发表于 2026-9-26 22:28</a>
+
+只对Pro用户开放，还要再推一个500美元档位的新套餐，我是预感OpenAI的风评要爆炸了 ...</blockquote>
+我对devday最大的期待是astra-minor这个模型，据说是astra架构的小规模模型
+
+现在的gpt6系列除了astra确实不太行，尤其是隔壁opus5.5这么能打，openai要想想办法了
+
