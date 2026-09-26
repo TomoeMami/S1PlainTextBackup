@@ -247,3 +247,11 @@ MuMu-20260919-205429-531.jpg
 
 —— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Urakawa  
+##### 48243#       发表于 2026-9-26 12:08
+
+300石2宝，但mini7放剑心宝具怎么会卡啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
