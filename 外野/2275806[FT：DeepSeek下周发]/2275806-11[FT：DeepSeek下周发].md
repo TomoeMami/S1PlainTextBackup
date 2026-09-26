@@ -1195,3 +1195,17 @@ bonsai我测了无数模型 都不太行。。很蠢
 —— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
 量化有政策风险，不提他理想到底是不是AGI，光从赚钱上来说，现在AI是大风口，是正常人都知道怎么选<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 14904#       发表于 2026-9-26 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288526&amp;ptid=2275806" target="_blank">Znesmoc 发表于 2026-9-26 14:56</a>
+想让agent整点逆向/破解一类的活，结果就被各种理由光速拒绝了
+
+用学习和非盈利一类的理由糊弄不过去
+
+是得 ...</blockquote>
+给他准备好逆向工具mcp，跟他说你要复刻xx程序，他自己就会用工具去逆向了，等他拿到关键信息的时候就算反应过来不干了你也可以自己干完剩下的
+
