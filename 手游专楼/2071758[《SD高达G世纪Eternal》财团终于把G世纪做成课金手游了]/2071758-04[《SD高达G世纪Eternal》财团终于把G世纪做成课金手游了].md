@@ -346,3 +346,15 @@ v的开发机，不知道艮高佐能不能给力点。
 
 一般主角最终机体都是红的，除非留着出V2ABC，但是ABC也不好说内部UCE之间关系如何了，毕竟UCE这游戏从永恒出来后收入就一直在关服边缘<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 4744#       发表于 2026-9-26 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70287192&amp;ptid=2071758" target="_blank">plok201 发表于 2026-9-26 06:12</a>
+一般主角最终机体都是红的，除非留着出V2ABC，但是ABC也不好说内部UCE之间关系如何了，毕竟UCE这游戏从永恒 ...</blockquote>
+其实关了反而可以光明正大进永恒了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
