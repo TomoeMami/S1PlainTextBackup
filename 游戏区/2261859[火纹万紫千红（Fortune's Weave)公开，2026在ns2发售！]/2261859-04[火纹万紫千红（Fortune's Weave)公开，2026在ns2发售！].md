@@ -10499,3 +10499,16 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 我现在女王线第十章有5W多，钱要给后面第三章留么？</blockquote>
 第3部4条线的钱会合并 我第3部合并后65W根本用不完 你自己判断要不要留<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯夏  
+##### 5391#       发表于 2026-9-27 03:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290642&amp;ptid=2261859" target="_blank">MrlOst 发表于 2026-9-27 02:12</a>
+
+迪线没去打女王外传有什么影响？ 查了一下攻略，女王外传甚至是迪线独占，在纠结要不要重开 ...</blockquote>
+这个女王外传奖励是斯伦德投枪+20000钱+名声150 
+
+你自己判断要不要重开 
+
