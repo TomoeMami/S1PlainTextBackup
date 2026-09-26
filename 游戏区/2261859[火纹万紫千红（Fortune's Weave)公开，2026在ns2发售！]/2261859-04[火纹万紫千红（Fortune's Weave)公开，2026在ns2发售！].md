@@ -10031,3 +10031,14 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 不转。还有更上位的。
 
+
+*****
+
+####  陆久舟  
+##### 5347#       发表于 2026-9-26 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70289324&amp;ptid=2261859" target="_blank">白昼梦DD 发表于 2026-9-26 19:12</a>
+估计得单开一周目一直蹲在家里才行吧
+A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候会解锁自带 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还有这种事，对话完给个提示啊，不过还好是12章，重新打也快
+
