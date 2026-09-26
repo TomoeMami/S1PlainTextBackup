@@ -9698,3 +9698,27 @@ hhh跟我差不多  我的建议是第一条线就先别完美 外传除了迪
 
 因为数据继承，马桶就当熟悉地图了。
 
+
+*****
+
+####  索非亚  
+##### 5314#       发表于 2026-9-26 14:20
+
+妮涅感觉怎么练都不对，就算两条线凯伊上鸵鸟加速，女王线重甲加力防，最后合成中杯水桶还是区<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/26/141906q04d4ift45ioixq9.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1790403546139_1.webp</strong> (291.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-26 14:19 上传
+
+<img src="https://img.stage1st.com/forum/202609/26/141906zpifzisyc2sppjce.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1790403546416_2.webp</strong> (170.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-26 14:19 上传
+
