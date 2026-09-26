@@ -9668,3 +9668,33 @@ hhh跟我差不多  我的建议是第一条线就先别完美 外传除了迪
 
 一些武器有特殊战技 比如必杀剑  这作的必杀剑很重而且必杀变成了战技 有点难用
 
+
+*****
+
+####  ShitOverflow  
+##### 5311#       发表于 2026-9-26 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70287951&amp;ptid=2261859" target="_blank">milky658 发表于 2026-9-26 11:44</a>
+
+卡带终于到了。听说这作马桶多，昨天还打了会xb2提前适应马桶，然后被气昏过去 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你要不是被马桶up pua入脑的话，这代支线其实蛮有沉浸感，遵循心流的，就像在公交上读小说，入点迷就到站了
+
+*****
+
+####  蓝雉  
+##### 5312#       发表于 2026-9-26 13:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288131&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-26 12:36</a>
+柯南不会真的对凯伊有意思吧
+
+台词里无不透着想用自己的大车压死凯伊的感觉 ​​​ ...</blockquote>
+自己国家信奉的女神的亲外孙，还是一口一个姐姐的小奶狗，你是女王你忍得住？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星花  
+##### 5313#       发表于 2026-9-26 13:57
+
+因为数据继承，马桶就当熟悉地图了。
+
