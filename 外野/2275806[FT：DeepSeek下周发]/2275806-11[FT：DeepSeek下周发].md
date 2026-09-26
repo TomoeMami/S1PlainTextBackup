@@ -1395,3 +1395,13 @@ codex的新UI好丑，早知道不更新了
 
 这次重置没说具体时间
 
+
+*****
+
+####  lactone  
+##### 14922#       发表于 2026-9-26 22:07
+
+gpt说29号要发布一个叫o的东西，可能类似grok bot
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
