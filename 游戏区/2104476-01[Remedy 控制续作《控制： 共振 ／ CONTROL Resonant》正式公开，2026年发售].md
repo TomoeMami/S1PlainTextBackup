@@ -1575,3 +1575,16 @@ VFX很炫酷，但全红光战点+一堆扭曲散晕是真的很伤眼，遭不�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">简中翻译什么鬼，是不是用了机翻啊，还有有时字幕还突然没了，繁中就没显示问题
 
+
+*****
+
+####  鱼雷鲨  
+##### 163#       发表于 2026-9-26 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70287095&amp;ptid=2104476" target="_blank">yxch 发表于 2026-9-26 02:04</a>
+
+战斗太多太磨叽了，战斗趣味性又不强。改成一击必杀跑图了，这个味儿才对，迪伦的超能力就是应该秒希斯，用 ...</blockquote>
+控制是个大型地图刷刷刷的魂游，心灵杀手还勉强可以说是英雄本色缝合生化4/死亡空间
+
+控制2就是受环游等等鼓舞
+
