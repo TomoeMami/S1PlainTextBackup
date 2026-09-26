@@ -9722,3 +9722,20 @@ hhh跟我差不多  我的建议是第一条线就先别完美 外传除了迪
 
 2026-9-26 14:19 上传
 
+
+*****
+
+####  安广多惠子  
+##### 5315#       发表于 2026-9-26 14:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">a少线9月超时被迫重来了，白发大叔外传跟主线卡得死死的几个意思，怎么设计的真是，一整天白打了
+
+*****
+
+####  ShitOverflow  
+##### 5316#       发表于 2026-9-26 14:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我chovy了，dildo哥第九章有雷阿，9/17做外传做完到9/18，主线9/19截止
+
+从神道传过去，路上出了一个遭遇战，赶不上了直接gameover，从章末直接干到整章重打，白打几小时，怎么设计的
+
