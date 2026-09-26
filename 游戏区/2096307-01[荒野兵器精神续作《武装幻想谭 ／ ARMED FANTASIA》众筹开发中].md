@@ -722,3 +722,11 @@ aniplex能不能接盘，反正他们也能发行
 
 日本有可能愿意接手的感觉就cy了吧
 
+
+*****
+
+####  血狂毘沙门  
+##### 56#       发表于 2026-9-26 09:29
+
+影之心精神续作的消息还有吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
