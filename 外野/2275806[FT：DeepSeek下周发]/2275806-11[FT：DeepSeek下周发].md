@@ -1148,3 +1148,27 @@ bonsai我测了无数模型 都不太行。。很蠢
 你可以试试swift这个，它最小那个版本是9g左右 ...</blockquote>
 这个也是Agent特化模型吗，我本地模型主要就是跑跑无审核翻译，真干活还是用ds4.1
 
+
+*****
+
+####  RookieTnT  
+##### 14900#       发表于 2026-9-26 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70287493&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-9-26 10:03</a>
+
+至少我用的这个不行，还是qwen系列需要轻微破甲？</blockquote>
+开启思考后会容易很多触发审查. 因为说是无审查. 但是直球好像也会出现.
+
+*****
+
+####  Znesmoc  
+##### 14901#       发表于 2026-9-26 14:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 想让agent整点逆向/破解一类的活，结果就被各种理由光速拒绝了
+
+用学习和非盈利一类的理由糊弄不过去
+
+是得在soul.md里提前破甲呢还是用别的什么办法
+
+（或者干脆是hermes自己不行?)
+

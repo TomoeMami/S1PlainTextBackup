@@ -9747,3 +9747,16 @@ hhh跟我差不多  我的建议是第一条线就先别完美 外传除了迪
 
 原来这么多人和我一样a少线九月白打。。。只能说章末目的地在城外的建议一开始就先去踩点，不然就会浪费两三个小时
 
+
+*****
+
+####  ShitOverflow  
+##### 5318#       发表于 2026-9-26 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288493&amp;ptid=2261859" target="_blank">云玩家 发表于 2026-9-26 14:41</a>
+
+原来这么多人和我一样a少线九月白打。。。只能说章末目的地在城外的建议一开始就先去踩点，不然就会浪费两 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">dildo是第三条线了，图已经开好了，那成想最后刷出一个路边遭遇战，我直接一个chovy victorrrrry！
+
+现在在重打随时盯着那条路有没有野怪
+
