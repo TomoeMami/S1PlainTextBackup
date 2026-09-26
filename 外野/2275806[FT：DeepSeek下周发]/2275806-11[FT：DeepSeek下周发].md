@@ -1287,3 +1287,13 @@ O和A现在对生物类的任务拒绝率非常高的
 
 ——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  来都来了  
+##### 14912#       发表于 2026-9-26 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288752&amp;ptid=2275806" target="_blank">天涯墨客 发表于 2026-9-26 16:13</a>
+大佬们，借楼问一下，医科纯小白不想折腾，打算用智能体定时搜文献，设计湿实验。如果能后台全自动生信跟ad ...</blockquote>
+定时任务推荐选Hermes。当然你坛喜欢给人推Workbuddy，我个人认为Workbuddy就是流氓软件，不过界面更友好一些，你可以自己选。
+
