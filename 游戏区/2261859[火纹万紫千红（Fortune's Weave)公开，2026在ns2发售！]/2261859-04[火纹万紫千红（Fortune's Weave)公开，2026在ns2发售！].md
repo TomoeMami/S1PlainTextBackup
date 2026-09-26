@@ -10137,3 +10137,13 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 蕾达线天马脸金毛二号和希罗克都可以走法系，这次法系自带剑使用权还挺神奇的，雷电剑也就一个C熟练度的要求
 
+
+*****
+
+####  kalavinka  
+##### 5357#       发表于 2026-9-26 21:46
+
+这代魔法武器是不是只有剑，光弓炎枪雷斧风斧都没了，开罐头还得找个法师跟着<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

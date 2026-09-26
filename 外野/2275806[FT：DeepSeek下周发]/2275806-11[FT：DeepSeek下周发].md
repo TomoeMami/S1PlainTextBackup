@@ -1379,3 +1379,19 @@ codex的新UI好丑，早知道不更新了
 
 今天免费测的那个模型，速度极慢……
 
+
+*****
+
+####  love4aids  
+##### 14921#       发表于 2026-9-26 21:43
+
+<img src="https://img.stage1st.com/forum/202609/26/214339prb9krq97q9irb4i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-26 21:43 上传
+
+这次重置没说具体时间
+
