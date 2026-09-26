@@ -2600,3 +2600,19 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 最后最最最恶心的是把菈菈画成超普超土一人，我这个颜狗都洗不下去了，童话一定要被现实终结，你的青春与爱注定遗憾，尼玛我这是点进哪个初中失恋嘉豪的朋友圈吗？蒜水魔鸡狗水母辉夜姬都知道结局演一下所谓的袒露自己接受帮助共同前行，你菈菈为了点题“再见”脑子都不要了
 
+
+*****
+
+####  aptx8285144  
+##### 621#       发表于 2026-9-26 17:06
+
+ 本帖最后由 aptx8285144 于 2026-9-26 17:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288433&amp;ptid=2183857" target="_blank">好面子的懒虫 发表于 2026-9-26 14:17</a>
+
+菈菈这也叫包寿司吗，包寿司起码把自己的爱人自己的归处包进去吧，菈菈直接离开滋贺也叫包吗？还有你菈菈 ...</blockquote>
+要说个人饺子，<strong>莉可莉丝的千佛最没资格说别人了</strong><img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，别说心脏的事稀里糊涂在不知情情况下让干爹干完后自己就接受了，就是和真岛干杯而说出那句真正反派只出现在电影里的逆天台词，对自己的原则根本没有觉悟导致同僚们死伤惨重，看到书包就开心地又一次把特工素养扔一边导致樱重伤（<strong>这愚蠢以前在委托人案件里表演过一次了</strong>），最无语的是千佛干完这些，和真岛打完后这人还能到处瞎跑，<strong>跑完后还能回来开开心心地回来百合营业？连个承受痛苦的过程tam都没有</strong>，这人究竟知不知道自己带来的伤害可不只是对龙奈1个人？
+
+然后呢，最终话她是对龙奈为这些事哭过还是对樱哭过还是一起痛哭过？唯一这种开开心心就当无事发生的虚伪感是最爆笑的<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，<strong>事后和樱一句话都没说过</strong>
+
+这种恶心的虚伪感，这种制作组亲女儿没被拷打或质问的发指程度，莉可莉丝之后实在不多见<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，这不是什么百合营业能弥补的好吗？
+

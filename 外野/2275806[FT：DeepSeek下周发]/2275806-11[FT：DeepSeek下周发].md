@@ -1238,3 +1238,23 @@ bonsai我测了无数模型 都不太行。。很蠢
 
 gpt6sol也太猛了，这质量和价格我是真的震惊瘫坐了
 
+
+*****
+
+####  Milarvoz  
+##### 14908#       发表于 2026-9-26 17:12
+
+从ds短暂换到kimi和glm，突然发现自己又看得懂中文了。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  mintslime  
+##### 14909#       发表于 2026-9-26 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288752&amp;ptid=2275806" target="_blank">天涯墨客 发表于 2026-9-26 16:13</a>
+
+大佬们，借楼问一下，医科纯小白不想折腾，打算用智能体定时搜文献，设计湿实验。如果能后台全自动生信跟ad ...</blockquote>
+建议咸鱼买个试用版缇宝用codex，最小白最不用担心，你的需求都能满足，不想给O➗送钱可以连DS，DSH目前毛病太多了不推荐
+
