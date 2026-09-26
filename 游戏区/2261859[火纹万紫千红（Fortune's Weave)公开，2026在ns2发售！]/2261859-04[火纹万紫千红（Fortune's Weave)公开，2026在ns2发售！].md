@@ -10207,3 +10207,34 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  纯夏  
+##### 5364#       发表于 2026-9-26 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290022&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-9-26 21:46</a>
+
+这代魔法武器是不是只有剑，光弓炎枪雷斧风斧都没了，开罐头还得找个法师跟着
+
+论坛助手,iPhone ...</blockquote>
+魔法武器除了雷电剑 剩余我见到的是特洛伊亚和爱娜特莉亚自带的手甲（高科技手枪）都是魔法攻击 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+打重甲除了魔法武器和法师  可以用重甲特效的刺剑或主角们的圣焰技轰
+
+其他种类的武器 有些名字看着像魔法武器的 其实都是只带的战技 
+
+有个效果不明的疾风剑 不知道有没有人买了试试
+
+*****
+
+####  Jabeck  
+##### 5365#       发表于 2026-9-26 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70289416&amp;ptid=2261859" target="_blank">spieler 发表于 2026-9-26 19:38</a>
+
+天马居然没有上位职业，那天马妹子练满后转啥啊
+
+—— 来自 鹅球 v3.3.96</blockquote>
+好像后面还有圣天翼兵。
+
