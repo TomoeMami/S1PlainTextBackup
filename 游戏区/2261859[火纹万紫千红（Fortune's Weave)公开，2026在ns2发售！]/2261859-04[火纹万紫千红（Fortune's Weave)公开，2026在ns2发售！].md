@@ -10238,3 +10238,21 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 —— 来自 鹅球 v3.3.96</blockquote>
 好像后面还有圣天翼兵。
 
+
+*****
+
+####  聊nsy专用号  
+##### 5366#       发表于 2026-9-26 23:05
+
+有人跟我一样女王线快完结了才发现派遣采集能当连续移动用吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bani82  
+##### 5367#       发表于 2026-9-26 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290195&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-26 22:37</a>
+驭龙兵? 这个是女王线第1部第9章战备增强任务解锁的</blockquote>
+我第九章好像没解锁这个，我战备任务都做了，不过我有重骑和卫士，我还特地章节重开试过也没解锁
+

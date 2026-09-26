@@ -2636,3 +2636,11 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 <img src="https://p.sda1.dev/35/eaa659b101b20e04dc6ed9cb51c89f9c/HTDDq59bwAAmKBX.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/35/e275afe0c42bf6af951077790ecadd9a/SaveTwitter.Net_FTN_zl4CR4Wq42pC__720p_.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  myarms  
+##### 624#       发表于 2026-9-26 23:12
+
+我靠，只是两集没看发现结局在啊B被骂烂了
+
