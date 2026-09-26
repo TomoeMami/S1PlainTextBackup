@@ -334,3 +334,18 @@ PV的导入部分，用 ...</blockquote>
 
 — from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  hello0607  
+##### 70#       发表于 2026-9-27 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70276398&amp;ptid=2280452" target="_blank">长谷川红叶 发表于 2026-9-23 16:48</a>
+
+看完PV对想要表达的内容和潜藏的含义产生了一些猜测和个人理解，整理出来博坛友一笑。
+
+-
+
+PV的导入部分，用 ...</blockquote>
+设定集里魔女们用的手机都是00年代中期的经典机型，感觉相比这个东京甚至有点过于先进了(
+
