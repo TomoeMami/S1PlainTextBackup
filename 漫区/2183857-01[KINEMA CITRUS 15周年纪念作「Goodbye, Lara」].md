@@ -2616,3 +2616,11 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 这种恶心的虚伪感，这种制作组亲女儿没被拷打或质问的发指程度，莉可莉丝之后实在不多见<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，这不是什么百合营业能弥补的好吗？
 
+
+*****
+
+####  HazukiShion  
+##### 622#       发表于 2026-9-26 20:01
+
+原来拉拉属于百合营业能弥补的那类吗？那得营业成啥样才能弥补啊。<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

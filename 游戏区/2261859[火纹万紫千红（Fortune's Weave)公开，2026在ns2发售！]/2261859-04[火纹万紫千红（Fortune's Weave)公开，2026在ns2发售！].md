@@ -10042,3 +10042,11 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候会解锁自带 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还有这种事，对话完给个提示啊，不过还好是12章，重新打也快
 
+
+*****
+
+####  抹茶瓜  
+##### 5348#       发表于 2026-9-26 20:05
+
+第三部有红龙黑龙黑马抓 凯小弟的宝可梦大师之旅不能停啊 全是数值美<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
