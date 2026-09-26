@@ -1172,3 +1172,26 @@ bonsai我测了无数模型 都不太行。。很蠢
 
 （或者干脆是hermes自己不行?)
 
+
+*****
+
+####  lactone  
+##### 14902#       发表于 2026-9-26 14:59
+
+传说梁圣要全心扑在ds上？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  wandeeees  
+##### 14903#       发表于 2026-9-26 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288537&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-26 14:59</a>
+
+传说梁圣要全心扑在ds上？
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+量化有政策风险，不提他理想到底是不是AGI，光从赚钱上来说，现在AI是大风口，是正常人都知道怎么选<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
