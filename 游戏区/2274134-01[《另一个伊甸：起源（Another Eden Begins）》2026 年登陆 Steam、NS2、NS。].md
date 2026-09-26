@@ -298,3 +298,33 @@ Begins的后续作品可能真的会叫Another Eden 2，从原作1.5部(巨魔�
 
 分歧点应该和新登场的人物有重要关系，目前由于没到二周目打出来那10个结局，所以完全无法预测2将来会如何发展。
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 75#       发表于 2026-9-27 00:45
+
+刚进游戏不久，剧情就要玩家去找阿修提亚去认识四元素プリズマ，这里估计只有玩过CT或CC的老玩家能看出来。
+
+<img src="https://img.stage1st.com/forum/202609/27/002754e0tii610zsr551z7.png" referrerpolicy="no-referrer">
+
+<strong>B966E3F8-4E9F-4EFC-BD74-E8143A0EBB3C.png</strong> (75.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 00:27 上传
+
+其实就是卢卡。
+
+<img src="https://img.stage1st.com/forum/202609/27/002755io4uodo85lwq4sxd.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FED426E9-622C-423F-9401-9D13F1572641.jpeg</strong> (819.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 00:27 上传
+
+看看什么叫亲闺女待遇，访谈第一个问题就主动谈到这个角色，目的就是为了回到“本家”。而“本家”自然是指Chrono Cross。虽然在本篇主线里阿修提亚出场机会很少，但联动任务里她的戏份很多。这里还额外提到，在主线全部完结后的Another Story，她也发挥着越来越重要的作用。顺便还给玩家留了一个悬念，她的故事以这样的形态收束，是作者希望向玩过并喜爱他之前作品(尤其是CT和CC) 的玩家传达什么信息。(言外之意就是，只有玩过前作的玩家才能感受到加藤正人希望通过这个角色想要表达的一些想法)
+
+那你就把这相关内容做到单机里面啊。玩过CT和CC的老玩家里说不定有一部分就是拒绝移动平台呢。不做到单机内容里，他们怎么玩得到？
+
