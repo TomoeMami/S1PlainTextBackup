@@ -9821,3 +9821,20 @@ hhh跟我差不多  我的建议是第一条线就先别完美 外传除了迪
 
 等级后面会拉的。
 
+
+*****
+
+####  jockeyjoestar  
+##### 5326#       发表于 2026-9-26 15:54
+
+对了 自动存档的条件是什么 ？ 
+
+*****
+
+####  白昼梦DD  
+##### 5327#       发表于 2026-9-26 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288687&amp;ptid=2261859" target="_blank">jockeyjoestar 发表于 2026-9-26 15:54</a>
+对了 自动存档的条件是什么 ？</blockquote>
+主要的几个是进出地点 转职 战斗前后吧
+
