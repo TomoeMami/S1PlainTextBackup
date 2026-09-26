@@ -9264,3 +9264,11 @@ PS：同样的外传选一个线完成即 ...</blockquote>
 
 忘记观战了会漏掉什么吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 5276#       发表于 2026-9-26 08:28
+
+原来商会没有第二个外传啊我是看别人发的时间表有两个时间段还以为是两个，有点无语了
+
