@@ -145,3 +145,13 @@
 
 于是问题解决<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 2133#       发表于 2026-9-27 15:25
+
+好不容易又是个十连决定下OD池，开场还是必出的特效，满心欢喜点开是加纯+1，真正体会什么叫从希望的天堂跌落绝望的地狱<img src="https://static.stage1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
