@@ -2127,3 +2127,22 @@ codebuddy和workbuddy有啥区别</blockquote>
 codebuddy和workbuddy有啥区别</blockquote>
 先有的腾讯云代码助手，后面升级codebuddy后又发现面向更多普通人使用的工作台太火了就加七加八搞了一大堆类似网游的东西进去，不过总之可以签到做任务领积分给codebuddy用
 
+
+*****
+
+####  nxmonitor  
+##### 14986#       发表于 2026-9-27 17:08
+
+Qwen这个测试，到底是什么思考强度的？看了一会很不稳定……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 14987#       发表于 2026-9-27 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292262&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-27 17:08</a>
+
+Qwen这个测试，到底是什么思考强度的？看了一会很不稳定……</blockquote>
+国模没做完后训练就preview也是定番了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
