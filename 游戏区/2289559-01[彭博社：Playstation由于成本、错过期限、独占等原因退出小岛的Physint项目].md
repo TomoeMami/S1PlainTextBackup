@@ -233,3 +233,14 @@ Jason对4亿预算的回应:
 
 不过我也习惯了，S1的主体用户本质上是一群极端无知麻木最缺乏鉴赏力的群体。<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 173#       发表于 2026-9-27 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290873&amp;ptid=2289559" target="_blank">ShiKi847 发表于 2026-9-27 08:13</a>
+
+小岛能4亿，星际大光头不得6亿？这些造谣的太离谱了</blockquote>
+按Jason的吹法，只能认为小岛要的预算比尼尔大仙贝还要高了，虽然我也觉得离谱，但是Jason基本是这个意思
+

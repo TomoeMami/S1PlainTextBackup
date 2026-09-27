@@ -366,3 +366,28 @@ v的开发机，不知道艮高佐能不能给力点。
 
 似了才方便**方方用遗产，特别是永恒也想走if扩展内容这条路
 
+
+*****
+
+####  gpx234mqx  
+##### 4746#       发表于 2026-9-27 13:14
+
+该死的运营
+
+突破力44和电光石火44的限定船咋不出<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 4747#       发表于 2026-9-27 13:14
+
+ 本帖最后由 gpx234mqx 于 2026-9-27 13:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288103&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-9-26 12:28</a>
+
+似了才方便**方方用遗产，特别是永恒也想走if扩展内容这条路</blockquote>
+永恒走SD路线就好了
+
+SD高达那么多卡呢
+
+SD骑士才出了鸡瘟篇前3章<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">后面一堆强机呢
+

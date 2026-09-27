@@ -328,3 +328,21 @@ Begins的后续作品可能真的会叫Another Eden 2，从原作1.5部(巨魔�
 
 那你就把这相关内容做到单机里面啊。玩过CT和CC的老玩家里说不定有一部分就是拒绝移动平台呢。不做到单机内容里，他们怎么玩得到？
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 76#       发表于 2026-9-27 13:15
+
+<img src="https://img.stage1st.com/forum/202609/27/130527v08x2zdd28eddsi4.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E426C8AC-56C4-4D94-B915-EB76230FD53B.jpeg</strong> (810.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 13:05 上传
+
+这篇专访两位主创(大川和加藤)提到，虽然人物亲密度相关任务主要由大川和Tsumu写，但有几篇还是加藤亲自下笔。
+
+大川的代表作是“彷徨少女与久远之涡”，俗称大漩涡外史；Tsumu的代表作是莱莎联动“古代智慧与秘密孤城”和群像“落日废城与闪耀的守护者”(群像4)。前面这几个被选为代表作的篇章水平都不低，合理推测一番，同样放在这里提到加藤亲笔的青蛙武士、合成人少女和CT/CC来的这位亲闺女亲密度故事质量也会有保证。
+
