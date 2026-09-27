@@ -353,3 +353,16 @@ Jason对4亿预算的回应:
  ...</blockquote>
 你这是真搞笑了，小岛自己就是个纯纯的dei先锋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gigax  
+##### 183#       发表于 2026-9-27 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290749&amp;ptid=2289559" target="_blank">llysander 发表于 2026-9-27 05:31</a>
+
+但已开发的部分索尼也不能收回去或者就地摧毁，就这么送叉盒了，这能忍
+
+而且虽然一样烧钱，一样长开发周期 ...</blockquote>
+索尼能这么果断放手大概就是根本就不存在什么“已开发的部分”，小岛的访谈也算变相承认自己这几年就没干什么活
+
