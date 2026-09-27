@@ -2654,3 +2654,12 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 —— 来自 samsung SM-S9060, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  Piano-Forest  
+##### 626#         楼主| 发表于 2026-9-27 19:57
+
+TVアニメ『さよならララ』監督の小出さんに本作の背景美術について記事を書いていただきました
+[https://studio-pablog.com/12191/](https://studio-pablog.com/12191/)
+

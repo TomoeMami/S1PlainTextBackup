@@ -401,3 +401,16 @@ Jason对4亿预算的回应:
 
 —— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  dbyboy  
+##### 187#       发表于 2026-9-27 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290749&amp;ptid=2289559" target="_blank">llysander 发表于 2026-9-27 05:31</a>
+
+但已开发的部分索尼也不能收回去或者就地摧毁，就这么送叉盒了，这能忍
+
+而且虽然一样烧钱，一样长开发周期 ...</blockquote>
+不可能的，小岛的作品就两部死亡搁浅来看一部顶天了利润率能有100%，gaas的潜在利润率可以说是任何有资格进场的公司都垂涎欲滴的，连卡普空这种出一部死一部的都要持续投入
+

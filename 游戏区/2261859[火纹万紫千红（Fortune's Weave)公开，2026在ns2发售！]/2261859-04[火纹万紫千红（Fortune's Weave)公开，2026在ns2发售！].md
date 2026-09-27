@@ -11263,3 +11263,13 @@ A少接了一个沙虫肉的任务，但是南边的村子去不了，怎么刷�
 
 是因为我勾搭过凯伊的副官，另外两个外传连礼物都没送过的原因吗？
 
+
+*****
+
+####  HazukiShion  
+##### 5464#       发表于 2026-9-27 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292720&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-27 19:32</a>
+我是买了一堆垃圾青铜武器刷的</blockquote>
+青铜武器还是太强了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
