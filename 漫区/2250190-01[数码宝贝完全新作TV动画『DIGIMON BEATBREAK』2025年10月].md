@@ -30,3 +30,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">最丑合体
 
+
+*****
+
+####  太太  
+##### 823#       发表于 2026-9-27 12:11
+
+丑死了，讲道理49集年番也算是高投入了，怎么能在最关键的地方如此拉跨，这玩意你们画出来真不觉得不对劲吗
+
