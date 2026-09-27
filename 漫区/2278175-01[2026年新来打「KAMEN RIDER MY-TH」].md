@@ -94,3 +94,13 @@
 
 鼠这边怎么感觉完全不妨外人的，故意送情报的吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iceddd  
+##### 202#       发表于 2026-9-27 20:53
+
+节奏感觉还挺舒服的 至少每周追一集没什么负担 也不藏着掖着关键信息 
+
+对我来说还是有些搞笑的桥段吐槽之类的有点用力过猛了
+
