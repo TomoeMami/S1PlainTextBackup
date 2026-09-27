@@ -1844,3 +1844,17 @@ remedy的技术力和美术力确实能充分服务于他们自己的小巧思�
 
 只觉得情何以堪，有些人躲得过西斯躲不过清算呐了，局长当年提前给自己脑门上来一枪也是很有先见之明了。
 
+
+*****
+
+####  沙里昂  
+##### 188#       发表于 2026-9-28 03:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293988&amp;ptid=2104476" target="_blank">ciallo 发表于 2026-9-28 02:06</a>
+我怕又记错了所以来询问一下，一代达林是人体实验狂魔的塑造吗再这样下去他要进牢字辈了。
+
+印象中的达林是 ...</blockquote>
+一代的达林影像基本都是首席科学家+事件英雄的塑造，没有达林 FBC 那时候已经全灭了。而且一代还没把达林写死
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
