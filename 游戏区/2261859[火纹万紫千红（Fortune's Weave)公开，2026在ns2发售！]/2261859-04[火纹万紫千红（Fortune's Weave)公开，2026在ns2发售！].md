@@ -10578,3 +10578,17 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 去卡拉神殿主店对话点击试炼，打赢一把2连战速战后获得
 
+
+*****
+
+####  bad_alloc  
+##### 5399#       发表于 2026-9-27 07:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290345&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-26 23:31</a>
+凯篇通了开始玩A少篇
+
+佛表是三房里的地底人？</blockquote>
+很明显是的，可以说迪线70%的剧情都在这老哥身上，而且塑造挺好的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
