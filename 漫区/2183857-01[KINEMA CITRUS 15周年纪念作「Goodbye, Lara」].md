@@ -2644,3 +2644,13 @@ bggl回合制之后，最后一集又搞出了小爱大爱两头吃，真是什�
 
 我靠，只是两集没看发现结局在啊B被骂烂了
 
+
+*****
+
+####  晴雯丽  
+##### 625#       发表于 2026-9-27 09:10
+
+看了4.5集我就把这玩意分类到eva这种闹麻精神病那边了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9060, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
