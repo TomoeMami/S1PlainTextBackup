@@ -156,3 +156,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">到了元气弹环节才发觉有这么多人设好的角色都被浪费了，花了大笔墨写的战策小队不也是啥用处没有，还不如多给路人里戏份第一的常驻路人瞳妹多点戏份呢
 
+
+*****
+
+####  himfsz  
+##### 836#       发表于 2026-9-27 17:48
+
+合理怀疑是砍了一个甚至两个季度
+

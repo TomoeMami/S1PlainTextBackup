@@ -329,3 +329,27 @@ Jason对4亿预算的回应:
 亨特・莎弗，《OD》的主演之一，是跨性别女性</blockquote>
 不止吧，Kojima被吹爆的MGS系列，奇爱博士跟The Boss一股女同味，按现在标准，妥妥DEI了
 
+
+*****
+
+####  FACS  
+##### 181#       发表于 2026-9-27 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291971&amp;ptid=2289559" target="_blank">eblis2 发表于 2026-9-27 14:57</a>
+倒不如说可能是小岛不太鸟索尼的dei需求导致分手。看看索尼这几年出的都是什么贵物 包括开发中的 就知道了
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小岛知道自己是反彩虹先锋吗
+
+
+*****
+
+####  Gigax  
+##### 182#       发表于 2026-9-27 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291971&amp;ptid=2289559" target="_blank">eblis2 发表于 2026-9-27 14:57</a>
+
+倒不如说可能是小岛不太鸟索尼的dei需求导致分手。看看索尼这几年出的都是什么贵物 包括开发中的 就知道了
+
+ ...</blockquote>
+你这是真搞笑了，小岛自己就是个纯纯的dei先锋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
