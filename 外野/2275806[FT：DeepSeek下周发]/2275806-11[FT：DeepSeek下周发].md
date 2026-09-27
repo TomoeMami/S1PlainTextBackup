@@ -2409,3 +2409,18 @@ dsh 0.2.0连alpha都还没打包的只有源码形态上github了
 大家的插件都会炸.jpg</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">操 那种事情不要啊   刚折腾了半天把我在DSH里搭的图片API聚合链路修好
 
+
+*****
+
+####  御坂MKII  
+##### 15011#       发表于 2026-9-28 03:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293919&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-28 01:20</a>
+
+用Matt pocock工作流的话agent.md只有几行，更重要的是context.md能极大改善不说人话的问题，Matt之前提过 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好的开源项目里注释确实很重要，好的 inline block 注释有一条标准就是解释为什么需要这段逻辑，比复读逻辑更重要。以及 high level design comments、function header comments、inline block comments 各自有各自的要求。
+
+不得不说，这一点从我之前的经验来看，和推特上不少人的感受是一致的：a\ 是做得最好的。其他模型第一遍输出的注释的质量以及代码的质量都远远达不到我维护一个开源项目所需的标准。
+
+而且这个东西很难靠外部的指示优化，只能靠模型在训练阶段固定。之前我在某一个月的时间里断断续续拿着 gpt 做实验，无论是修改 AGENTS.md 这种外部指示，还是拉一个专门的 reviewer 来做交叉攻击，它拉出来的一坨的维护性无论如何都远远达不到我期望的要求。
+
