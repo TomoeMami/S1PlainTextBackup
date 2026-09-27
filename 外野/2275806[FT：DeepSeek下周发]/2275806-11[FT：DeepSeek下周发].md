@@ -2332,3 +2332,22 @@ minimax 3.1flash有没有测过的？
 这一波下来DS写文已经退化到完全不能用的地步了，之前那些手法全部失效，无论 ...</blockquote>
 gemini 3.8f写作水平非常好，智商也在线，就是外审实在烦人，动不动就截断或者空回
 
+
+*****
+
+####  绝地潜兵  
+##### 15005#       发表于 2026-9-28 01:04
+
+ 本帖最后由 绝地潜兵 于 2026-9-28 01:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293738&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-28 00:16</a>
+
+现在各种模型都被gpt腌入味了，还要回到老式提示词工程，现在我在各种总结类对话之前都会加一句“我是一 ...</blockquote>
+确实又回到了提示词工程，像在写酒馆预设<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+今天整理了AGENT.md，把一堆看着脑壳子疼的句子修改成了规范书面语之后，会话的AI文字流畅度明显提高。
+
+它本身就是少数样本范文。
+
+参考DSH位置 &lt;SYSTEM_PROMPT&gt;\\提示词头部 You are an AI agent powered by DeepSeek Harness. You are a coding agent powerd by the GML-5.3 model.[indent]... &lt;/SYSTEM_PROMPT&gt;  &lt;用户上下文&gt; balabala... &lt;/用户上下文&gt;  &lt;system-reminder&gt; [/indent][indent]以下工作区说明可能与你的工作相关。在适用时，请将其作为指导。更具体的说明优先于更宽泛的说明。它们不会覆盖系统、开发者或直接用户指令。 [b]...[/b][/indent][b]form AGENT.md[/b] &lt;/system-reminder&gt;\\提示词头部尾部  \\开始工作。[/quote] 里面可以加入： [quote]## 语言表述规则 - **遣词造句符合中文习惯，做到通顺、规范** 复制代码
+这样就不用每次对话手动加入了
+

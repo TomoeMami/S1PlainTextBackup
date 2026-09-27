@@ -11442,3 +11442,16 @@ A少接了一个沙虫肉的任务，但是南边的村子去不了，怎么刷�
 
 第3部把神殿修复之后再做支线可以解锁传送 你打到第3部就可以随便用了
 
+
+*****
+
+####  纯夏  
+##### 5481#       发表于 2026-9-28 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293559&amp;ptid=2261859" target="_blank">出言不迅 发表于 2026-9-27 23:27</a>
+
+这代武器强化没有惊喜啊，风花雪月强化加射程（雷电剑），有的加命中什么的感觉还蛮有惊喜，这代好像都是加 ...</blockquote>
+是的 这代铁武器上面是达·米纳系列 达·米纳再往上就是银武器系列了 
+
+武器强化只加攻击力 但是武器强化可以顺便修复武器耐久度 我一般武器的耐久打完去强化当修理用的 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
