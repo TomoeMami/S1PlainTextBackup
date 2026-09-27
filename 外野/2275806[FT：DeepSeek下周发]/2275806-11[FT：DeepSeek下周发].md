@@ -2061,3 +2061,31 @@ b站现在在直播
 
 Qwen4要出来以后再看，之前的3.8Flash的迁移能力很差，所以本身的推理能力非常不够，实际上我觉得3.8的刷分现象朝着小模型蔓延了，3.8-27B很多时候都比不上3.6-27B，主要在注意力这方面。
 
+
+*****
+
+####  天涯墨客  
+##### 14979#       发表于 2026-9-27 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288752&amp;ptid=2275806" target="_blank">天涯墨客 发表于 2026-9-26 16:13</a>
+大佬们，借楼问一下，医科纯小白不想折腾，打算用智能体定时搜文献，设计湿实验。如果能后台全自动生信跟ad ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 14980#       发表于 2026-9-27 16:32
+
+minimax 3.1flash有没有测过的？
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  startraveller  
+##### 14981#       发表于 2026-9-27 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292163&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-27 16:25</a>
+Qwen4要出来以后再看，之前的3.8Flash的迁移能力很差，本身的推理能力非常不够，这个架构到了大模型怎么样 ...</blockquote>
+虽然说Qwen确实刷分，但是Qwen 3.8 27B还是比3.6强不少的，不过复杂点的任务本地27B都是图一乐。
+
