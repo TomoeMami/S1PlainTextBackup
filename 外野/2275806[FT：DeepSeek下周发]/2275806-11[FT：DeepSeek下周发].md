@@ -2008,3 +2008,15 @@ Astra没得说，目前最好的模型
 
 不行的是GPT6系列其他模型
 
+
+*****
+
+####  Milarvoz  
+##### 14974#       发表于 2026-9-27 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292056&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-9-27 15:32</a>
+codebuddy在百分之零六十几上下文后会自动变回百分之几，这是咋回事，是好是坏？我本来要重开了的 ...</blockquote>
+上下文触达上限前自动压缩
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
