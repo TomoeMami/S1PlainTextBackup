@@ -1667,3 +1667,15 @@ mimo 2.6 flash不便宜而且速度烂完了
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 14944#       发表于 2026-9-27 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290952&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-27 08:50</a>
+月初还在听你们吹Astra太强了，达里奥没招了。现在又变成OpenAI不行了，能不能消停消停？ ...</blockquote>
+Astra是挺强，但6sol和6luna就野狗了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
