@@ -1748,3 +1748,21 @@ sol6可一点也不弱。
 
 有没有一种可能，aster是本来的sol，现在的sol是本来的terra，terra是本来的luna，然后lunq就是究极量化版的臭狗屎
 
+
+*****
+
+####  qwased  
+##### 14951#       发表于 2026-9-27 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291335&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-9-27 11:22</a>
+
+有没有一种可能，aster是本来的sol，现在的sol是本来的terra，terra是本来的luna，然后lunq就是究极量化版 ...</blockquote>
+6luna其实比5.6luna强，但是o/为了省钱给6luna设置了思考预算，雷霆思考一半就给截断然后流口水了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞天荷兰人  
+##### 14952#       发表于 2026-9-27 11:31
+
+4.1Pro什么时候来啊,现在写文章急需一个大世界知识的模型help
+
