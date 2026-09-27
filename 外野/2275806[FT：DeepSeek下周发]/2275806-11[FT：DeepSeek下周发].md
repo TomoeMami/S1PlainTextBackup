@@ -1948,3 +1948,21 @@ codex是不是至少pro起步，搞了个plus想试试astra，基本一个来回
 
 就是不知道pro一个月近700块，公司给不给报<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eno_emos  
+##### 14969#       发表于 2026-9-27 15:09
+
+<img src="https://img.stage1st.com/forum/202609/27/150831d6zhwc69v2nwc9q7.png" referrerpolicy="no-referrer">
+
+<strong>GEDKRUC]YLIR7[FVD6048ZN.png</strong> (12.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 15:08 上传
+
+4.1f的口癖是hmm是吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+想不出来就一直hmm然后枚举可能性，调用工具是let me，but wait是什么，读到skill了嘛？
+

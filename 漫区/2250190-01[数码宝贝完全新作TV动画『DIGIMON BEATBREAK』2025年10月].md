@@ -90,3 +90,11 @@
 
 月蚀斗篷兽/日蚀斗篷兽，没斗篷形态<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leonlink  
+##### 828#       发表于 2026-9-27 15:10
+
+是不是最惨主角究极体待遇了，一上来注定就必须配合使用
+
