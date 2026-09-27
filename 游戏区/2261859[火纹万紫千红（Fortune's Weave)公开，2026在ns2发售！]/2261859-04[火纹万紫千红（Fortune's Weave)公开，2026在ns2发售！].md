@@ -10663,3 +10663,26 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Jabeck  
+##### 5407#       发表于 2026-9-27 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288462&amp;ptid=2261859" target="_blank">ShitOverflow 发表于 2026-9-26 14:29</a>
+
+我chovy了，dildo哥第九章有雷阿，9/17做外传做完到9/18，主线9/19截止
+
+从神道传过去，路上出了一个遭遇战 ...</blockquote>
+这个只要你先去踩点时间到了就会直接传送。。。虽然只有一个存档有点问题，但也不能全怪设计<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真田源次郎信繁  
+##### 5408#       发表于 2026-9-27 09:55
+
+查了才知道，一流佣兵卡塔尼亚竟然差不多是这些少女角色里最大的，5年后她都31了……
+
+乌尔坦德才23……
+

@@ -1693,3 +1693,16 @@ sol6可一点也不弱。
 
 【Opus5.5对战GPT6 Sol｜AI御三家，屎山大乱斗｜屎山论剑-哔哩哔哩】 https://b23.tv/eiiUceb
 
+
+*****
+
+####  ov_efly  
+##### 14946#       发表于 2026-9-27 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290304&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-26 23:18</a>
+
+另外k4可能就是周一了，评测up拿到免费测试额度正在测</blockquote>
+希望思考能快点，节省 token，价格砍 30% 以上
+
+拿 k3 作 advisor review 的痛点
+
