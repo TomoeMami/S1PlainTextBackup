@@ -2030,3 +2030,34 @@ codebuddy在百分之零六十几上下文后会自动变回百分之几，这�
 qwen4预览版测试很强啊 看来下半年国模的coding能力有希望集体进入astra/fable水平 ...</blockquote>
 哪里有测试看
 
+
+*****
+
+####  qwased  
+##### 14976#       发表于 2026-9-27 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292114&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-9-27 16:04</a>
+哪里有测试看</blockquote>
+b站现在在直播
+
+
+*****
+
+####  jinuzuktII  
+##### 14977#       发表于 2026-9-27 16:25
+
+<img src="https://img.stage1st.com/forum/202609/27/162508t1o6o6wh9066601z.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (102.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 16:25 上传
+
+*****
+
+####  nxmonitor  
+##### 14978#       发表于 2026-9-27 16:25
+
+Qwen4要出来以后再看，之前的3.8Flash的迁移能力很差，所以本身的推理能力非常不够，实际上我觉得3.8的刷分现象朝着小模型蔓延了，3.8-27B很多时候都比不上3.6-27B，主要在注意力这方面。
+
