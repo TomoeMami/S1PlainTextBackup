@@ -244,3 +244,18 @@ Jason对4亿预算的回应:
 小岛能4亿，星际大光头不得6亿？这些造谣的太离谱了</blockquote>
 按Jason的吹法，只能认为小岛要的预算比尼尔大仙贝还要高了，虽然我也觉得离谱，但是Jason基本是这个意思
 
+
+*****
+
+####  Linkwjj  
+##### 174#       发表于 2026-9-27 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291693&amp;ptid=2289559" target="_blank">Errrr 发表于 2026-9-27 13:05</a>
+
+”只会依附电影“。
+
+你的言论挺可笑的。
+
+不过我也习惯了，S1的主体用户本质上是一群极端无知麻木最缺乏鉴 ...</blockquote>
+天天把“艺术”挂在嘴边的什么鉴赏水品不好说，毕竟是能把贵岛演那些B级片不如的玩意儿捧上天的
+

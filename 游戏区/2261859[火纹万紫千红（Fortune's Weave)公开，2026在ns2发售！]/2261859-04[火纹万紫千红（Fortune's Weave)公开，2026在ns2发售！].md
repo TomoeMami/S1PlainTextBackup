@@ -10826,3 +10826,22 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  达达达达葱  
+##### 5421#       发表于 2026-9-27 13:19
+
+<blockquote>Jabeck 发表于 2026-9-27 10:56
+那个打X的圈要去先踩一下的，之后就自动传送了。</blockquote>
+哪个打X的圈？
+
+*****
+
+####  kirainsky  
+##### 5422#       发表于 2026-9-27 13:21
+
+a少线十二章才反应过来9月少做三个外传，看来第一部要4+1了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
