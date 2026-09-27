@@ -1777,3 +1777,31 @@ sol6可一点也不弱。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jyj256  
+##### 14954#       发表于 2026-9-27 12:27
+
+<img src="https://img.stage1st.com/forum/202609/27/121902zbl777u33ibkmkm3.png" referrerpolicy="no-referrer">
+
+<strong>85b195b8-31d7-4b2a-8239-1edb0487716a.png</strong> (95.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 12:19 上传
+
+[https://github.com/kyle123740/dsh-message-recall](https://github.com/kyle123740/dsh-message-recall)
+
+在网上找了一圈，都没有找到一个 DSH 能用的删除消息的插件  所以我用 AI 许愿试开发一个DSH的插件 能像酒馆那样在一个会话里删除里面的不喜欢的 AI 回复和已发送的错误提示词   大家有需求的可以试试，如果有什么错误我让AI再改
+
+
+*****
+
+####  misuzu0723  
+##### 14955#       发表于 2026-9-27 12:33
+
+如果想用 3.2 可以去 openrouter 上用。比以前官网价还便宜
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
