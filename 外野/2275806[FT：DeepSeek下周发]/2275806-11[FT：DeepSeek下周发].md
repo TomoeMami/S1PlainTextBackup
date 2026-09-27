@@ -1679,3 +1679,17 @@ Astra是挺强，但6sol和6luna就野狗了
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  来都来了  
+##### 14945#       发表于 2026-9-27 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291011&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-9-27 09:26</a>
+Astra是挺强，但6sol和6luna就野狗了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+sol6可一点也不弱。
+
+【Opus5.5对战GPT6 Sol｜AI御三家，屎山大乱斗｜屎山论剑-哔哩哔哩】 https://b23.tv/eiiUceb
+
