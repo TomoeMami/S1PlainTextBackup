@@ -10697,3 +10697,50 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 —— 来自 Google Pixel 10a, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  reficul  
+##### 5410#       发表于 2026-9-27 10:28
+
+凯伊线收了妮捏和初音，现在队伍基本上就是脸好的角色组成了，该准备挺进正赛
+
+感觉得再给初音准备只汗血马才行，又要sl去了，凯伊线这种sl真讨厌啊，有时sl出来特殊的还固定失败，失败没法sl
+
+*****
+
+####  土卫七  
+##### 5411#       发表于 2026-9-27 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291036&amp;ptid=2261859" target="_blank">spieler 发表于 2026-9-27 09:36</a>
+高级证书不够用啊，雷达线打完就转了罗蕾塔，老妈，巴西初音，金卷毛，还剩两张纠结给谁用
+
+希洛克转啥好， ...</blockquote>
+第一部右下角的王都卡美拉每章都会刷新一个高级证，除了第一条线地图开的比较晚，后面三条每章都去买不会缺的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  偎  
+##### 5412#       发表于 2026-9-27 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70288493&amp;ptid=2261859" target="_blank">云玩家 发表于 2026-9-26 14:41</a>
+
+原来这么多人和我一样a少线九月白打。。。只能说章末目的地在城外的建议一开始就先去踩点，不然就会浪费两 ...</blockquote>
+我踩了他问我要不要继续主线我选没有
+
+然后我去做任务了。。。然后跟我说没有达成条件，所以要故去踩一下吗。。。尼玛。。。
+
+*****
+
+####  spieler  
+##### 5413#       发表于 2026-9-27 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291198&amp;ptid=2261859" target="_blank">土卫七 发表于 2026-9-27 10:31</a>
+第一部右下角的王都卡美拉每章都会刷新一个高级证，除了第一条线地图开的比较晚，后面三条每章都去买不会 ...</blockquote>
+好吧，我是刚打完第一条线
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
