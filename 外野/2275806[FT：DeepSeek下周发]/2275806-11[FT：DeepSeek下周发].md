@@ -2351,3 +2351,27 @@ gemini 3.8f写作水平非常好，智商也在线，就是外审实在烦人，
 参考DSH位置 &lt;SYSTEM_PROMPT&gt;\\提示词头部 You are an AI agent powered by DeepSeek Harness. You are a coding agent powerd by the GML-5.3 model.[indent]... &lt;/SYSTEM_PROMPT&gt;  &lt;用户上下文&gt; balabala... &lt;/用户上下文&gt;  &lt;system-reminder&gt; [/indent][indent]以下工作区说明可能与你的工作相关。在适用时，请将其作为指导。更具体的说明优先于更宽泛的说明。它们不会覆盖系统、开发者或直接用户指令。 [b]...[/b][/indent][b]form AGENT.md[/b] &lt;/system-reminder&gt;\\提示词头部尾部  \\开始工作。[/quote] 里面可以加入： [quote]## 语言表述规则 - **遣词造句符合中文习惯，做到通顺、规范** 复制代码
 这样就不用每次对话手动加入了
 
+
+*****
+
+####  hugosol  
+##### 15006#       发表于 2026-9-28 01:20
+
+用Matt pocock工作流的话agent.md只有几行，更重要的是context.md能极大改善不说人话的问题，Matt之前提过他认为AI时代其实不需要那么多文档
+
+我的理解是根据DRY原则，其实那种只是把代码重复一遍的文档和注释应该要删掉的，然后代码分层结构，deep module, shallow interface这些原则要贯彻，再加上代码索引工具的加持，ai时代之后应用级的代码会比以前人手写出来的屎山要好上不少
+
+*****
+
+####  xiaoboost  
+##### 15007#       发表于 2026-9-28 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293498&amp;ptid=2275806" target="_blank">ww-tsl 发表于 2026-9-27 23:13</a>
+
+所以现在的AI写作还有救吗？
+
+这一波下来DS写文已经退化到完全不能用的地步了，之前那些手法全部失效，无论 ...</blockquote>
+整 api 啊……现在还有人不会用 api 的吗？
+
+虽然 ds 现在甲比以前厚了，但是依然是现在能用的服务里面最薄的
+
