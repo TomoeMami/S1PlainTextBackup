@@ -1633,3 +1633,24 @@ a/赶快降智让我用点别的
 
 2026-9-27 08:35 上传
 
+
+*****
+
+####  来都来了  
+##### 14941#       发表于 2026-9-27 08:50
+
+月初还在听你们吹Astra太强了，达里奥没招了。现在又变成OpenAI不行了，能不能消停消停？
+
+
+*****
+
+####  tonyunreal  
+##### 14942#       发表于 2026-9-27 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290596&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-9-27 01:39</a>
+有用过军军的mimo 2.6的么？看着api价格挺便宜的，想问一下翻译效果、速度如何，我日常就翻译翻译新闻、一 ...</blockquote>
+mimo 2.6 flash不便宜而且速度烂完了
+我翻译网页都是ds4.1
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
