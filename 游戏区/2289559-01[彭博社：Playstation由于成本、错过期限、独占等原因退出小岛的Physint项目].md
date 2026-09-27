@@ -319,3 +319,13 @@ Jason对4亿预算的回应:
  ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">小岛的价值观是很"白左"的
 
+
+*****
+
+####  赤黑的假面  
+##### 180#       发表于 2026-9-27 17:41
+
+<blockquote>哈罗 发表于 2026-9-27 17:16
+亨特・莎弗，《OD》的主演之一，是跨性别女性</blockquote>
+不止吧，Kojima被吹爆的MGS系列，奇爱博士跟The Boss一股女同味，按现在标准，妥妥DEI了
+
