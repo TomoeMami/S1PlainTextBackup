@@ -135,3 +135,13 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 2132#         楼主| 发表于 2026-9-27 10:13
+
+京姐太天才了吧，交叉系统和emission系统两边制御系统冲突技术人员没法解决，京姐：我一心二用一起操控就行了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+于是问题解决<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

@@ -10686,3 +10686,14 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 乌尔坦德才23……
 
+
+*****
+
+####  Zhangsmallquan  
+##### 5409#       发表于 2026-9-27 10:13
+
+女王线，西洛可招募任务的时候，队内平均等级不到20，进了那个左上角洞窟惊了，32级大熊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+玩到现在压力最高的一场战斗，还好俩副官哥们感情好，花大量LP出攻防联携，输出高防御又高，勉强打赢3只，然后拿完宝箱一路跑酷出洞拿任务了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 10a, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

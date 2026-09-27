@@ -1720,3 +1720,11 @@ sol6可一点也不弱。
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  nxmonitor  
+##### 14948#       发表于 2026-9-27 10:09
+
+6sol明显5.6terra蒸馏的产物
+
