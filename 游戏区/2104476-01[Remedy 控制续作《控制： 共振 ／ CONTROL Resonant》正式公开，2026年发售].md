@@ -1801,3 +1801,13 @@ remedy的技术力和美术力确实能充分服务于他们自己的小巧思�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平凡镇的回忆有点意思，11岁的杰西就能全体攻击学校三恶霸了
 
+
+*****
+
+####  Emmerich  
+##### 184#       发表于 2026-9-27 22:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">说白了他们每一作我都首发 gameplay都默认一坨了 但偏偏套在开放世界里 关卡设计又不行 走哪哪都是复制黏贴的资产 极大稀释了线性的体验 不探索就怕少玩10块钱 真探索了点与点之间的过渡堪称灾难 到点里了发现称得上优秀的非主线内容寥寥无几
+
+而且断层关卡里反反复复用那几个黄叶子跳台场景我都有点情绪了
+
