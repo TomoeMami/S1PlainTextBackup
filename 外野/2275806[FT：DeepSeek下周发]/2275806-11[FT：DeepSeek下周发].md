@@ -2097,3 +2097,33 @@ Qwen4要出来以后再看，之前的3.8Flash的迁移能力很差，本身的�
 
 codebuddy和workbuddy有啥区别
 
+
+*****
+
+####  serj005  
+##### 14983#       发表于 2026-9-27 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291889&amp;ptid=2275806" target="_blank">Nanachi 发表于 2026-9-27 14:27</a>
+
+为了保障缓存命中吧。实际上分叉某回复基本也等于将其后所有对话删除</blockquote>
+dsh本身有分支功能，但是做的并不好用，因为只在系统回复的结尾放了个分支按钮，能做到变相删除撤回刚发送的用户对话但是分支本身操作不方便
+
+*****
+
+####  很久就在那边l  
+##### 14984#       发表于 2026-9-27 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292188&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-27 16:36</a>
+codebuddy和workbuddy有啥区别</blockquote>
+一个是通用任务一个是编程，CodeBuddy是三个产品，IDE、插件、cli，和workbuddy共享额度但是不能签到，最好的用法是在workbuddy签到然后去CLI消耗额度
+
+*****
+
+####  相见恨晚  
+##### 14985#       发表于 2026-9-27 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292188&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-27 16:36</a>
+
+codebuddy和workbuddy有啥区别</blockquote>
+先有的腾讯云代码助手，后面升级codebuddy后又发现面向更多普通人使用的工作台太火了就加七加八搞了一大堆类似网游的东西进去，不过总之可以签到做任务领积分给codebuddy用
+
