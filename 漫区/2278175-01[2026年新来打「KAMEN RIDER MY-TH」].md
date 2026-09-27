@@ -86,3 +86,11 @@
 
 下一话达臣知道女主没蛋要出事了？不知道后面会不会有拿男主腰带变身救场的桥段，刚好对应op女主给男二蛋
 
+
+*****
+
+####  blue321  
+##### 201#       发表于 2026-9-27 19:00
+
+鼠这边怎么感觉完全不妨外人的，故意送情报的吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
