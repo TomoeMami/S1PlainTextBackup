@@ -10900,3 +10900,54 @@ a少线十二章才反应过来9月少做三个外传，看来第一部要4+1了
 
 这作有时间限制后，各种熟练度才是最“珍贵的”，所以某些熟练度多的职业的成长会向下修正，单武器类型修正会稍微高一点。
 
+
+*****
+
+####  ミズタ  
+##### 5429#       发表于 2026-9-27 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290313&amp;ptid=2261859" target="_blank">ミズタ 发表于 2026-9-26 23:22</a>
+
+第三部主线剧情，8改4还是太硬伤了，其他四位就真的没一点主线痕迹。
+
+如果这作火纹可以像if拆成双版本卖
+
+一 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/27/153006l0ecgixdqmqgdyy7.png" referrerpolicy="no-referrer">
+
+<strong>PowerToys_Paste_20260927152904 (中).png</strong> (1.42 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 15:30 上传
+
+万恶的8改4，这俩人打起来没特殊对话。<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  milky658  
+##### 5430#       发表于 2026-9-27 15:36
+
+我都吃不起饭了，再看这群小逼崽子挖角要的东西<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 5431#       发表于 2026-9-27 15:37
+
+条件解锁的职业是可以章节重开保留的，这还挺好，赶在迪托利希12章刷魔响石解锁出来了，重开章节后还能留着
+
+*****
+
+####  Booorunestud  
+##### 5432#       发表于 2026-9-27 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290233&amp;ptid=2261859" target="_blank">Booorunestud 发表于 2026-9-26 22:48</a>
+有风弓吧，但我没用过，不知道是不是魔法武器
+以及可以带个飞斧用魔斧投掷，算魔法伤害，别的我还没见到 ...</blockquote>
+回旋镖x2
+风弓是风系列武器，依然物理，只是轻点
+魔斧投掷甚至是凯伊专属技能，白给俩法师练斧技能等级了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

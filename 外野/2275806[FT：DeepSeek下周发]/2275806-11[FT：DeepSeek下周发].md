@@ -1966,3 +1966,45 @@ codex是不是至少pro起步，搞了个plus想试试astra，基本一个来回
 
 想不出来就一直hmm然后枚举可能性，调用工具是let me，but wait是什么，读到skill了嘛？
 
+
+*****
+
+####  大暴死  
+##### 14970#       发表于 2026-9-27 15:27
+
+相当妈妈的大肥鱼be like: <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+牛来！
+<img src="https://p.sda1.dev/35/f292bd17f2034a18e0c7ff7f27bebc13/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  相见恨晚  
+##### 14971#       发表于 2026-9-27 15:32
+
+codebuddy在百分之零六十几上下文后会自动变回百分之几，这是咋回事，是好是坏？我本来要重开了的
+
+*****
+
+####  BarricadeMKXX  
+##### 14972#       发表于 2026-9-27 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292056&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-9-27 15:32</a>
+
+codebuddy在百分之零六十几上下文后会自动变回百分之几，这是咋回事，是好是坏？我本来要重开了的 ...</blockquote>
+workbuddy/codebuddy是自动压缩的吧
+
+*****
+
+####  andychen  
+##### 14973#       发表于 2026-9-27 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290952&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-27 08:50</a>
+
+月初还在听你们吹Astra太强了，达里奥没招了。现在又变成OpenAI不行了，能不能消停消停？ ...</blockquote>
+Astra没得说，目前最好的模型
+
+不行的是GPT6系列其他模型
+
