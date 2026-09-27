@@ -11539,3 +11539,15 @@ A少接了一个沙虫肉的任务，但是南边的村子去不了，怎么刷�
 
 看了下是每章买一次高级证给自己买破产了
 
+
+*****
+
+####  supergamer2  
+##### 5490#       发表于 2026-9-28 05:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293953&amp;ptid=2261859" target="_blank">linyc0010 发表于 2026-9-28 01:36</a>
+歌利亚的巨人肉确实难搞，我凯伊线开的就他没挖过来。不过小丑只是做3次任务打怪，中后期时间足够的。 ...</blockquote>
+高级肉箱SL一个，高级蔬菜箱SL炼狱草种20个，再换两个
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
