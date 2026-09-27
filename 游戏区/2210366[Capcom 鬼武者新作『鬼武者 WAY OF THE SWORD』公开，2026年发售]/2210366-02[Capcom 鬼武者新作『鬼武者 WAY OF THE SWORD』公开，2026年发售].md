@@ -571,3 +571,11 @@ v2-0ae7091590a14f8c0b1b7b12deaf9172_720w.webp
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  deathyue  
+##### 1947#       发表于 2026-9-27 21:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">老登上班族终于通关一周目了，源神第一次打二阶段被完虐，第二次就直接过了，但都不知道自己怎么按的，神奇。感觉这个游戏的目标客户就是日本本土像我这样年龄的中登，已经玩不了以前一闪难度，现在的难度就恰好，不像年初仁王学了个大锤连招直接无互动通关，鬼武者每个BOSS都可以打得很热闹，现在来看除了不能随时返回外，其他都可以说优
+
