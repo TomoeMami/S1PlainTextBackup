@@ -2179,3 +2179,26 @@ minimax 3.1flash有没有测过的？
 我的意见是prompt遵照还行 写代码不行</blockquote>
 今天已经确认了，就是这个……
 
+
+*****
+
+####  ww-tsl  
+##### 14990#       发表于 2026-9-27 23:13
+
+所以现在的AI写作还有救吗？
+
+这一波下来DS写文已经退化到完全不能用的地步了，之前那些手法全部失效，无论怎样生成出来的都是垃圾。而且稍微带点肉的文字（不是H甚至也不是亲密，就是带点身体描写）就会被秒吞。
+
+又要回归手写时代了吗？
+
+*****
+
+####  蛋黄酱Release  
+##### 14991#       发表于 2026-9-27 23:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293498&amp;ptid=2275806" target="_blank">ww-tsl 发表于 2026-9-27 23:13</a>
+所以现在的AI写作还有救吗？
+
+这一波下来DS写文已经退化到完全不能用的地步了，之前那些手法全部失效，无论 ...</blockquote>
+吞什么？你不会花钱用api吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
