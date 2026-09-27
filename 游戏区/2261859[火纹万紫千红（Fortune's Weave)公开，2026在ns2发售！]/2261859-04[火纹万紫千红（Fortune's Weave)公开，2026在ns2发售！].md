@@ -11495,3 +11495,37 @@ A少接了一个沙虫肉的任务，但是南边的村子去不了，怎么刷�
 
 强烈建议迪哥线挖个好用的奶妈  圣吸姐和保姆都行 
 
+
+*****
+
+####  linyc0010  
+##### 5486#       发表于 2026-9-28 01:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293943&amp;ptid=2261859" target="_blank">jockeyjoestar 发表于 2026-9-28 01:32</a>
+
+不是迪哥线  小丑和哥利亚就别考虑挖了 而且最好是二周目的迪哥线  一周目没开马车非常难
+
+格利亚需要三 ...</blockquote>
+歌利亚的巨人肉确实难搞，我凯伊线开的就他没挖过来。不过小丑只是做3次任务打怪，中后期时间足够的。
+
+*****
+
+####  jockeyjoestar  
+##### 5487#       发表于 2026-9-28 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293953&amp;ptid=2261859" target="_blank">linyc0010 发表于 2026-9-28 01:36</a>
+
+歌利亚的巨人肉确实难搞，我凯伊线开的就他没挖过来。不过小丑只是做3次任务打怪，中后期时间足够的。 ...</blockquote>
+主要是迪哥声望6级可以挖。 其他线挖过来强度不够的。
+
+
+*****
+
+####  linyc0010  
+##### 5488#       发表于 2026-9-28 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293956&amp;ptid=2261859" target="_blank">jockeyjoestar 发表于 2026-9-28 01:38</a>
+
+主要是迪哥声望6级可以挖。 其他线挖过来强度不够的。</blockquote>
+这个确实，每条线后挖的都不太好用，某种意义上也是帮我们筛选每条线的不同主力，这样后期合流大部分角色都有战力。
+
