@@ -10845,3 +10845,14 @@ a少线十二章才反应过来9月少做三个外传，看来第一部要4+1了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Jabeck  
+##### 5423#       发表于 2026-9-27 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291751&amp;ptid=2261859" target="_blank">达达达达葱 发表于 2026-9-27 13:19</a>
+
+哪个打X的圈？</blockquote>
+对，我今年重新试过，不去踩一次还是算失败，踩了到时间会自动传送。
+
