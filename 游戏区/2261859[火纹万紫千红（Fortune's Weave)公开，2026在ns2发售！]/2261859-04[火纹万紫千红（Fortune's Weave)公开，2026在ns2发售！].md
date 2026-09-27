@@ -11014,3 +11014,27 @@ A少的那些“限时XX到XX地”的主线
 
 35级的迷宫太爽了，随行的4个28级升到31级（替补的就不谈了），看看第一部结束时，全员25人能不能至少都35级以上（感觉有点悬）
 
+
+*****
+
+####  纯夏  
+##### 5440#       发表于 2026-9-27 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292092&amp;ptid=2261859" target="_blank">虚无缥缈的分身 发表于 2026-9-27 15:51</a>
+
+粉毛飞马到底怎么玩，目前感觉不把飞马职业转职抛弃了的话实在太脆了，可是颜值在本作里算数一数二的我不太 ...</blockquote>
+粉毛天马妹子速度和技巧成长挺不错 
+
+我转了侍道→刀剑将领 让她打追击和必杀
+
+
+*****
+
+####  ミズタ  
+##### 5441#       发表于 2026-9-27 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292092&amp;ptid=2261859" target="_blank">虚无缥缈的分身 发表于 2026-9-27 15:51</a>
+
+粉毛飞马到底怎么玩，目前感觉不把飞马职业转职抛弃了的话实在太脆了，可是颜值在本作里算数一数二的我不太 ...</blockquote>
+还有一种办法，不练光舔颜，提前把剑和弓练好，第三部直接转舞娘<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
