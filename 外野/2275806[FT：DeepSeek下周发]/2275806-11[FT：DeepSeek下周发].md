@@ -1885,3 +1885,24 @@ https://vrfi1sk8a0.feishu.cn/share/base/form/shrcnv2bVa5RWfkQ1I2VCylLgNg?from=na
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  BarricadeMKXX  
+##### 14963#       发表于 2026-9-27 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291661&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-9-27 12:58</a>
+
+我就不知道官方为什么不给 DSH 增加一个消息撤回删除的按钮 这又不是什么难事 ...</blockquote>
+相比撤回消息我还是想要直接删除对话，这个更简单
+
+
+*****
+
+####  绝地潜兵  
+##### 14964#       发表于 2026-9-27 14:32
+
+现在DSH对话不能删除，只能归档，估计是测试稳定性的原因吧
+
+删除对话还得用skill
+

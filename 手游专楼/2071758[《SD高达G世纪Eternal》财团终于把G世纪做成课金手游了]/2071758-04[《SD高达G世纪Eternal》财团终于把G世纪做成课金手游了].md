@@ -400,3 +400,25 @@ SD骑士才出了鸡瘟篇前3章<img src="https://static.stage1st.com/image/smi
 IF路线好啊，DS和A都还有原创剧情，到了战魂之后就成百科全书了
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">黑化基神伙同总帅砸小行星，骡子配合傻子那来个人心之光增幅，那这剧情绝对炸裂啊
 
+
+*****
+
+####  ティグル  
+##### 4749#       发表于 2026-9-27 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291734&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-9-27 13:14</a>
+
+永恒走SD路线就好了
+
+SD高达那么多卡呢</blockquote>
+SD受众还是断代了，对年轻人群的吸引力不大
+
+*****
+
+####  ティグル  
+##### 4750#       发表于 2026-9-27 14:29
+
+CO系的SDGG跟百科全书是两条产品线，在DS折戟后直接被雪藏了
+
+如果不是独眼要做成活动关的话我还挺希望下一期if能是独眼剧情的
+
