@@ -2146,3 +2146,36 @@ Qwen这个测试，到底是什么思考强度的？看了一会很不稳定…�
 Qwen这个测试，到底是什么思考强度的？看了一会很不稳定……</blockquote>
 国模没做完后训练就preview也是定番了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 14988#       发表于 2026-9-27 17:17
+
+ 本帖最后由 neptunehs 于 2026-9-27 17:20 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292179&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-27 16:32</a>
+minimax 3.1flash有没有测过的？
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99</blockquote>
+如果他是星际兔女郎
+我的意见是prompt遵照还行 写代码不行
+适合打杂 不适合搞难度比较高的代码
+
+如果不是 当我没说
+
+搞我的翻译勘误效果很好 搞我的mod项目一塌糊涂最后都是dsf擦屁股
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nxmonitor  
+##### 14989#       发表于 2026-9-27 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292290&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-27 17:17</a>
+
+如果他是星际兔女郎
+
+我的意见是prompt遵照还行 写代码不行</blockquote>
+今天已经确认了，就是这个……
+
