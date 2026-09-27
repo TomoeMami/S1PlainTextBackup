@@ -306,3 +306,16 @@ Jason对4亿预算的回应:
  ...</blockquote>
 亨特・莎弗，《OD》的主演之一，是跨性别女性
 
+
+*****
+
+####  karastar  
+##### 179#       发表于 2026-9-27 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291971&amp;ptid=2289559" target="_blank">eblis2 发表于 2026-9-27 14:57</a>
+
+倒不如说可能是小岛不太鸟索尼的dei需求导致分手。看看索尼这几年出的都是什么贵物 包括开发中的 就知道了
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">小岛的价值观是很"白左"的
+
