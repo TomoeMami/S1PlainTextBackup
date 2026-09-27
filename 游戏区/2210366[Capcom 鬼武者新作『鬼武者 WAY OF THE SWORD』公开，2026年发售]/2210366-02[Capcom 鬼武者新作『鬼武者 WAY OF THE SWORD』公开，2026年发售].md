@@ -561,3 +561,13 @@ v2-0ae7091590a14f8c0b1b7b12deaf9172_720w.webp
 
 鬼杀难度终于通关了，死的最多的还是佐佐木……太恶心了
 
+
+*****
+
+####  这次是十块钱  
+##### 1946#       发表于 2026-9-27 21:06
+
+一周目通关了，基本没卡关，原神三次就打过了，这才是我喜欢的游戏，豪情在天又帅又不卡关<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
