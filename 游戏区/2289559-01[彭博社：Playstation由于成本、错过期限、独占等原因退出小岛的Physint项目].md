@@ -366,3 +366,16 @@ Jason对4亿预算的回应:
 而且虽然一样烧钱，一样长开发周期 ...</blockquote>
 索尼能这么果断放手大概就是根本就不存在什么“已开发的部分”，小岛的访谈也算变相承认自己这几年就没干什么活
 
+
+*****
+
+####  ppa11  
+##### 184#       发表于 2026-9-27 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291971&amp;ptid=2289559" target="_blank">eblis2 发表于 2026-9-27 14:57</a>
+倒不如说可能是小岛不太鸟索尼的dei需求导致分手。看看索尼这几年出的都是什么贵物 包括开发中的 就知道了
+ ...</blockquote>
+小岛自己就是dei先锋吧。。
+
+—— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

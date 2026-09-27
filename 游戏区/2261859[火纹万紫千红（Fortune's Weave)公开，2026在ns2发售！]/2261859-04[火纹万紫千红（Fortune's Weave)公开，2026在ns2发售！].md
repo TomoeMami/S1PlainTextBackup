@@ -11224,3 +11224,32 @@ A少接了一个沙虫肉的任务，但是南边的村子去不了，怎么刷�
 
 —— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  hl氏  
+##### 5460#       发表于 2026-9-27 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292570&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-27 18:48</a>
+
+A少接了一个沙虫肉的任务，但是南边的村子去不了，怎么刷？</blockquote>
+帝都附近有的迷宫有沙虫
+
+
+*****
+
+####  纯夏  
+##### 5461#       发表于 2026-9-27 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292675&amp;ptid=2261859" target="_blank">HazukiShion 发表于 2026-9-27 19:19</a>
+
+话说现在有除了用0耐久武器以外的刷技能 lv 的方法吗？ 0 耐久武器太容易翻车了。。。 ...</blockquote>
+我是买了一堆垃圾青铜武器刷的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 5462#       发表于 2026-9-27 19:33
+
+安娜是愚者，其实安娜更像苏迪斯小号。
+
