@@ -1820,3 +1820,16 @@ https://github.com/kyle123740/dsh-message-recall
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jyj256  
+##### 14957#       发表于 2026-9-27 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291615&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-9-27 12:46</a>
+
+这个好啊
+
+我许愿的不能原地，只能另起分支</blockquote>
+我就不知道官方为什么不给 DSH 增加一个消息撤回删除的按钮 这又不是什么难事
+

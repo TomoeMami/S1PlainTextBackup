@@ -216,3 +216,20 @@ Jason对4亿预算的回应:
 
 小岛能4亿，星际大光头不得6亿？这些造谣的太离谱了
 
+
+*****
+
+####  Errrr  
+##### 172#       发表于 2026-9-27 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70286971&amp;ptid=2289559" target="_blank">Linkwjj 发表于 2026-9-26 00:32</a>
+
+没有跑酷揭秘战斗地下城的游戏多的是。
+
+有没有可能高成本游戏要实现突破的是“高成本”这个问题本身？</blockquote>
+”只会依附电影“。
+
+你的言论挺可笑的。
+
+不过我也习惯了，S1的主体用户本质上是一群极端无知麻木最缺乏鉴赏力的群体。<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

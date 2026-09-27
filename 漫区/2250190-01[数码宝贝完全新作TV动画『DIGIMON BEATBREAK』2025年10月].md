@@ -38,3 +38,13 @@
 
 丑死了，讲道理49集年番也算是高投入了，怎么能在最关键的地方如此拉跨，这玩意你们画出来真不觉得不对劲吗
 
+
+*****
+
+####  丹德里恩  
+##### 824#       发表于 2026-9-27 13:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">what can I say
+
+跟上周那两坐一桌的难看
+
