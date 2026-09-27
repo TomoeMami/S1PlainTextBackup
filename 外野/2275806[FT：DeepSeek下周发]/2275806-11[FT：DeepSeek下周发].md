@@ -2020,3 +2020,13 @@ codebuddy在百分之零六十几上下文后会自动变回百分之几，这�
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  startraveller  
+##### 14975#       发表于 2026-9-27 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291886&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-27 14:26</a>
+qwen4预览版测试很强啊 看来下半年国模的coding能力有希望集体进入astra/fable水平 ...</blockquote>
+哪里有测试看
+
