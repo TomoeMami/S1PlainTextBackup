@@ -11207,3 +11207,20 @@ A少接了一个沙虫肉的任务，但是南边的村子去不了，怎么刷�
 
 凯伊本来就是神的后代吧。。他爸本来就是强者一直在训练他，一开始就挺强，来抢东西的比他壮士多的佣兵被他吊打，典型的天选之子。
 
+
+*****
+
+####  HazukiShion  
+##### 5458#       发表于 2026-9-27 19:19
+
+话说现在有除了用0耐久武器以外的刷技能 lv 的方法吗？ 0 耐久武器太容易翻车了。。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天之八衢  
+##### 5459#       发表于 2026-9-27 19:21
+
+诡秘之主来了<img src="https://static.stage1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/35/7fceb246c7432bbdd95d2e00fff466c7/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
