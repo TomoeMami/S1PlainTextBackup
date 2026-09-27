@@ -10777,3 +10777,19 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 以及可以带个飞斧用魔斧投掷，算魔法伤害，别的我还没见到 ...</blockquote>
 风弓疾风剑这些是低重量+10回避
 
+
+*****
+
+####  索非亚  
+##### 5417#       发表于 2026-9-27 12:05
+
+双防能再加5点就好了，30出头有点不上不下<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/27/120427qipylky1iuhculyc.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1790481867101_3.webp</strong> (157.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 12:04 上传
+
