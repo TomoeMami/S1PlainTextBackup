@@ -10604,3 +10604,34 @@ A少线一部终章跟弟弟人的随机剧情对话之后 决战开战的时候
 
 什么A少线女主是佛比亚？
 
+
+*****
+
+####  lelouchwang  
+##### 5401#       发表于 2026-9-27 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290814&amp;ptid=2261859" target="_blank">fxc731 发表于 2026-9-27 07:38</a>
+去卡拉神殿主店对话点击试炼，打赢一把2连战速战后获得</blockquote>
+完了 那错过了 我看地图上没橙点还以为是主线任务之一呢<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  空气先生  
+##### 5402#       发表于 2026-9-27 08:38
+
+<blockquote>苏西踩我了 发表于 2026-9-27 00:49
+满加护可以越级打怪，第一条线把欧若拉加护拉满了，第二条线平均22级，女王26级，满欧若拉加护，打过了35级 ...</blockquote>
+
+其实女王线可以10多级打25级的山洞，20多级打35级的山洞。稍微手控一下女王就行了。
+
+可惜一章只能打一次，而且本作应该除了第二章，主线都是动态等级。
+
+*****
+
+####  紫菜粉丝煲  
+##### 5403#       发表于 2026-9-27 08:39
+
+女王线借船给白鸦新娘，最终战过来帮忙，感觉也挺容易错过的
+

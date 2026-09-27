@@ -1611,3 +1611,25 @@ a/赶快降智让我用点别的
 
 现在的gpt6系列除了astra确实不太行，尤其是隔壁opus5.5这么能打，openai要想想办法了
 
+
+*****
+
+####  moekyo  
+##### 14940#       发表于 2026-9-27 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290721&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-27 04:30</a>
+
+我对devday最大的期待是astra-minor这个模型，据说是astra架构的小规模模型
+
+现在的gpt6系列除了astra确 ...</blockquote>
+
+模型不行，重置来凑<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/27/083548dd40iaiom4425010.png" referrerpolicy="no-referrer">
+
+<strong>longshot20260927083519.png</strong> (147.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 08:35 上传
+
