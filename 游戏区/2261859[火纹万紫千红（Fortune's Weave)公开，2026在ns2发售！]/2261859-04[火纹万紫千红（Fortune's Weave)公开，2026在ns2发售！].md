@@ -11038,3 +11038,36 @@ A少的那些“限时XX到XX地”的主线
 粉毛飞马到底怎么玩，目前感觉不把飞马职业转职抛弃了的话实在太脆了，可是颜值在本作里算数一数二的我不太 ...</blockquote>
 还有一种办法，不练光舔颜，提前把剑和弓练好，第三部直接转舞娘<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯夏  
+##### 5442#       发表于 2026-9-27 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291829&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-27 13:57</a>
+
+雷达玩到12章了，演出为什么只有19次？
+
+看成就里面有20次的，难道是第二部第三部还有？ ...</blockquote>
+蕾达第1部算上剧情接的演出是24个 不算的话是22个
+
+*****
+
+####  zhwpjy  
+##### 5443#       发表于 2026-9-27 16:56
+
+蕾达篇第一章通了 感觉要开图就选蕾达 到处唱歌跳舞 蕾达转舞娘总感觉浪费 上完buff 都没发再动 舞娘优势都没法发挥 练了个回避t 结果魅力比不过骷髅 迷人面具触发不了 只能考合并后补一补数据了总体 还行就不知道这数据战争篇会有什么问题
+
+
+*****
+
+####  Bani82  
+##### 5444#       发表于 2026-9-27 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292234&amp;ptid=2261859" target="_blank">zhwpjy 发表于 2026-9-27 16:56</a>
+
+蕾达篇第一章通了 感觉要开图就选蕾达 到处唱歌跳舞 蕾达转舞娘总感觉浪费 上完buff 都没发再动 舞娘优势都 ...</blockquote>
+上BUFF涨咒力啊，不可能一直在上BUFF，不过雷达自身伤害不错给别人再动也只有个别功能需求下
+
+另外雷达是最强回避T？不算技能的情况下雷达舞娘的速成长值太高了
+
