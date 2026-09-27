@@ -379,3 +379,25 @@ Jason对4亿预算的回应:
 
 —— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ff2077  
+##### 185#       发表于 2026-9-27 19:40
+
+撤什么dei，从ds到physint 索尼签的力工合同，出钱出宣发出技术出人但ip依然是岛的，现在战略收缩结果小岛可是自爆到现在么玩法没有定的，大概率连个demo都没有只有ppt，终止合作不是很正常的事情吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小岛也不老实天天渲染自己是突然收到终止合作，结果人家都说了多次讨论后的结果
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  ff2077  
+##### 186#       发表于 2026-9-27 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291971&amp;ptid=2289559" target="_blank">eblis2 发表于 2026-9-27 14:57</a>
+倒不如说可能是小岛不太鸟索尼的dei需求导致分手。看看索尼这几年出的都是什么贵物 包括开发中的 就知道了
+ ...</blockquote>
+你看着母佑社区呢？
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
