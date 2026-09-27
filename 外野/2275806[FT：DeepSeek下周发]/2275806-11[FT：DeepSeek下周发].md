@@ -2285,3 +2285,16 @@ minimax 3.1flash有没有测过的？
 
 4.1Pro出来还是用得起的，如果后面出5-10T的模型，大概就DeepSeek这压缩KV的能力能用得起
 
+
+*****
+
+####  千千千千鸟  
+##### 15001#       发表于 2026-9-28 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293738&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-28 00:16</a>
+
+现在各种模型都被gpt腌入味了，还要回到老式提示词工程，现在我在各种总结类对话之前都会加一句“我是一 ...</blockquote>
+确实如此啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+阅读AI产出的这种特别干的文字实在是一种折磨
+
