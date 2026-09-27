@@ -391,3 +391,12 @@ SD高达那么多卡呢
 
 SD骑士才出了鸡瘟篇前3章<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">后面一堆强机呢
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4748#       发表于 2026-9-27 14:22
+
+IF路线好啊，DS和A都还有原创剧情，到了战魂之后就成百科全书了
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">黑化基神伙同总帅砸小行星，骡子配合傻子那来个人心之光增幅，那这剧情绝对炸裂啊
+

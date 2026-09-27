@@ -1852,3 +1852,36 @@ kimi明天能发吗？<img src="https://static.stage1st.com/image/smiley/face201
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  qwased  
+##### 14960#       发表于 2026-9-27 14:26
+
+qwen4预览版测试很强啊 看来下半年国模的coding能力有希望集体进入astra/fable水平
+
+
+*****
+
+####  Nanachi  
+##### 14961#       发表于 2026-9-27 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291661&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-9-27 12:58</a>
+我就不知道官方为什么不给 DSH 增加一个消息撤回删除的按钮 这又不是什么难事 ...</blockquote>
+为了保障缓存命中吧。实际上分叉某回复基本也等于将其后所有对话删除
+
+*****
+
+####  goranger  
+##### 14962#       发表于 2026-9-27 14:27
+
+[@所有人](https://stage1st.com/2b/home.php?mod=space&amp;uid=399710) 
+目前 MiniMax-M3.1-Flash-Preview 已经面向 tokenplan 和 MiniMax code 的用户开始公测，欢迎大家体验。
+
+MiniMax-M3.1-Flash是面向高频工作场景、兼顾专业能力与使用效率的日常主力模型，以多模态能力支持开发者、职场人与创作者的编程开发、研究分析和创意制作，给大家提供速度更快、质量更高的模型选择。
+当前Preview版本的不是MiniMax-M3.1-Flash最终版，我们仍然在高速迭代中，正式版预计很快和大家见面。
+我们希望让用户的反馈能直接体现到模型迭代中，大家深度体验后，可以填写下面的问卷，会帮助正式版变得更好用。
+https://vrfi1sk8a0.feishu.cn/share/base/form/shrcnv2bVa5RWfkQ1I2VCylLgNg?from=navigation
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
