@@ -11292,3 +11292,25 @@ A少接了一个沙虫肉的任务，但是南边的村子去不了，怎么刷�
 
 外传每个人物是对应一个是吧，我看商人外传有两个时间
 
+
+*****
+
+####  月光乱舞  
+##### 5467#       发表于 2026-9-27 21:59
+
+推荐个被低估的角色马吉迪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+玩第二部的时候因为主力人数不够+四条线不想用重复的自限玩法就在底下没怎么练的角色里挑了个有特色的用，然后因为玛吉迪力量足够高在第二部开罐头打大象战车和先手和秒法师有足够的作用，有特技的情况下命中也没特别离谱到没法用的地步，大不了悔棋对方基本上都没有反击的机会，至少第二部比起很多不明不白的板凳角色力量够高是足够当即战力使用的，绝对不是地板级角色。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/27/215509zzipajqufiji9qtq.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1790517091460_13.jpg</strong> (107.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-27 21:55 上传
+
+战绩可查吃个光环直接满血秒杀罐头<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
