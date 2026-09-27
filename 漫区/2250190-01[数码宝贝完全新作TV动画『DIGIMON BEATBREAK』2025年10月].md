@@ -48,3 +48,13 @@
 
 跟上周那两坐一桌的难看
 
+
+*****
+
+####  reekilynn  
+##### 825#       发表于 2026-9-27 13:51
+
+只能用拉完了来形容，感觉dtcg都不一定救得回来。
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

@@ -1833,3 +1833,22 @@ https://github.com/kyle123740/dsh-message-recall
 我许愿的不能原地，只能另起分支</blockquote>
 我就不知道官方为什么不给 DSH 增加一个消息撤回删除的按钮 这又不是什么难事
 
+
+*****
+
+####  serj005  
+##### 14958#       发表于 2026-9-27 13:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291661&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-9-27 12:58</a>
+我就不知道官方为什么不给 DSH 增加一个消息撤回删除的按钮 这又不是什么难事 ...</blockquote>
+我一直用pi-web也是因为这个，撤回功能好用,dsh只有对话分支功能
+
+*****
+
+####  lactone  
+##### 14959#       发表于 2026-9-27 13:51
+
+kimi明天能发吗？<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
