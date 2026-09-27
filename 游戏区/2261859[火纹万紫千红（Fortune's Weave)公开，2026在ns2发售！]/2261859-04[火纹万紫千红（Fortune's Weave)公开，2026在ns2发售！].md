@@ -11273,3 +11273,14 @@ A少接了一个沙虫肉的任务，但是南边的村子去不了，怎么刷�
 我是买了一堆垃圾青铜武器刷的</blockquote>
 青铜武器还是太强了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParukiaMKII  
+##### 5465#       发表于 2026-9-27 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70292234&amp;ptid=2261859" target="_blank">zhwpjy 发表于 2026-9-27 16:56</a>
+
+蕾达篇第一章通了 感觉要开图就选蕾达 到处唱歌跳舞 蕾达转舞娘总感觉浪费 上完buff 都没发再动 舞娘优势都 ...</blockquote>
+第一章后期蕾达有个特技，可以在爆气状态上完BUFF用攻击或者战技，这个时候就可以舞娘上BUFF拉人了啊
+
