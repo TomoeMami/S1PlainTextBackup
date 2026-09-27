@@ -2202,3 +2202,22 @@ minimax 3.1flash有没有测过的？
 这一波下来DS写文已经退化到完全不能用的地步了，之前那些手法全部失效，无论 ...</blockquote>
 吞什么？你不会花钱用api吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jinuzuktII  
+##### 14992#       发表于 2026-9-27 23:27
+
+想破甲还不用 api 才是没救了
+
+
+*****
+
+####  jyj256  
+##### 14993#       发表于 2026-9-27 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293557&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-27 23:27</a>
+
+想破甲还不用 api 才是没救了</blockquote>
+貌似现在很多人都在白嫖哈基米b反代的3.7 3.8f写文 类脑的预设已经差不多把谷歌的外审攻陷的差不多了  看来暂时ai还是比不过人脑
+
