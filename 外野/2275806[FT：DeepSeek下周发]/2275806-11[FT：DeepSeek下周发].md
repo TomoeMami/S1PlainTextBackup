@@ -2298,3 +2298,37 @@ minimax 3.1flash有没有测过的？
 
 阅读AI产出的这种特别干的文字实在是一种折磨
 
+
+*****
+
+####  真红之闪电  
+##### 15002#       发表于 2026-9-28 00:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293716&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-9-28 00:07</a>
+最近AI越用越多，反而遇到问题，就是让AI整理工作流方案，结果AI出的总结文字怎么都看不进去
+
+最近接了公司 ...</blockquote>
+半年前就这个感觉了，用了 AI 比不用还累…就是因为要从一堆输出里面去挑错或者不符合自己的方向的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mirathel  
+##### 15003#       发表于 2026-9-28 00:44
+
+工程规模稍微大一点点，读大模型的报告就开始贴近读某些类型游戏说明小作文的体验，直接把报告约束加上一条说人话，顺便强制每次都解释缩写的语境含义才会好一点，但是随之而来的生成表现就不确定了......
+
+
+*****
+
+####  Litccc  
+##### 15004#       发表于 2026-9-28 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293498&amp;ptid=2275806" target="_blank">ww-tsl 发表于 2026-9-27 23:13</a>
+
+所以现在的AI写作还有救吗？
+
+这一波下来DS写文已经退化到完全不能用的地步了，之前那些手法全部失效，无论 ...</blockquote>
+gemini 3.8f写作水平非常好，智商也在线，就是外审实在烦人，动不动就截断或者空回
+
