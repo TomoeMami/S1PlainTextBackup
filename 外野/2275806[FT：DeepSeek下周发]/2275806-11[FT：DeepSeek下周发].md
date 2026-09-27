@@ -1706,3 +1706,17 @@ sol6可一点也不弱。
 
 拿 k3 作 advisor review 的痛点
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 14947#       发表于 2026-9-27 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291029&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-27 09:33</a>
+sol6可一点也不弱。
+
+【Opus5.5对战GPT6 Sol｜AI御三家，屎山大乱斗｜屎山论剑-哔哩哔哩】 https://b23.t ...</blockquote>
+从大多数人体验和评测来看还是野狗，不如5.6sol
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
