@@ -1654,3 +1654,16 @@ mimo 2.6 flash不便宜而且速度烂完了
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  neptunehs  
+##### 14943#       发表于 2026-9-27 09:02
+
+顺便我觉得星际兔女郎翻译比mimo做得好
+虽然代码确实比想象中差
+
+就是不知道正式出来后是什么价格
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
