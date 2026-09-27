@@ -1906,3 +1906,45 @@ https://vrfi1sk8a0.feishu.cn/share/base/form/shrcnv2bVa5RWfkQ1I2VCylLgNg?from=na
 
 删除对话还得用skill
 
+
+*****
+
+####  kinfox  
+##### 14965#       发表于 2026-9-27 14:49
+
+<blockquote>qwased 发表于 2026-9-27 14:26
+qwen4预览版测试很强啊 看来下半年国模的coding能力有希望集体进入astra/fable水平 ...</blockquote>
+狠狠期待了。。我等着27b
+
+
+*****
+
+####  jyj256  
+##### 14966#       发表于 2026-9-27 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291889&amp;ptid=2275806" target="_blank">Nanachi 发表于 2026-9-27 14:27</a>
+
+为了保障缓存命中吧。实际上分叉某回复基本也等于将其后所有对话删除</blockquote>
+但是分叉只能在回复那里才行  于是就出现了一个问题：如果我的破限预设 没注意用了一个不支持的模型。模型说有问题不干   于是这个回复就一直哪里 等于提醒其他模型这提示词有问题 别干  我的那个插件 你就是为了解决这个问题 还有就是提示词有时候打错了 却删不掉
+
+*****
+
+####  jyj256  
+##### 14967#       发表于 2026-9-27 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291902&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-9-27 14:32</a>
+
+现在DSH对话不能删除，只能归档，估计是测试稳定性的原因吧
+
+删除对话还得用skill ...</blockquote>
+我让ai写的那个插件没什么稳定性问题吧 就是和酒馆一样 不让AI模型看到他不应该看到的东西
+
+*****
+
+####  heemoon  
+##### 14968#       发表于 2026-9-27 14:56
+
+codex是不是至少pro起步，搞了个plus想试试astra，基本一个来回5小时额度就归零了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> 
+
+就是不知道pro一个月近700块，公司给不给报<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
