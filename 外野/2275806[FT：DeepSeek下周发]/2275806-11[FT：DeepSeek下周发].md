@@ -1728,3 +1728,15 @@ sol6可一点也不弱。
 
 6sol明显5.6terra蒸馏的产物
 
+
+*****
+
+####  startraveller  
+##### 14949#       发表于 2026-9-27 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291029&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-27 09:33</a>
+sol6可一点也不弱。
+
+【Opus5.5对战GPT6 Sol｜AI御三家，屎山大乱斗｜屎山论剑-哔哩哔哩】 https://b23.t ...</blockquote>
+可是我昨天用GPT 6 Sol改了一天的bug没搞好，掏出K3来一把秒了。体感还是比较一般。
+
