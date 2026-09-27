@@ -2396,3 +2396,16 @@ dsh 0.2.0连alpha都还没打包的只有源码形态上github了<img src="https
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  squallx  
+##### 15010#       发表于 2026-9-28 02:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294025&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-28 02:36</a>
+
+dsh 0.2.0连alpha都还没打包的只有源码形态上github了
+
+大家的插件都会炸.jpg</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">操 那种事情不要啊   刚折腾了半天把我在DSH里搭的图片API聚合链路修好
+
