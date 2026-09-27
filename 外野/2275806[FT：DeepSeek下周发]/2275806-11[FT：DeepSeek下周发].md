@@ -1805,3 +1805,18 @@ sol6可一点也不弱。
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  冤枉呐  
+##### 14956#       发表于 2026-9-27 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291545&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-9-27 12:27</a>
+https://github.com/kyle123740/dsh-message-recall
+
+在网上找了一圈，都没有找到一个 DSH 能用的删除消 ...</blockquote>
+这个好啊
+我许愿的不能原地，只能另起分支
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
