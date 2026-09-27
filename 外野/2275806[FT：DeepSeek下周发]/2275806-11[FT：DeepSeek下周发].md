@@ -2252,3 +2252,13 @@ minimax 3.1flash有没有测过的？
 
 美国这波远程bot热潮算不算是iPhone垄断的产物? 我看做的事情和国内安卓厂商做的事情差不多啊.
 
+
+*****
+
+####  千千千千鸟  
+##### 14998#       发表于 2026-9-28 00:07
+
+最近AI越用越多，反而遇到问题，就是让AI整理工作流方案，结果AI出的总结文字怎么都看不进去<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+最近接了公司的工资核算想说用AI完全辅助一下，让CODEX给我整了个方案出来看的自己头疼。感觉脑子已经追不上AI的输出了
+
