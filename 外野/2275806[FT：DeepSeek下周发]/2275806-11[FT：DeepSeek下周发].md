@@ -2385,3 +2385,14 @@ gemini 3.8f写作水平非常好，智商也在线，就是外审实在烦人，
 
 注入的token更多，但思考的token变少了。
 
+
+*****
+
+####  tonyunreal  
+##### 15009#       发表于 2026-9-28 02:36
+
+dsh 0.2.0连alpha都还没打包的只有源码形态上github了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+大家的插件都会炸.jpg
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
