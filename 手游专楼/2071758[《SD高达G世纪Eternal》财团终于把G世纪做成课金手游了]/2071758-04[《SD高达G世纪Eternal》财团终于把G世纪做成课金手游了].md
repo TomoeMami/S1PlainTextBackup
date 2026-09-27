@@ -422,3 +422,24 @@ CO系的SDGG跟百科全书是两条产品线，在DS折戟后直接被雪藏了
 
 如果不是独眼要做成活动关的话我还挺希望下一期if能是独眼剧情的
 
+
+*****
+
+####  gpx234mqx  
+##### 4751#       发表于 2026-9-27 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291891&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-9-27 14:28</a>
+
+SD受众还是断代了，对年轻人群的吸引力不大</blockquote>
+SD卡游收藏的人不少
+
+*****
+
+####  ティグル  
+##### 4752#       发表于 2026-9-27 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291918&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-9-27 14:37</a>
+
+SD卡游收藏的人不少</blockquote>
+上次SD活动连发的时候日友就嚎得比较厉害，至少从我体感上来说确实不太有人气
+
