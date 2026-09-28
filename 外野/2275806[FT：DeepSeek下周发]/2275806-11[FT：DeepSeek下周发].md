@@ -3375,3 +3375,15 @@ A➗哪怕 agi 了也与我无关，毕竟我不贱
 毕竟大尺寸还是有利的</blockquote>
 astra和fable的规模都比k3大
 
+
+*****
+
+####  lactone  
+##### 15098#       发表于 2026-9-28 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297818&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-28 21:46</a>
+astra和fable的规模都比k3大</blockquote>
+k3当时的前端就能打fable了，我觉得3.1前端能力后训练优化一下打astra不过分吧
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
