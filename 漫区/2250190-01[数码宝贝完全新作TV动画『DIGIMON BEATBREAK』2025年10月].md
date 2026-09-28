@@ -212,3 +212,13 @@ dbb作为ds的一种“精神续作”算是完全没有延续到任何精神，
 
 这也是一种牛来
 
+
+*****
+
+####  黑夜守望者  
+##### 841#       发表于 2026-9-28 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70291901&amp;ptid=2250190" target="_blank">zechins 发表于 2026-9-27 14:31</a>
+货比货得扔……</blockquote>
+好雷霆的正脸。画师画的时候真没笑吗
+

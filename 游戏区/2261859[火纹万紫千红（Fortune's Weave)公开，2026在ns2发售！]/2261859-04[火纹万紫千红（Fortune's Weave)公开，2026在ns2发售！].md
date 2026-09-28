@@ -11947,3 +11947,13 @@ b站看到有1级的雷达直接转舞女的，除了第一条线开图，之后
 谁转锻造师比较合适？</blockquote>
 都不合适，斧头这部是弱势武器，黑魔纯职成长超级好看
 
+
+*****
+
+####  duraa  
+##### 5529#       发表于 2026-9-28 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295060&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-28 10:48</a>
+谁转锻造师比较合适？</blockquote>
+真想玩感觉西洛克可以考虑？斗士-山贼-锻造师，虽然我自己是走的卫士线（白魔懂得都懂<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

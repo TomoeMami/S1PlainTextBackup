@@ -2644,3 +2644,105 @@ ai要变成真正意义的黑箱了，万一以后ai崩了，人类直接退 ...
 神秘，pro怎么还会回去的</blockquote>
 不神秘，从灰测看就是Pro先灰测，接着V4FV上线测试，然后Pro再灰测（测的是标准和PTC），PTC灰测那次4.1F也出来了
 
+
+*****
+
+####  蓝极北  
+##### 15031#       发表于 2026-9-28 10:58
+
+之前是用zcode和codex的，最近想入坑dsh，请问有啥入门的教程吗？主要是这个太需要折腾了，插件也不知道在哪找
+
+*****
+
+####  neptunehs  
+##### 15032#       发表于 2026-9-28 10:58
+
+这也很能体现flash好掉头 pro就难了
+还是缺卡啊
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  当光停止  
+##### 15033#       发表于 2026-9-28 10:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲸鱼火鸡学家
+
+*****
+
+####  nxmonitor  
+##### 15034#       发表于 2026-9-28 10:58
+
+从OA两家的开发看，探路的Flash不会发布的，正式发布的应该是从上一级蒸馏的，实际上V4.1F有一些特征，比如偶发的I'm doing思维链
+
+*****
+
+####  Esoterica  
+##### 15035#       发表于 2026-9-28 10:59
+
+dsh的桌面版本是不是快出了，之前没搞过现在想要折腾是不是等桌面端出来了之后再搞会比较好<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 15036#       发表于 2026-9-28 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295124&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-28 10:56</a>
+不神秘，从灰测看就是Pro先灰测，接着V4FV上线测试，然后Pro再灰测（测的是标准和PTC），PTC灰测那次4.1F ...</blockquote>
+从4.1 Flash当时的发行说明“这是新基座的最小模型”看来，4.1 Pro 应该也是4.1的新基座吧，不是之前灰测那个
+
+
+*****
+
+####  nxmonitor  
+##### 15037#       发表于 2026-9-28 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295153&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-9-28 10:59</a>
+
+从4.1 Flash当时的发行说明“这是新基座的最小模型”看来，4.1 Pro 应该也是4.1的新基座吧，不是之前灰测 ...</blockquote>
+排下来灰测那个只有V4.1Pro了，不然就这点算力，以V4的架构练也练不过来
+
+*****
+
+####  nxmonitor  
+##### 15038#       发表于 2026-9-28 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295151&amp;ptid=2275806" target="_blank">Esoterica 发表于 2026-9-28 10:59</a>
+
+dsh的桌面版本是不是快出了，之前没搞过现在想要折腾是不是等桌面端出来了之后再搞会比较好 ...</blockquote>
+已经有了，往前翻翻有下载地址，只是没官宣
+
+*****
+
+####  洛拉斯  
+##### 15039#       发表于 2026-9-28 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295141&amp;ptid=2275806" target="_blank">蓝极北 发表于 2026-9-28 10:58</a>
+
+之前是用zcode和codex的，最近想入坑dsh，请问有啥入门的教程吗？主要是这个太需要折腾了，插件也不知道在 ...</blockquote>
+不用你自己去找，说需求，让d老师去找，找不到让d老师自己写
+
+*****
+
+####  洛拉斯  
+##### 15040#       发表于 2026-9-28 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295151&amp;ptid=2275806" target="_blank">Esoterica 发表于 2026-9-28 10:59</a>
+
+dsh的桌面版本是不是快出了，之前没搞过现在想要折腾是不是等桌面端出来了之后再搞会比较好 ...</blockquote>
+你消息不灵通啊
+
+s1网友几天前就发了桌面版了
+[https://download.deepseek.com/ds ... 60924.1-win-x64.exe](https://download.deepseek.com/dsh-desk/bin/win-x64/deepseek-harness-0.1.7-rc.1.20260924.1-win-x64.exe)
+
+
+*****
+
+####  Promeus  
+##### 15041#       发表于 2026-9-28 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295151&amp;ptid=2275806" target="_blank">Esoterica 发表于 2026-9-28 10:59</a>
+dsh的桌面版本是不是快出了，之前没搞过现在想要折腾是不是等桌面端出来了之后再搞会比较好 ...</blockquote>
+崔添翼说今天准备出
+
