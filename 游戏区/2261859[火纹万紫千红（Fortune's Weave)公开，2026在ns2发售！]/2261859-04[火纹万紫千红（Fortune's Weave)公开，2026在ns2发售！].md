@@ -13413,3 +13413,27 @@ engage也没有版权信息显示unity吧，engage我还是解包看的，而且
 
 好像就是观星之后考证，无论成功失败都可以跳过一级
 
+
+*****
+
+####  bbluekid  
+##### 5649#       发表于 2026-9-29 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297453&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-9-28 20:25</a>
+早点用这个就好了
+
+好离谱，刚在遭遇战看到迪升级只加了两点，重来没让他上，进了迷宫升级居然还是那两点 ...</blockquote>
+要是不转职的话，从进游戏这个加点就已经固定了。哪怕你重开第一章，加点都是一模一样的。转职系统没开之前，如果你加点烂，那就把经验加成关了，少吃经验。
+
+*****
+
+####  xiaohao123  
+##### 5650#       发表于 2026-9-29 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297779&amp;ptid=2261859" target="_blank">GuardHei 发表于 2026-9-28 21:39</a>
+
+engage也没有版权信息显示unity吧，engage我还是解包看的，而且是非常粗陋的unity默认渲染管线小改了一丢 ...</blockquote>
+有
+
+我无意间看到还挺惊讶的
+
