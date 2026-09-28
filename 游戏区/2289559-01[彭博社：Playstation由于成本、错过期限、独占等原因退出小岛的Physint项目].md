@@ -620,3 +620,16 @@ gpt给我答的的不是200人全力开发么？
 4亿信源我上面贴了，是Chris Dring在播客里说的，不是X账号:https://youtu.be/ZDkwFIMqNEQ?si=ng8AHfb5IU ...</blockquote>
 4亿预算真不太现实。按小岛这说法ds ds2都是盈利状态来说，ds500万份总收入也就3亿，2代销量更低了。他会跟索尼要4亿概率还不如信我是秦始皇
 
+
+*****
+
+####  哈罗  
+##### 204#       发表于 2026-9-28 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295241&amp;ptid=2289559" target="_blank">ShiKi847 发表于 2026-9-28 11:12</a>
+
+gpt给我答的的不是200人全力开发么？</blockquote>
+工期和人数是3A成本的最大因素，什么按研发费比例安排营销费，纯属AI放屁
+
+泄露资料显示，失眠组那边的营销费通常都是3-4000万，这已经是索尼ip的顶格待遇了
+

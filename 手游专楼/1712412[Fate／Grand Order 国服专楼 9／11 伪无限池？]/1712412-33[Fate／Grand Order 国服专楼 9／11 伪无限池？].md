@@ -281,3 +281,18 @@ MuMu-20260919-205429-531.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把大象刷到15绊还能再获得150石头
 
+
+*****
+
+####  qucqee  
+##### 48247#       发表于 2026-9-28 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70284415&amp;ptid=1712412" target="_blank">Kon-El 发表于 2026-9-25 10:47</a>
+
+700石全投了，剑心一宝，这下尴尬了...一宝剑心和一宝王哈哪个更适合戴冠
+
+—— 来自 OnePlus PKR110, Andr ...</blockquote>
+我选冈田以藏~
+
+全部石头allin冠呆~
+
