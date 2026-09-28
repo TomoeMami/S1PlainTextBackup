@@ -11874,3 +11874,47 @@ b站看到有1级的雷达直接转舞女的，除了第一条线开图，之后
 
 快出万紫千红无双吧！
 
+
+*****
+
+####  kiokio  
+##### 5522#       发表于 2026-9-28 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294102&amp;ptid=2261859" target="_blank">supergamer2 发表于 2026-9-28 05:22</a>
+
+高级肉箱SL一个，高级蔬菜箱SL炼狱草种20个，再换两个
+
+— from S1 Next Goose v3.0.86-alpha ...</blockquote>
+箱子原来可以SL的？我一直读档开的结果不变啊
+
+*****
+
+####  星花  
+##### 5523#       发表于 2026-9-28 10:38
+
+按前作 火纹无双  的主角会是 霖多。👻
+
+*****
+
+####  燃烧的石头  
+##### 5524#       发表于 2026-9-28 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294974&amp;ptid=2261859" target="_blank">kiokio 发表于 2026-9-28 10:37</a>
+箱子原来可以SL的？我一直读档开的结果不变啊</blockquote>
+买之前存档，买到手之后就固定了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  纯夏  
+##### 5525#       发表于 2026-9-28 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294923&amp;ptid=2261859" target="_blank">DarkDawn 发表于 2026-9-28 10:29</a>
+
+来问问进第三部到底有多少种情况
+
+比如说只打迪托利希但是做了所有外传的话，推门那一幕是8个人都在，7个背 ...</blockquote>
+你第1部如果只通1条主角线 那么第3部第2区分开始招募角色的时候你是收不到另外3位主角的
+
