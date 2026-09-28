@@ -11567,3 +11567,13 @@ A少接了一个沙虫肉的任务，但是南边的村子去不了，怎么刷�
 
 第一部能得到多少个上级考试证
 
+
+*****
+
+####  duraa  
+##### 5493#       发表于 2026-9-28 07:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294184&amp;ptid=2261859" target="_blank">lly778 发表于 2026-9-28 07:19</a>
+第一部能得到多少个上级考试证</blockquote>
+右下港口每章刷一个，但我估计很多人第一条线不会刻意去买来屯，然后最右下的迷宫宝箱有一个<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

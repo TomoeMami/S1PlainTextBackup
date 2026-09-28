@@ -112,3 +112,11 @@
 
 蒙面超人神话这四集单元剧挺好看的啊
 
+
+*****
+
+####  恶意之刃  
+##### 204#       发表于 2026-9-28 07:56
+
+还凑合，全能男主的设定挺讨喜的，没有授权不能解除变身的话是不是站于不败之地<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
