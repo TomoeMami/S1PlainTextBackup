@@ -232,3 +232,15 @@ dbb作为ds的一种“精神续作”算是完全没有延续到任何精神，
 
 还是那句话能不能把柴田山口这两位大神拉回去隔壁来打吧 不去拍写现在特摄还是太“惜才”惹<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TOYSTORY  
+##### 843#       发表于 2026-9-28 22:25
+
+ 本帖最后由 TOYSTORY 于 2026-9-28 22:27 编辑 
+
+日蚀月蚀爆衣后还挺帅，怎么合体出轮回兽这么丑的......这样设定得再高也没用啊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+结局一股迪迦和DA02混搭的味道<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
