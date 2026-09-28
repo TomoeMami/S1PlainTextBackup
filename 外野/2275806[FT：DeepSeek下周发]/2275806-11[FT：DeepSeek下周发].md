@@ -3484,3 +3484,26 @@ sonnet一直是中端模型，和gemini的pro对位的。和luna、flash不沾�
 我说一个传闻 不保真，国模突破可能会出现一些一般人都想不到的的公司，为啥呢，因为一些企业的外汇回不来 ...</blockquote>
 就算有也是昙花一现，O÷A÷乃至美国政府治不了国内，还治不了肉身在国外的这种公司？
 
+
+*****
+
+####  taxiom  
+##### 15109#       发表于 2026-9-28 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298166&amp;ptid=2275806" target="_blank">smiths146 发表于 2026-9-28 23:15</a>
+
+我说一个传闻 不保真，国模突破可能会出现一些一般人都想不到的的公司，为啥呢，因为一些企业的外汇回不来 ...</blockquote>
+卧槽不会说新加坡米吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novem  
+##### 15110#       发表于 2026-9-28 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298190&amp;ptid=2275806" target="_blank">静哮苍穹 发表于 2026-9-28 23:22</a>
+
+你这传闻的来龙去脉听着就挺小丑的...
+
+—— 来自 OPPO OPD2515, Android 16, 鹅球 v3.5.99 ...</blockquote>
+最近暗示自己很猛的就是米了把（不是小米）
+
