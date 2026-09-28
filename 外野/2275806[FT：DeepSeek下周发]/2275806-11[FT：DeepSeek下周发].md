@@ -3008,3 +3008,27 @@ command code的4.1f疑似换成了第三方源，速度只有不到200了
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  神必迷你龙  
+##### 15068#       发表于 2026-9-28 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295411&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-28 11:36</a>
+
+升级了cc max 5x后 opus5.5 真的蹬不完了 
+
+O畜 还在倒腾他那B 无人在意的 个人代理吗? ...</blockquote>
+现在有稳定蹬opus5.5的路子吗？
+
+*****
+
+####  neptunehs  
+##### 15069#       发表于 2026-9-28 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296435&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-9-28 15:56</a>
+command code的4.1f疑似换成了第三方源，速度只有不到200了</blockquote>
+opencode go 的也在27号后变慢了 不过只要智力没问题就行了。。。暂时没看出问题
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
