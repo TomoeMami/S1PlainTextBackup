@@ -3101,3 +3101,31 @@ kimi官网出现K3.1的测试模型卡了
 
 如果图是真的话，K3.1这个价格应该是又涨了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 15077#       发表于 2026-9-28 20:26
+
+k3都那么贵了 k3.1还涨啊
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  cscbzcbz  
+##### 15078#       发表于 2026-9-28 20:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Anarkia  
+##### 15079#       发表于 2026-9-28 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297055&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-9-28 18:36</a>
+
+确实，翻译同一篇英文小说，DS 4.1flash的就是不如使用antigravity的3.8flash强，奈何这安全锁厚得哈人， ...</blockquote>
+让它直接用tool call落成文件不要输出在回复里会好很多，Gemini的这种审查模式很多时候只审模型回复不审tool call，可以规避掉很多
+

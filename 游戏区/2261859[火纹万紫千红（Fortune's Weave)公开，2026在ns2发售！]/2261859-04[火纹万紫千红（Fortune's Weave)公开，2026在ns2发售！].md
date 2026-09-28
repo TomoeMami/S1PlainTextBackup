@@ -13136,3 +13136,30 @@ A少5章缺的事件也没找到，直接睡觉好像刷不出。 ...</blockquot
 蕾达线我的加点都好好的，迪线不知道中了什么邪，不是两点就是三点，梦回老火纹，现在感觉全队都废了好嫌 ...</blockquote>
 每章节开始跑旅馆存个档用所有回合去训练。提前看看升级加点满意不满意，满意的话只要读个档该怎么玩怎么玩。如果谁不满意的话去转职那边给那个人转一次职消耗一次乱数。再回旅馆看训练结果。调整到一个自己满意的结果。如果用到最后还是没有满意的或者几个烂结果选一个相对不那么烂的，那只要回到章节初始恢复初始状态重新转职就行
 
+
+*****
+
+####  hl氏  
+##### 5624#       发表于 2026-9-28 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297402&amp;ptid=2261859" target="_blank">bbluekid 发表于 2026-9-28 20:14</a>
+
+每章节开始跑旅馆存个档用所有回合去训练。提前看看升级加点满意不满意，满意的话只要读个档该怎么玩怎么 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">早点用这个就好了
+
+好离谱，刚在遭遇战看到迪升级只加了两点，重来没让他上，进了迷宫升级居然还是那两点，乱数居然这么固定
+
+
+*****
+
+####  bad_alloc  
+##### 5625#       发表于 2026-9-28 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297453&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-9-28 20:25</a>
+早点用这个就好了
+
+好离谱，刚在遭遇战看到迪升级只加了两点，重来没让他上，进了迷宫升级居然还是那两点 ...</blockquote>
+好像说是现在的机制是开档后升级乱数就固定了，转职考试无论成功还是失败都会消耗一个乱数，所以原理是用转职来跳过升级特别拉的情况
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
