@@ -20,3 +20,23 @@
 
 顺带贴一个 2003 年关于《我们的太阳》小岛接受 Nintendo Dream 的采访，收录于 Nintendo Dream 杂志 2004 年 4 月 3 日刊 [https://shmuplations.com/boktai/](https://shmuplations.com/boktai/) （【译介】《我们的太阳》小岛秀夫访谈 [https://zhuanlan.zhihu.com/p/136456813](https://zhuanlan.zhihu.com/p/136456813) ）
 
+
+*****
+
+####  谢云流  
+##### 160#       发表于 2026-9-28 18:17
+
+小岛支持dei但他起码有美学底线作品里只放俊男美女不恶心人啊
+就跟jk罗琳一样        [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  pointer243  
+##### 161#       发表于 2026-9-28 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70282045&amp;ptid=2290139" target="_blank">nage560 发表于 2026-9-24 18:15</a>
+
+提供引擎不代表就能用得好，小岛做到了，DS是独立游戏的玩法那也是做成3a的独立游戏了，宣传这东西就更加 ...</blockquote>
+mgsv的制作时间至少有一半是在捣鼓从零开始的FOX引擎，而且这个引擎还要适配其他场景的运用例如实况，还有后来的pt。就小岛组那算上引擎制作的150来人算得上高效了
+
