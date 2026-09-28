@@ -3032,3 +3032,14 @@ opencode go 的也在27号后变慢了 不过只要智力没问题就行了。�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zerona  
+##### 15070#       发表于 2026-9-28 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294041&amp;ptid=2275806" target="_blank">squallx 发表于 2026-9-28 02:49</a>
+
+操 那种事情不要啊   刚折腾了半天把我在DSH里搭的图片API聚合链路修好</blockquote>
+啥用处的？
+

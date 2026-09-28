@@ -12675,3 +12675,31 @@ A少:“你爹强吗？”
 想进2部前先把缺失的剧情时间补一下，发现序章也缺了俩，那么怎 ...</blockquote>
 2部战争篇只有战斗。
 
+
+*****
+
+####  白昼梦DD  
+##### 5588#       发表于 2026-9-28 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296531&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-28 16:16</a>
+1部4线打完，2部战争篇也能大地图探索吗？
+
+想进2部前先把缺失的剧情时间补一下，发现序章也缺了俩，那么怎 ...</blockquote>
+对应水晶直接选从某个章节重开
+不过选了重开必须打到整条线再通一遍才能再次选章节从开
+
+
+*****
+
+####  索非亚  
+##### 5589#       发表于 2026-9-28 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296597&amp;ptid=2261859" target="_blank">白昼梦DD 发表于 2026-9-28 16:28</a>
+
+对应水晶直接选从某个章节重开
+
+不过选了重开必须打到整条线再通一遍才能再次选章节从开 ...</blockquote>
+我想打序章，就是自捏缺的事件。。。
+
+A少5章缺的事件也没找到，直接睡觉好像刷不出。
+
