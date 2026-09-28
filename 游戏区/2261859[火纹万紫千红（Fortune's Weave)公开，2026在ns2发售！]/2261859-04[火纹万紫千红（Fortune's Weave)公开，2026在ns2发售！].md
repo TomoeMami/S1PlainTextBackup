@@ -12168,3 +12168,32 @@ A少:“你爹强吗？”
 
 真8砍4啊，那4副主角的剧情其实都是完整写好了，就等着dlc发呢
 
+
+*****
+
+####  ミズタ  
+##### 5546#       发表于 2026-9-28 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295498&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-9-28 11:49</a>
+
+打完四条线才发现合着神罗、豹子、岩进、古鲁金、君子兰、玛利亚全都稀里糊涂退场了，玛利亚是商人线最终bo ...</blockquote>
+是的，而且第三部这四个人待遇仅仅成挖角角色了，剧情关联战一句特殊对话都没有<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  5ew47  
+##### 5547#       发表于 2026-9-28 12:02
+
+打完女王线后直接开了第二部，这第二部真是下棋下爽了，一步没走好自家弓手就被飞龙神鸵兵骑脸了很难不笑出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.stage1st.com/forum/202609/28/120048bqjzjgq451o81gno.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8953.jpeg</strong> (618.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-28 12:00 上传
+
+话说战车和象兵这俩职业加的好啊，自己玩乱冲也很爽，当敌人也很有压迫感，你甭管实际威胁有多大，气氛反正是到位了
+
