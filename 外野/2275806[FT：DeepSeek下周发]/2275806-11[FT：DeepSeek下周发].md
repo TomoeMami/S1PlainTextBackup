@@ -2575,3 +2575,25 @@ ai要变成真正意义的黑箱了，万一以后ai崩了，人类直接退回1
 铁人叛乱
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ivly  
+##### 15025#       发表于 2026-9-28 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293890&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-9-28 01:04</a>
+
+确实又回到了提示词工程，像在写酒馆预设
+
+今天整理了AGENT.md，把一堆看着脑壳子疼的句子修改成了规范书面 ...</blockquote>
+233，其实我现在看你的回复，这样我也不知道怎么插入。中间省略步骤了。
+
+*****
+
+####  Milarvoz  
+##### 15026#       发表于 2026-9-28 10:22
+
+我最爱的后启示录小说终于要成为现实了吗？顺便推荐《莱博维茨的赞歌》
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

@@ -11788,3 +11788,13 @@ b站看到有1级的雷达直接转舞女的，除了第一条线开图，之后
 
 以及她的瞳色也是有说法的。
 
+
+*****
+
+####  陆久舟  
+##### 5513#       发表于 2026-9-28 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294704&amp;ptid=2261859" target="_blank">ParukiaMKII 发表于 2026-9-28 09:56</a>
+好像完全没看到DLC相关的消息，另外4个主角的剧情会不会根本不在DLC，而是在无双里面 ...</blockquote>
+更有可能是在漫画里<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
