@@ -12624,3 +12624,31 @@ A少:“你爹强吗？”
 **的 迪哥出海任务  去探了旁边30级的洞窟  他妈的出海时间不够要重打  点重新开始本章就是120回合全部重来 ...</blockquote>
 海怪这40回重打就可以了啊，规划好的话探洞穴来回也够，开局就鸣刃
 
+
+*****
+
+####  黛冬優子  
+##### 5583#       发表于 2026-9-28 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293923&amp;ptid=2261859" target="_blank">jockeyjoestar 发表于 2026-9-28 01:21</a>
+**的 迪哥出海任务  去探了旁边30级的洞窟  他妈的出海时间不够要重打  点重新开始本章就是120回合全部重来 ...</blockquote>
+可以从出海开始重打，开局刃鸣然后往右边探路，打完洞窟拿宝后向左探路，肯定够的
+
+*****
+
+####  白昼梦DD  
+##### 5584#       发表于 2026-9-28 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296406&amp;ptid=2261859" target="_blank">エリ 发表于 2026-9-28 15:44</a>
+
+海怪这40回重打就可以了啊，规划好的话探洞穴来回也够，开局就鸣刃</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是制作组功能做的有问题，如果这40回合期间手动选重开这一章的话就直接回退到120回合了 我也被这么坑了
+
+
+*****
+
+####  真田源次郎信繁  
+##### 5585#       发表于 2026-9-28 16:04
+
+黑马战车有人试过吗，加的魔力成长能不能比萨满或者骑黑鸵鸟强
+
