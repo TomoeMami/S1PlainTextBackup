@@ -12342,3 +12342,15 @@ A少:“你爹强吗？”
 
 —— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  5ew47  
+##### 5559#       发表于 2026-9-28 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295798&amp;ptid=2261859" target="_blank">chiziru 发表于 2026-9-28 13:00</a>
+迪线没规划好，11章大剑斗技前声望才9，大部分角色都是9 10 11章挖过来，数值都跟不上，还有救吗？
+
+——  ...</blockquote>
+我觉得挖晚了的角色都没救，能用肯定是能用，但比主力战力差一截。不过像巴西初音或战车这种有特色的角色，挖晚了也照样用，功能性代替不了
+
