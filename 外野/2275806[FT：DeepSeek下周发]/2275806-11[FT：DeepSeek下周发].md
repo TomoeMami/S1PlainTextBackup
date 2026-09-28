@@ -3507,3 +3507,43 @@ sonnet一直是中端模型，和gemini的pro对位的。和luna、flash不沾�
 —— 来自 OPPO OPD2515, Android 16, 鹅球 v3.5.99 ...</blockquote>
 最近暗示自己很猛的就是米了把（不是小米）
 
+
+*****
+
+####  crow_wine  
+##### 15111#       发表于 2026-9-28 23:35
+
+就是米哈游呗，这些真二游入场了
+
+*****
+
+####  simonroam  
+##### 15112#       发表于 2026-9-28 23:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">DS准备好了吗，真二游来喽
+
+*****
+
+####  nxmonitor  
+##### 15113#       发表于 2026-9-28 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298166&amp;ptid=2275806" target="_blank">smiths146 发表于 2026-9-28 23:15</a>
+
+我说一个传闻 不保真，国模突破可能会出现一些一般人都想不到的的公司，为啥呢，因为一些企业的外汇回不来 ...</blockquote>
+关注一下新闻就知道美国人准备对这个动手了，这事情字节和阿里更能做，为什么还要买华为的卡？
+
+
+*****
+
+####  qwased  
+##### 15114#       发表于 2026-9-28 23:40
+
+现在入场的玩家去哪搞数据，马斯克都得买cursor<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 15115#       发表于 2026-9-28 23:43
+
+大模型是靠人才的，混元也是姚顺雨去了以后才好一点的，但是米带头的人嘛，甚至还不如另一家米， 过去几年一搞手下人都跑了……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
