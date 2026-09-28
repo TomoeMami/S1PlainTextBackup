@@ -3091,3 +3091,13 @@ gemini 3.8f写作水平非常好，智商也在线，就是外审实在烦人，
 
 kimi官网出现K3.1的测试模型卡了
 
+
+*****
+
+####  nxmonitor  
+##### 15076#       发表于 2026-9-28 20:11
+
+ 本帖最后由 nxmonitor 于 2026-9-28 20:14 编辑 
+
+如果图是真的话，K3.1这个价格应该是又涨了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
