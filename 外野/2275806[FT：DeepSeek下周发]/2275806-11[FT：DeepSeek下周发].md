@@ -2503,3 +2503,19 @@ grok bot搞这么长时间了国内都没人跟
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cscbzcbz  
+##### 15019#       发表于 2026-9-28 09:49
+
+大的要来了？
+
+
+*****
+
+####  nxmonitor  
+##### 15020#       发表于 2026-9-28 09:52
+
+还有那个测试字段显示4.1Pro可能不是多模态的，符合灰测神秘模型特征，甚至我觉得Flash是后面才训练的<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

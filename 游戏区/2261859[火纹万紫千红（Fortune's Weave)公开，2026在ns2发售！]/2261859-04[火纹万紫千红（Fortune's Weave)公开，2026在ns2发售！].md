@@ -11744,3 +11744,15 @@ A少线打完再新开雷达线轻松多了，回合跟钱富裕好多，全买�
 
 b站看到有1级的雷达直接转舞女的，除了第一条线开图，之后几条线我都打了一堆洞窟然后才转职的，现在一看亏爆了，心态爆炸
 
+
+*****
+
+####  真田源次郎信繁  
+##### 5509#       发表于 2026-9-28 09:53
+
+看完了别的线的猫猫头，过来打地脱线，这剧情过场给我整笑了，法王看了猫猫头面具掉了之后盯着君子兰——她怎么和你长得一样啊
+
+原来你还会奇怪这一点啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然剧情可能想表达经过时间干涉之后法王在各种地方都找到端倪，不过实际表现是他像个稳如泰山的sb<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
