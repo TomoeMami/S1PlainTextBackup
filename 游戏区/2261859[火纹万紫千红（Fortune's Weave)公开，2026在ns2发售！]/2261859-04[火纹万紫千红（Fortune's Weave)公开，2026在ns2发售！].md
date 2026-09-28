@@ -11775,3 +11775,16 @@ b站看到有1级的雷达直接转舞女的，除了第一条线开图，之后
 这代武器强化没有惊喜啊，风花雪月强化加射程（雷电剑），有的加命中什么的感觉还蛮有惊喜，这代好像都是加 ...</blockquote>
 个别武器有，对魔手甲强化加魔防，有些紫色的咒怨武器可以加技巧之类的
 
+
+*****
+
+####  mai6696  
+##### 5512#       发表于 2026-9-28 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294486&amp;ptid=2261859" target="_blank">lbj5454 发表于 2026-9-28 09:11</a>
+
+凯伊线看到猫猫头素颜了，真的好顶，可以排到TOP3</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那你有没有觉得她的脸和某个夫人很像。
+
+以及她的瞳色也是有说法的。
+
