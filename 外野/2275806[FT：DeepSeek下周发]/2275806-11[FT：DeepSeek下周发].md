@@ -3761,3 +3761,13 @@ kimi3这个速度慢到底是infra问题还是算力问题还是都有
 
 opencode上了个$40的新套餐，不过结论是除非你主力用GLM5.3，否则不如多开几个号
 
+
+*****
+
+####  startraveller  
+##### 15131#       发表于 2026-9-29 01:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298474&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-9-29 00:55</a>
+opencode上了个$40的新套餐，不过结论是除非你主力用GLM5.3，否则不如多开几个号 ...</blockquote>
+用 GLM 我还不如官方订阅
+
