@@ -3072,3 +3072,14 @@ opencode go 的也在27号后变慢了 不过只要智力没问题就行了。�
 
 大的又没了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陈八尺  
+##### 15074#       发表于 2026-9-28 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293834&amp;ptid=2275806" target="_blank">Litccc 发表于 2026-9-28 00:46</a>
+
+gemini 3.8f写作水平非常好，智商也在线，就是外审实在烦人，动不动就截断或者空回 ...</blockquote>
+确实，翻译同一篇英文小说，DS 4.1flash的就是不如使用antigravity的3.8flash强，奈何这安全锁厚得哈人，我想尽办法也过不了外审，诶<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

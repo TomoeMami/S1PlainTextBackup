@@ -12986,3 +12986,27 @@ A少5章缺的事件也没找到，直接睡觉好像刷不出。 ...</blockquot
 比起囤雷剑，我觉得还是净化剑更有用，第三部非净化武器感觉都不太打的动敌人，我第一部第二部无敌的拳王， ...</blockquote>
 凯伊妈的加护，一场战斗能开五六次吧？
 
+
+*****
+
+####  真田源次郎信繁  
+##### 5613#       发表于 2026-9-28 18:36
+
+第三部真的全是冥府的加护吗？
+
+这样还没有净化枪净化弓也太坑了
+
+*****
+
+####  纯夏  
+##### 5614#       发表于 2026-9-28 18:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296999&amp;ptid=2261859" target="_blank">ミズタ 发表于 2026-9-28 18:21</a>
+
+比起囤雷剑，我觉得还是净化剑更有用，第三部非净化武器感觉都不太打的动敌人，我第一部第二部无敌的拳王， ...</blockquote>
+净化剑虽然方便 但是威力太低了 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我是蕾达给拿银武器的同伴上BUFF 那输出爽的
+
+没上BUFF的法系用魔法打伤害也很可观
+
