@@ -12715,3 +12715,50 @@ A少5章缺的事件也没找到，直接睡觉好像刷不出。
 A少5章缺的事件也没找到，直接睡觉好像刷不出。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那只能看看再降临行不行了吧，不知道再降临是从哪里开始
 
+
+*****
+
+####  mai6696  
+##### 5591#       发表于 2026-9-28 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296636&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-28 16:36</a>
+
+我想打序章，就是自捏缺的事件。。。
+
+A少5章缺的事件也没找到，直接睡觉好像刷不出。 ...</blockquote>
+这种的我建议以后有资料了再一起补，你现在白折腾不如先通关。
+
+
+*****
+
+####  anyasora  
+##### 5592#       发表于 2026-9-28 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296196&amp;ptid=2261859" target="_blank">-マユ‐ 发表于 2026-9-28 14:51</a>
+
+草，打完蕾达第一部才发现没领卡拉的弓啊，速通一遍的话练度又不如之前的档。既然 is 没算作任务那这装备应 ...</blockquote>
+我也漏了，查了一下必须10/15之前，要重打 10，11，12章 包括四个外传。。
+
+想了下成本放弃了，反正这种战技发射器本来也不舍得用。。
+
+*****
+
+####  anyasora  
+##### 5593#       发表于 2026-9-28 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296215&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-28 14:56</a>
+
+你这么一说，我也没拿。
+
+主要是地图上也没个标。没想着这事。
+
+是要去卡拉神殿对吧。</blockquote>
+我重开了12章进神殿没看见任务 查了下好像10/15之前要做完 要重打10 11 12章（+4个外传） 放弃了。。
+
+*****
+
+####  索非亚  
+##### 5594#       发表于 2026-9-28 16:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">缺失，序章从看下剧情直接第二部了。
+
