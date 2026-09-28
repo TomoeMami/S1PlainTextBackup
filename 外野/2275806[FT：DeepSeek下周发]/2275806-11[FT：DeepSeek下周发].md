@@ -3582,3 +3582,22 @@ dsh-price-chip-0.1.0.tgz
 
 点击文件名下载附件
 
+
+*****
+
+####  lactone  
+##### 15118#       发表于 2026-9-29 00:17
+
+kimi3这个速度慢到底是infra问题还是算力问题还是都有
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  cody198879  
+##### 15119#       发表于 2026-9-29 00:19
+
+猴子还在以为卡多就能练得好，真当不服跑个分呢。实际上大模型更多靠的是人才和理论革新。
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
