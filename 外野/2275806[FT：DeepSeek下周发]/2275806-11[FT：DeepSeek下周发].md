@@ -3737,3 +3737,11 @@ kimi3这个速度慢到底是infra问题还是算力问题还是都有
 
 看讨论似乎认为是这样的任务要求会让大肥鱼敢于犯错，会比正常情况下更激进
 
+
+*****
+
+####  绝地潜兵  
+##### 15129#       发表于 2026-9-29 00:47
+
+我草，怎么有人进来倒米哈游的屎啊，简直坏得流脓<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
