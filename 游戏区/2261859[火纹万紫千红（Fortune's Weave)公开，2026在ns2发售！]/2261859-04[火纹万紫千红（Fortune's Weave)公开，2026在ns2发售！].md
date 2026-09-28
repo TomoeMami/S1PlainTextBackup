@@ -12662,3 +12662,16 @@ A少:“你爹强吗？”
 
 想进2部前先把缺失的剧情时间补一下，发现序章也缺了俩，那么怎么回序章<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jabeck  
+##### 5587#       发表于 2026-9-28 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296531&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-28 16:16</a>
+
+1部4线打完，2部战争篇也能大地图探索吗？
+
+想进2部前先把缺失的剧情时间补一下，发现序章也缺了俩，那么怎 ...</blockquote>
+2部战争篇只有战斗。
+
