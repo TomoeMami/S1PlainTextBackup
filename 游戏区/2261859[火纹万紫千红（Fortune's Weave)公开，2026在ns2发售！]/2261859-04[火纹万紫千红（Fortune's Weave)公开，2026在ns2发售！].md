@@ -13515,3 +13515,13 @@ engage也没有版权信息显示unity吧，engage我还是解包看的，而且
 
 —— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  索非亚  
+##### 5658#       发表于 2026-9-29 02:37
+
+我是女王线41均等进第二部，现在6章平均47了，等级爆炸
+
+根本压不住经验<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

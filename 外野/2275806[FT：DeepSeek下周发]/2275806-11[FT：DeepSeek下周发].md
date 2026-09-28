@@ -3793,3 +3793,13 @@ dsh 官方有什么路线图之类的吗？
 
 想给它们做几个功能，又怕重复建设……
 
+
+*****
+
+####  lactone  
+##### 15134#       发表于 2026-9-29 02:44
+
+aa榜sonnet5.5都能打astra了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
