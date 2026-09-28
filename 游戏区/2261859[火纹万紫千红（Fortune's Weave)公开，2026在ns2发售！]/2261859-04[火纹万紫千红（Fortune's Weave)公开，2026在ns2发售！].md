@@ -12444,3 +12444,28 @@ A少:“你爹强吗？”
 都不合适，斧头这部是弱势武器，黑魔纯职成长超级好看</blockquote>
 咋说呢，斧头其实看给谁用，小孩妈自带斧头命中补正，配合勇士的命中补正，我后面带米斧子和两把邪斧，命中基本都能保证90以上甚至满命中，伤害威力不俗
 
+
+*****
+
+####  索非亚  
+##### 5567#       发表于 2026-9-28 14:19
+
+怎么是这个，我重甲移动+呢？？
+现在不知道这些移动类型熟练度给啥技能，玩起来真在抽奖<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/28/141755mhf01r0lp1inr05i.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1790576274107_1.webp</strong> (156.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-28 14:17 上传
+
+
+*****
+
+####  mai6696  
+##### 5568#       发表于 2026-9-28 14:24
+
+泥捏比起重甲，更适合卫士吧。
+
