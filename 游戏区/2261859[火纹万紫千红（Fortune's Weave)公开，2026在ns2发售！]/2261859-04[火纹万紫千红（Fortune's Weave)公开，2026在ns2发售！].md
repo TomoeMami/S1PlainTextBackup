@@ -13067,3 +13067,27 @@ A少5章缺的事件也没找到，直接睡觉好像刷不出。 ...</blockquot
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Bani82  
+##### 5619#       发表于 2026-9-28 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295698&amp;ptid=2261859" target="_blank">エリ 发表于 2026-9-28 12:33</a>
+女王线的战备任务最后一个才是解锁驭龙兵，前面先是重甲骑兵和卫士
+
+得到最后2章才刷任务的，是35条里尔鱼 ...</blockquote>
+我靠看攻略把材料在前几章都准备好了<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bani82  
+##### 5619#       发表于 2026-9-28 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295698&amp;ptid=2261859" target="_blank">エリ 发表于 2026-9-28 12:33</a>
+女王线的战备任务最后一个才是解锁驭龙兵，前面先是重甲骑兵和卫士
+
+得到最后2章才刷任务的，是35条里尔鱼 ...</blockquote>
+我靠看攻略把材料在前几章都准备好了<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
