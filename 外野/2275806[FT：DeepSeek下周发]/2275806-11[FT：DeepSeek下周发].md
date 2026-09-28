@@ -2455,3 +2455,26 @@ astra-minor应该是非公开的模型，GPT6系列就这几个了，devday重�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  nxmonitor  
+##### 15015#       发表于 2026-9-28 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294471&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-28 09:08</a>
+
+一上班就开始了吗？
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
+还是属于灰测的状态，什么时候全量上线不知，但是从DSH来看估计就这一两天
+
+*****
+
+####  neptunehs  
+##### 15016#       发表于 2026-9-28 09:19
+
+不过说真的 除非pro能相比flash大幅减少token使用（不雷霆大思考）
+否则我是用不起pro的。。。
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
