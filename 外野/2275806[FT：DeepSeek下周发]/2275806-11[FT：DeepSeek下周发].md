@@ -3235,3 +3235,44 @@ Sonnet5.5来了?
 
 ai还是太贵了  如果不是能白嫖 我可能一辈子不用
 
+
+*****
+
+####  Cortana  
+##### 15086#       发表于 2026-9-28 21:10
+
+<img src="https://img.stage1st.com/forum/202609/28/211015gwodg1zg2hehzwxo.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-09-28 210945.png</strong> (292.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-28 21:10 上传
+
+动作这么迅速？mimo修复了重复调用工具问题
+
+*****
+
+####  奶香花卷  
+##### 15087#       发表于 2026-9-28 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297540&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-9-28 20:45</a>
+
+DSH更新作为 0.2.0 系列的首个候选版本，本版本汇总了自 v0.1.7-rc.2 以来的主要用户和开发者相关变更。
+
+ ...</blockquote>
+补个链接吧
+[https://download.deepseek.com/ds ... -rc.1-mac-arm64.dmg](https://download.deepseek.com/dsh-desk/bin/mac-arm64/deepseek-harness-0.2.0-rc.1-mac-arm64.dmg)
+
+
+*****
+
+####  cscbzcbz  
+##### 15088#       发表于 2026-9-28 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297660&amp;ptid=2275806" target="_blank">奶香花卷 发表于 2026-9-28 21:11</a>
+补个链接吧
+
+https://download.deepseek.com/dsh-desk/bin/mac-arm64/deepseek-harness-0.2.0-rc.1-mac-ar ...</blockquote>
+用客户端自动升级一次启动成功了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感动
+
