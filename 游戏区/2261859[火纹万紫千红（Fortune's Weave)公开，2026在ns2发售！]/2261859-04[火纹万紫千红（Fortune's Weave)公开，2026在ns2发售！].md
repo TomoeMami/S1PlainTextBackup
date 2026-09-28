@@ -12762,3 +12762,72 @@ A少5章缺的事件也没找到，直接睡觉好像刷不出。 ...</blockquot
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">缺失，序章从看下剧情直接第二部了。
 
+
+*****
+
+####  cloudztj  
+##### 5595#       发表于 2026-9-28 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296715&amp;ptid=2261859" target="_blank">anyasora 发表于 2026-9-28 16:55</a>
+
+我重开了12章进神殿没看见任务 查了下好像10/15之前要做完 要重打10 11 12章（+4个外传） 放弃了。。 ...</blockquote>
+我雷达就是12章自由活动时间拿的啊，通关前去主殿做完就行了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ mai6696 + 1我先开12章试试
+
+查看全部评分
+
+*****
+
+####  mai6696  
+##### 5596#       发表于 2026-9-28 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296715&amp;ptid=2261859" target="_blank">anyasora 发表于 2026-9-28 16:55</a>
+
+我重开了12章进神殿没看见任务 查了下好像10/15之前要做完 要重打10 11 12章（+4个外传） 放弃了。。 ...</blockquote>
+对我来说倒也不是问题，剧情全skip应该一晚上能搞定。
+
+不知道马桶还用不用重新通。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer"> 比起下棋，我更烦巨大肉那些挖人马桶吧。
+
+那个小丑要打三次野战真的烦。
+
+
+*****
+
+####  纯夏  
+##### 5597#       发表于 2026-9-28 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296709&amp;ptid=2261859" target="_blank">anyasora 发表于 2026-9-28 16:53</a>
+
+我也漏了，查了一下必须10/15之前，要重打 10，11，12章 包括四个外传。。
+
+想了下成本放弃了，反正这种战 ...</blockquote>
+你角色身上带去第2部的武器 第2部的每章结束后系统会自动回满武器耐久 
+
+不必可惜 尽管用 这么设计就是让你用的<img src="https://static.stage1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cloudztj  
+##### 5598#       发表于 2026-9-28 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296732&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-28 17:00</a>
+
+对我来说倒也不是问题，剧情全skip应该一晚上能搞定。
+
+不知道马桶还用不用重新通。</blockquote>
+小丑虽然麻烦，但是他还真是必挖的角色
+
+等12章再挖人身上必带雷电剑一把，努佐我没记错的话也是必带雷电剑一把
+
