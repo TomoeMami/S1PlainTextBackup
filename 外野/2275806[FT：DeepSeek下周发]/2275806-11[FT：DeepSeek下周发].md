@@ -2478,3 +2478,16 @@ astra-minor应该是非公开的模型，GPT6系列就这几个了，devday重�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  hugosol  
+##### 15017#       发表于 2026-9-28 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294069&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-9-28 03:42</a>
+
+好的开源项目里注释确实很重要，好的 inline block 注释有一条标准就是解释为什么需要这段逻辑，比复读逻 ...</blockquote>
+因为现在都用agent读代码了，谁还看注释啦<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+antirez说redis的代码还要看是因为出于“社区对知名开源项目的信任”云云（大意如此），反正他认为看代码是浪费时间，还不如把时间精力投入在性能优化和测试上面
+
