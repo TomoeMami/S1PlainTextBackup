@@ -2436,3 +2436,22 @@ dsh 0.2.0连alpha都还没打包的只有源码形态上github了
 现在的gpt6系列除了astra确 ...</blockquote>
 astra-minor应该是非公开的模型，GPT6系列就这几个了，devday重头戏是GPT版bot，应用层的。
 
+
+*****
+
+####  nxmonitor  
+##### 15013#       发表于 2026-9-28 09:06
+
+4.1Pro的接口已经开始分批上线了
+
+*****
+
+####  neptunehs  
+##### 15014#       发表于 2026-9-28 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294468&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-28 09:06</a>
+4.1Pro的接口已经开始分批上线了</blockquote>
+一上班就开始了吗？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
