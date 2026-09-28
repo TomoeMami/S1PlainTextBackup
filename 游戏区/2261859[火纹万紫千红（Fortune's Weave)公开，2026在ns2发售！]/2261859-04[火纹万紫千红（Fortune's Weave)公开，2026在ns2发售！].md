@@ -12703,3 +12703,15 @@ A少:“你爹强吗？”
 
 A少5章缺的事件也没找到，直接睡觉好像刷不出。
 
+
+*****
+
+####  白昼梦DD  
+##### 5590#       发表于 2026-9-28 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296636&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-28 16:36</a>
+我想打序章，就是自捏缺的事件。。。
+
+A少5章缺的事件也没找到，直接睡觉好像刷不出。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那只能看看再降临行不行了吧，不知道再降临是从哪里开始
+
