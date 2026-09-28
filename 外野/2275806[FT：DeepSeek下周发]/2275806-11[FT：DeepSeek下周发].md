@@ -3694,3 +3694,46 @@ kimi3这个速度慢到底是infra问题还是算力问题还是都有
 
 —— 来自 OPPO OPD2515, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lactone  
+##### 15126#       发表于 2026-9-29 00:34
+
+米家自己的数据倒是适合现在的one-shot做游戏风潮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  qwased  
+##### 15127#       发表于 2026-9-29 00:36
+
+<img src="https://img.stage1st.com/forum/202609/29/003617p35775by5hihjymy.jpg" referrerpolicy="no-referrer">
+
+<strong>C2A5121383B57CB3242A115F074971B0.jpg</strong> (434.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 00:36 上传
+
+软乎乎
+
+<img src="https://img.stage1st.com/forum/202609/29/003617p99mccfol0l4fklw.jpg" referrerpolicy="no-referrer">
+
+<strong>FA65AB80D473EDB7B209CC5B5DFF8129.jpg</strong> (790.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 00:36 上传
+
+硬邦邦
+
+
+*****
+
+####  qwased  
+##### 15128#       发表于 2026-9-29 00:41
+
+看讨论似乎认为是这样的任务要求会让大肥鱼敢于犯错，会比正常情况下更激进
+
