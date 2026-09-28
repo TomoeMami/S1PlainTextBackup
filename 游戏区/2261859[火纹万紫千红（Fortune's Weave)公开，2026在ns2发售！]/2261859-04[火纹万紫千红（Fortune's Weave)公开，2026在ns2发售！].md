@@ -12057,3 +12057,93 @@ engage里西格尔特结合我都只拿来加移动，大招清杂兵太亏了�
 这招是不是对没挖过来的人不管用</blockquote>
 没入队的只能请客吃饭了
 
+
+*****
+
+####  紫菜粉丝煲  
+##### 5541#       发表于 2026-9-28 11:36
+
+迪线怎么提声望快，只能刃鸣找怪打么
+
+*****
+
+####  白昼梦DD  
+##### 5542#       发表于 2026-9-28 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295413&amp;ptid=2261859" target="_blank">紫菜粉丝煲 发表于 2026-9-28 11:36</a>
+迪线怎么提声望快，只能刃鸣找怪打么</blockquote>
+多刃鸣能提速一级声望，但是刷刃鸣有点把自己当bot用了
+
+
+*****
+
+####  ミズタ  
+##### 5543#       发表于 2026-9-28 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290330&amp;ptid=2261859" target="_blank">ミズタ 发表于 2026-9-26 23:27</a>
+
+说实话好久没玩到A少这种龙傲天主角的游戏了，无论剧情还是功能性就真的从头杀到尾 ...</blockquote>
+通关了，A少确实牛啤，一发流星破半盾boss一条血，最后好像boss就硬吃了A少五发流星，武器都砍没好几把<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+自捏完全打不动boss情况下，A少自己一个人带动了整个家
+
+而且我属性药都在喂给自捏的情况下，A少这个属性，属实是逆天了
+
+<img src="https://img.stage1st.com/forum/202609/28/114300fp1leeelqe60dvct.jpg" referrerpolicy="no-referrer">
+
+<strong>b2e9918e08c25c26ac6354222dcc1b32.jpg</strong> (166.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-28 11:43 上传
+
+<img src="https://img.stage1st.com/forum/202609/28/114301itio1g39t9iz0uih.jpg" referrerpolicy="no-referrer">
+
+<strong>b3f045c682483f6fdbe5bfea3bfa1b9d.jpg</strong> (167.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-28 11:43 上传
+
+
+*****
+
+####  ミズタ  
+##### 5543#       发表于 2026-9-28 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290330&amp;ptid=2261859" target="_blank">ミズタ 发表于 2026-9-26 23:27</a>
+
+说实话好久没玩到A少这种龙傲天主角的游戏了，无论剧情还是功能性就真的从头杀到尾 ...</blockquote>
+通关了，A少确实牛啤，一发流星破半盾boss一条血，最后好像boss就硬吃了A少五发流星，武器都砍没好几把<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+自捏完全打不动boss情况下，A少自己一个人带动了整个家
+
+而且我属性药都在喂给自捏的情况下，A少这个属性，属实是逆天了
+
+<img src="https://img.stage1st.com/forum/202609/28/114300fp1leeelqe60dvct.jpg" referrerpolicy="no-referrer">
+
+<strong>b2e9918e08c25c26ac6354222dcc1b32.jpg</strong> (166.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-28 11:43 上传
+
+<img src="https://img.stage1st.com/forum/202609/28/114301itio1g39t9iz0uih.jpg" referrerpolicy="no-referrer">
+
+<strong>b3f045c682483f6fdbe5bfea3bfa1b9d.jpg</strong> (167.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-28 11:43 上传
+
+*****
+
+####  巴尔干炮  
+##### 5544#       发表于 2026-9-28 11:47
+
+<blockquote>ミズタ 发表于 2026-9-28 11:43
+通关了，A少确实牛啤，一发流星破半盾boss一条血，最后好像boss就硬吃了A少五发流星，武器都砍没好几把
+
+ ...</blockquote>
+A少:“你爹强吗？”
+

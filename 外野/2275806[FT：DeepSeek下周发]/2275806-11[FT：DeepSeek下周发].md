@@ -2819,3 +2819,30 @@ dsh大更新加上出桌面端，感觉新模型大概率也会同步推出<img 
 
 O畜 还在倒腾他那B 无人在意的 个人代理吗?
 
+
+*****
+
+####  startraveller  
+##### 15049#       发表于 2026-9-28 11:40
+
+这两天kimi和qwen应该也要端上来了吧
+
+*****
+
+####  zhongjie  
+##### 15050#       发表于 2026-9-28 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295373&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-28 11:30</a>
+
+是接口模型还没上，被人挖出来了接口配置，灰测的意思是不是一起更新的 ...</blockquote>
+这个数据是从freebuff这个agent里挖的 这个是个第三方工具，后端接口有这个可能只是为了适配 类似opencode之前的行为。所以说基本没有可信度
+
+*****
+
+####  qz66618  
+##### 15051#       发表于 2026-9-28 11:42
+
+好吧，dsh负责人辟谣了，感觉大概率没了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
