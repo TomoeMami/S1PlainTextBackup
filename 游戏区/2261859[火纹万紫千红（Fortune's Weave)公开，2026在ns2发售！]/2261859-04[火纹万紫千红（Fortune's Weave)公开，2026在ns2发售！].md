@@ -11577,3 +11577,13 @@ A少接了一个沙虫肉的任务，但是南边的村子去不了，怎么刷�
 第一部能得到多少个上级考试证</blockquote>
 右下港口每章刷一个，但我估计很多人第一条线不会刻意去买来屯，然后最右下的迷宫宝箱有一个<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 5494#       发表于 2026-9-28 08:14
+
+三天打了三十个小时，现在睡觉时满脑子都是女王战斗时那个敲鼓的bgm
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
