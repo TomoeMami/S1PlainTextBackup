@@ -1882,3 +1882,29 @@ remedy的技术力和美术力确实能充分服务于他们自己的小巧思�
 印象中的达林是 ...</blockquote>
 我也觉得挺奇怪的，控制1里达林博士是性格搞怪的天才科学家，但是在本作里专门放了一段视频说“迪伦把我当父亲，但为了激发潜力我要给他上压力”，显得他变得不择手段起来了，女主管波普也为达林对迪伦的虐待而道歉。前后人设明显有变化，我没玩心灵杀手2，难道达林博士在里面有什么转变吗？
 
+
+*****
+
+####  安瓦尔阿明  
+##### 191#       发表于 2026-9-28 08:54
+
+别处看到的，完全翻反的译文，我服了。
+
+<img src="https://img.stage1st.com/forum/202609/28/085402pr77bbkb7x1varbw.jpg" referrerpolicy="no-referrer">
+
+<strong>biQ11-40bhK19T3cSsg-g0.jpg</strong> (50.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-28 08:54 上传
+
+<img src="https://img.stage1st.com/forum/202609/28/085412nxc3rh3pdphhv8ur.jpg" referrerpolicy="no-referrer">
+
+<strong>biQ11-cp7rK17T3cSsg-g0.jpg</strong> (48.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-28 08:54 上传
+
