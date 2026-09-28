@@ -633,3 +633,15 @@ gpt给我答的的不是200人全力开发么？</blockquote>
 
 泄露资料显示，失眠组那边的营销费通常都是3-4000万，这已经是索尼ip的顶格待遇了
 
+
+*****
+
+####  ppa11  
+##### 205#       发表于 2026-9-28 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295112&amp;ptid=2289559" target="_blank">zhoufl07 发表于 2026-9-28 10:55</a>
+4亿这个信息信源只有一个x账号。感觉造谣概率太大了。</blockquote>
+有其他舅舅佐证，不过官方信源确实没有
+
+—— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
