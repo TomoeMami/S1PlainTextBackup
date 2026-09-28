@@ -3779,3 +3779,17 @@ opencode上了个$40的新套餐，不过结论是除非你主力用GLM5.3，否
 
 Sonnet 5.5来了，OAI总不会一周内连续被狙击两波吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiaoboost  
+##### 15133#       发表于 2026-9-29 02:30
+
+dsh 官方有什么路线图之类的吗？
+
+也看不到官方到底是在计划做些什么功能
+
+看了看仓库也不接受外部提交 pr……
+
+想给它们做几个功能，又怕重复建设……
+

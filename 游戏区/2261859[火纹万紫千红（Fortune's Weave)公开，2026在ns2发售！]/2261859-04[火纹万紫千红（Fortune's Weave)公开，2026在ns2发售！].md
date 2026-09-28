@@ -13505,3 +13505,13 @@ engage也没有版权信息显示unity吧，engage我还是解包看的，而且
 
 女王外传是复刻了  雾+魔兽的组合 很恶心  
 
+
+*****
+
+####  夜留歌  
+##### 5657#       发表于 2026-9-29 02:28
+
+第二部进女王线，感觉第一部没全力练主力角色被惩罚了<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">，第一场战斗前队伍里最高只有女王38级，使用军团练级板凳角色只能拉到31级，没法转上级，进入战斗后发现对方杂兵角色属性整体碾压我方角色，非常容易miss，尝试两次后确定基本只能报团一格格慢慢挪，稍微一分散就容易暴毙
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
