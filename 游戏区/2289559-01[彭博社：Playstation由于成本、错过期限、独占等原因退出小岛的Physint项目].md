@@ -748,3 +748,14 @@ gpt给我答的的不是200人全力开发么？</blockquote>
 
 这个现象很大一个原因我觉得就是选角问题，SIE第一方ND和SSM这种资源最核心的工作室选角都没用过什么稍微昂贵的演员
 
+
+*****
+
+####  ShiKi847  
+##### 213#       发表于 2026-9-28 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295790&amp;ptid=2289559" target="_blank">哈罗 发表于 2026-9-28 12:58</a>
+
+你那gpt先不说靠不靠谱，他给的纯研发数据也是1.9-2.5亿，你取个最高值不算，还往上加个几千万是啥意思 ...</blockquote>
+gpt6,按22w刀中位数一年算的
+
