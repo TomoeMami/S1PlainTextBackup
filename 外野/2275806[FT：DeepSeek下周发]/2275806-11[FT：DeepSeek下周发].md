@@ -2907,3 +2907,14 @@ https://m.ithome.com/html/1007727.html
 本地部署了deepseek v4flash0731 vision了。感觉良好。</blockquote>
 什么配置，速度如何
 
+
+*****
+
+####  自由之紫roy  
+##### 15057#       发表于 2026-9-28 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295649&amp;ptid=2275806" target="_blank">艾诺琳 发表于 2026-9-28 12:24</a>
+
+什么配置，速度如何</blockquote>
+速度大概80token/s，还可以把
+
