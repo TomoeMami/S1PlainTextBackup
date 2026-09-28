@@ -11587,3 +11587,14 @@ A少接了一个沙虫肉的任务，但是南边的村子去不了，怎么刷�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绕指流光  
+##### 5495#       发表于 2026-9-28 08:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293923&amp;ptid=2261859" target="_blank">jockeyjoestar 发表于 2026-9-28 01:21</a>
+
+**的 迪哥出海任务  去探了旁边30级的洞窟  他妈的出海时间不够要重打  点重新开始本章就是120回合全部重来 ...</blockquote>
+我有相同的问题，在点之前想了一下，果断原地探索搞成失败重来<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这样就回到主线任务开始时了。这个出海时间肯定是够的，先去洞窟再绕回去找海王还能剩好几回合
+
