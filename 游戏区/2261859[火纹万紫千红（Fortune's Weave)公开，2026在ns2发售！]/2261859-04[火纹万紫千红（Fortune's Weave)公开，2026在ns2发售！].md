@@ -12416,3 +12416,31 @@ A少:“你爹强吗？”
 
 进第二部之前是不是要把想要用的板凳角色尽可能都转成战车兵放着
 
+
+*****
+
+####  Humpy  
+##### 5565#       发表于 2026-9-28 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295667&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-9-28 12:27</a>
+
+几个稀有魔法配置的角色和熟练度要求
+
+3个雷暴：丹提S，红花S，奥琳琵娅S。
+
+6个传送：凯伊S，卡塔尼亚A，红 ...</blockquote>
+穆居然真能学会高级魔法传送
+
+当初看她妈挣钱想送打拳女儿去好地方学魔法还以为是那种一厢情愿，看来真有才能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绯天终焉  
+##### 5566#       发表于 2026-9-28 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295068&amp;ptid=2261859" target="_blank">空气先生 发表于 2026-9-28 10:49</a>
+
+都不合适，斧头这部是弱势武器，黑魔纯职成长超级好看</blockquote>
+咋说呢，斧头其实看给谁用，小孩妈自带斧头命中补正，配合勇士的命中补正，我后面带米斧子和两把邪斧，命中基本都能保证90以上甚至满命中，伤害威力不俗
+
