@@ -11756,3 +11756,22 @@ b站看到有1级的雷达直接转舞女的，除了第一条线开图，之后
 
 虽然剧情可能想表达经过时间干涉之后法王在各种地方都找到端倪，不过实际表现是他像个稳如泰山的sb<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParukiaMKII  
+##### 5510#       发表于 2026-9-28 09:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像完全没看到DLC相关的消息，另外4个主角的剧情会不会根本不在DLC，而是在无双里面
+
+
+*****
+
+####  嘲风  
+##### 5511#       发表于 2026-9-28 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293559&amp;ptid=2261859" target="_blank">出言不迅 发表于 2026-9-27 23:27</a>
+
+这代武器强化没有惊喜啊，风花雪月强化加射程（雷电剑），有的加命中什么的感觉还蛮有惊喜，这代好像都是加 ...</blockquote>
+个别武器有，对魔手甲强化加魔防，有些紫色的咒怨武器可以加技巧之类的
+

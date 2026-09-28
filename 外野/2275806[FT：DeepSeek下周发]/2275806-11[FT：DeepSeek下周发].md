@@ -2519,3 +2519,59 @@ grok bot搞这么长时间了国内都没人跟
 
 还有那个测试字段显示4.1Pro可能不是多模态的，符合灰测神秘模型特征，甚至我觉得Flash是后面才训练的<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绕指流光  
+##### 15021#         楼主| 发表于 2026-9-28 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293613&amp;ptid=2275806" target="_blank">ww-tsl 发表于 2026-9-27 23:39</a>
+
+几个月都没怎么碰这方面了（除了当搜索引擎用），有没有什么最近一个季度推出的，拿和谐少擅长写文当最大卖 ...</blockquote>
+都是概念性垃圾
+
+直接酒馆调教甚至上codex都比这些东西强
+
+我是真用codex写过，加几个skill就能用
+
+*****
+
+####  洛拉斯  
+##### 15022#       发表于 2026-9-28 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293775&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-9-28 00:31</a>
+
+确实如此啊
+
+阅读AI产出的这种特别干的文字实在是一种折磨</blockquote>
+实测提示词里面要求ai用某作家的文风输出刻意改善文字阅读性
+
+我经常让ai用马克吐温的风格写短篇，都很棒
+
+*****
+
+####  洛拉斯  
+##### 15023#       发表于 2026-9-28 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294587&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-28 09:30</a>
+
+因为现在都用agent读代码了，谁还看注释啦
+
+antirez说redis的代码还要看是因为出于“社区对知名开源项目的 ...</blockquote>
+这样下去我怕过1代人以后再也没人会手写代码了
+
+ai要变成真正意义的黑箱了，万一以后ai崩了，人类直接退回1945年
+
+科幻小说那种科技大崩溃越来越真实了
+
+
+*****
+
+####  小野賢章  
+##### 15024#       发表于 2026-9-28 10:02
+
+巴特勒吉哈德
+
+铁人叛乱
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
