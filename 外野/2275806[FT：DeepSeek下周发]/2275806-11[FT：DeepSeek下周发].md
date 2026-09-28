@@ -2424,3 +2424,15 @@ dsh 0.2.0连alpha都还没打包的只有源码形态上github了
 
 而且这个东西很难靠外部的指示优化，只能靠模型在训练阶段固定。之前我在某一个月的时间里断断续续拿着 gpt 做实验，无论是修改 AGENTS.md 这种外部指示，还是拉一个专门的 reviewer 来做交叉攻击，它拉出来的一坨的维护性无论如何都远远达不到我期望的要求。
 
+
+*****
+
+####  startraveller  
+##### 15012#       发表于 2026-9-28 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70290721&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-27 04:30</a>
+我对devday最大的期待是astra-minor这个模型，据说是astra架构的小规模模型
+
+现在的gpt6系列除了astra确 ...</blockquote>
+astra-minor应该是非公开的模型，GPT6系列就这几个了，devday重头戏是GPT版bot，应用层的。
+
