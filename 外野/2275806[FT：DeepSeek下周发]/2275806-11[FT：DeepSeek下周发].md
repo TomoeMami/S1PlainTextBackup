@@ -2605,3 +2605,42 @@ ai要变成真正意义的黑箱了，万一以后ai崩了，人类直接退回1
 
 手写代码以后估计作为一项小众技能在特定行业领域内保留，如同现在的汇编
 
+
+*****
+
+####  neptunehs  
+##### 15028#       发表于 2026-9-28 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294731&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-9-28 10:00</a>
+这样下去我怕过1代人以后再也没人会手写代码了
+
+ai要变成真正意义的黑箱了，万一以后ai崩了，人类直接退 ...</blockquote>
+代码就是因为好学 才会有那么多人写代码而不是小众行业
+
+大崩溃了也就几年就能捡回来
+
+但除非铁人叛乱 还被人类成功平息 不然我想不到要怎么崩溃只崩溃ai 计算机没事
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  FACS  
+##### 15029#       发表于 2026-9-28 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294683&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-28 09:52</a>
+
+还有那个测试字段显示4.1Pro可能不是多模态的，符合灰测神秘模型特征，甚至我觉得Flash是后面才训练的 ...</blockquote>
+神秘，pro怎么还会回去的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 15030#       发表于 2026-9-28 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295088&amp;ptid=2275806" target="_blank">FACS 发表于 2026-9-28 10:53</a>
+
+神秘，pro怎么还会回去的</blockquote>
+不神秘，从灰测看就是Pro先灰测，接着V4FV上线测试，然后Pro再灰测（测的是标准和PTC），PTC灰测那次4.1F也出来了
+
