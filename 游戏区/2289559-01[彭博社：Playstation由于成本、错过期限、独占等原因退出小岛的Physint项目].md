@@ -610,3 +610,13 @@ tlou网游取消到现在多少年了，23年取消，23年开始做大光头现
 </blockquote>
 gpt给我答的的不是200人全力开发么？
 
+
+*****
+
+####  zhoufl07  
+##### 203#       发表于 2026-9-28 11:17
+
+<blockquote>SergeGlenn 发表于 2026-9-28 11:03
+4亿信源我上面贴了，是Chris Dring在播客里说的，不是X账号:https://youtu.be/ZDkwFIMqNEQ?si=ng8AHfb5IU ...</blockquote>
+4亿预算真不太现实。按小岛这说法ds ds2都是盈利状态来说，ds500万份总收入也就3亿，2代销量更低了。他会跟索尼要4亿概率还不如信我是秦始皇
+

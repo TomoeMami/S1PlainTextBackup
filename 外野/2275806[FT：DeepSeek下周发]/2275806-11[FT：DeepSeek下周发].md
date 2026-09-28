@@ -2788,3 +2788,13 @@ AI崩了就从废旧服务器里拷个K3出来本地部署，然后修个Astra�
 有灰测实锤？效果如何？</blockquote>
 假的。这人看了营销号自己脑补的。但是app端和dsh都跳大版本号更新，这两天应该是要发模型的。
 
+
+*****
+
+####  qz66618  
+##### 15046#       发表于 2026-9-28 11:18
+
+dsh大更新加上出桌面端，感觉新模型大概率也会同步推出<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -273,3 +273,11 @@ MuMu-20260919-205429-531.jpg
 免费单抽出大象，月癌全齐了，快300石下剑心池，啥都没有</blockquote>
 这300石头不就是给你换成大象了吗，只不过提前给你大象而已<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 48246#       发表于 2026-9-28 11:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把大象刷到15绊还能再获得150石头
+
