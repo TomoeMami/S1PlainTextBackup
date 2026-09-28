@@ -3557,3 +3557,28 @@ sonnet一直是中端模型，和gemini的pro对位的。和luna、flash不沾�
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  洛拉斯  
+##### 15117#       发表于 2026-9-29 00:11
+
+<img src="https://img.stage1st.com/forum/202609/29/000926r5vxsdlhj0xyyz4s.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260929000915.png</strong> (97.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 00:09 上传
+
+有人想要这个插件吗？下载这个tgz文件放到工作区让d老师自己安装下就可以了，我让d老师写好了注释和安装说明
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+dsh-price-chip-0.1.0.tgz
+(6.36 KB, 下载次数: 0)
+
+2026-9-29 00:10 上传
+
+点击文件名下载附件
+
