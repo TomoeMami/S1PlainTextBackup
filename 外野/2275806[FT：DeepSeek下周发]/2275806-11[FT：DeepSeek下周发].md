@@ -2952,3 +2952,27 @@ ds的flash写文难道优化了?这两天出的竟然没有之前那种毫无感
 
 dsh你们一般用哪个改标头的插件
 
+
+*****
+
+####  小野賢章  
+##### 15062#       发表于 2026-9-28 14:49
+
+换成桌面版之后折腾空间应该变小了不少吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CCauchy  
+##### 15063#       发表于 2026-9-28 14:50
+
+那不是看别人写的轮子不爽吗<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 15064#       发表于 2026-9-28 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296189&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-9-28 14:49</a>
+换成桌面版之后折腾空间应该变小了不少吧</blockquote>
+变化不大，electron桌面端本身和dsh web一个样，之前改界面的那些插件只要接口不变一般都能直接用
+

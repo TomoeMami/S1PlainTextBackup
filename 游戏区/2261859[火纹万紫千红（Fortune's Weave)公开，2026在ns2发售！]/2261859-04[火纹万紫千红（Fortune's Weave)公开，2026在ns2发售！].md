@@ -12477,3 +12477,64 @@ A少:“你爹强吗？”
 
 主要妮涅早早给了个重甲移动，后面练一下又有重甲魔防+10，想着再强化下重甲移动有6移动还是有点意思<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -マユ‐  
+##### 5570#       发表于 2026-9-28 14:51
+
+草，打完蕾达第一部才发现没领卡拉的弓啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡边加奈子  
+##### 5571#       发表于 2026-9-28 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295876&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-9-28 13:27</a>
+
+红花配置这么豪华
+
+论坛助手,iPhone</blockquote>
+单撸救世篇的最核心单位,设计极其深思熟虑的角色
+
+*****
+
+####  cloudztj  
+##### 5572#       发表于 2026-9-28 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296196&amp;ptid=2261859" target="_blank">-マユ‐ 发表于 2026-9-28 14:51</a>
+
+草，打完蕾达第一部才发现没领卡拉的弓啊，速通一遍的话练度又不如之前的档。既然 is 没算作任务那这装备应 ...</blockquote>
+不怕麻烦可以只打最后一章，拿了弓通关就行了，反正雷达最后一章也没什么事做
+
+*****
+
+####  mai6696  
+##### 5573#       发表于 2026-9-28 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296196&amp;ptid=2261859" target="_blank">-マユ‐ 发表于 2026-9-28 14:51</a>
+
+草，打完蕾达第一部才发现没领卡拉的弓啊，速通一遍的话练度又不如之前的档。既然 is 没算作任务那这装备应 ...</blockquote>
+你这么一说，我也没拿。
+
+主要是地图上也没个标。没想着这事。
+
+是要去卡拉神殿对吧。
+
+单独重开一下12章就可以了吧。
+
+*****
+
+####  zhwpjy  
+##### 5574#       发表于 2026-9-28 14:57
+
+<img src="https://img.stage1st.com/forum/202609/28/145445edrxpzddhlqx2b8s.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4213.jpeg</strong> (321.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-28 14:54 上传
+
+ 贴吧两次凯伊线合体的西提斯  这套系统唯一的难点就怎么把等级控住 建议 选择最满意一条线直接打 其他都跳
+
