@@ -13055,3 +13055,15 @@ A少5章缺的事件也没找到，直接睡觉好像刷不出。 ...</blockquot
 6个传送：凯伊S，卡塔尼亚A，红 ...</blockquote>
 卡塔尼亚这个配置不错啊，当天马屈才了，还是去当武僧吧
 
+
+*****
+
+####  kalavinka  
+##### 5618#       发表于 2026-9-28 19:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297165&amp;ptid=2261859" target="_blank">meltingwhite 发表于 2026-9-28 19:10</a>
+卡塔尼亚这个配置不错啊，当天马屈才了，还是去当武僧吧</blockquote>
+这作感觉技能配置还是有意思的，女王重甲副官弓熟练还有个4连发，力也高，就是命中是个问题<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
