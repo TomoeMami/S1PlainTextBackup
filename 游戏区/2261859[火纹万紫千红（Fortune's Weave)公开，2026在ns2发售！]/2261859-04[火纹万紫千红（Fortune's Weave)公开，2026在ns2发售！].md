@@ -13340,3 +13340,16 @@ engage也没有版权信息显示unity吧，engage我还是解包看的，而且
 
 怪鸟大叔怎么感觉比几个弓手小姐姐都要厉害？
 
+
+*****
+
+####  无知的小鼠人  
+##### 5643#       发表于 2026-9-28 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297905&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-28 22:05</a>
+
+这真可以有，比妮涅给力多了。</blockquote>
+咋培养啊，重甲加高速
+
+训练重甲，然后轻骑兵升级？
+
