@@ -13010,3 +13010,48 @@ A少5章缺的事件也没找到，直接睡觉好像刷不出。 ...</blockquot
 
 没上BUFF的法系用魔法打伤害也很可观
 
+
+*****
+
+####  kalavinka  
+##### 5615#       发表于 2026-9-28 19:05
+
+努佐那个个人技拿克制武器有用吗，有用的话感觉拿剑很强啊，剑里一堆克制武器，约等于常态+力+命中了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  纯夏  
+##### 5616#       发表于 2026-9-28 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297059&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-9-28 18:36</a>
+
+第三部真的全是冥府的加护吗？
+
+这样还没有净化枪净化弓也太坑了</blockquote>
+嗯 冥界兵都是冥府的加护  死了还会喷的满地瘴气 
+
+不过我方对策也很多 除了净化武器和蕾达的灭冥之歌 也有无视冥府加护的斧头 
+
+还有克冥界兵的白魔法“天使” 、媞雅拉和猫猫头都能学
+
+猫猫头和自捏的圣焰技也对冥界兵特攻 十分好用
+
+不必担心 
+
+
+*****
+
+####  meltingwhite  
+##### 5617#       发表于 2026-9-28 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295667&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-9-28 12:27</a>
+
+几个稀有魔法配置的角色和熟练度要求
+
+3个雷暴：丹提S，红花S，奥琳琵娅S。
+
+6个传送：凯伊S，卡塔尼亚A，红 ...</blockquote>
+卡塔尼亚这个配置不错啊，当天马屈才了，还是去当武僧吧
+
