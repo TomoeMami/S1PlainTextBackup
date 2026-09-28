@@ -3826,3 +3826,11 @@ aa 榜在 gpt astra 换分事件后就是野榜了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  nxmonitor  
+##### 15137#       发表于 2026-9-29 07:22
+
+谁叫6Sol是terra蒸馏的？正常点都打不过…
+
