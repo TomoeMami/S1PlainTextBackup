@@ -263,3 +263,13 @@ MuMu-20260919-205429-531.jpg
 
 免费单抽出大象，月癌全齐了，快300石下剑心池，啥都没有<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 48245#       发表于 2026-9-28 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294538&amp;ptid=1712412" target="_blank">失落之翼 发表于 2026-9-28 09:21</a>
+免费单抽出大象，月癌全齐了，快300石下剑心池，啥都没有</blockquote>
+这300石头不就是给你换成大象了吗，只不过提前给你大象而已<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -11957,3 +11957,29 @@ b站看到有1级的雷达直接转舞女的，除了第一条线开图，之后
 谁转锻造师比较合适？</blockquote>
 真想玩感觉西洛克可以考虑？斗士-山贼-锻造师，虽然我自己是走的卫士线（白魔懂得都懂<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oniwarud  
+##### 5530#       发表于 2026-9-28 11:04
+
+目前来说不管好感声望要求多高都值得挖的就是索绯雅（吃货奶妈）了吧，比她还强的白魔应该只有没法入队的欧若拉了
+
+
+*****
+
+####  DarkDawn  
+##### 5531#       发表于 2026-9-28 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294913&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-9-28 10:27</a>
+
+所以仇恨是跟着攻速或者速度走的？</blockquote>
+engage就这样了，敌方不会主动打他打不中的人
+
+*****
+
+####  巴尔干炮  
+##### 5532#       发表于 2026-9-28 11:13
+
+群体肌无力是为了推销战车这个新职业才这么设计的吧？IS如果是这么想的它还真得逞了。
+

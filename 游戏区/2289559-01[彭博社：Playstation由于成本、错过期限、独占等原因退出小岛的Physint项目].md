@@ -576,3 +576,37 @@ tlou网游取消到现在多少年了，23年取消，23年开始做大光头现
 
 但Jason和Jez都说了他们的信源明确XBOX签Physint预算远远没有这么多
 
+
+*****
+
+####  zid99825  
+##### 200#       发表于 2026-9-28 11:06
+
+噗，索索还是索索，微软这边eday、fable、小岛说4亿就4亿，索尼那边说多少都不信<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  SergeGlenn  
+##### 201#         楼主| 发表于 2026-9-28 11:08
+
+<blockquote>zid99825 发表于 2026-9-28 11:06
+噗，索索还是索索，微软这边eday、fable、小岛说4亿就4亿，索尼那边说多少都不信
+
+论坛助手,iPhone ...</blockquote>
+很多微软的游戏成本也是野鸡传言啊，最典型不就是光环无限什么5亿刀，也是一点可靠信源没有的无稽之谈
+
+
+*****
+
+####  ShiKi847  
+##### 202#       发表于 2026-9-28 11:12
+
+<blockquote>SergeGlenn 发表于 2026-9-28 10:58
+你知道现在顽皮狗有多少人吗？
+
+</blockquote>
+gpt给我答的的不是200人全力开发么？
+

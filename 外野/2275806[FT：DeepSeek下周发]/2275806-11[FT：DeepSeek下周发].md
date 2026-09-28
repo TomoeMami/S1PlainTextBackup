@@ -2746,3 +2746,45 @@ s1网友几天前就发了桌面版了
 dsh的桌面版本是不是快出了，之前没搞过现在想要折腾是不是等桌面端出来了之后再搞会比较好 ...</blockquote>
 崔添翼说今天准备出
 
+
+*****
+
+####  zhongjie  
+##### 15042#       发表于 2026-9-28 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295210&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-28 11:07</a>
+崔添翼说今天准备出</blockquote>
+说今天或者明天出dsh 0.2.0和桌面版
+
+—— 来自 HONOR AAP-AN00, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  xuanwu_lei  
+##### 15043#       发表于 2026-9-28 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294731&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-9-28 10:00</a>
+这样下去我怕过1代人以后再也没人会手写代码了
+
+ai要变成真正意义的黑箱了，万一以后ai崩了，人类直接退 ...</blockquote>
+AI崩了就从废旧服务器里拷个K3出来本地部署，然后修个Astra或者Opus5.5出来接着修其他啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ymm1030  
+##### 15044#       发表于 2026-9-28 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294468&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-28 09:06</a>
+
+4.1Pro的接口已经开始分批上线了</blockquote>
+有灰测实锤？效果如何？
+
+*****
+
+####  tillnight  
+##### 15045#       发表于 2026-9-28 11:18
+
+<blockquote>ymm1030 发表于 2026-9-28 11:16
+有灰测实锤？效果如何？</blockquote>
+假的。这人看了营销号自己脑补的。但是app端和dsh都跳大版本号更新，这两天应该是要发模型的。
+
