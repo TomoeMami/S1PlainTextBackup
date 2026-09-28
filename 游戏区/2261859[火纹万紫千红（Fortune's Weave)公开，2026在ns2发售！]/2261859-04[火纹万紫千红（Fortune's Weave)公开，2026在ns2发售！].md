@@ -12593,3 +12593,34 @@ A少:“你爹强吗？”
 
 查看全部评分
 
+
+*****
+
+####  纯夏  
+##### 5580#       发表于 2026-9-28 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296244&amp;ptid=2261859" target="_blank">caps洛奇 发表于 2026-9-28 15:03</a>
+
+合并要的碎片多么 需要前几章留一些吗</blockquote>
+只把第1部的4条主角线全打完都有20000碎片了 不乱用的话 根本不缺<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gbjbb  
+##### 5581#       发表于 2026-9-28 15:40
+
+40小时通完困难女王第二部。
+
+女王大地图还是比较无聊的，凯伊的抓宠明显有趣得多，不过军团能sl，不知道坐骑行不行。
+
+
+*****
+
+####  エリ  
+##### 5582#       发表于 2026-9-28 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293923&amp;ptid=2261859" target="_blank">jockeyjoestar 发表于 2026-9-28 01:21</a>
+
+**的 迪哥出海任务  去探了旁边30级的洞窟  他妈的出海时间不够要重打  点重新开始本章就是120回合全部重来 ...</blockquote>
+海怪这40回重打就可以了啊，规划好的话探洞穴来回也够，开局就鸣刃
+
