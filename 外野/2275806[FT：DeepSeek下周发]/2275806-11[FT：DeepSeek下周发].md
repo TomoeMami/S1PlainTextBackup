@@ -3745,3 +3745,19 @@ kimi3这个速度慢到底是infra问题还是算力问题还是都有
 
 我草，怎么有人进来倒米哈游的屎啊，简直坏得流脓<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BarricadeMKXX  
+##### 15130#       发表于 2026-9-29 00:55
+
+<img src="https://img.stage1st.com/forum/202609/29/005457wm6csg3oxz9o7929.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (140.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 00:54 上传
+
+opencode上了个$40的新套餐，不过结论是除非你主力用GLM5.3，否则不如多开几个号
+
