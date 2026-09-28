@@ -13091,3 +13091,13 @@ A少5章缺的事件也没找到，直接睡觉好像刷不出。 ...</blockquot
 得到最后2章才刷任务的，是35条里尔鱼 ...</blockquote>
 我靠看攻略把材料在前几章都准备好了<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hl氏  
+##### 5620#       发表于 2026-9-28 20:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+蕾达线我的加点都好好的，迪线不知道中了什么邪，不是两点就是三点，梦回老火纹，现在感觉全队都废了好嫌弃
+

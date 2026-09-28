@@ -3083,3 +3083,11 @@ opencode go 的也在27号后变慢了 不过只要智力没问题就行了。�
 gemini 3.8f写作水平非常好，智商也在线，就是外审实在烦人，动不动就截断或者空回 ...</blockquote>
 确实，翻译同一篇英文小说，DS 4.1flash的就是不如使用antigravity的3.8flash强，奈何这安全锁厚得哈人，我想尽办法也过不了外审，诶<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 15075#       发表于 2026-9-28 20:02
+
+kimi官网出现K3.1的测试模型卡了
+
