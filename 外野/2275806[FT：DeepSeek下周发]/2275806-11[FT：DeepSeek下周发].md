@@ -3771,3 +3771,11 @@ opencode上了个$40的新套餐，不过结论是除非你主力用GLM5.3，否
 opencode上了个$40的新套餐，不过结论是除非你主力用GLM5.3，否则不如多开几个号 ...</blockquote>
 用 GLM 我还不如官方订阅
 
+
+*****
+
+####  andychen  
+##### 15132#       发表于 2026-9-29 02:18
+
+Sonnet 5.5来了，OAI总不会一周内连续被狙击两波吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
