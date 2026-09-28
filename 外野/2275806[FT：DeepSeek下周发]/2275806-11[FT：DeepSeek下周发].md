@@ -3454,3 +3454,33 @@ sonnet一直是中端模型，和gemini的pro对位的。和luna、flash不沾�
 
 现在的 coding  agent 就缺一种这类开着飞机换引擎的benchmark，我相信现在市面上的模型大概率都会直接挂蛋🤣
 
+
+*****
+
+####  smiths146  
+##### 15106#       发表于 2026-9-28 23:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">我说一个传闻 不保真，国模突破可能会出现一些一般人都想不到的的公司，为啥呢，因为一些企业的外汇回不来，只能促进当地消费，然后真有一个常驻当地能拍板，买的卡已经超越大多数国内公司了，然后不得不开始也开始搞模型了，如果成了1 会发生比水军大战更可怕的事情，2 是对某些监管更是打脸  如果不成 当我是小丑就行了
+
+
+*****
+
+####  静哮苍穹  
+##### 15107#       发表于 2026-9-28 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298166&amp;ptid=2275806" target="_blank">smiths146 发表于 2026-9-28 23:15</a>
+我说一个传闻 不保真，国模突破可能会出现一些一般人都想不到的的公司，为啥呢，因为一些企业的外汇回不来 ...</blockquote>
+你这传闻的来龙去脉听着就挺小丑的...<img src="https://static.stage1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO OPD2515, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  未知伤亡  
+##### 15108#       发表于 2026-9-28 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298166&amp;ptid=2275806" target="_blank">smiths146 发表于 2026-9-28 23:15</a>
+
+我说一个传闻 不保真，国模突破可能会出现一些一般人都想不到的的公司，为啥呢，因为一些企业的外汇回不来 ...</blockquote>
+就算有也是昙花一现，O÷A÷乃至美国政府治不了国内，还治不了肉身在国外的这种公司？
+
