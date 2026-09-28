@@ -12879,3 +12879,22 @@ A少5章缺的事件也没找到，直接睡觉好像刷不出。 ...</blockquot
 
 优良箱子里出的有用的东西，可能就战车哥急需的短弓了
 
+
+*****
+
+####  白昼梦DD  
+##### 5603#       发表于 2026-9-28 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296823&amp;ptid=2261859" target="_blank">cloudztj 发表于 2026-9-28 17:26</a>
+雷电剑是高级箱子才会出吧
+
+优良箱子里出的有用的东西，可能就战车哥急需的短弓了 ...</blockquote>
+哦对 高级箱
+
+*****
+
+####  白昼梦DD  
+##### 5604#       发表于 2026-9-28 17:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过为了买武器箱 前期还真变得挺穷的 有段时间要卖点东西凑车费
+
