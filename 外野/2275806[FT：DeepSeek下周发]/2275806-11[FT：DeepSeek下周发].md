@@ -2976,3 +2976,18 @@ dsh你们一般用哪个改标头的插件
 换成桌面版之后折腾空间应该变小了不少吧</blockquote>
 变化不大，electron桌面端本身和dsh web一个样，之前改界面的那些插件只要接口不变一般都能直接用
 
+
+*****
+
+####  御坂MKII  
+##### 15065#       发表于 2026-9-28 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70294587&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-9-28 09:30</a>
+
+因为现在都用agent读代码了，谁还看注释啦
+
+antirez说redis的代码还要看是因为出于“社区对知名开源项目的 ...</blockquote>
+infra 项目看代码不仅是为了信任，还是为了背锅<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这个就是经典问题，如果他真不看还有企业敢用吗
+
