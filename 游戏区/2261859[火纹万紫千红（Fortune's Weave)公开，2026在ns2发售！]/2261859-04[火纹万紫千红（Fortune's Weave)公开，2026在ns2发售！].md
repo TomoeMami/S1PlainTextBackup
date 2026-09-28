@@ -12020,3 +12020,40 @@ engage就这样了，敌方不会主动打他打不中的人
 
 engage里西格尔特结合我都只拿来加移动，大招清杂兵太亏了，攻坚战用了基本必死
 
+
+*****
+
+####  白昼梦DD  
+##### 5537#       发表于 2026-9-28 11:28
+
+入队之后全队好感就野外找个怪用次魔法，之后开始找个地方每回合塞一块不回魔法的肉无限吃席，比旅馆吃饭效率高太多了
+
+
+*****
+
+####  没取名啊  
+##### 5538#       发表于 2026-9-28 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295366&amp;ptid=2261859" target="_blank">白昼梦DD 发表于 2026-9-28 11:28</a>
+入队之后全队好感就野外找个怪用次魔法，之后开始找个地方每回合塞一块不回魔法的肉无限吃席，比旅馆吃饭效 ...</blockquote>
+这招是不是对没挖过来的人不管用
+
+*****
+
+####  纯夏  
+##### 5539#       发表于 2026-9-28 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295314&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-9-28 11:21</a>
+
+是第二部还是第三部会自动把等级拉上来？拉上来的时候升级是带职业加成的么？ ...</blockquote>
+第2部和第3部系统都能自动拉等级 带职业加成 也会加熟练度
+
+*****
+
+####  白昼梦DD  
+##### 5540#       发表于 2026-9-28 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295379&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-9-28 11:31</a>
+这招是不是对没挖过来的人不管用</blockquote>
+没入队的只能请客吃饭了
+

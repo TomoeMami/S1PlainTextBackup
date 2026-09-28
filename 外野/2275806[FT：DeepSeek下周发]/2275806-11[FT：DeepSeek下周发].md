@@ -2798,3 +2798,24 @@ dsh大更新加上出桌面端，感觉新模型大概率也会同步推出<img 
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nxmonitor  
+##### 15047#       发表于 2026-9-28 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295277&amp;ptid=2275806" target="_blank">ymm1030 发表于 2026-9-28 11:16</a>
+
+有灰测实锤？效果如何？</blockquote>
+是接口模型还没上，被人挖出来了接口配置，灰测的意思是不是一起更新的
+
+
+*****
+
+####  RookieTnT  
+##### 15048#       发表于 2026-9-28 11:36
+
+升级了cc max 5x后 opus5.5 真的蹬不完了 
+
+O畜 还在倒腾他那B 无人在意的 个人代理吗?
+
