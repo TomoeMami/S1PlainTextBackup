@@ -3191,3 +3191,47 @@ Windows 内置沙箱新增权限诊断技能，可定位部分访问被拒原因
 
 调整工作过程展示在不同初始化路径的默认值 @imccyu
 
+
+*****
+
+####  startraveller  
+##### 15082#       发表于 2026-9-28 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297384&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-28 20:11</a>
+如果图是真的话，K3.1这个价格应该是又涨了……</blockquote>
+k3就这么贵
+
+*****
+
+####  RookieTnT  
+##### 15083#       发表于 2026-9-28 20:47
+
+<img src="https://img.stage1st.com/forum/202609/28/204643mtylvdygfmyrix4m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-28 20:46 上传
+
+Sonnet5.5来了? 
+
+8月份的知识库有点吓人啊
+
+*****
+
+####  RookieTnT  
+##### 15084#       发表于 2026-9-28 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70296500&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-9-28 16:11</a>
+
+现在有稳定蹬opus5.5的路子吗？</blockquote>
+似乎A畜对高价值用户不怎么封. 我之前用半年也没封 😂😂
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 15085#       发表于 2026-9-28 20:49
+
+ai还是太贵了  如果不是能白嫖 我可能一辈子不用
+
