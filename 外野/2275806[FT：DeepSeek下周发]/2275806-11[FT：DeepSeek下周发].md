@@ -3424,3 +3424,23 @@ k3当时的前端就能打fable了，我觉得3.1前端能力后训练优化一�
 确实也是k3之后国模前沿 ...</blockquote>
 争谁赢谁输没啥意思，作为用户哪家性能好性价比高用哪家就行了
 
+
+*****
+
+####  qwased  
+##### 15103#       发表于 2026-9-28 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297834&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-28 21:50</a>
+
+k3当时的前端就能打fable了，我觉得3.1前端能力后训练优化一下打astra不过分吧
+
+确实也是k3之后国模前沿 ...</blockquote>
+现在的测试全是one shot一些3d游戏，感觉没什么意义，但是做视频又只有这么搞好看<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狭义文具爱好者  
+##### 15104#       发表于 2026-9-28 22:16
+
+sonnet一直是中端模型，和gemini的pro对位的。和luna、flash不沾边，a社这个定位的模型是半放弃的haiku。sonnet在3.5，3.7和4.5这三个版本号sonnet甚至是a社最强的模型。随着opus降价为原来的1/3，旗舰由mythos担任才变。
+

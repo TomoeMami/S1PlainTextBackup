@@ -13271,3 +13271,55 @@ engage也没有版权信息显示unity吧，engage我还是解包看的，而且
 后面两部有没有加能力值的道具？我a少30级是25力量，40级还是25力量。。。感觉有点废了 ...</blockquote>
 第三部有的，不过也比较少，听别人说真练废了的好像也只能抢救一两位的量
 
+
+*****
+
+####  云玩家  
+##### 5637#       发表于 2026-9-28 22:05
+
+<blockquote>噗呸破屁诚 发表于 2026-9-28 21:59
+第三部有的，不过也比较少，听别人说真练废了的好像也只能抢救一两位的量 ...</blockquote>
+还好能补救一下。现在这数值拿着重甲剑都很难一刀砍死重甲，对着重甲只能当闪避T用
+
+*****
+
+####  索非亚  
+##### 5638#       发表于 2026-9-28 22:05
+
+这真可以有，比妮涅给力多了。
+
+<img src="https://img.stage1st.com/forum/202609/28/220531rxcr6cgnc0n36bzn.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1790604330183_2.webp</strong> (294.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-28 22:05 上传
+
+<img src="https://img.stage1st.com/forum/202609/28/220531jitmcisc1md9yksy.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1790604330459_3.webp</strong> (296.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-28 22:05 上传
+
+*****
+
+####  nancygreenlife  
+##### 5639#       发表于 2026-9-28 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297905&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-28 22:05</a>
+
+这真可以有，比妮涅给力多了。</blockquote>
+不擅长重装，指重装跳跃<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  u2deack  
+##### 5640#       发表于 2026-9-28 22:12
+
+加了一晚上的烂点已经想整条线重开了，这种纯随机加点真的心累，虽然也不是打不过但是就很不爽
+然后战斗也是各种七八十打不中对面三四十就能中
+
