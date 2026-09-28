@@ -3053,3 +3053,22 @@ opencode go 的也在27号后变慢了 不过只要智力没问题就行了。�
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tillnight  
+##### 15072#       发表于 2026-9-28 17:35
+
+<blockquote>neptunehs 发表于 2026-9-28 16:11
+opencode go 的也在27号后变慢了 不过只要智力没问题就行了。。。暂时没看出问题
+
+—— 来自 vivo V2561A ...</blockquote>
+第三方部署还能给到ds都给不了的价（长期维持10换60），那只能是量化过的，不可能不影响智力。无非是对个人的工作环境中是否可感知而已。
+
+*****
+
+####  cscbzcbz  
+##### 15073#       发表于 2026-9-28 17:39
+
+大的又没了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
