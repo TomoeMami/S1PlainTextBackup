@@ -3321,3 +3321,57 @@ sonnet5.5如果真吊打sol，这个价格国模又得承压
 
 按deepswe 5.6sol还被4.1f打平呢 openai怎么办啊
 
+
+*****
+
+####  云卷花开  
+##### 15093#       发表于 2026-9-28 21:38
+
+A➗哪怕 agi 了也与我无关，毕竟我不贱
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  lactone  
+##### 15094#       发表于 2026-9-28 21:39
+
+我觉得3.1至少能在前端上和astra打一下
+
+毕竟大尺寸还是有利的
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  →熙←  
+##### 15095#       发表于 2026-9-28 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297745&amp;ptid=2275806" target="_blank">奶香花卷 发表于 2026-9-28 21:32</a>
+
+叼毛pi-ai组件还停留在0.85，不能直接用opencode go，要自己搞插件</blockquote>
+升级这个组件不就好了, 升级了直接就支持了
+
+
+*****
+
+####  奶香花卷  
+##### 15096#       发表于 2026-9-28 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297783&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-9-28 21:39</a>
+
+升级这个组件不就好了, 升级了直接就支持了</blockquote>
+那要拉源码仓自己编译吧？我现在用yetone大佬的magpie也能设置用上。
+
+*****
+
+####  andychen  
+##### 15097#       发表于 2026-9-28 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297778&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-28 21:39</a>
+
+我觉得3.1至少能在前端上和astra打一下
+
+毕竟大尺寸还是有利的</blockquote>
+astra和fable的规模都比k3大
+

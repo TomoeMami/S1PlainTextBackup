@@ -13204,3 +13204,13 @@ A少线转了天马
 
 每周周常的喂鸟和演戏好烦，已经开始被我忽视过去了
 
+
+*****
+
+####  GuardHei  
+##### 5630#       发表于 2026-9-28 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70248668&amp;ptid=2261859" target="_blank">xiaohao123 发表于 2026-9-16 23:34</a>
+我也有点好奇这次的引擎，有没有玩上的坛友主菜单按+键看看版权信息</blockquote>
+engage也没有版权信息显示unity吧，engage我还是解包看的，而且是非常粗陋的unity默认渲染管线小改了一丢丢，虽然火纹也确实不需要啥画质就是了...
+
