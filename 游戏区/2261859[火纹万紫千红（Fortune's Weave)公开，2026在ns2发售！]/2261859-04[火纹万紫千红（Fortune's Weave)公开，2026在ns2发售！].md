@@ -13231,3 +13231,43 @@ engage也没有版权信息显示unity吧，engage我还是解包看的，而且
 
 首周考虑到ns2这会的装机量至少是三房的水平了，海外那边应该会比三房更好
 
+
+*****
+
+####  云玩家  
+##### 5633#       发表于 2026-9-28 21:57
+
+后面两部有没有加能力值的道具？我a少30级是25力量，40级还是25力量。。。感觉有点废了
+
+*****
+
+####  5ew47  
+##### 5634#       发表于 2026-9-28 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297842&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-28 21:51</a>
+
+原来女王线收不了小红小绿，我以为小绿任务自动清了没太在意。
+
+还有这第三章满地的火不会灭啊，我一堆重甲 ...</blockquote>
+可以空放计策灭火，也可以用贝特兰的圣焰战技灭火
+
+*****
+
+####  2317268845  
+##### 5635#       发表于 2026-9-28 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297870&amp;ptid=2261859" target="_blank">云玩家 发表于 2026-9-28 21:57</a>
+
+后面两部有没有加能力值的道具？我a少30级是25力量，40级还是25力量。。。感觉有点废了 ...</blockquote>
+第三部安娜商店和迷宫能够获得
+
+*****
+
+####  噗呸破屁诚  
+##### 5636#       发表于 2026-9-28 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297870&amp;ptid=2261859" target="_blank">云玩家 发表于 2026-9-28 21:57</a>
+
+后面两部有没有加能力值的道具？我a少30级是25力量，40级还是25力量。。。感觉有点废了 ...</blockquote>
+第三部有的，不过也比较少，听别人说真练废了的好像也只能抢救一两位的量
+

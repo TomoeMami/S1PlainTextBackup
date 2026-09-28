@@ -78,3 +78,22 @@
 
        [https://livepocket.jp/e/shinjoken_nonriko2026](https://livepocket.jp/e/shinjoken_nonriko2026)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42052#       发表于 2026-9-28 21:57
+
+       <strong>【中日歌词】Ave Mujica - Fatal (Game ver.)</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/28/215733ssc84cucvioodmvs.jpg" referrerpolicy="no-referrer">
+
+<strong>0bc6f38589e2a43aba4cb3276c4295b54ed21088.jpg</strong> (280.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-28 21:57 上传
+
+曲译：基于网易云音乐、QQ音乐各版本综合修订</blockquote>
+       [https://www.bilibili.com/video/BV187aq6MENC](https://www.bilibili.com/video/BV187aq6MENC)
+
