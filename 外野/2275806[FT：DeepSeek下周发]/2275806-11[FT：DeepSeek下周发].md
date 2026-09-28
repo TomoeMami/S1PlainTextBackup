@@ -3844,3 +3844,21 @@ aa 榜在 gpt astra 换分事件后就是野榜了
 谁叫6Sol是terra蒸馏的？正常点都打不过…</blockquote>
 睁眼看看他超的是astra，别说sonnet5.5，信opus5.5比astra强的都是这辈子有了。整个由来是oai这次astra真没刷aa分，导致aa分很低，aa不得不自己张腿定向调整把astra捧上sota维持公信力，后续又悄悄改了几次标准，基本原则是让oa能重新遥遥领先，同时fable要强，astra要第一，要和其他“刷分”模型拉开差距，以这套标准定制分数以后aa以为自己又可以指点江山了，只要oa赢就没人敢说野榜，没想到a/也是个刷子，随便出个中端模型就刷过astra，让aa再次变成笑话。
 
+
+*****
+
+####  nxmonitor  
+##### 15139#       发表于 2026-9-29 07:38
+
+<blockquote>tillnight 发表于 2026-9-29 07:35
+睁眼看看他超的是astra，别说sonnet5.5，信opus5.5比astra强的都是这辈子有了。整个由来是oai这次astra真 ...</blockquote>
+AA确实是野榜，但是GPT两个小号模型也确实拉…
+
+
+*****
+
+####  FACS  
+##### 15140#       发表于 2026-9-29 07:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">O/什么时候提一下额度
+
