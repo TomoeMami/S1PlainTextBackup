@@ -3547,3 +3547,13 @@ sonnet一直是中端模型，和gemini的pro对位的。和luna、flash不沾�
 
 大模型是靠人才的，混元也是姚顺雨去了以后才好一点的，但是米带头的人嘛，甚至还不如另一家米， 过去几年一搞手下人都跑了……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tinkling4617  
+##### 15116#       发表于 2026-9-28 23:45
+
+最近吹米有大的要来了太多了，我根本不信，全是米孝子在传
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
