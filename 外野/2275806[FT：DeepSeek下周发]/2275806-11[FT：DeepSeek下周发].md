@@ -3601,3 +3601,96 @@ kimi3这个速度慢到底是infra问题还是算力问题还是都有
 
 —— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  lactone  
+##### 15120#       发表于 2026-9-29 00:24
+
+我现在发现国外ai舅舅党都快成产业链了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+刚注册的账号放个屁，国内新智元之流就能当资深业内人士给你搬回来
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  静哮苍穹  
+##### 15121#       发表于 2026-9-29 00:25
+
+关键是我想不到哪个单一海外市场能有大量营收且无法汇回必须在当地买卡的，而且还要能明显比国内玩家买得多，还不会被关注到。
+
+—— 来自 OPPO OPD2515, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 15122#       发表于 2026-9-29 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298373&amp;ptid=2275806" target="_blank">静哮苍穹 发表于 2026-9-29 00:25</a>
+关键是我想不到哪个单一海外市场能有大量营收且无法汇回必须在当地买卡的，而且还要能明显比国内玩家买得多 ...</blockquote>
+就是最近放话要两三年当国模第一的真二游啊<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 15123#       发表于 2026-9-29 00:31
+
+鲸鱼科学家最新研究成果：提示词里面加上“能让我看得硬邦邦的”可以让建模能力突飞猛进
+
+<img src="https://img.stage1st.com/forum/202609/29/003036ij172ytlbt211n8f.jpg" referrerpolicy="no-referrer">
+
+<strong>0F9DF938DC698834B5C5BD6C70599E39.jpg</strong> (452.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 00:30 上传
+
+<img src="https://img.stage1st.com/forum/202609/29/003036o45q881qc4xxx5qc.jpg" referrerpolicy="no-referrer">
+
+<strong>47D1C0499A1A3DA53498F04FF6E32436.jpg</strong> (24.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 00:30 上传
+
+<img src="https://img.stage1st.com/forum/202609/29/003132nvfkq64wkwznzn4w.jpg" referrerpolicy="no-referrer">
+
+<strong>8191A18936AB8B6C1321A1577FFAEA25.jpg</strong> (461.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 00:31 上传
+
+<img src="https://img.stage1st.com/forum/202609/29/003132svs932i1a3a0f2fa.jpg" referrerpolicy="no-referrer">
+
+<strong>D81D9BCDC8465A18F140728027BE8F8D.jpg</strong> (378.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 00:31 上传
+
+*****
+
+####  lactone  
+##### 15124#       发表于 2026-9-29 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298389&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-29 00:31</a>
+鲸鱼科学家最新研究成果：提示词里面加上“能让我看得硬邦邦的”可以让建模能力突飞猛进</blockquote>
+这什么抽象nsfw提示词<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  静哮苍穹  
+##### 15125#       发表于 2026-9-29 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298380&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-29 00:29</a>
+就是最近放话要两三年当国模第一的真二游啊</blockquote>
+我查了下他主要海外市场也没哪个是外汇管制的啊，而且每个单一市场也没多少钱，不知道的以为是多大的规模
+
+—— 来自 OPPO OPD2515, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
