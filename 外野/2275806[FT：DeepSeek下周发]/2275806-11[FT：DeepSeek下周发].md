@@ -3276,3 +3276,48 @@ DSH更新作为 0.2.0 系列的首个候选版本，本版本汇总了自 v0.1.7
 https://download.deepseek.com/dsh-desk/bin/mac-arm64/deepseek-harness-0.2.0-rc.1-mac-ar ...</blockquote>
 用客户端自动升级一次启动成功了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感动
 
+
+*****
+
+####  lactone  
+##### 15089#       发表于 2026-9-28 21:28
+
+sonnet5.5如果真吊打sol，这个价格国模又得承压<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  奶香花卷  
+##### 15090#       发表于 2026-9-28 21:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297687&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-28 21:16</a>
+
+用客户端自动升级一次启动成功了感动</blockquote>
+叼毛pi-ai组件还停留在0.85，不能直接用opencode go，要自己搞插件
+
+*****
+
+####  andychen  
+##### 15091#       发表于 2026-9-28 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297470&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-28 20:31</a>
+
+看3.1能力如何咯，能跟上astra嘛</blockquote>
+希望很小，能跟上fable5就很牛了
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 15092#       发表于 2026-9-28 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297727&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-28 21:28</a>
+
+sonnet5.5如果真吊打sol，这个价格国模又得承压
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 全论坛最懂国模压力之人 
+
+按deepswe 5.6sol还被4.1f打平呢 openai怎么办啊
+

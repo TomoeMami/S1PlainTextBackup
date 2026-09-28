@@ -13187,3 +13187,20 @@ A少线转了天马
 
 那么合并的时候这三个职业都算掌握吗？还是只保留一个其他的要重新花费道具转？
 
+
+*****
+
+####  5ew47  
+##### 5628#       发表于 2026-9-28 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297612&amp;ptid=2261859" target="_blank">Beaverfan01 发表于 2026-9-28 21:02</a>
+127131份。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">初动卖的不错呀，看后续势头了
+
+*****
+
+####  reficul  
+##### 5629#       发表于 2026-9-28 21:31
+
+每周周常的喂鸟和演戏好烦，已经开始被我忽视过去了
+
