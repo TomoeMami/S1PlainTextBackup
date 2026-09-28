@@ -2897,3 +2897,13 @@ https://m.ithome.com/html/1007727.html
 
 本地部署了deepseek v4flash0731 vision了。感觉良好。
 
+
+*****
+
+####  艾诺琳  
+##### 15056#       发表于 2026-9-28 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295576&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-9-28 12:07</a>
+本地部署了deepseek v4flash0731 vision了。感觉良好。</blockquote>
+什么配置，速度如何
+

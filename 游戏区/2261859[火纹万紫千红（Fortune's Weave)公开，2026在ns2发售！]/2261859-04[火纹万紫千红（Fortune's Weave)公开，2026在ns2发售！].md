@@ -12205,3 +12205,45 @@ A少:“你爹强吗？”
 
 等一下你就笑不出来了。
 
+
+*****
+
+####  纯夏  
+##### 5549#       发表于 2026-9-28 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295464&amp;ptid=2261859" target="_blank">ミズタ 发表于 2026-9-28 11:43</a>
+
+通关了，A少确实牛啤，一发流星破半盾boss一条血，最后好像boss就硬吃了A少五发流星，武器都砍没好几把
+
+ ...</blockquote>
+你这A少练的等级太高 等级碾压了 
+
+霸罗尔我是破盾后让自捏破天绝祸轰的 一轰一条血 也挺爽的 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  saberserker  
+##### 5550#       发表于 2026-9-28 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70293923&amp;ptid=2261859" target="_blank">jockeyjoestar 发表于 2026-9-28 01:21</a>
+
+**的 迪哥出海任务  去探了旁边30级的洞窟  他妈的出海时间不够要重打  点重新开始本章就是120回合全部重来 ...</blockquote>
+这作得把云存档当第二存档用，每次要做选择时候都得备份一下以防重打
+
+
+*****
+
+####  ミズタ  
+##### 5551#       发表于 2026-9-28 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70295617&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-9-28 12:16</a>
+
+你这A少练的等级太高 等级碾压了 
+
+霸罗尔我是破盾后让自捏破天绝祸轰的 一轰一条血 也挺爽的   ...</blockquote>
+看右上角小地图就能看出来，其实战局是崩的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+最终战除了A少和自捏其他角色都打不太动，所以boss到了斩杀线就直接靠A少一波强杀
+
+主要是第三部着急推剧情，一切每周刷新的点就没碰，导致其他角色性能落后不少
+

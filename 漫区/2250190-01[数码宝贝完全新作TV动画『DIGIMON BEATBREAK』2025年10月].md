@@ -222,3 +222,13 @@ dbb作为ds的一种“精神续作”算是完全没有延续到任何精神，
 货比货得扔……</blockquote>
 好雷霆的正脸。画师画的时候真没笑吗
 
+
+*****
+
+####  粉儿alice  
+##### 842#       发表于 2026-9-28 12:24
+
+轮回兽这合体玩意是怎么设计出来的….
+
+还是那句话能不能把柴田山口这两位大神拉回去隔壁来打吧 不去拍写现在特摄还是太“惜才”惹<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
