@@ -13525,3 +13525,20 @@ engage也没有版权信息显示unity吧，engage我还是解包看的，而且
 
 根本压不住经验<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无知的小鼠人  
+##### 5659#       发表于 2026-9-29 03:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298584&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-29 02:37</a>
+
+我是女王线41均等进第二部，现在6章平均47了，等级爆炸
+
+根本压不住经验</blockquote>
+D线进第二章，刚开始还想着控经验
+
+之后放弃思考，把D少往前面一丢，达古渣直接砍死，都五十五级了
+
+往好处想，就是不缺这点成长了，已经够爆炸了
+

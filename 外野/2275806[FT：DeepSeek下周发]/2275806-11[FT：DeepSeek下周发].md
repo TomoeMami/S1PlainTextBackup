@@ -3803,3 +3803,26 @@ aa榜sonnet5.5都能打astra了<img src="https://static.stage1st.com/image/smile
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  RookieTnT  
+##### 15135#       发表于 2026-9-29 03:19
+
+我反正是明白了，O/这种伪君子就得被A/这种这小人给牢牢踩头才会伪装好好对用户，/起来比A/花多了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  RookieTnT  
+##### 15136#       发表于 2026-9-29 03:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298587&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-29 02:44</a>
+aa榜sonnet5.5都能打astra了
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99</blockquote>
+aa 榜在 gpt astra 换分事件后就是野榜了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
