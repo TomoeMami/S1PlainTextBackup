@@ -2994,3 +2994,11 @@ wrnm别来蹭cowboy bebop。<img src="https://static.stage1st.com/image/smiley/n
 
 —— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  yangxu  
+##### 289#       发表于 2026-9-29 13:10
+
+成品里面还不定塞了多少zzzq的玩意恶心人。而且duckman那尿性，说不定还会和tlou2一样，把自己带入游戏某角色再体验一把后入母金刚的桥段。
+

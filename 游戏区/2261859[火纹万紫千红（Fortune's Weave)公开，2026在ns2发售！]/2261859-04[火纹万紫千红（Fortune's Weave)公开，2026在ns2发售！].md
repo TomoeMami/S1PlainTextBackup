@@ -13870,3 +13870,14 @@ L难度希望把日常流程砍了 就留线性战斗，或者像第二章的安
 
 除非选魔骑。
 
+
+*****
+
+####  bad_alloc  
+##### 5691#       发表于 2026-9-29 13:09
+
+绷不住了，这作重甲移动术+2移动以后，重甲6移动，普通步兵5移动，骑兵飞兵6移动，重甲跑得跟天马一样快<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+巴西初音可惜学不到重甲移动术，作战的时候还是转卫士/鸵鸟/天马会舒服点
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
