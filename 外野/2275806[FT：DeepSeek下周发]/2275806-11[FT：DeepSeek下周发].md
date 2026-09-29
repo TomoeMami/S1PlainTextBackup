@@ -4672,3 +4672,50 @@ Code 199套餐，5小时实际1小时就能把额度用完，</blockquote>
 
 另外，订阅模式就是赔本赚吆喝已经可以坐实了，特别是取消5h，基本没人长期撑得住。a/也不可能继续这种订阅拉客模式，合理健康的订阅可能最多只能给api三倍额度，当然，没人用了营收更少是不是更药丸是另一个问题。
 
+
+*****
+
+####  RookieTnT  
+##### 15215#       发表于 2026-9-29 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300902&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-29 15:52</a>
+
+我其实看懂了，意思是以前你有五小时限额，所以其实多数人跑不满月限额，之前为了营销取消了五小时限额， ...</blockquote>
+不用那么复杂. 就是20x砍到10x 顺便提一下gpt-6-sol比gpt-5.6-sol降价50% 这就是 他说的所谓"额度没有变"
+
+就是文字游戏.
+
+*****
+
+####  RookieTnT  
+##### 15216#       发表于 2026-9-29 16:02
+
+6-sol和6-luna是人能用的模型吗? 
+
+astra算一流但是20x用户都不配用，合着都去订你家50x套餐呗
+
+*****
+
+####  jinuzuktII  
+##### 15217#       发表于 2026-9-29 16:05
+
+这一波 A/ 笑麻了
+
+*****
+
+####  lactone  
+##### 15218#       发表于 2026-9-29 16:05
+
+tibo不是说会有不消耗使用量的功能
+
+难道是luna免费<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  malisa  
+##### 15219#       发表于 2026-9-29 16:06
+
+再这么瞎搞的话，又要 code red 了
+

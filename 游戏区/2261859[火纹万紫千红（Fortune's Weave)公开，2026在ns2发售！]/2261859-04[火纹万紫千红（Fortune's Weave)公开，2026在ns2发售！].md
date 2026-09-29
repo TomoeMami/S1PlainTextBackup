@@ -14273,3 +14273,22 @@ A少进应该是能收小红小绿的
 游戏刚到手，有什么需要提前注意的吗，只玩过风花雪月</blockquote>
 总之不要凯伊开荒<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  索非亚  
+##### 5724#       发表于 2026-9-29 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300753&amp;ptid=2261859" target="_blank">みさ 发表于 2026-9-29 15:25</a>
+
+游戏刚到手，有什么需要提前注意的吗，只玩过风花雪月</blockquote>
+第一部参战人员最后要9-10人，可以少上。
+
+第二部参战人员最后14人，不选满会强制帮你补上可操作npc，练度很差甚至不能提前分配装备。
+
+第二部战斗经验很高，平均能升个7、8级，最上级职业45级可转职但要到第三部才解锁。所以介意等级超出太多没转职损失成长的第一部等级尽量压在40前。
+
+挖角有名声限制，跟章节进度强绑定。大致名声7以后才能挖角的选手就不建议做主力培养了，跟章节进度自动升级不含职业成长补正，所以后期可挖的角色属性很低。
+
+[https://docs.qq.com/sheet/DV0N0V ... lc=1&amp;tab=BB08J2](https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?u=e1aebaebf97d44e4a668f312ed1793bc&amp;nlc=1&amp;tab=BB08J2)
+
