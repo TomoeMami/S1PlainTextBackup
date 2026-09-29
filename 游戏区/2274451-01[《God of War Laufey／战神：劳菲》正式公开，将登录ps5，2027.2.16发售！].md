@@ -3392,3 +3392,13 @@ Domo！God slayer desuwa！
 
 第一方带头，看看其他新游戏和那些日产老顽固怎么变化
 
+
+*****
+
+####  lkvdea  
+##### 338#       发表于 2026-9-29 12:07
+
+有没有可能这玩意的体量就值这个价格
+
+—— 来自 vivo V2408A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

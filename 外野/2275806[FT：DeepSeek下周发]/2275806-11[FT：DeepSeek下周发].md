@@ -4275,3 +4275,24 @@ kimi是他那个kimiwork的包月会员吗？还是直接用网页端，我看AP
 
 不想折腾的话，下载个kimicode，自带内置浏览器和电脑控制
 
+
+*****
+
+####  startraveller  
+##### 15178#       发表于 2026-9-29 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299808&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-29 11:29</a>
+k3.1 29号出的消息到底哪儿来的
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99</blockquote>
+好像是 MaxForAI 说的
+
+*****
+
+####  startraveller  
+##### 15179#       发表于 2026-9-29 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299704&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-29 11:11</a>
+绝对和这个跑分水平不符合…</blockquote>
+还要试试，如果 像 GPT 6 Luna 就拉完了。
+
