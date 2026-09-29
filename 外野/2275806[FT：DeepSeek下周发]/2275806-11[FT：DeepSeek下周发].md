@@ -5299,3 +5299,21 @@ workbuddy的确是毒瘤，把自己注册到了大部分格式文件的关联�
 
 谨慎使用，藤子果然不负众望
 
+
+*****
+
+####  knnknn  
+##### 15269#       发表于 2026-9-29 22:50
+
+不是，6块钱鸡蛋在哪呢？难道被封过号不配拥有吗
+
+*****
+
+####  神必迷你龙  
+##### 15270#       发表于 2026-9-29 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301544&amp;ptid=2275806" target="_blank">med 发表于 2026-9-29 18:10</a>
+
+最近好像把我的账号遗忘了，订阅过期了还在继续用，并且还没更新5小时限额，只有周限额。不知道这个bug什么 ...</blockquote>
+确实是有些账号没有把5小时限额加回来，是属于天选之子了，但是订阅过期还能用就比较可气了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
