@@ -5317,3 +5317,59 @@ workbuddy的确是毒瘤，把自己注册到了大部分格式文件的关联�
 最近好像把我的账号遗忘了，订阅过期了还在继续用，并且还没更新5小时限额，只有周限额。不知道这个bug什么 ...</blockquote>
 确实是有些账号没有把5小时限额加回来，是属于天选之子了，但是订阅过期还能用就比较可气了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 15271#       发表于 2026-9-29 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302808&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-9-29 22:50</a>
+不是，6块钱鸡蛋在哪呢？难道被封过号不配拥有吗</blockquote>
+先退出登陆，再重新登陆试试？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RookieTnT  
+##### 15272#       发表于 2026-9-29 22:58
+
+<img src="https://img.stage1st.com/forum/202609/29/225817jwwoyufducds7uuu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 22:58 上传
+
+国庆期间m3.1对订阅用户免费了
+
+
+*****
+
+####  RookieTnT  
+##### 15273#       发表于 2026-9-29 23:01
+
+之前我买了minimax的套餐用m3给Hermes，感觉都没法用的，现在m3.1 flash执行起来感觉问题不是很大了。然后，我就是3个session一起跑，基本上25分钟就需要5小时重置了，今天晚上蹬了4个小时吧，用了260M了。。。
+
+*****
+
+####  Lazia  
+##### 15274#       发表于 2026-9-29 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302754&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-9-29 22:34</a>
+
+问
+
+如果我想桌面版可以直接接收webui的对话记录
+
+那么该咋整呢，官方有没有迁移教程</blockquote>
+桌面版和web版只是用了不同的profile一个desktop一个web插件在各自的目录下，而会话都在%USERPROFILE%\.dsh\sessions是通用的。
+
+*****
+
+####  neptunehs  
+##### 15275#       发表于 2026-9-29 23:05
+
+星际兔女郎还免费着呢 难道minimax m3.1之前没免费？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
