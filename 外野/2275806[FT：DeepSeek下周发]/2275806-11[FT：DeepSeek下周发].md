@@ -3862,3 +3862,15 @@ AA确实是野榜，但是GPT两个小号模型也确实拉…
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">O/什么时候提一下额度
 
+
+*****
+
+####  startraveller  
+##### 15141#       发表于 2026-9-29 07:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298690&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-29 07:35</a>
+睁眼看看他超的是astra，别说sonnet5.5，信opus5.5比astra强的都是这辈子有了。整个由来是oai这次astra真 ...</blockquote>
+但是 opus 5.5用起来确实不输 astra。 
+
+ds41pro 和 kimi 3.1赶快呀，你们再不出来要输 sonnet 了！
+
