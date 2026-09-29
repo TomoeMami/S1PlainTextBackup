@@ -499,3 +499,11 @@ G世纪原创好多黄机啊，就不能多给点红吗
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 感觉这v2ab又是超级人权,虽然我本来就要抽
 
+
+*****
+
+####  ティグル  
+##### 4758#       发表于 2026-9-29 17:26
+
+限定两个多动怪，高特拉坦数值怪，ult是2V，没啥惊喜
+

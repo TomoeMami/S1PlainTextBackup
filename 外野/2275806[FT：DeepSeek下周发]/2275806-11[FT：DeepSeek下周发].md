@@ -4823,3 +4823,19 @@ kimi今天还是没来啊<img src="https://static.stage1st.com/image/smiley/face
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  RookieTnT  
+##### 15228#       发表于 2026-9-29 17:19
+
+还有一点是codex 上的 Astra和api上的 思考强度 是不一样的.   codex上的会低很多
+
+
+*****
+
+####  RookieTnT  
+##### 15228#       发表于 2026-9-29 17:19
+
+还有一点是codex 上的 Astra和api上的 思考强度 是不一样的.   codex上的会低很多
+
