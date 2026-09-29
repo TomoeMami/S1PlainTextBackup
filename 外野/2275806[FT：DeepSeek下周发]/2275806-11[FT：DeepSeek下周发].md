@@ -5098,3 +5098,13 @@ dsh桌面端这个登录送6元赠金是不是25年年初10块钱之后唯一一
 官网上线桌面端了： 
 [https://www.deepseek.com/download/](https://www.deepseek.com/download/)
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 15253#       发表于 2026-9-29 20:49
+
+ 本帖最后由 巨魔已被忠诚 于 2026-9-29 20:51 编辑 
+
+0.2来了。 PS C:\Windows\System32&gt; npm view @deepseek-ai/dsh复制代码
+
