@@ -4063,3 +4063,13 @@ Sonnet5.5这东西和5.6luna一样，不开最高打不过4.1F，开了以后超
 没有绘图能力的大鲸鱼就硬是被你们这么玩是吧</blockquote>
 Llm用Svg绘图已经被a/炒作大半年了。ds还是瞎子的时候就会画的。最著名的svg画图就是鹈鹕骑车。
 
+
+*****
+
+####  lactone  
+##### 15160#       发表于 2026-9-29 10:32
+
+推上谣言ds，kimi和智谱同时炸炉，都传到橘鸦评论区了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
