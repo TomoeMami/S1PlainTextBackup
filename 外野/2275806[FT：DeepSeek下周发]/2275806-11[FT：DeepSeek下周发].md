@@ -4252,3 +4252,26 @@ k3.1 29号出的消息到底哪儿来的<img src="https://static.stage1st.com/im
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jinuzuktII  
+##### 15176#       发表于 2026-9-29 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299770&amp;ptid=2275806" target="_blank">已被封号 发表于 2026-9-29 11:22</a>
+
+kimi是他那个kimiwork的包月会员吗？还是直接用网页端，我看API有点贵</blockquote>
+包月就好
+
+*****
+
+####  绝地潜兵  
+##### 15177#       发表于 2026-9-29 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299770&amp;ptid=2275806" target="_blank">已被封号 发表于 2026-9-29 11:22</a>
+
+kimi是他那个kimiwork的包月会员吗？还是直接用网页端，我看API有点贵</blockquote>
+继续用DS的API，搭配个好点的agent，效果比chatbox好多了，不用换其他模型.
+
+不想折腾的话，下载个kimicode，自带内置浏览器和电脑控制
+
