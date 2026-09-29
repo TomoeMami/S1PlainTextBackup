@@ -97,3 +97,75 @@
 曲译：基于网易云音乐、QQ音乐各版本综合修订</blockquote>
        [https://www.bilibili.com/video/BV187aq6MENC](https://www.bilibili.com/video/BV187aq6MENC)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42053#       发表于 2026-9-29 20:16
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/29/201602uvlsca42xa9a907x.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-09-29_20-14-34.jpg</strong> (234.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 20:16 上传
+
+       [https://x.com/bang_dream_info/status/2104904032871735379](https://x.com/bang_dream_info/status/2104904032871735379)
+
+       [https://www.youtube.com/watch?v=TIDkVRhdRCQ](https://www.youtube.com/watch?v=TIDkVRhdRCQ)
+
+       <strong>【LIVE DIGEST】MyGO!!!!!×Ave Mujica TWO-MAN 「“moment / memory”」</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/29/201617eorvzrvo07vvrejr.jpg" referrerpolicy="no-referrer">
+
+<strong>3f443e90506754da88c1bd012372f1ef324d1b87.jpg</strong> (258.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 20:16 上传
+
+2026年3月1日(周日)于 Kアリーナ横浜 举办的
+
+MyGO!!!!!×Ave Mujica TWO-MAN LIVE「"moment / memory"」的精选影像。
+
+本影像将会收录于9月30日(周三)发售的Blu-ray中。
+
+★商品情报
+[https://bang-dream.com/discographies/4218/](https://bang-dream.com/discographies/4218/)
+
+【发售日】
+
+2026年9月30日 (周三)
+
+【定价】
+
+「5,000枚限定生産特装版」：19,800日元(含税)
+
+通常版：8,800日元(含税)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica 7th LIVE「Virtus」
+
+2026年10月24日(周六)・25日(周日) @ 京王アリーナ TOKYO
+
+购票：[https://eplus.jp/avemujica_7th/](https://eplus.jp/avemujica_7th/)
+
+详情：[https://bang-dream.com/events/avemujica_7th/](https://bang-dream.com/events/avemujica_7th/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+MyGO!!!!! 9th LIVE「つなぎ目の向こうに」- 神戸再景編 -
+
+2026年11月14日(周六)・15日(周日) @ワールド記念ホール（神戸ポートアイランドホール）
+
+详情：[https://bang-dream.com/events/mygo_9th_hyogo/](https://bang-dream.com/events/mygo_9th_hyogo/)
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+#BanGDream# #MyGO# #AveMujica# #moment_memory#</blockquote>
+       [https://www.bilibili.com/video/BV1hDaH68Evt](https://www.bilibili.com/video/BV1hDaH68Evt)
+

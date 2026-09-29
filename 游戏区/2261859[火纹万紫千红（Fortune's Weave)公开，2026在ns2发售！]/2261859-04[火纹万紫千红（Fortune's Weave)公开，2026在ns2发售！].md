@@ -14732,3 +14732,17 @@ TMD以后再买港邮我吃屎10斤<img src="https://static.stage1st.com/image/s
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日站那两个我发售前几天刷的时候感觉一堆ai生成的内容
 
+
+*****
+
+####  bad_alloc  
+##### 5765#       发表于 2026-9-29 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301921&amp;ptid=2261859" target="_blank">a3a4sc 发表于 2026-9-29 19:55</a>
+啊。。。我是看了两个日本攻略wiki的推荐顺序，两个网站都推荐一周目凯伊开荒，我就选了凯伊
+
+现在已经第七 ...</blockquote>
+其实没所谓的，第一条线本来就要开地图通马桶手忙脚乱，漏东西才是常态<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
