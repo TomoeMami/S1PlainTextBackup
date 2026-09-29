@@ -4948,3 +4948,21 @@ DSH v0.2.0-rc.2 发布了，好快的速度，还有个问题为啥DSH桌面端�
 
 DSH的github里挖出来有个mini档模型
 
+
+*****
+
+####  BarricadeMKXX  
+##### 15238#       发表于 2026-9-29 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301752&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-29 19:09</a>
+
+DSH的github里挖出来有个mini档模型</blockquote>
+说是测试用例，暂时可以散了
+
+*****
+
+####  lilod  
+##### 15239#       发表于 2026-9-29 19:21
+
+ds4f 出来之后我就没有用过任何订阅了，我十分不想一直关注X上的路边一条搁那儿发重置卡
+
