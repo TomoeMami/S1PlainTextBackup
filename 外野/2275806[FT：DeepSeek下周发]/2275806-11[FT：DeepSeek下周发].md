@@ -4423,3 +4423,13 @@ openai也一样
 
 2026-9-29 12:57 上传
 
+
+*****
+
+####  魔法师lain  
+##### 15191#       发表于 2026-9-29 13:30
+
+被qoder那个cli搞死了，本身以为跟qoder cn那边分开的，居然能列那边的会话列表。原本的目标是想流氓之间互相操控，派单和验收。结果cli发信息进去同一个会话，居然是cli那边通，ide那边不通。玩remote control那边是web ui跟tui也是同一会话两边不通，本地tui可发任务但功能限制，webui那边免费账户用不了，简直呕血。
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
