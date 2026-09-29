@@ -5132,3 +5132,50 @@ dsh桌面端这个登录送6元赠金是不是25年年初10块钱之后唯一一
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  Litccc  
+##### 15256#       发表于 2026-9-29 21:09
+
+<img src="https://img.stage1st.com/forum/202609/29/210859eb55jb2ps57hh1gi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 21:08 上传
+
+村里发金条了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  M乔梦  
+##### 15257#       发表于 2026-9-29 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302346&amp;ptid=2275806" target="_blank">弗里德里希大帝 发表于 2026-9-29 21:01</a>
+
+之前装的插件，在桌面版上还有效么？
+
+—— 来自 OnePlus PJZ110, Android 16, 鹅球 v4.0-alpha ...</blockquote>
+分开的，除了对话记录共用和工作区
+
+*****
+
+####  neptunehs  
+##### 15258#       发表于 2026-9-29 21:13
+
+6块连一小时都顶不住啊（
+
+虽然还是会去拿啦（
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  phorcys02  
+##### 15259#       发表于 2026-9-29 21:13
+
+居然能领到DS的鸡蛋，真离谱...
+
