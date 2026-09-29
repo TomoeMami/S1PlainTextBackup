@@ -13778,3 +13778,14 @@ L难度希望把日常流程砍了 就留线性战斗，或者像第二章的安
 
 主线我就当女王+A少是正史，这两不会冲突，外传也是全的。迟点再打打A少的第二部，看看还能不能无双，反正经验压不住了。<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  anyasora  
+##### 5683#       发表于 2026-9-29 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70297402&amp;ptid=2261859" target="_blank">bbluekid 发表于 2026-9-28 20:14</a>
+
+每章节开始跑旅馆存个档用所有回合去训练。提前看看升级加点满意不满意，满意的话只要读个档该怎么玩怎么 ...</blockquote>
+这里转职是指资格考试还是切换职业？是一次资格考试会消耗一次乱数，然后切换回本来的职业就行？
+
