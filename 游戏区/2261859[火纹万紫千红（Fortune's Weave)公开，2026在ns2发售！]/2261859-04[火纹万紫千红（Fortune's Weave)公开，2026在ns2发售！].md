@@ -13933,3 +13933,27 @@ a少线前期招的努蒂努能学骑兵-2移动消耗，我是土匪补力养�
 
 —— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  ミズタ  
+##### 5696#       发表于 2026-9-29 13:49
+
+至今搞不明白，为什么最上级职业黑白魔法会分家，反而是一种削弱了吧
+
+初级、中级和上级都是明明都是黑白魔法互相兼容，而且用惯了前两部之后突然分家后也不习惯了
+
+感觉最上级两个黑白魔法职业就是恶心人来的
+
+好在神将职业又兼容回去了，可惜只有一个
+
+
+*****
+
+####  5ew47  
+##### 5697#       发表于 2026-9-29 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300085&amp;ptid=2261859" target="_blank">Bani82 发表于 2026-9-29 12:41</a>
+天马可以拿雷剑啊</blockquote>
+带着了，雷电剑还是太权威了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
