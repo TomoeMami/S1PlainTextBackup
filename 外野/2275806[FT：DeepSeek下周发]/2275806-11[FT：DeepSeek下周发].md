@@ -5058,3 +5058,23 @@ dsh桌面端这个登录送6元赠金是不是25年年初10块钱之后唯一一
 
 终于能在dsh里用zcode送的免费额度了  不过我这个方法只是用ZCode CLI转发  反正送的额度，白用白不用  就是旧会话，首字来的时间会非常长
 
+
+*****
+
+####  nxmonitor  
+##### 15249#       发表于 2026-9-29 20:07
+
+虽然连知乎的官方账号都复活了，但是暂时不知道为什么？或许只是人力够了呢？
+
+
+*****
+
+####  misuzu0723  
+##### 15250#       发表于 2026-9-29 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301980&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-29 20:07</a>
+虽然连知乎的官方账号都复活了，但是暂时不知道为什么？或许只是人力够了呢？ ...</blockquote>
+显然是为了招人，多一个渠道是一个
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
