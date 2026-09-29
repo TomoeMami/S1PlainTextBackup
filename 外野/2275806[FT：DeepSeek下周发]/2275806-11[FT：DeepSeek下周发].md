@@ -5373,3 +5373,15 @@ workbuddy的确是毒瘤，把自己注册到了大部分格式文件的关联�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  ArthurDent  
+##### 15276#       发表于 2026-9-29 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302833&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-29 22:57</a>
+先退出登陆，再重新登陆试试？</blockquote>
+怎么退出，没找着<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
