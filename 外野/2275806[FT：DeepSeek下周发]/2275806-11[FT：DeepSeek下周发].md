@@ -4128,3 +4128,61 @@ astra才出来不到一个月
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  startraveller  
+##### 15165#       发表于 2026-9-29 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299407&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-29 10:14</a>
+Sonnet5.5这东西和5.6luna一样，不开最高打不过4.1F，开了以后超级雷霆大思考，消耗的token数量极高，有严 ...</blockquote>
+用 xhigh 就好多了，消耗只有 max 的四分之一，也很强，甚至 FrontierCode 在 xhigh 还高点。DSv41f 还是比不过的。
+
+*****
+
+####  cscbzcbz  
+##### 15166#       发表于 2026-9-29 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299625&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-29 10:54</a>
+devday会不会发新模型？我感觉难
+
+astra才出来不到一个月</blockquote>
+腾讯有hy4，有可以搞的基础
+字节？用啥模型搞computer use？豆包嘛<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 15167#       发表于 2026-9-29 11:03
+
+<img src="https://img.stage1st.com/forum/202609/29/105006hfpq52uku5aquffe.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-09-29_10-47-26.jpg</strong> (164.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 10:50 上传
+
+怪不得6luna截断那么厉害
+
+*****
+
+####  已被封号  
+##### 15168#       发表于 2026-9-29 11:04
+
+ 本帖最后由 已被封号 于 2026-9-29 11:05 编辑 
+
+信息搜集、公文写作、根据已有信息研提建议举措、决策辅助等等这类不涉及编程的办公需求，有什么便宜好用的国模推荐吗？最近一直是用chatbox搭配ds4.1f加上anysearch，想试试看其他的模型<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX789J, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tillnight  
+##### 15169#       发表于 2026-9-29 11:05
+
+<blockquote>已被封号 发表于 2026-9-29 11:04
+信息搜集、公文写作、根据已有信息研提建议举措、决策辅助等等这类不涉及编程的办公需求，有什么便宜好用的 ...</blockquote>
+不嫌贵的话kimi
+
