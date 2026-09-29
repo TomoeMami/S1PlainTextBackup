@@ -5931,3 +5931,24 @@ tibo都直接表示要逐渐减少订阅用户和api用户之间的价格差了�
 现在plus用户使用astra的权限估计也进入倒计时了 ...</blockquote>
 A畜 IPO也临近了. 但是他家订阅额度比O畜要高不少啊. 200$ 能用 差不多30B的opus5.5 . 
 
+
+*****
+
+####  andychen  
+##### 15322#       发表于 2026-9-30 02:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303254&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-30 02:35</a>
+
+A畜 IPO也临近了. 但是他家订阅额度比O畜要高不少啊. 200$ 能用 差不多30B的opus5.5 .  ...</blockquote>
+Anthropic的高价套餐是最坑的，200刀周用量只有20刀的6.5倍
+
+*****
+
+####  RookieTnT  
+##### 15323#       发表于 2026-9-30 02:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303258&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-30 02:39</a>
+
+Anthropic的高价套餐是最坑的，200刀周用量只有20刀的6.5倍</blockquote>
+A畜的 额度是按 5小时额度来算的. 所以100$的额度比openai的100$多. 200$目前是打平了.
+
