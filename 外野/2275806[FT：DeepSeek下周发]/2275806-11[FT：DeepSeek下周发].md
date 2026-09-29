@@ -5693,3 +5693,41 @@ grok bot还一直有人吹
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> AI公司一定要有好模型.jpg
 
+
+*****
+
+####  jojog  
+##### 15298#       发表于 2026-9-30 01:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又拉了个jev？
+
+就这？
+
+*****
+
+####  阿刚  
+##### 15299#       发表于 2026-9-30 01:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我他吗真服了硬邦邦对出文有明显提高还行，但是我獭马不想在提示词里放这么个玩意啊
+
+
+*****
+
+####  jojog  
+##### 15300#       发表于 2026-9-30 01:31
+
+[https://openai.com/zh-Hans-CN/index/devday-2026-recap/](https://openai.com/zh-Hans-CN/index/devday-2026-recap/)
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">直播没播完回顾页面以及deploy了
+
+太失望了 难怪打价格战
+
+*****
+
+####  lactone  
+##### 15301#       发表于 2026-9-30 01:33
+
+6.1啥时候上线说了吗？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
