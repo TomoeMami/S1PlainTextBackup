@@ -4900,3 +4900,43 @@ DSH桌面端重新登录下有6块钱，有效期到10月7号
 
 DSH v0.2.0-rc.2 发布了，好快的速度，还有个问题为啥DSH桌面端为啥不做Linux端啊
 
+
+*****
+
+####  serj005  
+##### 15235#       发表于 2026-9-29 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301643&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-9-29 18:38</a>
+DSH v0.2.0-rc.2 发布了，好快的速度，还有个问题为啥DSH桌面端为啥不做Linux端啊 ...</blockquote>
+因为觉得暂时没必要吧，默认linux用户都懂命令行和包管理，都会用dsh web。
+桌面端主要就是给不会用命令行的非专业用户方便。
+
+*****
+
+####  Lazia  
+##### 15236#       发表于 2026-9-29 19:00
+
+都用linux了难道不会自己编译吗<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+应该是这样<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  serj005  
+##### 15235#       发表于 2026-9-29 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301643&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-9-29 18:38</a>
+DSH v0.2.0-rc.2 发布了，好快的速度，还有个问题为啥DSH桌面端为啥不做Linux端啊 ...</blockquote>
+因为觉得暂时没必要吧，默认linux用户都懂命令行和包管理，都会用dsh web。
+桌面端主要就是给不会用命令行的非专业用户方便。
+
+*****
+
+####  Lazia  
+##### 15236#       发表于 2026-9-29 19:00
+
+都用linux了难道不会自己编译吗<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+应该是这样<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
