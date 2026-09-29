@@ -5819,3 +5819,57 @@ K3 前端审美非常好 就是太贵了
 
 openai  太幽默了. 搞了个dots. only 200$ 往上才能用. 可是muse 免费用啊.  发发邮件这些还用astra吗? 
 
+
+*****
+
+####  lmclmc2  
+##### 15311#       发表于 2026-9-30 02:06
+
+dots如果干活也要消耗订阅额度,那..有什么用,一下子完全没搞懂
+
+*****
+
+####  squallx  
+##### 15312#       发表于 2026-9-30 02:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">🐎老板这下就算充一送二也完全没价值了 grok4.7纯一坨 现在全球都在抄grokbot
+
+
+*****
+
+####  RookieTnT  
+##### 15313#       发表于 2026-9-30 02:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303231&amp;ptid=2275806" target="_blank">lmclmc2 发表于 2026-9-30 02:06</a>
+
+dots如果干活也要消耗订阅额度,那..有什么用,一下子完全没搞懂</blockquote>
+才发布：不占用任何额度
+
+一个月后：由于算力不足，我们改为和 Pro 套餐共享额度
+
+两个月后：由于算力不足，我们必须重新购买套餐
+
+预测一下
+
+*****
+
+####  空き地卯木  
+##### 15314#       发表于 2026-9-30 02:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303141&amp;ptid=2275806" target="_blank">整活骑士 发表于 2026-9-30 00:58</a>
+ds4flash 上下文一长，经常无限循环或者突然停止输出，不知道大家有没有遇到过
+
+—— 来自 OnePlus PLK110, ...</blockquote>
+见过一两次吧，印象比较深刻的是做个值守任务，盯了一宿，下半夜就开始控制不住不停让自己安静了
+最近备齐文档每次都是盯着跑短程任务就没这种现象了
+
+*****
+
+####  Quelaan  
+##### 15315#       发表于 2026-9-30 02:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303215&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-30 01:51</a>
+
+K3 前端审美非常好 就是太贵了</blockquote>
+考虑过kimi，但那价格确实离谱啊，是鲸鱼娘好几十倍了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
