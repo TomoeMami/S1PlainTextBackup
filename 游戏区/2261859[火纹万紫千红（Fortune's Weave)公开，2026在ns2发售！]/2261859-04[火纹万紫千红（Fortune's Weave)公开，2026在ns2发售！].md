@@ -14098,3 +14098,39 @@ A少进应该是能收小红小绿的
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Jabeck  
+##### 5709#       发表于 2026-9-29 14:44
+
+小红小绿只有迪特线和雷达线能收好像，第一部要做小绿的任务否则收不了
+
+*****
+
+####  Humpy  
+##### 5710#       发表于 2026-9-29 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300551&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-9-29 14:41</a>
+是的 斧头开罐头有重锤 伤害设计这么低也不知道干嘛的
+
+论坛助手,iPhone</blockquote>
+因为比较轻，前期用用可能还行？我记得我拿到这武器时队伍平均等级还不到十级
+
+*****
+
+####  虚无缥缈的分身  
+##### 5711#       发表于 2026-9-29 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300399&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-9-29 14:05</a>
+
+女王真是逆风翻盘了，游戏宣发期基本上大家投票选女王线的比例最低，结果开售后女王的塑造最好，写出了一个 ...</blockquote>
+虽然拉踩不太好，但是我还是想说个人体感黑皮女王除了颜值远不如红秋裤，其他性格塑造方面真的把红秋裤完爆了吧。红秋裤线我打完都觉得这人当领导不靠谱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 5712#       发表于 2026-9-29 14:48
+
+5重量斧子可能高速技肌无力带个体格戒指混经验补刀可以用用？
+

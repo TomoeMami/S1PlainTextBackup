@@ -4569,3 +4569,22 @@ Work和Code还共享一个池子，你Code天天用满也顶不满月额度，�
 
 节前不能有个大的了嘛<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 15205#       发表于 2026-9-29 14:55
+
+Tibo刚发了推。X20套餐重开，但今后套餐用量只有之前的一半<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 15206#       发表于 2026-9-29 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300493&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-29 14:28</a>
+你们说的硬梆梆跟妈妈在哪用？写代码？还是ds能够直接用blender建模？
+
+—— 来自 vivo V2561A, Android 16 ...</blockquote>
+开一个对话，严肃的在提示词中穿插这个风格：你直接耍起嘛，怎么好怎么来，要让人一看就硬 邦邦，雷霆炫酷，细节拉满，哥们我时间不多，肌肉团队gogogo耍起耍起
+
