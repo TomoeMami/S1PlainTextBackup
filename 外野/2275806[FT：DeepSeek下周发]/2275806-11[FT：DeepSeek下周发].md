@@ -4719,3 +4719,45 @@ tibo不是说会有不消耗使用量的功能
 
 再这么瞎搞的话，又要 code red 了
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 15220#       发表于 2026-9-29 16:07
+
+太畜了，今年从5.2到6，订阅从20美元到100再到200，体感却并没有更耐用。
+
+*****
+
+####  Gmlazy  
+##### 15221#       发表于 2026-9-29 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300902&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-29 15:52</a>
+
+我其实看懂了，意思是以前你有五小时限额，所以其实多数人跑不满月限额，之前为了营销取消了五小时限额， ...</blockquote>
+200刀每月给现在降价的D指导，应该能让我用到昏迷了吧...
+
+最纠结的是不知道D指导在UE5的造诣有多深。
+
+
+*****
+
+####  lactone  
+##### 15222#       发表于 2026-9-29 16:12
+
+ 本帖最后由 lactone 于 2026-9-29 16:15 编辑 
+
+现在tibo和altmann啥都是devday
+一副大的要来了的样子
+
+但是又说没有6.1，那还有什么大的？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  紧那罗  
+##### 15223#       发表于 2026-9-29 16:16
+
+确实感觉额度下降变快了，好像我本来也还用不完，最近还有几张重置卡，要是真不够用了这个月订阅用完跳车<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

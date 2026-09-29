@@ -14292,3 +14292,48 @@ A少进应该是能收小红小绿的
 
 [https://docs.qq.com/sheet/DV0N0V ... lc=1&amp;tab=BB08J2](https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?u=e1aebaebf97d44e4a668f312ed1793bc&amp;nlc=1&amp;tab=BB08J2)
 
+
+*****
+
+####  Humpy  
+##### 5725#       发表于 2026-9-29 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300936&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-29 15:58</a>
+第一部参战人员最后要9-10人，可以少上。
+
+第二部参战人员最后14人，不选满会强制帮你补上可操作npc，练度 ...</blockquote>
+也不一定，像努佐这样的角色即使加入晚属性也不算太差，配合角色个人特性仍然能当主力用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 5726#       发表于 2026-9-29 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300836&amp;ptid=2261859" target="_blank">duraa 发表于 2026-9-29 15:39</a>
+
+总之不要凯伊开荒</blockquote>
+为什么不要凯伊开荒，我看有些讨论凯伊的游戏内容比较少适合新手
+
+*****
+
+####  空气先生  
+##### 5727#       发表于 2026-9-29 16:07
+
+ 本帖最后由 空气先生 于 2026-9-29 16:10 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300969&amp;ptid=2261859" target="_blank">karastar 发表于 2026-9-29 16:07</a>
+
+为什么不要凯伊开荒，我看有些讨论凯伊的游戏内容比较少适合新手</blockquote>
+丁真的局外养成是最多最麻烦的，包括抓坐骑，每日喂坐骑，种菜，收集坐骑饲料（和饲料粪便）
+
+由于马车的超高成长率（吃坐骑双倍成长率，这一部丁真线的坐骑是会给成长率的），很多角色都需要在丁真线挖到然后成为马车人，所以还得大量请客吃饭刷好感度挖角（不用BUG的话会感觉时间完全不够用）
+
+
+*****
+
+####  HazukiShion  
+##### 5728#       发表于 2026-9-29 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300969&amp;ptid=2261859" target="_blank">karastar 发表于 2026-9-29 16:07</a>
+为什么不要凯伊开荒，我看有些讨论凯伊的游戏内容比较少适合新手</blockquote>
+的确适合新手，但是会限制地图，后面想开全图时间紧。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
