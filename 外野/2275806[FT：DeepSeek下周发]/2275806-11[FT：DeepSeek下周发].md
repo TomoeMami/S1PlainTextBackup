@@ -5603,3 +5603,20 @@ ds4flash 上下文一长，经常无限循环或者突然停止输出，不知�
 不管什么模型都尽量控制在250~300k以内用
 我用pi vcc很喜欢160~200就按压缩了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 15289#       发表于 2026-9-30 01:13
+
+devday正在疯狂宣传gpt bots名字叫dots<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  unrealMeeSeeks  
+##### 15290#       发表于 2026-9-30 01:15
+
+Dots不消耗任何用量？神奇，能当codex用吗？
+
