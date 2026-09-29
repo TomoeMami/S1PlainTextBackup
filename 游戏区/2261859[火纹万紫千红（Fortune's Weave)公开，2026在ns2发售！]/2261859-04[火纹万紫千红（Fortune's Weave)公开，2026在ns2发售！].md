@@ -13881,3 +13881,35 @@ L难度希望把日常流程砍了 就留线性战斗，或者像第二章的安
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  mai6696  
+##### 5692#       发表于 2026-9-29 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300198&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-9-29 13:09</a>
+
+绷不住了，这作重甲移动术+2移动以后，重甲6移动，普通步兵5移动，骑兵飞兵6移动，重甲跑得跟天马一样快
+
+巴 ...</blockquote>
+巴卡尼亚就是雷达线跑得最快的。
+
+健步如飞。
+
+遇到树林就不如步兵移动术了。
+
+反倒是骑兵，啥地形都一般，遇到枪或者沙漠还得下马，憋屈得很。
+
+*****
+
+####  bad_alloc  
+##### 5693#       发表于 2026-9-29 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300247&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-29 13:24</a>
+巴卡尼亚就是雷达线跑得最快的。
+
+健步如飞。</blockquote>
+a少线前期招的努蒂努能学骑兵-2移动消耗，我是土匪补力养到35级转弓骑，穿草丛踩沙漠不减移动，走6格能近能远，算是目前玩到的少数好用的骑兵配置了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
