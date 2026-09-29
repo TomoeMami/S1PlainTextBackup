@@ -5770,3 +5770,44 @@ grok bot还一直有人吹
 —— 来自 鹅球 v3.5.99</blockquote>
 应该是之前的 gpt-6-astra-minor 本来想涨价的. 结果 A畜端了个大的出来 吓得只能改名6.1sol了
 
+
+*****
+
+####  Quelaan  
+##### 15306#       发表于 2026-9-30 01:48
+
+最近搓游戏demo，对GPT的UI审美深深的绝望了，谭友有什么搓UI比较好的模型推荐吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">claude想用用不到，国模不太清楚现在是什么情况
+
+*****
+
+####  lactone  
+##### 15307#       发表于 2026-9-30 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303209&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-30 01:45</a>
+应该是之前的 gpt-6-astra-minor 本来想涨价的. 结果 A畜端了个大的出来 吓得只能改名6.1sol了 
+
+gpt-6-so ...</blockquote>
+改名有啥用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">性能摆在那儿
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  久島鴎  
+##### 15308#       发表于 2026-9-30 01:50
+
+500 刀 25 倍是人类想出来的吗 
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  RookieTnT  
+##### 15309#       发表于 2026-9-30 01:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303210&amp;ptid=2275806" target="_blank">Quelaan 发表于 2026-9-30 01:48</a>
+
+最近搓游戏demo，对GPT的UI审美深深的绝望了，谭友有什么搓UI比较好的模型推荐吗claude想用用不到，国模不 ...</blockquote>
+K3 前端审美非常好 就是太贵了
+
