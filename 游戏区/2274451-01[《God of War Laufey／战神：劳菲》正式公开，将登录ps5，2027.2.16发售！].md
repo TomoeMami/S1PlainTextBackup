@@ -3410,3 +3410,25 @@ Domo！God slayer desuwa！
 
 这是港币呀，就是328吧
 
+
+*****
+
+####  乔迪奥  
+##### 340#       发表于 2026-9-29 12:33
+
+ 本帖最后由 乔迪奥 于 2026-9-29 12:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299338&amp;ptid=2274451" target="_blank">nianiania 发表于 2026-9-29 10:04</a>
+
+哇靠真有人觉得这盔甲帅，太牛了
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99</blockquote>
+有点像去年一个非常抽象的法国和风片
+
+<img src="https://img.stage1st.com/forum/202609/29/123718yvnzwvuugylwsnwn.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20260929123710.png</strong> (311.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 12:37 上传
+
