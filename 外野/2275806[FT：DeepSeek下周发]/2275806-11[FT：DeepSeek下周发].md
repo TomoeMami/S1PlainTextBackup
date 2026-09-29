@@ -4242,3 +4242,13 @@ astra才出来不到一个月</blockquote>
 我下半年开始改用kimi后体验还不错，不光公文，论文都能写，比之前用的豆包强了太多 ...</blockquote>
 kimi是他那个kimiwork的包月会员吗？还是直接用网页端，我看API有点贵
 
+
+*****
+
+####  lactone  
+##### 15175#       发表于 2026-9-29 11:29
+
+k3.1 29号出的消息到底哪儿来的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

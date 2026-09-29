@@ -2983,3 +2983,14 @@ wrnm别来蹭cowboy bebop。<img src="https://static.stage1st.com/image/smiley/n
 
 <img src="https://p.sda1.dev/35/bcd8a6588d69ec4bf33072309c810d58/1000174684.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 288#       发表于 2026-9-29 11:27
+
+想了想曾经顽皮狗在玩家心中的地位……
+反观现在……
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
