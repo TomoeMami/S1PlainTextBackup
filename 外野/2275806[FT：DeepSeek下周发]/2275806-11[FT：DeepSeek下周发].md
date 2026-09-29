@@ -4864,3 +4864,19 @@ kimi今天还是没来啊<img src="https://static.stage1st.com/image/smiley/face
 
 cty不是说dsh桌面版会在周一周二发布吗，为啥还没消息<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  med  
+##### 15232#       发表于 2026-9-29 18:10
+
+最近好像把我的账号遗忘了，订阅过期了还在继续用，并且还没更新5小时限额，只有周限额。不知道这个bug什么时候更新，到时候别把我账户ban了 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/29/180953i363o6inrw83v3zz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 18:09 上传
+
