@@ -4542,3 +4542,30 @@ You are a helpful software engineer mom.
 
 我们的提示词……会变成……什么样子……
 
+
+*****
+
+####  qq460262849  
+##### 15202#       发表于 2026-9-29 14:38
+
+对于A、O来说，AI竞争是你死活我的战争<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  问题修士  
+##### 15203#       发表于 2026-9-29 14:42
+
+kimi的群里天天在抱怨429和额度不透明，刷的飞快
+
+Code 199套餐，5小时实际1小时就能把额度用完，
+
+Work和Code还共享一个池子，你Code天天用满也顶不满月额度，逼着用没5小时和周限的Work，然后一不小心，Work把月额度用完，你就干等吧
+
+*****
+
+####  cscbzcbz  
+##### 15204#       发表于 2026-9-29 14:44
+
+节前不能有个大的了嘛<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

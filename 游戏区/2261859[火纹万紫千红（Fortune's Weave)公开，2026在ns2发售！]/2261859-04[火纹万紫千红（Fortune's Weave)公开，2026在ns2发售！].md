@@ -14065,3 +14065,36 @@ A少进应该是能收小红小绿的
 
 2026-9-29 14:31 上传
 
+
+*****
+
+####  Humpy  
+##### 5706#       发表于 2026-9-29 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300509&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-9-29 14:31</a>
+看到别人开的简朴武器箱，有魔法斧战技了，魔枪也有，但是没看到图</blockquote>
+这玩意物攻太低了，战技魔攻还是有点难用
+
+
+*****
+
+####  达达达达葱  
+##### 5707#       发表于 2026-9-29 14:40
+
+<blockquote>エリ 发表于 2026-9-29 14:07
+第二部是要打四遍还是选一个打一遍，其他三个跳过？
+
+四条线重复度高吗请问 ...</blockquote>
+至少打一遍否则没有小红小绿
+
+*****
+
+####  kalavinka  
+##### 5708#       发表于 2026-9-29 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300532&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-9-29 14:37</a>
+这玩意物攻太低了，战技魔攻还是有点难用</blockquote>
+是的 斧头开罐头有重锤 伤害设计这么低也不知道干嘛的<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

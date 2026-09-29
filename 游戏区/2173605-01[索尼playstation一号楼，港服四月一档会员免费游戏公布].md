@@ -144,3 +144,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还好，记得以前战神2018还是398港币买的，这价格改回去了对玩家是好事
 
+
+*****
+
+####  clover293  
+##### 836#       发表于 2026-9-29 14:36
+
+其实官价388了，估计实体也是这个价。再加上pdd估计首发就能2开头了
+
+看看索尼放弃实体要不要推迟了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
