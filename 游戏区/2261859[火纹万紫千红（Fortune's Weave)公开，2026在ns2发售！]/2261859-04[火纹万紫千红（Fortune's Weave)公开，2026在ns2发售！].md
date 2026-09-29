@@ -14582,3 +14582,13 @@ A少进应该是能收小红小绿的
 
 凯伊开局的瑟瑟发抖= =
 
+
+*****
+
+####  bbluekid  
+##### 5749#       发表于 2026-9-29 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301413&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-29 17:39</a>
+雷达线有两组人登场是在城里逛街的时候跑到特定点位触发事件。一个是绿毛商会长，另一个是谁我忘了，好像是 ...</blockquote>
+序章那两个确实需要再临
+
