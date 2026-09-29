@@ -5213,3 +5213,29 @@ dsh桌面端这个登录送6元赠金是不是25年年初10块钱之后唯一一
 
 这段时间图便宜，一直在用火山方舟的glm5.3flash，刚领了DS的鸡蛋，还是这边有窜稀的快感。
 
+
+*****
+
+####  奈落的孤火花  
+##### 15263#       发表于 2026-9-29 21:49
+
+Kimi K2.8。真没想到，这什么年代了，模型还能陷入无限循环。
+
+<img src="https://img.stage1st.com/forum/202609/29/214853njg24xpj5jsibbab.png" referrerpolicy="no-referrer">
+
+<strong>54983.png</strong> (25.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 21:48 上传
+
+当然也不止Kimi，我几周前还见过opus 4.8无限循环了，我怀疑opus 4.8当时被降智了。
+
+<img src="https://img.stage1st.com/forum/202609/29/214948dvrv6fragssftqff.png" referrerpolicy="no-referrer">
+
+<strong>55316.png</strong> (61.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 21:49 上传
+
