@@ -14866,3 +14866,42 @@ TMD以后再买港邮我吃屎10斤</blockquote>
 外传/回声是卢卡吧</blockquote>
 感觉这作几个重甲定位也不一样，也没说谁必定是谁的上位替代
 
+
+*****
+
+####  纯夏  
+##### 5776#       发表于 2026-9-29 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302467&amp;ptid=2261859" target="_blank">reficul 发表于 2026-9-29 21:26</a>
+
+哎，我晕了，上级职业要怎么选？我的妮捏和巴西初音中级是骑甲鸵，上级是神鸵？升级条件需要黑魔法B开什么 ...</blockquote>
+巴西初音上级转巨型重甲 荣光骑 重装骑都行 她实在太好用了  我是转的巨型重甲
+
+妮涅我是转的骑甲鸵再转的卫士
+
+粉天马转土匪的话 上级可以转驭龙再转圣天马骑士
+
+
+*****
+
+####  纯夏  
+##### 5777#       发表于 2026-9-29 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302483&amp;ptid=2261859" target="_blank">reficul 发表于 2026-9-29 21:29</a>
+
+还有黑魔法转神鸵还是转先知？神鸵我还养了只黑鸵鸟，感觉加成比先知的5点魔力好 ...</blockquote>
+黑魔法我是转的先知 黑魔法毕竟魔力就是火力 主要我没养黑鸵鸟<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  reficul  
+##### 5778#       发表于 2026-9-29 22:01
+
+<blockquote>纯夏 发表于 2026-9-29 21:54
+巴西初音上级转巨型重甲 荣光骑 重装骑都行 她实在太好用了  我是转的巨型重甲
+
+妮涅我是转的骑甲鸵再转的 ...</blockquote>
+驭龙的成长看起来还不如土匪= =
+
+初音那边则是喂了好久的鸵鸟舍不得就这么放弃了，转骑士还得重新再喂一匹马OTL真是艰难
+
