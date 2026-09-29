@@ -6047,3 +6047,22 @@ Closeai先别给用户降智路由到低端模型再吹牛逼吧
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  benhawk  
+##### 15333#       发表于 2026-9-30 07:19
+
+ai使用新手，我想提问仅用各家app。从文本推理，再构成，汇总整理这种角度，哪家最好
+
+*****
+
+####  半江瑟瑟半江红  
+##### 15334#       发表于 2026-9-30 07:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303371&amp;ptid=2275806" target="_blank">benhawk 发表于 2026-9-30 07:19</a>
+ai使用新手，我想提问仅用各家app。从文本推理，再构成，汇总整理这种角度，哪家最好 ...</blockquote>
+Gpt和kimi
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
