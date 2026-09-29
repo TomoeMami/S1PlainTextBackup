@@ -4940,3 +4940,11 @@ DSH v0.2.0-rc.2 发布了，好快的速度，还有个问题为啥DSH桌面端�
 
 应该是这样<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 15237#       发表于 2026-9-29 19:09
+
+DSH的github里挖出来有个mini档模型
+
