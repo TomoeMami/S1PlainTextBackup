@@ -3882,3 +3882,21 @@ ds41pro 和 kimi 3.1赶快呀，你们再不出来要输 sonnet 了！
 
 deepseek-flash已经满足我99%的需求了——实际上是100%，不过我留了一点余地。中美各畜与我何干哉？
 
+
+*****
+
+####  cscbzcbz  
+##### 15143#       发表于 2026-9-29 08:56
+
+3.1几点发布<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  malisa  
+##### 15144#       发表于 2026-9-29 09:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">O/太拉，是个人都能踩一脚了
+
+今天devday如果只发个小龙虾和500刀订阅的话，大概率💊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
