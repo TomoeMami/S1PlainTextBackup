@@ -4433,3 +4433,30 @@ openai也一样
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  FACS  
+##### 15192#       发表于 2026-9-29 13:56
+
+硬邦邦提示词那个视频下面说喊妈妈加油也不错，但怎么好像不太对<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202609/29/135531epzqq7ooz1qygtz1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 13:55 上传
+
+*****
+
+####  xuanwu_lei  
+##### 15193#       发表于 2026-9-29 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299770&amp;ptid=2275806" target="_blank">已被封号 发表于 2026-9-29 11:22</a>
+kimi是他那个kimiwork的包月会员吗？还是直接用网页端，我看API有点贵</blockquote>
+网页和work都是黑条，优点是直出，缺点是用得飞快
+
+workbuddy接的是code，用蓝条，优点是量大管饱，缺点是少了一堆原生skill没法达到月之暗面的宣传效果
+
