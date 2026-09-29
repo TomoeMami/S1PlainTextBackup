@@ -4073,3 +4073,16 @@ Llm用Svg绘图已经被a/炒作大半年了。ds还是瞎子的时候就会画�
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  overflowal  
+##### 15161#       发表于 2026-9-29 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299512&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-29 10:32</a>
+
+推上谣言ds，kimi和智谱同时炸炉，都传到橘鸦评论区了
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99- ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">炸，都可以炸
+
