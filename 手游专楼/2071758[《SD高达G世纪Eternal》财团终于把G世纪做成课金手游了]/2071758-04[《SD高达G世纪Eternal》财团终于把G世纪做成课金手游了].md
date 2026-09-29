@@ -588,3 +588,13 @@ G世纪原创好多黄机啊，就不能多给点红吗
 —— 来自 Xiaomi 23049RAD8C, Androi ...</blockquote>
 模块化先驱，强不强另说，脑洞是V里头一号的大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 4767#       发表于 2026-9-30 00:42
+
+V反派那堆歪瓜裂枣最出圈就多格拉吧，还有台赞尼克，后面决战那几台反派机反而像杂兵
+
+不过这次给了台橙色水中用，绿色那台只有sr的话，难道以后挑战还有一台ssr？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
