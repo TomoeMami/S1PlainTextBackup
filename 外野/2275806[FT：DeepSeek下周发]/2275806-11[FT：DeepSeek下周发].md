@@ -5108,3 +5108,27 @@ dsh桌面端这个登录送6元赠金是不是25年年初10块钱之后唯一一
 
 0.2来了。 PS C:\Windows\System32&gt; npm view @deepseek-ai/dsh复制代码
 
+
+*****
+
+####  jyj256  
+##### 15254#       发表于 2026-9-29 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302157&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-9-29 20:35</a>
+
+赠金已到账
+
+你已获得 6 元赠金，有效期到 2026-10-06 20:31（北京时间）
+
+这是准备要推广dsh客户端了？登陆 ...</blockquote>
+不知道未来会不会出套餐
+
+*****
+
+####  弗里德里希大帝  
+##### 15255#       发表于 2026-9-29 21:01
+
+之前装的插件，在桌面版上还有效么？
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
