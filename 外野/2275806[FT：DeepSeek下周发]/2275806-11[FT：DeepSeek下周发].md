@@ -5011,3 +5011,23 @@ dsh桌面端这个登录送6元赠金是不是25年年初10块钱之后唯一一
 
 现在看可能危险…
 
+
+*****
+
+####  cscbzcbz  
+##### 15245#       发表于 2026-9-29 19:48
+
+大的不来来个mini也行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+另外谢谢梁圣的6元<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">领到了
+
+
+*****
+
+####  艾诺琳  
+##### 15246#       发表于 2026-9-29 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301798&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-29 19:26</a>
+dsh桌面端这个登录送6元赠金是不是25年年初10块钱之后唯一一次送余额？</blockquote>
+怎么看送了没？
+

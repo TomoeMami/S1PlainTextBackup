@@ -14693,3 +14693,13 @@ A少进应该是能收小红小绿的
 喷了，那个狱头样子倒是奸诈，其实是好人啊。</blockquote>
 他们也是玩命的，吃好点总没错?
 
+
+*****
+
+####  Asukalangley33  
+##### 5761#       发表于 2026-9-29 19:48
+
+预购的港直邮刚刚才拿到卡带
+
+TMD以后再买港邮我吃屎10斤<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
