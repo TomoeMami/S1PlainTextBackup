@@ -5620,3 +5620,76 @@ devday正在疯狂宣传gpt bots名字叫dots<img src="https://static.stage1st.c
 
 Dots不消耗任何用量？神奇，能当codex用吗？
 
+
+*****
+
+####  lactone  
+##### 15291#       发表于 2026-9-30 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303168&amp;ptid=2275806" target="_blank">unrealMeeSeeks 发表于 2026-9-30 01:15</a>
+Dots不消耗任何用量？神奇，能当codex用吗？</blockquote>
+豆包手机也只要订阅费，流量无限的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  jojog  
+##### 15292#       发表于 2026-9-30 01:19
+
+什么玩意
+
+只限100刀起，然后这就给了一个workbuddy+飞书？
+
+看直播都冷场了…………
+
+
+*****
+
+####  unrealMeeSeeks  
+##### 15293#       发表于 2026-9-30 01:20
+
+可能对话不消耗，让它干活还是会调用codex消耗用量吧
+
+*****
+
+####  RookieTnT  
+##### 15294#       发表于 2026-9-30 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303174&amp;ptid=2275806" target="_blank">jojog 发表于 2026-9-30 01:19</a>
+
+什么玩意
+
+只限100刀起，然后这就给了一个workbuddy+飞书？</blockquote>
+grok bot还一直有人吹 
+
+这种bot 普通人真的很大需求吗? 
+
+*****
+
+####  unrealMeeSeeks  
+##### 15295#       发表于 2026-9-30 01:24
+
+ 本帖最后由 unrealMeeSeeks 于 2026-9-30 01:25 编辑 
+
+太变态了，500刀只是25倍
+之前还猜50还是60，太畜了
+
+*****
+
+####  lactone  
+##### 15296#       发表于 2026-9-30 01:24
+
+6sol存活时间一周<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+这个6.1sol应该是修bug的6sol
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  RookieTnT  
+##### 15297#       发表于 2026-9-30 01:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> AI公司一定要有好模型.jpg
+
