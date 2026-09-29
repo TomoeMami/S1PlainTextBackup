@@ -13923,3 +13923,13 @@ a少线前期招的努蒂努能学骑兵-2移动消耗，我是土匪补力养�
 
 干脆不上场，靠蹭山洞经验升级了
 
+
+*****
+
+####  绕指流光  
+##### 5695#       发表于 2026-9-29 13:46
+
+今天看了个视频才注意到方尖碑选人界面的背景音乐居然是分别配器的，有笛子，小提琴，电吉他和萨克斯，相当符合人物个性了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
