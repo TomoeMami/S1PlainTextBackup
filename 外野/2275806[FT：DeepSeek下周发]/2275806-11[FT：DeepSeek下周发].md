@@ -5731,3 +5731,42 @@ grok bot还一直有人吹
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  RookieTnT  
+##### 15302#       发表于 2026-9-30 01:37
+
+当你觉得压力太大的时候不妨看看台上戴墨镜的那个哥们
+
+
+*****
+
+####  jojog  
+##### 15303#       发表于 2026-9-30 01:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看不下去了 太难受了
+
+这哥们做的演示有一项成功的么？
+
+*****
+
+####  qz66618  
+##### 15304#       发表于 2026-9-30 01:44
+
+这6.1不会是原本的6.0sol吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  RookieTnT  
+##### 15305#       发表于 2026-9-30 01:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303208&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-9-30 01:44</a>
+
+这6.1不会是原本的6.0sol吧
+
+—— 来自 鹅球 v3.5.99</blockquote>
+应该是之前的 gpt-6-astra-minor 本来想涨价的. 结果 A畜端了个大的出来 吓得只能改名6.1sol了
+
