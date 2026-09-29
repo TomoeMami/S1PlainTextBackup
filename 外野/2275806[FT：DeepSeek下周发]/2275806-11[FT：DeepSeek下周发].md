@@ -5901,3 +5901,33 @@ tibo都直接表示要逐渐减少订阅用户和api用户之间的价格差了�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jojog  
+##### 15319#       发表于 2026-9-30 02:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐，spaceX立刻就把  dot.com  这个域名给买了
+
+*****
+
+####  andychen  
+##### 15320#       发表于 2026-9-30 02:33
+
+随着ipo临近，订阅用户的权益肯定是越来越差
+
+现在plus用户使用astra的权限估计也进入倒计时了
+
+
+*****
+
+####  RookieTnT  
+##### 15321#       发表于 2026-9-30 02:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303251&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-30 02:33</a>
+
+随着ipo临近，订阅用户的权益肯定是越来越差
+
+现在plus用户使用astra的权限估计也进入倒计时了 ...</blockquote>
+A畜 IPO也临近了. 但是他家订阅额度比O畜要高不少啊. 200$ 能用 差不多30B的opus5.5 . 
+
