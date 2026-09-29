@@ -5273,3 +5273,29 @@ Kimi K2.8。真没想到，这什么年代了，模型还能陷入无限循环�
 
 我现在能想到的就是让webui调模型自己修自己
 
+
+*****
+
+####  宅男的爱  
+##### 15267#       发表于 2026-9-29 22:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302754&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-9-29 22:34</a>
+
+问
+
+如果我想桌面版可以直接接收webui的对话记录
+
+那么该咋整呢，官方有没有迁移教程</blockquote>
+巧了，我正在和大蓝鱼掰头大黑鱼的迁移的事情
+
+如果前一个Harness你不打算用了，大蓝鱼意思是去大黑鱼插件市场直接用迁移插件
+
+*****
+
+####  Lucario  
+##### 15268#       发表于 2026-9-29 22:43
+
+workbuddy的确是毒瘤，把自己注册到了大部分格式文件的关联打开里面了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+谨慎使用，藤子果然不负众望
+

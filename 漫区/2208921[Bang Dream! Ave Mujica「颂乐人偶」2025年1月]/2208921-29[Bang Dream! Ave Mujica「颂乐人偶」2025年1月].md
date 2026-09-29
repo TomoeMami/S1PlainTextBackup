@@ -169,3 +169,40 @@ MyGO!!!!! 9th LIVE「つなぎ目の向こうに」- 神戸再景編 -
 #BanGDream# #MyGO# #AveMujica# #moment_memory#</blockquote>
        [https://www.bilibili.com/video/BV1hDaH68Evt](https://www.bilibili.com/video/BV1hDaH68Evt)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42054#       发表于 2026-9-29 22:45
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/29/224504n00a3betzwh0jj3h.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-09-29_22-41-01.jpg</strong> (277.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 22:45 上传
+
+       [https://x.com/bushi_kujiroad/status/2104888928562012416](https://x.com/bushi_kujiroad/status/2104888928562012416)
+
+*****
+
+####  堀内爱里衣  
+##### 42055#       发表于 2026-9-29 22:45
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/29/224527p1k31s5gb1ggm5ml.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-09-29_22-43-56.jpg</strong> (306.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 22:45 上传
+
+       [https://x.com/bushi_kujiroad/status/2104892016417268147](https://x.com/bushi_kujiroad/status/2104892016417268147)
+
+       [https://bcr10th.bushiroad-creative.com/](https://bcr10th.bushiroad-creative.com/)
+
