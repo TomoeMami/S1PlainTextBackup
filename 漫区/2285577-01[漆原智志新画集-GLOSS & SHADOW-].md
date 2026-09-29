@@ -23,3 +23,13 @@
 
 他还画变形金刚？
 
+
+*****
+
+####  vorfeed  
+##### 45#       发表于 2026-9-29 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301204&amp;ptid=2285577" target="_blank">Demi.Albertini 发表于 2026-9-29 16:50</a>
+他还画变形金刚？</blockquote>
+他参与过变形金刚电影版  宇宙大帝吞食星球和变形的部分都是他画的
+
