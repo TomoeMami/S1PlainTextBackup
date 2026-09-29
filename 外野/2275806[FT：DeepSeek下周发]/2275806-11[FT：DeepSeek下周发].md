@@ -5031,3 +5031,30 @@ dsh桌面端这个登录送6元赠金是不是25年年初10块钱之后唯一一
 dsh桌面端这个登录送6元赠金是不是25年年初10块钱之后唯一一次送余额？</blockquote>
 怎么看送了没？
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 15247#       发表于 2026-9-29 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301909&amp;ptid=2275806" target="_blank">艾诺琳 发表于 2026-9-29 19:53</a>
+
+怎么看送了没？</blockquote>
+重新登录可以看见领取提示
+
+
+*****
+
+####  jyj256  
+##### 15248#       发表于 2026-9-29 20:00
+
+<img src="https://img.stage1st.com/forum/202609/29/175016h6x7w9nlat77xwrw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 17:50 上传
+
+终于能在dsh里用zcode送的免费额度了  不过我这个方法只是用ZCode CLI转发  反正送的额度，白用白不用  就是旧会话，首字来的时间会非常长
+
