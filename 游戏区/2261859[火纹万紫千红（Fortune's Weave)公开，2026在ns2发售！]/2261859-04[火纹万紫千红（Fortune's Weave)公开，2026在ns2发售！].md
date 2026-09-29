@@ -14263,3 +14263,13 @@ A少进应该是能收小红小绿的
 
 第2部不能挖角 第1部12章结束前把想要的角色挖完 四位主角在其它主角篇的第1部无法招募
 
+
+*****
+
+####  duraa  
+##### 5723#       发表于 2026-9-29 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300753&amp;ptid=2261859" target="_blank">みさ 发表于 2026-9-29 15:25</a>
+游戏刚到手，有什么需要提前注意的吗，只玩过风花雪月</blockquote>
+总之不要凯伊开荒<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

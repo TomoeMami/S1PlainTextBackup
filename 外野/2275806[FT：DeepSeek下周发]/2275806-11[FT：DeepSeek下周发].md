@@ -4630,3 +4630,31 @@ Code 199套餐，5小时实际1小时就能把额度用完，</blockquote>
 
 其实月之暗面是最应该去做类似manus的产品的，现在趁着manus发2.0和meta上个人agent车的东风把产品做起来是个不错的机会
 
+
+*****
+
+####  HazukiShion  
+##### 15211#       发表于 2026-9-29 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299512&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-29 10:32</a>
+推上谣言ds，kimi和智谱同时炸炉，都传到橘鸦评论区了
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99- ...</blockquote>
+上次 k3 出之前是不是也有 Kimi 炸炉的说法。<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 15212#       发表于 2026-9-29 15:40
+
+又快四点了，还有没有大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Gmlazy  
+##### 15213#       发表于 2026-9-29 15:43
+
+外国佬也看不明白Tibo讲的什么。平衡了。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
