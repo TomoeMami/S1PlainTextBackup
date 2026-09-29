@@ -4391,3 +4391,19 @@ AI公司一定要有好模型.jpg
 
 openai也一样
 
+
+*****
+
+####  lactone  
+##### 15189#       发表于 2026-9-29 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300087&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-29 12:42</a>
+没有大的. sol出来之前也一直说很兴奋. 
+
+实际上他们内部根本没人用这模型. 基础的识图有问题都隔了几天 ...</blockquote>
+如果oa能做一个好的trailer，那还是可以的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在不都是trailer吗
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
