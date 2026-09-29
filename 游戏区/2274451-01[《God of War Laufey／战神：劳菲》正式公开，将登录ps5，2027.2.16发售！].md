@@ -3306,3 +3306,18 @@ Domo！God slayer desuwa！
 因为之前有传闻提尔是可操作人物，有提尔可能武器就少？没提尔武器可能就还有一 ...</blockquote>
 免费dlc里提尔不是武器大师么
 
+
+*****
+
+####  herryk159  
+##### 327#       发表于 2026-9-29 09:33
+
+这紫色一眼想起了龙腾四<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，怎么回事儿呢
+
+*****
+
+####  卡拉德利姆  
+##### 328#       发表于 2026-9-29 09:37
+
+同一个时代 甚至同一拨人的审美倾向
+

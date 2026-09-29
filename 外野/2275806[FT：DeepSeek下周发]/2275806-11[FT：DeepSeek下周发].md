@@ -3916,3 +3916,35 @@ deepseek-flash已经满足我99%的需求了——实际上是100%，不过我�
 
 WTF……
 
+
+*****
+
+####  startraveller  
+##### 15146#       发表于 2026-9-29 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298922&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-29 08:56</a>
+3.1几点发布</blockquote>
+貌似现在已经出现在 workbuddy 的 api 接口了，感觉能打 sonnet 55就是胜利。
+
+
+*****
+
+####  cyberalogo  
+##### 15147#       发表于 2026-9-29 09:33
+
+笑死，昨晚更新DSH后问它有什么重大更新，它去抓取网页总结说这是破坏性回归，导致之前的插件全部失效。然后顺手查看了我的会话，说你的会话居然全部躲过了没坏。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+感觉DSH真是充满吐槽欲望，之前喂给它WorkBuddy做的Skill它也是一边吐槽做得也太烂了一边给我修。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RookieTnT  
+##### 15148#       发表于 2026-9-29 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298690&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-29 07:35</a>
+
+睁眼看看他超的是astra，别说sonnet5.5，信opus5.5比astra强的都是这辈子有了。整个由来是oai这次astra真 ...</blockquote>
+不说比他强 和他五五开是没问题的. 
+
+核心是astra太贵了.  gpt订阅额度太少了.
+
