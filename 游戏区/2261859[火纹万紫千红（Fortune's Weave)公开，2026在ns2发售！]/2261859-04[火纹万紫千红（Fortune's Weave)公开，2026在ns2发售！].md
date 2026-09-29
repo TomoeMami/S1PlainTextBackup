@@ -13957,3 +13957,57 @@ a少线前期招的努蒂努能学骑兵-2移动消耗，我是土匪补力养�
 天马可以拿雷剑啊</blockquote>
 带着了，雷电剑还是太权威了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  零崎不识  
+##### 5698#       发表于 2026-9-29 14:05
+
+女王真是逆风翻盘了，游戏宣发期基本上大家投票选女王线的比例最低，结果开售后女王的塑造最好，写出了一个不同于日式经典亚撒西男主的杀伐果断情智双高的十分全面的中世纪明君形象，因为麒麟臂导致有点儿脾气反而更像是一个身居高位的国王了
+
+*****
+
+####  エリ  
+##### 5699#       发表于 2026-9-29 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299925&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-9-29 11:56</a>
+
+女王战争篇打完，全队47-50。然后A少线跳过直接54级
+
+还有个第二部后面能上14人，没提前了解第一部人培养少 ...</blockquote>
+第二部是要打四遍还是选一个打一遍，其他三个跳过？
+
+四条线重复度高吗请问
+
+*****
+
+####  エリ  
+##### 5700#       发表于 2026-9-29 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300090&amp;ptid=2261859" target="_blank">郁田はるき 发表于 2026-9-29 12:43</a>
+
+迪哥40级了力量只有26正常吗后悔没转山贼</blockquote>
+我35级力量31
+
+转了侍道，42级力量31
+
+真拉几职业
+
+
+*****
+
+####  mai6696  
+##### 5701#       发表于 2026-9-29 14:12
+
+侍道的力量不如勇士很正常。
+
+但是最难绷的还是和游侠的对比。
+
+<img src="https://img.stage1st.com/forum/202609/29/141247uv8qp81ef8vavql1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 14:12 上传
+

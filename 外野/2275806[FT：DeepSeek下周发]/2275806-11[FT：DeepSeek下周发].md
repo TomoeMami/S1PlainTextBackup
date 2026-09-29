@@ -4460,3 +4460,22 @@ kimi是他那个kimiwork的包月会员吗？还是直接用网页端，我看AP
 
 workbuddy接的是code，用蓝条，优点是量大管饱，缺点是少了一堆原生skill没法达到月之暗面的宣传效果
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 15194#       发表于 2026-9-29 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299661&amp;ptid=2275806" target="_blank">已被封号 发表于 2026-9-29 11:04</a>
+信息搜集、公文写作、根据已有信息研提建议举措、决策辅助等等这类不涉及编程的办公需求，有什么便宜好用的 ...</blockquote>
+综合智能助手，参数量越大越好，我推荐kimi
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  阿刚  
+##### 15195#       发表于 2026-9-29 14:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硬邦邦确实有点奇怪的效果，但是好羞耻啊，输入的时候
+
