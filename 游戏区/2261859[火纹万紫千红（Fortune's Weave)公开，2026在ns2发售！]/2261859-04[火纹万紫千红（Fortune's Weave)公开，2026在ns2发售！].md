@@ -14134,3 +14134,13 @@ A少进应该是能收小红小绿的
 
 5重量斧子可能高速技肌无力带个体格戒指混经验补刀可以用用？
 
+
+*****
+
+####  bad_alloc  
+##### 5713#       发表于 2026-9-29 14:53
+
+问题来了高速肌无力为什么不用13伤害的铁剑+2而是用3伤害的斧子呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 真能打出伤害吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
