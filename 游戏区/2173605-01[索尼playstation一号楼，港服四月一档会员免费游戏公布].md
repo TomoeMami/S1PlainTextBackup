@@ -125,3 +125,14 @@
 
 取消实体是28年以后
 
+
+*****
+
+####  ナルバレック  
+##### 834#       发表于 2026-9-29 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299889&amp;ptid=2173605" target="_blank">椎名mahuyo 发表于 2026-9-29 11:46</a>
+
+这牢非是不是没有光盘版了？纯数字你不割肉的话，定太贵会让很多价格敏感党直接放弃的，别人又不知道这游戏 ...</blockquote>
+这两年除了给她爱外都有的，目前的说法好像是下世代纯数字吧
+
