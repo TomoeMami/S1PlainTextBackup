@@ -4839,3 +4839,28 @@ kimi今天还是没来啊<img src="https://static.stage1st.com/image/smiley/face
 
 还有一点是codex 上的 Astra和api上的 思考强度 是不一样的.   codex上的会低很多
 
+
+*****
+
+####  hugosol  
+##### 15229#       发表于 2026-9-29 17:57
+
+我非常讨厌code plan这种模式，用不满会觉得亏了，额度满了没法工作又很难受
+
+要是DS4.1pro没有练炸，我就不续gpt plus了（
+
+*****
+
+####  crow_wine  
+##### 15230#       发表于 2026-9-29 18:01
+
+国庆前没有大的吗，4.1f很好，但是显然可以更好，那个唱歌的问题真的改修一修
+
+
+*****
+
+####  qz66618  
+##### 15231#       发表于 2026-9-29 18:04
+
+cty不是说dsh桌面版会在周一周二发布吗，为啥还没消息<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
