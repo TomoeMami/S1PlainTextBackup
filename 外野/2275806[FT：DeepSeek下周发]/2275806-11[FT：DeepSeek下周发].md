@@ -6035,3 +6035,15 @@ Opus5.5用它写代码，反正还挺好。但是也有可能是因为前面几�
 
 这个6.1sol才是真正有威胁的模型，能力很全面而且真正的准sota，任务不并发情况下，即使plus订阅都能用足5h窗口，一般人没有什么理由再去订阅智谱或者kimi或者grok这样的会员
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 15332#       发表于 2026-9-30 07:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303341&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-30 06:58</a>
+这个6.1sol才是真正有威胁的模型，能力很全面而且真正的准sota，任务不并发情况下，即使plus订阅都能用足5h ...</blockquote>
+Closeai先别给用户降智路由到低端模型再吹牛逼吧
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
