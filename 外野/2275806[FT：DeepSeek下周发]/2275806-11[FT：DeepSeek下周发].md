@@ -4974,3 +4974,40 @@ ds4f 出来之后我就没有用过任何订阅了，我十分不想一直关注
 
 dsh桌面端这个登录送6元赠金是不是25年年初10块钱之后唯一一次送余额？
 
+
+*****
+
+####  RookieTnT  
+##### 15241#       发表于 2026-9-29 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301544&amp;ptid=2275806" target="_blank">med 发表于 2026-9-29 18:10</a>
+
+最近好像把我的账号遗忘了，订阅过期了还在继续用，并且还没更新5小时限额，只有周限额。不知道这个bug什么 ...</blockquote>
+挽留期. 过期还能用一段时间. 
+
+
+*****
+
+####  大肥鱼  
+##### 15242#       发表于 2026-9-29 19:43
+
+新的专家模式什么时候能够出场呀？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  酒精中毒战舰  
+##### 15243#       发表于 2026-9-29 19:45
+
+大的ds4.1p真的能在国庆上线吗<img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nxmonitor  
+##### 15244#       发表于 2026-9-29 19:45
+
+现在看可能危险…
+
