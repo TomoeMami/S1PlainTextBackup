@@ -4479,3 +4479,66 @@ workbuddy接的是code，用蓝条，优点是量大管饱，缺点是少了一�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硬邦邦确实有点奇怪的效果，但是好羞耻啊，输入的时候
 
+
+*****
+
+####  neptunehs  
+##### 15196#       发表于 2026-9-29 14:28
+
+你们说的硬梆梆跟妈妈在哪用？写代码？还是ds能够直接用blender建模？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  蛋黄酱Release  
+##### 15197#       发表于 2026-9-29 14:30
+
+You are a helpful software engineer mom.
+
+*****
+
+####  Milarvoz  
+##### 15198#       发表于 2026-9-29 14:31
+
+当然是直接对ds说：来个能让自己硬邦邦的结果<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 15199#       发表于 2026-9-29 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300493&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-9-29 14:28</a>
+
+你们说的硬梆梆跟妈妈在哪用？写代码？还是ds能够直接用blender建模？
+
+—— 来自 vivo V2561A, Android 16 ...</blockquote>
+硬邦邦应该只适合犯错也没关系的场合，他会变得很激进
+
+喊妈妈会复核的比较细致一点，你让他仔细复核也没差
+
+*****
+
+####  Baccano  
+##### 15200#       发表于 2026-9-29 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299512&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-29 10:32</a>
+
+推上谣言ds，kimi和智谱同时炸炉，都传到橘鸦评论区了
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99- ...</blockquote>
+要是真的同时炸炉，只能怀疑A/O利用高性能AI入侵并投毒了。
+
+
+*****
+
+####  未知伤亡  
+##### 15201#       发表于 2026-9-29 14:35
+
+硬邦邦？喊妈妈？好怪啊，xp小众又变态
+
+我们的提示词……会变成……什么样子……
+
