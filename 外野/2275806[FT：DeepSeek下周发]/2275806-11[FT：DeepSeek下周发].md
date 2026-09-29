@@ -5873,3 +5873,31 @@ ds4flash 上下文一长，经常无限循环或者突然停止输出，不知�
 K3 前端审美非常好 就是太贵了</blockquote>
 考虑过kimi，但那价格确实离谱啊，是鲸鱼娘好几十倍了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lubo  
+##### 15316#       发表于 2026-9-30 02:23
+
+20x额度继续提供一个月，10月29日后变10x
+
+*****
+
+####  RookieTnT  
+##### 15317#       发表于 2026-9-30 02:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303240&amp;ptid=2275806" target="_blank">Quelaan 发表于 2026-9-30 02:14</a>
+
+考虑过kimi，但那价格确实离谱啊，是鲸鱼娘好几十倍了</blockquote>
+搞个kimi订阅呗. 199 也还可以. 大方向给出用ds修小问题
+
+*****
+
+####  舞以  
+##### 15318#       发表于 2026-9-30 02:24
+
+幻想oai继续犯蠢给最重度用户额外折扣是否有点
+tibo都直接表示要逐渐减少订阅用户和api用户之间的价格差了，还在幻想oai（大概率也包括之后的a➗）继续补贴这群用量最大的用户？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
