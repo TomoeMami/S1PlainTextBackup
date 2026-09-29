@@ -6066,3 +6066,21 @@ Gpt和kimi
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  紧那罗  
+##### 15335#       发表于 2026-9-30 07:27
+
+搞不懂，dot对于这个订阅额度的用户来说有什么意识。我都一个月花千把块拿来跑ai了，我还会缺一台云主机跑任务？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  浅夏晴雨  
+##### 15336#       发表于 2026-9-30 07:32
+
+试了下，dot 可以 access 到本地的电脑上，云主机是送的（用来给 dot 跑 terminal、computer use + browser use 的）
+
