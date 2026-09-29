@@ -13643,3 +13643,23 @@ L难度希望把日常流程砍了 就留线性战斗，或者像第二章的安
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  真田源次郎信繁  
+##### 5669#       发表于 2026-9-29 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70298793&amp;ptid=2261859" target="_blank">theyoung 发表于 2026-9-29 08:28</a>
+
+准备四条线都玩的没必要升级加点焦虑吧。练某个角色挑一个加入早的路线，别的都不干就狠狠补短板。几条线融 ...</blockquote>
+就是因为有四条线可以这么练，所以才焦虑
+
+本来可以把角色练成水桶，结果没练，亏了一个亿<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，重开还可能要十小时以上
+
+*****
+
+####  蓝色暴鲤龙  
+##### 5670#       发表于 2026-9-29 10:14
+
+女王是有御人术智慧的，和白发鬼对手戏这段的台词写的相当好，很多日式游戏，动漫的通病就是御人时不敢以自己内心真实的想法结合赏识来抒发情感（现实里，展示洞察力是常态，但动漫游戏，可能为了刻意制造悬念而违反常理），女王某些对话，甚至让我有之于现实场景的共鸣
+

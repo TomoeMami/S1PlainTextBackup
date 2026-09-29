@@ -3998,3 +3998,44 @@ WTF……
 
 其实就是rp对vibecoding有影响
 
+
+*****
+
+####  lactone  
+##### 15153#       发表于 2026-9-29 10:06
+
+openai又不急着上市，为啥a出个sonnet5.5，oa就完了？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  nxmonitor  
+##### 15154#       发表于 2026-9-29 10:06
+
+这其实说明后训练不够
+
+*****
+
+####  startraveller  
+##### 15155#       发表于 2026-9-29 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299162&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-29 09:37</a>
+你们能不能少看点营销号，但凡用过workbuddy的api就知道他api上k3一直是k3-1。 ...</blockquote>
+那我还真没咋用 Workbuddy
+
+
+*****
+
+####  nxmonitor  
+##### 15156#       发表于 2026-9-29 10:14
+
+Sonnet5.5这东西和5.6luna一样，不开最高打不过4.1F，开了以后超级雷霆大思考，消耗的token数量极高，有严重的刷分倾向
+
+*****
+
+####  坛子漆黑  
+##### 15157#       发表于 2026-9-29 10:15
+
+没有绘图能力的大鲸鱼就硬是被你们这么玩是吧<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
