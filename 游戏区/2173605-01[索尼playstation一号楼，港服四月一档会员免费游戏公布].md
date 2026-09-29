@@ -154,3 +154,29 @@
 
 看看索尼放弃实体要不要推迟了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑猫软  
+##### 837#       发表于 2026-9-29 16:35
+
+砍实体这事儿之前索尼也有在问，日本一这种厂也提到了 不过能不能延期就不好说
+
+<img src="https://img.stage1st.com/forum/202609/29/163458tstasch0zcls67am.png" referrerpolicy="no-referrer">
+
+<strong>Image_1790670874395_801.png</strong> (73.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-29 16:34 上传
+
+<img src="https://img.stage1st.com/forum/202609/29/163553awgbwz5i7fs9999p.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1790670943384_108.jpg</strong> (197.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-9-29 16:35 上传
+

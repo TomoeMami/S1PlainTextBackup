@@ -14394,3 +14394,18 @@ A少进应该是能收小红小绿的
 
 如果直接雷达线开荒的话，东西两边一起开，一周目应该会留很多空白。
 
+
+*****
+
+####  白昼梦DD  
+##### 5733#       发表于 2026-9-29 16:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有重开一遍的觉悟那谁首发都差不多了
+
+*****
+
+####  HazukiShion  
+##### 5734#       发表于 2026-9-29 16:40
+
+重开加护得重新刷。<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
