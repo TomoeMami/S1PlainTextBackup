@@ -576,3 +576,15 @@ G世纪原创好多黄机啊，就不能多给点红吗
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  里村紅葉  
+##### 4766#       发表于 2026-9-30 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302948&amp;ptid=2071758" target="_blank">真贝尔奈普斯 发表于 2026-9-29 23:33</a>
+我记得打机战的时候，这玩意血挺多挺难打的，给个ssr好像也挺正常
+
+—— 来自 Xiaomi 23049RAD8C, Androi ...</blockquote>
+模块化先驱，强不强另说，脑洞是V里头一号的大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

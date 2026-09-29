@@ -5524,3 +5524,17 @@ DS哪个员工发了个生图的论文，不知道会不会以后有……<img s
 
 DS哪个员工发了个生图的论文，不知道会不会以后有……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妖精喵喵  
+##### 15282#       发表于 2026-9-30 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302790&amp;ptid=2275806" target="_blank">Lucario 发表于 2026-9-29 22:43</a>
+workbuddy的确是毒瘤，把自己注册到了大部分格式文件的关联打开里面了
+
+谨慎使用，藤子果然不负众望 ...</blockquote>
+我草了，我说我的打开文件关联失效了怎么回事
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
