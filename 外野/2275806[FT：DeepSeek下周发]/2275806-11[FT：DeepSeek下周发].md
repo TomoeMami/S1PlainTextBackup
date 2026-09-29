@@ -5952,3 +5952,43 @@ Anthropic的高价套餐是最坑的，200刀周用量只有20刀的6.5倍
 Anthropic的高价套餐是最坑的，200刀周用量只有20刀的6.5倍</blockquote>
 A畜的 额度是按 5小时额度来算的. 所以100$的额度比openai的100$多. 200$目前是打平了.
 
+
+*****
+
+####  andychen  
+##### 15324#       发表于 2026-9-30 02:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303259&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-30 02:41</a>
+
+A畜的 额度是按 5小时额度来算的. 所以100$的额度比openai的100$多. 200$目前是打平了. ...</blockquote>
+不懂为啥要用5小时额度算，套餐的实际总用量都是受周额度限制
+
+另外Anthropic套餐还会限制fable的用量不能超过套餐总用量的一半
+
+*****
+
+####  RookieTnT  
+##### 15325#       发表于 2026-9-30 02:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303262&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-30 02:45</a>
+
+不懂为啥要用5小时额度算，套餐的实际总用量都是受周额度限制
+
+另外Anthropic套餐还会限制fable的用量不 ...</blockquote>
+因为一开始是没有周限的.  后面为了赚钱加了周限
+
+不过fable5.1 和 opus5.5 实际上大差不差. 
+
+我日常都用opus5.5 了. 
+
+A畜还留着fable5.5来狙击O畜呢.  
+
+*****
+
+####  lactone  
+##### 15326#       发表于 2026-9-30 02:51
+
+dots这个额度到底咋回事，能干的活有哪些？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
