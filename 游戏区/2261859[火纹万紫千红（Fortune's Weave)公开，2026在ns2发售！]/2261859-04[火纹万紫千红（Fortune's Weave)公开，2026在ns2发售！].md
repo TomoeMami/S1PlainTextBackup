@@ -14144,3 +14144,29 @@ A少进应该是能收小红小绿的
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  yangchunsiyue  
+##### 5714#       发表于 2026-9-29 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300532&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-9-29 14:37</a>
+
+这玩意物攻太低了，战技魔攻还是有点难用</blockquote>
+我本来还以为这玩意儿能开罐头，结果一看也并没有对罐头的特效
+
+*****
+
+####  白昼梦DD  
+##### 5715#       发表于 2026-9-29 15:06
+
+<img src="https://img.stage1st.com/forum/202609/29/150643fh0w3bqccupwzw3u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 15:06 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">五年后人妻立绘这么润吗
+

@@ -4588,3 +4588,24 @@ Tibo刚发了推。X20套餐重开，但今后套餐用量只有之前的一半<
 —— 来自 vivo V2561A, Android 16 ...</blockquote>
 开一个对话，严肃的在提示词中穿插这个风格：你直接耍起嘛，怎么好怎么来，要让人一看就硬 邦邦，雷霆炫酷，细节拉满，哥们我时间不多，肌肉团队gogogo耍起耍起
 
+
+*****
+
+####  FACS  
+##### 15207#       发表于 2026-9-29 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300617&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-29 14:55</a>
+
+Tibo刚发了推。X20套餐重开，但今后套餐用量只有之前的一半</blockquote>
+你问他额度多了少了，他说你赚了
+
+*****
+
+####  RookieTnT  
+##### 15208#       发表于 2026-9-29 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300617&amp;ptid=2275806" target="_blank">andychen 发表于 2026-9-29 14:55</a>
+
+Tibo刚发了推。X20套餐重开，但今后套餐用量只有之前的一半</blockquote>
+早就把等价API额度下降了一半了（2800-&gt;1400），被老外发现了. 现在装不下去了. 😂😂
+
