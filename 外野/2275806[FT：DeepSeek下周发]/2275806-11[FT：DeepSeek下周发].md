@@ -5573,3 +5573,33 @@ DS V4.1 Flash + DSH菜成这样，是正常的吗？
 
 还是 closeai 在给它们家的 500 刀订阅铺垫
 
+
+*****
+
+####  整活骑士  
+##### 15286#       发表于 2026-9-30 00:58
+
+ds4flash 上下文一长，经常无限循环或者突然停止输出，不知道大家有没有遇到过
+
+—— 来自 OnePlus PLK110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zaz5554  
+##### 15287#       发表于 2026-9-30 01:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">所以在我心里我一直觉得DS4.1比GPT6牛逼，因为GPT6一眼不可持续，规模太夸张了
+
+*****
+
+####  qwased  
+##### 15288#       发表于 2026-9-30 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303141&amp;ptid=2275806" target="_blank">整活骑士 发表于 2026-9-30 00:58</a>
+ds4flash 上下文一长，经常无限循环或者突然停止输出，不知道大家有没有遇到过
+
+—— 来自 OnePlus PLK110, ...</blockquote>
+不管什么模型都尽量控制在250~300k以内用
+我用pi vcc很喜欢160~200就按压缩了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
