@@ -6007,3 +6007,15 @@ A畜的大量优质语料估计O畜都馋哭了. O畜真的特别像暴发户. �
 
 我感觉opus5.5完全不如astra和fable5.1，debug能力太差，半天解决不了问题。
 
+
+*****
+
+####  lactone  
+##### 15329#       发表于 2026-9-30 03:29
+
+我觉得opus5.5＆sonnet5.5靠的是雷霆大思考，benchmaxxing和针对性后训练优化前端one-shot等场景的临时产物
+
+干有的活很强，有的活很差
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
