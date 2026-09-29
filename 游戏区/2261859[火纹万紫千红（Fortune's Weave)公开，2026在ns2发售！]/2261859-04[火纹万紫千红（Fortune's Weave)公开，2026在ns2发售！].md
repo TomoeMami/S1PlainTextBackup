@@ -14754,3 +14754,16 @@ TMD以后再买港邮我吃屎10斤<img src="https://static.stage1st.com/image/s
 
 迪哥你这五年后的造型到底是谁的品味，法比欧还是巴西初音的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ascomnet  
+##### 5767#       发表于 2026-9-29 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301885&amp;ptid=2261859" target="_blank">Asukalangley33 发表于 2026-9-29 19:48</a>
+
+预购的港直邮刚刚才拿到卡带
+
+TMD以后再买港邮我吃屎10斤</blockquote>
+至少你没错过十一假期
+
