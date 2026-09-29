@@ -540,3 +540,11 @@ G世纪原创好多黄机啊，就不能多给点红吗
 
 多格拉能混到SSR有点意外的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 4762#       发表于 2026-9-29 18:46
+
+赞斯卡尔MA选择还挺多，选了个武装这么孱弱的确实很意外
+

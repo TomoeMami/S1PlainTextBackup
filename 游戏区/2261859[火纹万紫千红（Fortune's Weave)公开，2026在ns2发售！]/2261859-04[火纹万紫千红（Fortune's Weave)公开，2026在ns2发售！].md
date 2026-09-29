@@ -14610,3 +14610,42 @@ A少进应该是能收小红小绿的
 女王真是逆风翻盘了，游戏宣发期基本上大家投票选女王线的比例最低，结果开售后女王的塑造最好，写出了一个 ...</blockquote>
 首发女王线的都会惊喜，完全打破日式作品对君主描写的刻板印象，第二部还是她的大高光时期。
 
+
+*****
+
+####  superlink  
+##### 5752#       发表于 2026-9-29 18:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我是女王线基本地图七七八八了，沙漠开了大概一部分，当时纠结雷达还是女王，听说雷达前期配置打起来有点累就选女王了。总的来说女王线清任务都还算方便
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+*****
+
+####  bad_alloc  
+##### 5753#       发表于 2026-9-29 18:50
+
+第二条打雷达线，时间好充裕啊不知道该干啥，目前第9章图全开了，9个主力35级，迷宫全打了，支线也全清了，剩下70多个回合不知道该干啥<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这个时候是不是该跳过了，感觉地图上逛也没收益了
+
+
+*****
+
+####  白昼梦DD  
+##### 5754#       发表于 2026-9-29 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301648&amp;ptid=2261859" target="_blank">fxc731 发表于 2026-9-29 18:40</a>
+请问巨大肉除了沙漠那个探索还有哪儿能搞到？我A少第八章了，还没搞到3块 ...</blockquote>
+地图左下角刃鸣刷35级巨人
+
+*****
+
+####  duraa  
+##### 5755#       发表于 2026-9-29 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301648&amp;ptid=2261859" target="_blank">fxc731 发表于 2026-9-29 18:40</a>
+
+请问巨大肉除了沙漠那个探索还有哪儿能搞到？我A少第八章了，还没搞到3块 ...</blockquote>
+沙漠有个洞穴有个巨人，我是打了两次这个地城拿了两块，然后右边有个城市卖高级肉箱子，凹了一个<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
