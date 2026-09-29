@@ -5254,3 +5254,22 @@ Kimi K2.8。真没想到，这什么年代了，模型还能陷入无限循环�
 
 发现手机app也更新到2.6.0了，明天大的希望微存？
 
+
+*****
+
+####  冤枉呐  
+##### 15266#       发表于 2026-9-29 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302173&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-9-29 20:37</a>
+
+官网上线桌面端了： 
+
+ https://www.deepseek.com/download/</blockquote>
+问
+
+如果我想桌面版可以直接接收webui的对话记录
+
+那么该咋整呢，官方有没有迁移教程
+
+我现在能想到的就是让webui调模型自己修自己
+
