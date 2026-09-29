@@ -14592,3 +14592,21 @@ A少进应该是能收小红小绿的
 雷达线有两组人登场是在城里逛街的时候跑到特定点位触发事件。一个是绿毛商会长，另一个是谁我忘了，好像是 ...</blockquote>
 序章那两个确实需要再临
 
+
+*****
+
+####  fxc731  
+##### 5750#       发表于 2026-9-29 18:40
+
+请问巨大肉除了沙漠那个探索还有哪儿能搞到？我A少第八章了，还没搞到3块<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiokio  
+##### 5751#       发表于 2026-9-29 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300399&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-9-29 14:05</a>
+
+女王真是逆风翻盘了，游戏宣发期基本上大家投票选女王线的比例最低，结果开售后女王的塑造最好，写出了一个 ...</blockquote>
+首发女王线的都会惊喜，完全打破日式作品对君主描写的刻板印象，第二部还是她的大高光时期。
+
