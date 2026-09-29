@@ -5538,3 +5538,38 @@ workbuddy的确是毒瘤，把自己注册到了大部分格式文件的关联�
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zhanglei1943  
+##### 15283#       发表于 2026-9-30 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302944&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-9-29 23:32</a>
+
+DS V4.1 Flash + DSH菜成这样，是正常的吗？
+
+昨天安装了dsh 0.1.7-rc.2，在web端测试了一下</blockquote>
+要么windows用dsh桌面端，要么wsl下用dsh web
+
+*****
+
+####  qwased  
+##### 15284#       发表于 2026-9-30 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302963&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-29 23:36</a>
+我感觉dsh标准模式本身不好用是个重要问题，pi或者dsh极简模式都比dsh标准模式能力强得多 ...</blockquote>
+我把本地的qwen27b接到dsh里面，极简出来的鹈鹕和pi差不多，但是27b直接把代码输出到回答里面了；正常模式画出来一坨，随便修了两下就交差了
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉pi才是ds的专武
+
+
+*****
+
+####  xiaoboost  
+##### 15285#       发表于 2026-9-30 00:21
+
+我去，closeai 太贱了吧，200刀的额度直接砍半……
+
+感觉 gpt 和 a/ 是不是都烧不起了？
+
+还是 closeai 在给它们家的 500 刀订阅铺垫
+

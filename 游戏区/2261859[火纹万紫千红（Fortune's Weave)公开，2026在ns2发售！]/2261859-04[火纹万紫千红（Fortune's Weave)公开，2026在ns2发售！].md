@@ -15000,3 +15000,37 @@ TMD以后再买港邮我吃屎10斤</blockquote>
 
 顺便鲁智深是不是转枪+白魔法的守护者比较好？
 
+
+*****
+
+####  bwsusaga  
+##### 5787#       发表于 2026-9-30 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302836&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-29 22:58</a>
+
+233鲁智深还真有拔树剧情
+
+顺便鲁智深是不是转枪+白魔法的守护者比较好？ ...</blockquote>
+鲁大师白魔有远疗，但黑魔有双天气加成的魔法，
+
+自身又擅长斧。搞双刀职业可以考虑锻治师，只是个人建议。
+
+*****
+
+####  kalavinka  
+##### 5788#       发表于 2026-9-30 00:16
+
+ 本帖最后由 kalavinka 于 2026-9-30 00:19 编辑 
+
+if粉甲强在怪力，一击各种脆皮，这点倒是和巴西初音差不多，但是堵路本职感觉不如黑叔叔<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  月光乱舞  
+##### 5789#       发表于 2026-9-30 00:22
+
+最后打的凯伊线，感觉反而是四条线里最累的一个，除了凯伊和古扎岚总感觉我方全体速度都比对面要低好多，打了战争篇都不至于miss和被追击成这样
+
