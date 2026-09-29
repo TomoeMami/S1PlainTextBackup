@@ -13813,3 +13813,44 @@ L难度希望把日常流程砍了 就留线性战斗，或者像第二章的安
 还有个第二部后面能上14人，没提前了解第一部人培养少 ...</blockquote>
 其实打其他线的战争篇填空位用的就不是白发鬼小弟而是优先选择的女王的哼哈二将
 
+
+*****
+
+####  Bani82  
+##### 5686#       发表于 2026-9-29 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299429&amp;ptid=2261859" target="_blank">5ew47 发表于 2026-9-29 10:19</a>
+我看着自家40级连20力都没有，魔还比力高的莉利安和粉天马，已经放弃思考了，你们俩另一条世界线去当专职土 ...</blockquote>
+天马可以拿雷剑啊
+
+
+*****
+
+####  郁田はるき  
+##### 5687#       发表于 2026-9-29 12:43
+
+迪哥40级了力量只有26正常吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">后悔没转山贼
+
+*****
+
+####  Nez  
+##### 5688#       发表于 2026-9-29 12:44
+
+突然发现商会还能换两本暗魔法书，给谁比较好
+
+*****
+
+####  DarkDawn  
+##### 5689#       发表于 2026-9-29 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299956&amp;ptid=2261859" target="_blank">anyasora 发表于 2026-9-29 12:01</a>
+
+这里转职是指资格考试还是切换职业？是一次资格考试会消耗一次乱数，然后切换回本来的职业就行？ ...</blockquote>
+这个原理是资格考试会消耗乱数
+
+切换职业不行
+
+哦理论上也不是不行因为职业有成长率
+
+比如成长率60%，随机数随到65所以不加点，你换个该项+10%的职业可能就加上了……但这个显然不太可控
+

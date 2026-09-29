@@ -4325,3 +4325,69 @@ kimi是他那个kimiwork的包月会员吗？还是直接用网页端，我看AP
 
 OpenAI拉了 500$ 只有50x 怪不得之前把20x停了 笑死
 
+
+*****
+
+####  startraveller  
+##### 15183#       发表于 2026-9-29 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300021&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-9-29 12:17</a>
+这就是个推特营销号，想走三顶刊路线的。</blockquote>
+反正也该出来了，k3也两个月了，再不出IPO咋办。
+
+*****
+
+####  lactone  
+##### 15184#       发表于 2026-9-29 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300069&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-29 12:35</a>
+OpenAI拉了 500$ 只有50x 怪不得之前把20x停了 笑死</blockquote>
+就按照现在oa的%味，最好devday真有什么大的
+
+但是wsj说10月份内都不会发6.1<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  qwased  
+##### 15185#       发表于 2026-9-29 12:40
+
+df41似乎目前测出来还是对它喊妈妈最管用（也是上线第一天就发现的）会做的比较细致一点
+而且喊妈妈的优先级最高会覆盖其他rp提示词<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RookieTnT  
+##### 15186#       发表于 2026-9-29 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300079&amp;ptid=2275806" target="_blank">lactone 发表于 2026-9-29 12:40</a>
+
+就按照现在oa的%味，最好devday真有什么大的
+
+但是wsj说10月份内都不会发6.1</blockquote>
+没有大的. sol出来之前也一直说很兴奋. 
+
+实际上他们内部根本没人用这模型. 基础的识图有问题都隔了几天才修复.
+
+AI公司一定要有好模型.jpg
+
+搞什么bot 真的有人很需要吗?
+
+
+*****
+
+####  crow_wine  
+##### 15187#       发表于 2026-9-29 12:44
+
+喜欢充20x<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojog  
+##### 15188#       发表于 2026-9-29 12:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">拿ai做东西但是自己不用的b人不是哪都有
+
+openai也一样
+

@@ -3432,3 +3432,14 @@ Domo！God slayer desuwa！
 
 2026-9-29 12:37 上传
 
+
+*****
+
+####  卢迪克  
+##### 341#       发表于 2026-9-29 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299784&amp;ptid=2274451" target="_blank">盒饭鬼魅清蒸鱼 发表于 2026-9-29 11:25</a>
+
+第一方带头，看看其他新游戏和那些日产老顽固怎么变化</blockquote>
+今年就有三个第三方卖348了.轮回之兽控制共振寂静岭。不过卡普空和SE这些头部厂商还是5开头
+
