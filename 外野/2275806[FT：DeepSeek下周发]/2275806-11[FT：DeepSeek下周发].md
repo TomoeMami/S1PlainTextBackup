@@ -4186,3 +4186,38 @@ astra才出来不到一个月</blockquote>
 信息搜集、公文写作、根据已有信息研提建议举措、决策辅助等等这类不涉及编程的办公需求，有什么便宜好用的 ...</blockquote>
 不嫌贵的话kimi
 
+
+*****
+
+####  科技新闻搬运工  
+##### 15170#       发表于 2026-9-29 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299661&amp;ptid=2275806" target="_blank">已被封号 发表于 2026-9-29 11:04</a>
+
+信息搜集、公文写作、根据已有信息研提建议举措、决策辅助等等这类不涉及编程的办公需求，有什么便宜好用的 ...</blockquote>
+其实几个网页版AI就基本能完成大部分辅助办公了，是的，连豆包都能。
+
+当然如果你对文本质量要求很高那还是多试试看看
+
+*****
+
+####  nxmonitor  
+##### 15171#       发表于 2026-9-29 11:11
+
+<blockquote>startraveller 发表于 2026-9-29 10:56
+用 xhigh 就好多了，消耗只有 max 的四分之一，也很强，甚至 FrontierCode 在 xhigh 还高点。DSv41f 还是 ...</blockquote>
+绝对和这个跑分水平不符合…
+
+
+*****
+
+####  已被封号  
+##### 15172#       发表于 2026-9-29 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299703&amp;ptid=2275806" target="_blank">科技新闻搬运工 发表于 2026-9-29 11:11</a>
+
+其实几个网页版AI就基本能完成大部分辅助办公了，是的，连豆包都能。
+
+当然如果你对文本质量要求很高那还 ...</blockquote>
+豆包是真不行，用了几次就被我放弃了<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
