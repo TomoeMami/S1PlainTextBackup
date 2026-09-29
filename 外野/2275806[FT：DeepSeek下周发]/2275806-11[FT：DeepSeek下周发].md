@@ -4407,3 +4407,19 @@ openai也一样
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  →熙←  
+##### 15190#       发表于 2026-9-29 12:57
+
+硬邦邦提示词早有提示给你们
+
+<img src="https://img.stage1st.com/forum/202609/29/125718kwfg6gvbavm404v6.png" referrerpolicy="no-referrer">
+
+<strong>D98241745E55C6A5059970343A7BDB57.png</strong> (79.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 12:57 上传
+
