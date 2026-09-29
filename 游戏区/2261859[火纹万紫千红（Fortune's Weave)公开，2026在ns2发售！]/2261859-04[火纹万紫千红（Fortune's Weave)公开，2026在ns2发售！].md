@@ -14011,3 +14011,18 @@ a少线前期招的努蒂努能学骑兵-2移动消耗，我是土匪补力养�
 
 2026-9-29 14:12 上传
 
+
+*****
+
+####  索非亚  
+##### 5702#       发表于 2026-9-29 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300402&amp;ptid=2261859" target="_blank">エリ 发表于 2026-9-29 14:07</a>
+第二部是要打四遍还是选一个打一遍，其他三个跳过？
+
+四条线重复度高吗请问 ...</blockquote>
+战争篇固定女王为主的故事线，不同线路就是不同队伍参战。
+打完我是推荐A少战争线，这种事一叫他铁来，还能增加点和自捏的联系，不然真不熟<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+A少进应该是能收小红小绿的
+
