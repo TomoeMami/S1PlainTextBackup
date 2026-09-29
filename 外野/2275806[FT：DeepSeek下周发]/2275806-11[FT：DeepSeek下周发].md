@@ -4777,3 +4777,49 @@ tibo不是说会有不消耗使用量的功能
 
 这些人都需要梁叔叔来治，不知道灰鲸什么时候能出来，哪怕保持现在这个价格也是重击……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾诺琳  
+##### 15225#       发表于 2026-9-29 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300973&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-9-29 16:08</a>
+200刀每月给现在降价的D指导，应该能让我用到昏迷了吧...
+
+最纠结的是不知道D指导在UE5的造诣有多深。 ...</blockquote>
+问了下d老师，大约每月200亿tokens
+
+
+*****
+
+####  艾诺琳  
+##### 15225#       发表于 2026-9-29 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300973&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-9-29 16:08</a>
+200刀每月给现在降价的D指导，应该能让我用到昏迷了吧...
+
+最纠结的是不知道D指导在UE5的造诣有多深。 ...</blockquote>
+问了下d老师，大约每月200亿tokens
+
+*****
+
+####  lactone  
+##### 15226#       发表于 2026-9-29 17:12
+
+kimi今天还是没来啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">已经五点了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  nianiania  
+##### 15227#       发表于 2026-9-29 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300973&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-9-29 16:08</a>
+200刀每月给现在降价的D指导，应该能让我用到昏迷了吧...
+
+最纠结的是不知道D指导在UE5的造诣有多深。 ...</blockquote>
+不太行，之前让 4.1flash 改个水体浮力相关的逻辑，改完直接编译失败打不开编辑器，吭哧吭哧修了二十分钟都没修好，最后无奈换回 astra 几下改好了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
