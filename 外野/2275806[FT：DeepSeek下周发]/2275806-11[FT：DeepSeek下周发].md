@@ -4296,3 +4296,14 @@ k3.1 29号出的消息到底哪儿来的
 绝对和这个跑分水平不符合…</blockquote>
 还要试试，如果 像 GPT 6 Luna 就拉完了。
 
+
+*****
+
+####  当光停止  
+##### 15180#       发表于 2026-9-29 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70299982&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-9-29 12:07</a>
+
+好像是 MaxForAI 说的</blockquote>
+这就是个推特营销号，想走三顶刊路线的。
+
