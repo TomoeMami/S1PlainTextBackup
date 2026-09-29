@@ -244,3 +244,11 @@ dbb作为ds的一种“精神续作”算是完全没有延续到任何精神，
 
 结局一股迪迦和DA02混搭的味道<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sAviOr  
+##### 844#       发表于 2026-9-29 11:20
+
+虽然烂尾，但作为路人总体看得还蛮开心的
+
