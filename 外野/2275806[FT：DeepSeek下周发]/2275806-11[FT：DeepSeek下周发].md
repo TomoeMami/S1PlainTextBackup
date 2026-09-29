@@ -5811,3 +5811,11 @@ gpt-6-so ...</blockquote>
 最近搓游戏demo，对GPT的UI审美深深的绝望了，谭友有什么搓UI比较好的模型推荐吗claude想用用不到，国模不 ...</blockquote>
 K3 前端审美非常好 就是太贵了
 
+
+*****
+
+####  RookieTnT  
+##### 15310#       发表于 2026-9-30 01:58
+
+openai  太幽默了. 搞了个dots. only 200$ 往上才能用. 可是muse 免费用啊.  发发邮件这些还用astra吗? 
+
