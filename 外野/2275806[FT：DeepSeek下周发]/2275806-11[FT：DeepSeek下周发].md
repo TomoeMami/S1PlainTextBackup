@@ -5476,3 +5476,51 @@ DS V4.1 Flash + DSH菜成这样，是正常的吗？
 昨天安装了dsh 0.1.7-rc.2，在web端测试了一下</blockquote>
 我感觉dsh标准模式本身不好用是个重要问题，pi或者dsh极简模式都比dsh标准模式能力强得多
 
+
+*****
+
+####  Promeus  
+##### 15280#       发表于 2026-9-29 23:48
+
+<img src="https://img.stage1st.com/forum/202609/29/234805d2emu6sbsphusxm5.png" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260929_103128_me.rerere.rikkahub.png</strong> (87.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 23:48 上传
+
+这是我用公认弱智的app刚跑的
+
+
+*****
+
+####  Promeus  
+##### 15280#       发表于 2026-9-29 23:48
+
+<img src="https://img.stage1st.com/forum/202609/29/234805d2emu6sbsphusxm5.png" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260929_103128_me.rerere.rikkahub.png</strong> (87.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 23:48 上传
+
+这是我用公认弱智的app刚跑的
+
+
+*****
+
+####  nxmonitor  
+##### 15281#       发表于 2026-9-29 23:51
+
+DS哪个员工发了个生图的论文，不知道会不会以后有……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 15281#       发表于 2026-9-29 23:51
+
+DS哪个员工发了个生图的论文，不知道会不会以后有……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
