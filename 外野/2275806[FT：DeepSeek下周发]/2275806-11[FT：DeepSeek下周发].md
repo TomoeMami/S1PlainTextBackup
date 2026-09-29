@@ -5395,3 +5395,84 @@ workbuddy的确是毒瘤，把自己注册到了大部分格式文件的关联�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  pure_liquid  
+##### 15278#       发表于 2026-9-29 23:32
+
+DS V4.1 Flash + DSH菜成这样，是正常的吗？
+
+昨天安装了dsh 0.1.7-rc.2，在web端测试了一下
+
+测试环境为标准模式 + Effort High，其他配置都完全没有动
+
+用了经典的one-shot prompt来测试：创建一个HTML，内容是 SVG 绘制一个鹈鹕骑自行车的2D动画。
+
+然后大家猜猜DS跑了多久？10分钟？20分钟？
+
+跑了整整1小时28分！（Took 1h 28m 03s）
+
+<img src="https://img.stage1st.com/forum/202609/29/232935o88v7ar5l9frdazi.png" referrerpolicy="no-referrer">
+
+<strong>1h28min.png</strong> (13.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 23:29 上传
+
+我觉得大家可能会猜测，是不是中间哪一步卡死了或者sleep了？但是并没有，展开思考链会发现
+
+DS在不停的在自己的脚本中发现bug，修一修，然后发现新bug
+
+一直在干活，从来没停过
+
+<img src="https://img.stage1st.com/forum/202609/29/233005h9c9hw2ondmo9d69.png" referrerpolicy="no-referrer">
+
+<strong>cot.png</strong> (52.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 23:30 上传
+
+那是不是最终产品质量特别高呢？差的出奇，没见过这么糟糕的结果
+
+1. 思考过程中一直觉得腿看不见，自己修了无数次。最终的成品，仍然没有腿，没有脚。一个骑自行车的动画没有腿没有脚。
+
+2. 自行车踏板也没有，变成一根棒子在疯狂旋转
+
+3. 自行车后轮压根不着地
+
+4. 车轮明显能看出来是倒转
+
+5. 自行车框架甚至没连起来
+
+<img src="https://img.stage1st.com/forum/202609/29/233121jmmfs39pmrzs97uy.png" referrerpolicy="no-referrer">
+
+<strong>pelican.png</strong> (212.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 23:31 上传
+
+别的bug还能算它菜，第3个bug是如何发生的？
+
+画两个同样大小同样高度的圆就能避免这种奇怪的问题吧，难以理解
+
+我知道坛友们经常说这种one-shot测试的实际意义不大
+
+问题是DS本质上是通过不停的写脚本来做这个工作的
+
+写脚本的过程中不停出bug不停改bug，改了1个半小时，结果还是bug+bug，这其实也能反应能力问题吧？
+
+*****
+
+####  serj005  
+##### 15279#       发表于 2026-9-29 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302944&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-9-29 23:32</a>
+DS V4.1 Flash + DSH菜成这样，是正常的吗？
+
+昨天安装了dsh 0.1.7-rc.2，在web端测试了一下</blockquote>
+我感觉dsh标准模式本身不好用是个重要问题，pi或者dsh极简模式都比dsh标准模式能力强得多
+
