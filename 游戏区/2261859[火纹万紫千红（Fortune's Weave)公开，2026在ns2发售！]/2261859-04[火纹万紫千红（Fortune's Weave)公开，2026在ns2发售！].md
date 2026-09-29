@@ -14212,3 +14212,54 @@ A少进应该是能收小红小绿的
 
 游戏刚到手，有什么需要提前注意的吗，只玩过风花雪月
 
+
+*****
+
+####  jockeyjoestar  
+##### 5720#       发表于 2026-9-29 15:29
+
+ 本帖最后由 jockeyjoestar 于 2026-9-29 15:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300753&amp;ptid=2261859" target="_blank">みさ 发表于 2026-9-29 15:25</a>
+
+游戏刚到手，有什么需要提前注意的吗，只玩过风花雪月</blockquote>
+先雷达或者女王线开图   两张比较有用的 外传时间表和地图
+
+<img src="https://img.stage1st.com/forum/202609/29/153008xm4cmp2c0byiyb3s.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260929152854_103_45.jpg</strong> (256.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 15:30 上传
+
+<img src="https://img.stage1st.com/forum/202609/29/153005a99y6f95wqucy2f9.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260929152852_102_45.jpg</strong> (82.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-29 15:30 上传
+
+
+*****
+
+####  真田源次郎信繁  
+##### 5721#       发表于 2026-9-29 15:32
+
+世界都要毁灭了，穆去打拳打的好好的，穆妈赚到钱也不用花了，难怪没有母女A支援
+
+
+*****
+
+####  纯夏  
+##### 5722#       发表于 2026-9-29 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300753&amp;ptid=2261859" target="_blank">みさ 发表于 2026-9-29 15:25</a>
+
+游戏刚到手，有什么需要提前注意的吗，只玩过风花雪月</blockquote>
+这游戏大部分内容可以在方尖塔之间重玩章节补做 但是外传有期限 过期不接 
+
+外传随主线进度出现 每条主角线的可接章节和日期不同 游戏的第2部和第3部加入的角色大多要求第1部完成对应的外传或支线
+
+第2部不能挖角 第1部12章结束前把想要的角色挖完 四位主角在其它主角篇的第1部无法招募
+
