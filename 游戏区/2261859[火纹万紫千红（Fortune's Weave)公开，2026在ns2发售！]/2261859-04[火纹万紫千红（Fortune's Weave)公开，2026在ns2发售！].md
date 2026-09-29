@@ -14170,3 +14170,45 @@ A少进应该是能收小红小绿的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">五年后人妻立绘这么润吗
 
+
+*****
+
+####  索非亚  
+##### 5716#       发表于 2026-9-29 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300551&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-9-29 14:41</a>
+是的 斧头开罐头有重锤 伤害设计这么低也不知道干嘛的
+
+论坛助手,iPhone</blockquote>
+90命中，刷熟练度用
+
+*****
+
+####  duraa  
+##### 5717#       发表于 2026-9-29 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300612&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-9-29 14:53</a>
+问题来了高速肌无力为什么不用13伤害的铁剑+2而是用3伤害的斧子呢 真能打出伤害吗
+
+论坛助手,iPhone ...</blockquote>
+脑补的时候是想着斧子有伤害保底，当然实际有不有真的需要这个保底的情况就没验证，毕竟上班坐牢中<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mai6696  
+##### 5718#       发表于 2026-9-29 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300745&amp;ptid=2261859" target="_blank">duraa 发表于 2026-9-29 15:23</a>
+
+脑补的时候是想着斧子有伤害保底，当然实际有不有真的需要这个保底的情况就没验证，毕竟上班坐牢中 ...</blockquote>
+如果物理真的沦落到需要用保底伤害的程度，那我觉得大概率你换个战锤或者上魔法会更好。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 所以斧子真的是纯区
+
+*****
+
+####  みさ  
+##### 5719#       发表于 2026-9-29 15:25
+
+游戏刚到手，有什么需要提前注意的吗，只玩过风花雪月
+

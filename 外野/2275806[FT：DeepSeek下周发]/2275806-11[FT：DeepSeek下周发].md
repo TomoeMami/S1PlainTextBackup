@@ -4609,3 +4609,16 @@ Tibo刚发了推。X20套餐重开，但今后套餐用量只有之前的一半<
 Tibo刚发了推。X20套餐重开，但今后套餐用量只有之前的一半</blockquote>
 早就把等价API额度下降了一半了（2800-&gt;1400），被老外发现了. 现在装不下去了. 😂😂
 
+
+*****
+
+####  小野賢章  
+##### 15209#       发表于 2026-9-29 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70300559&amp;ptid=2275806" target="_blank">问题修士 发表于 2026-9-29 14:42</a>
+
+kimi的群里天天在抱怨429和额度不透明，刷的飞快
+
+Code 199套餐，5小时实际1小时就能把额度用完，</blockquote>
+确实，199 我光写代码确实用不完，因为太慢了，但确实没有 work 的需求
+
