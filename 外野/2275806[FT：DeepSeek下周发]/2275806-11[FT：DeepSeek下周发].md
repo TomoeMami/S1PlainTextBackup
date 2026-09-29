@@ -4086,3 +4086,45 @@ Llm用Svg绘图已经被a/炒作大半年了。ds还是瞎子的时候就会画�
 —— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99- ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">炸，都可以炸
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 15162#       发表于 2026-9-29 10:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+gpt6 luna虽然降价但是废话变多 实际差不多还是150/B 
+4.1flash虽然单价还是涨得但是废话少了 现在是100/B
+glm 5.3f还是至尊特价15/B虽然效果还可以但是太慢了 只有自动pipeline量大管饱
+
+总结：废物scam altman
+
+最后回看测试集 从opus4.6开始其实我们的真实task几乎都半斤八两 真到plateau了
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  间宮夏生  
+##### 15163#       发表于 2026-9-29 10:53
+
+后面顶模性能越来越强，次级模型的训练会越来越多的有顶模参与，练不出顶模的估计都要糟重。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  lactone  
+##### 15164#       发表于 2026-9-29 10:54
+
+devday会不会发新模型？我感觉难
+
+astra才出来不到一个月
+
+而且我觉得从astra的态度来看，oa不想和a\刷榜了，反而搞computer use之类的，我估计今晚主打还是那个grok bot类似物
+
+而且传闻腾讯和字节在加班加点赶工搞这个
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
