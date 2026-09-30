@@ -6443,3 +6443,32 @@ workbuddy的确是毒瘤，把自己注册到了大部分格式文件的关联�
 
 &gt;额度燃烧速度明显降低
 
+
+*****
+
+####  AraTurambar  
+##### 15367#       发表于 2026-9-30 11:25
+
+国产harness最干净的是阿里你敢信。
+
+Qwen Code直接fork的geminicode。
+
+
+*****
+
+####  小野賢章  
+##### 15368#       发表于 2026-9-30 11:32
+
+什么时候出官方的蓝色大鲸鱼抱枕，类似宜家那种就行，现在网上卖的都不太还原<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 15369#       发表于 2026-9-30 11:34
+
+<blockquote>AraTurambar 发表于 2026-9-30 11:25
+国产harness最干净的是阿里你敢信。
+
+Qwen Code直接fork的geminicode。</blockquote>
+问题是他们主推的是Qoder，那个可不干净
+
