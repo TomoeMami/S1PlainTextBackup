@@ -206,3 +206,38 @@ MyGO!!!!! 9th LIVE「つなぎ目の向こうに」- 神戸再景編 -
 
        [https://bcr10th.bushiroad-creative.com/](https://bcr10th.bushiroad-creative.com/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42056#       发表于 2026-9-30 21:41
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/30/214108q2jczgtvcd46eczc.png" referrerpolicy="no-referrer">
+
+<strong>2026-09-30_21-40-46.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2026-9-30 21:41 上传
+
+       [https://x.com/Animovie_ofc/status/2105186512120005113](https://x.com/Animovie_ofc/status/2105186512120005113)
+
+*****
+
+####  堀内爱里衣  
+##### 42057#       发表于 2026-9-30 21:43
+
+       
+
+<img src="https://img.stage1st.com/forum/202609/30/214351fix6nr486azddgal.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-09-30-21-36-35-639_com.instagram.android-edit.jpg</strong> (471.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-30 21:43 上传
+
+       [https://www.instagram.com/reel/Dd5baSdgWBe](https://www.instagram.com/reel/Dd5baSdgWBe)
+
