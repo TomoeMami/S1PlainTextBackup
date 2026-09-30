@@ -16429,3 +16429,17 @@ is对限制跳舞刷级是有意识的 三房和engage一张图里跳十次左�
 
 前两部你是没法让她入队的
 
+
+*****
+
+####  みさ  
+##### 5897#       发表于 2026-10-1 05:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70308057&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-1 03:45</a>
+爱娜特莉亚完成外传即可让她在第3部第2区分正式入队 因为她是后期加入角色
+
+前两部你是没法让她入队的 ...</blockquote>
+那么后期岂不是加入了也没用<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
