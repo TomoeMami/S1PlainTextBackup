@@ -6588,3 +6588,19 @@ s1变卡了，难道大的要来了 <img src="https://static.stage1st.com/image/
 没反应，看来今天也不会有大的了
 行吧，节后见<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 15379#       发表于 2026-9-30 14:00
+
+6.1 sol试了下，使用量确实给的多
+
+
+*****
+
+####  andychen  
+##### 15379#       发表于 2026-9-30 14:00
+
+6.1 sol试了下，使用量确实给的多
+

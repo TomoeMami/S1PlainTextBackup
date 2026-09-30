@@ -15794,3 +15794,72 @@ A少天生神力所以气槽爆了也不扣HP上限
 
 其他人不知道
 
+
+*****
+
+####  Jabeck  
+##### 5842#       发表于 2026-9-30 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305058&amp;ptid=2261859" target="_blank">DARK_HGCG 发表于 2026-9-30 13:57</a>
+
+我想呢怎么我通了三条线只有两个熊掌
+
+现在越来越好奇熊掌的来路了</blockquote>
+王女，白发鬼不想降HP都需要浪费一回来来降低这个数值到0。
+
+*****
+
+####  星花  
+##### 5843#       发表于 2026-9-30 14:03
+
+我怀疑熊掌是剧情的。只是暂时玩不到。
+
+
+*****
+
+####  Jabeck  
+##### 5842#       发表于 2026-9-30 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305058&amp;ptid=2261859" target="_blank">DARK_HGCG 发表于 2026-9-30 13:57</a>
+
+我想呢怎么我通了三条线只有两个熊掌
+
+现在越来越好奇熊掌的来路了</blockquote>
+王女，白发鬼不想降HP都需要浪费一回来来降低这个数值到0。
+
+*****
+
+####  星花  
+##### 5843#       发表于 2026-9-30 14:03
+
+ 本帖最后由 星花 于 2026-9-30 14:06 编辑 
+
+我怀疑熊掌是剧情的。只是暂时玩不到。拳妹应该是某条线挖人教学里的，然后那线要打个熊。
+
+
+*****
+
+####  bad_alloc  
+##### 5844#       发表于 2026-9-30 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305058&amp;ptid=2261859" target="_blank">DARK_HGCG 发表于 2026-9-30 13:57</a>
+我想呢怎么我通了三条线只有两个熊掌
+
+现在越来越好奇熊掌的来路了</blockquote>
+a少就很搞，雷达的剧情里面还有受到神器影响逐步堕入深渊失智的描写
+a少完全就是：这披风不错，毛了。然后猛猛用整条线就没说冥界之力什么事，甚至游戏机制上也设计成爆条不扣血<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  DarkDawn  
+##### 5845#       发表于 2026-9-30 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305024&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-9-30 13:48</a>
+
+如果不是固定加点也就是说用坐骑也是能凹的？</blockquote>
+还是不能凹但有个坐骑总是会更好
+
+比如说本来成长率是50%，你随机数表发到了55那就不涨能力，但是你坐骑加了10所以面板成长率是60，那随机数55就可以涨了
+
