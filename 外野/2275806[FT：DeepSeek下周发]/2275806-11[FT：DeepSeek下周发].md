@@ -7363,3 +7363,13 @@ Pi 的 MCP 是为了 code mode 这盘醋加的，最新的 0.99.0 已经内置�
 
 2026-9-30 23:21 上传
 
+
+*****
+
+####  serj005  
+##### 15454#       发表于 2026-9-30 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307512&amp;ptid=2275806" target="_blank">L-JoeW 发表于 2026-9-30 23:22</a>
+大佬们，想咨询一下，workbuddy里有个流式输出过程中如果有多个方案或者需要中途确认的信息，会有一个类似 ...</blockquote>
+dsh默认的标准模式就自带的，不用插件
+
