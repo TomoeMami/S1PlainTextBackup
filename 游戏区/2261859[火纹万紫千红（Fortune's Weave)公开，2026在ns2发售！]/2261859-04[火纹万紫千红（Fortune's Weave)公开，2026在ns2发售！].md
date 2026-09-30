@@ -16184,3 +16184,30 @@ is对限制跳舞刷级是有意识的 三房和engage一张图里跳十次左�
 女王的战备增强已经拿到两个隐藏职业了，之后的还需要再做吗</blockquote>
 我之后有好几个都是任务刚发布就能完成了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 5876#       发表于 2026-9-30 19:30
+
+除了努佐外还有谁自带雷电剑了？
+
+
+*****
+
+####  Jabeck  
+##### 5877#       发表于 2026-9-30 19:33
+
+凯伊第十一章太恶心了吧，几个高闪避角色直接站回避地形<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绕指流光  
+##### 5878#       发表于 2026-9-30 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306621&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-9-30 19:30</a>
+除了努佐外还有谁自带雷电剑了？</blockquote>
+看收人时候的章节吧，我雷达线 11 章收的小丑哥身上就带一把，迪哥线就是努依身上的
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

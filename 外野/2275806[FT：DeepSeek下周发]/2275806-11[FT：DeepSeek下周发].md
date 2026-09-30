@@ -7105,3 +7105,22 @@ oai补偿的62500creadits已经收到，6.1 sol使用体验也还不错，在考
 dsh用的有点血压高了，让它用three.js写个演示折纸的网页出现了五六次“本轮运行失败DeepSeek Messages tra ...</blockquote>
 这是api的服务问题，不是dsh的问题
 
+
+*****
+
+####  nianiania  
+##### 15430#       发表于 2026-9-30 19:27
+
+确实6.1好慢，Astra大多时候二十分钟内解决战斗，6.1最慢一次要一个小时，无言了，永远是正在思考
+
+
+*****
+
+####  Esoterica  
+##### 15431#       发表于 2026-9-30 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306586&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-9-30 19:21</a>
+
+这是api的服务问题，不是dsh的问题</blockquote>
+我是直接登录的自己的账号，这样也会有api问题吗，还是比起登录账号直接用api会更方便？
+
