@@ -6846,3 +6846,56 @@ oai补偿的62500creadits已经收到，6.1 sol使用体验也还不错，在考
 现在感觉ds说要搞游戏显卡能跑的模型可能是真的，qwen3.8 flash现在只要内存够就可以在16g游戏卡跑的飞快， ...</blockquote>
 真给他掏出来那往后可不是玩破限私模的问题了，那就是各家搞app平台的要焦头烂额传统广告收入要死绝，没转型的互联网大厂都得挨一刀了。私人代理跟nas一样简单高效的话，好多app都🉐给驱逐出手机里。
 
+
+*****
+
+####  nianiania  
+##### 15406#       发表于 2026-9-30 17:36
+
+6.1 不赖，ue5 玩得转， 我plus 也能跑挺久，之前两个 plus 跑 astra 撑不过二十分钟
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  蛋黄酱Release  
+##### 15407#       发表于 2026-9-30 17:36
+
+6.1sol慢的难受，关键看不到思维链根本不知道它在干啥<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 15408#       发表于 2026-9-30 17:38
+
+6.1就是astra minor，本来可能是打算涨价的
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  qwased  
+##### 15409#       发表于 2026-9-30 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306091&amp;ptid=2275806" target="_blank">lin2004 发表于 2026-9-30 17:26</a>
+
+真给他掏出来那往后可不是玩破限私模的问题了，那就是各家搞app平台的要焦头烂额传统广告收入要死绝，没 ...</blockquote>
+这个已经是进行时了
+
+唯一的卡点就是内存价格<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">除了内存容量其他的都可以用各种魔法
+
+
+*****
+
+####  bartholo4  
+##### 15410#       发表于 2026-9-30 17:41
+
+6.1 用 xhigh 就够了 速度还可以
+
+*****
+
+####  干将莫邪  
+##### 15411#       发表于 2026-9-30 17:41
+
+6.1sol慢的吐血，不知道是这模型就这样还是蹬的人太多了。
+
