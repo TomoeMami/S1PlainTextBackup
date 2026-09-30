@@ -6084,3 +6084,19 @@ Gpt和kimi
 
 试了下，dot 可以 access 到本地的电脑上，云主机是送的（用来给 dot 跑 terminal、computer use + browser use 的）
 
+
+*****
+
+####  yxydd88  
+##### 15337#       发表于 2026-9-30 07:52
+
+<img src="https://img.stage1st.com/forum/202609/30/075035qzefzdfd4z7xrr47.jpg" referrerpolicy="no-referrer">
+
+<strong>1000006535.jpg</strong> (622.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-30 07:50 上传
+
+一觉醒来还能看到a/给智谱打广告了，年初抱抱脸是谁解决问题怎么不讲了<img src="https://static.stage1st.com/image/smiley/face/52.gif" referrerpolicy="no-referrer">
+
