@@ -6200,3 +6200,11 @@ Gpt和kimi
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  nxmonitor  
+##### 15346#       发表于 2026-9-30 09:02
+
+6.1sol就是那个Astra-mini
+
