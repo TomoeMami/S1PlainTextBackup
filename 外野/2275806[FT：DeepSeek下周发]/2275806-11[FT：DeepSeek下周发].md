@@ -7425,3 +7425,11 @@ qwen flash居然免费延长了，还没说啥时候结束
 
 [https://www.bilibili.com/video/BV1xCai6aE9g](https://www.bilibili.com/video/BV1xCai6aE9g) 今年看过艺术感最高的LLM二创，注意力崩溃的演出叹为观止
 
+
+*****
+
+####  usernotfound  
+##### 15460#       发表于 2026-10-1 04:24
+
+哈吉米4出来了 不知道怎么样
+
