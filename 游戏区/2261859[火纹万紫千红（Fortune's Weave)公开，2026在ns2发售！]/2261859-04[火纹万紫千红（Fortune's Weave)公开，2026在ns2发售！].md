@@ -16072,3 +16072,23 @@ a少完全就是：这披风不错，毛了。然 ...</blockquote>
 
 西洛可这人该走什么方向，听说非常强
 
+
+*****
+
+####  白昼梦DD  
+##### 5865#       发表于 2026-9-30 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305942&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-9-30 16:50</a>
+西洛可这人该走什么方向，听说非常强</blockquote>
+剑人多加上成长双刀 速度高转法师拿雷电剑又独特又好用
+
+
+*****
+
+####  白昼梦DD  
+##### 5865#       发表于 2026-9-30 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305942&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-9-30 16:50</a>
+西洛可这人该走什么方向，听说非常强</blockquote>
+剑人多加上成长双刀 速度高转法师拿雷电剑又独特又好用
+
