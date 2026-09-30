@@ -15946,3 +15946,27 @@ a少完全就是：这披风不错，毛了。然 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  yangchunsiyue  
+##### 5854#       发表于 2026-9-30 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303672&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-30 09:08</a>
+战车兵也能再动吗？</blockquote>
+可以的，部分汗血马的技能。但是最大亲密度也就是再动两格。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  yangchunsiyue  
+##### 5854#       发表于 2026-9-30 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303672&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-30 09:08</a>
+战车兵也能再动吗？</blockquote>
+可以的，部分汗血马的技能。但是最大亲密度也就是再动两格。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
