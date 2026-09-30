@@ -6725,3 +6725,20 @@ openai出的模型怎么要么速度慢质量还行，要么速度快质量垃�
 今天 KIMI 和 DS 能憋出来吗？</blockquote>
 4点了，不可能来了吧<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小野賢章  
+##### 15393#       发表于 2026-9-30 16:10
+
+其实我每周的 astra 都用不完，有必要切换到 6.1sol 吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 15394#       发表于 2026-9-30 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305656&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-30 15:57</a>
+4点了，不可能来了吧</blockquote>
+K3和v4p都是半夜出来的<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
