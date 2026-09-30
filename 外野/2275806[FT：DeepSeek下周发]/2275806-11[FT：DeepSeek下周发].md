@@ -7306,3 +7306,23 @@ honcho 和 openviking 这两个的功能我看是相同的，为啥要同时使�
 主要是 gemini code 本身就很过时，而且现在也没怎么维护了。</blockquote>
 主要是干净无奇怪依赖的纯开源npm，而且其实过时一点也没什么。
 
+
+*****
+
+####  ff2077  
+##### 15449#       发表于 2026-9-30 22:54
+
+ 本帖最后由 ff2077 于 2026-9-30 22:59 编辑 
+
+O÷的6.1sol怎么这么慢<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+原本一小时的任务，现在需要三四个小时了，确实省钱<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 15450#       发表于 2026-9-30 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307246&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-30 22:23</a>
+主要是干净无奇怪依赖的纯开源npm，而且其实过时一点也没什么。</blockquote>
+最近半年其实 harness 进步很大的，要纯净直接 pi 就好了。
+
