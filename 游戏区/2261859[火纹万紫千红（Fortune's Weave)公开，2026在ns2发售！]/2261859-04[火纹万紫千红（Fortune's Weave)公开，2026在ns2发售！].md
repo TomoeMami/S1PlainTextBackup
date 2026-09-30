@@ -16272,3 +16272,14 @@ is对限制跳舞刷级是有意识的 三房和engage一张图里跳十次左�
 
 剧情说一个大陆一个君主，一个君主又对应三个天冠，为什么风花雪月里的纹章种类会有那么多
 
+
+*****
+
+####  Jabeck  
+##### 5885#       发表于 2026-9-30 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307181&amp;ptid=2261859" target="_blank">magicc 发表于 2026-9-30 22:02</a>
+
+剧情说一个大陆一个君主，一个君主又对应三个天冠，为什么风花雪月里的纹章种类会有那么多 ...</blockquote>
+可能是地底人搞出来的，迪特的专武都是法比欧做的。
+
