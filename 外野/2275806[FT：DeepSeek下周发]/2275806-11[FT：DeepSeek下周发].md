@@ -7417,3 +7417,11 @@ qwen flash居然免费延长了，还没说啥时候结束
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  taxiom  
+##### 15459#       发表于 2026-10-1 00:57
+
+[https://www.bilibili.com/video/BV1xCai6aE9g](https://www.bilibili.com/video/BV1xCai6aE9g) 今年看过艺术感最高的LLM二创，注意力崩溃的演出叹为观止
+
