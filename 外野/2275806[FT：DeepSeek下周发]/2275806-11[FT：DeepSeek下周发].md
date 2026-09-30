@@ -7246,3 +7246,18 @@ Hermes非常好用，配honcho和openviking。
 问题是他们主推的是Qoder，那个可不干净</blockquote>
 你管他呢，qwen code自己装上然后本地27b就好了呀www
 
+
+*****
+
+####  mintslime  
+##### 15444#       发表于 2026-9-30 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306496&amp;ptid=2275806" target="_blank">天堂懵懂人 发表于 2026-9-30 18:54</a>
+
+东西OK的 不过最终还是需要外接API
+
+我让dsh在本地部署了一个OCR，下个月再试试看 ...</blockquote>
+本地ocr的话比较微妙
+
+你想用小模型可以试试minerU，每天1000页够用了，准确度也行
+
