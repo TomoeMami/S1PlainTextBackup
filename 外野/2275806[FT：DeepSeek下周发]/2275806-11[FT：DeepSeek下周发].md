@@ -6370,3 +6370,49 @@ dsh现在有啥好点的记忆插件推荐<img src="https://static.stage1st.com/
 
 我在 Pi 里用了一下 6.1 Sol，2.18M消耗了6%的5h额度，缓存率92.8%，输出5.1‰，按官方 API 定价反推每周额度大约67刀，应该还是有隐藏倍率 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Baccano  
+##### 15361#       发表于 2026-9-30 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70302790&amp;ptid=2275806" target="_blank">Lucario 发表于 2026-9-29 22:43</a>
+
+workbuddy的确是毒瘤，把自己注册到了大部分格式文件的关联打开里面了
+
+谨慎使用，藤子果然不负众望 ...</blockquote>
+让workbuddy自己排查一遍，靠，我也中招了。
+
+关联了46个文件格式，改了md文件的默认打开方式
+
+*****
+
+####  tillnight  
+##### 15362#       发表于 2026-9-30 10:51
+
+<blockquote>eno_emos 发表于 2026-9-30 10:20
+他这个是自己搞了一整套对标cuda出来？</blockquote>
+你说的没错，但Tilelang不是最新的成果，而且没记错的话本身之前就已经开源了。这次新开源的是昇腾组件。
+
+
+*****
+
+####  yudms1  
+##### 15363#       发表于 2026-9-30 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70304027&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-9-30 10:20</a>
+
+他这个是自己搞了一整套对标cuda出来？</blockquote>
+看声明原文的意思，不是对标完整 cuda 生态，是做了 tilelang 的昇腾后端适配。
+
+
+*****
+
+####  yudms1  
+##### 15363#       发表于 2026-9-30 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70304027&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-9-30 10:20</a>
+
+他这个是自己搞了一整套对标cuda出来？</blockquote>
+看声明原文的意思，不是对标完整 cuda 生态，是做了 tilelang 的昇腾后端适配。
+
