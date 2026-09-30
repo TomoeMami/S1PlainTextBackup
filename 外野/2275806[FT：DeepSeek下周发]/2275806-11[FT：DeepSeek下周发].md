@@ -6268,3 +6268,28 @@ Gpt和kimi
 
 之前就遇到过4.1f读文档读一半就开工然后不断返工修正,昨天又遇到了,让大肥鱼整理下代码里一些接口和功能,我看了一半发现不对,问怎么给我无中生有了,直接说前面是实际读取源码后整理出来的,有一些功能的说明是自己按照通常情况推测的<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  未知伤亡  
+##### 15351#       发表于 2026-9-30 09:56
+
+<img src="https://img.stage1st.com/forum/202609/30/095629sb70f0zlbpllpvp1.png" referrerpolicy="no-referrer">
+
+<strong>282042d440d10e4304fc5234c58ab1b1.png</strong> (49.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-30 09:56 上传
+
+黑色大肥鱼下载页面上的，这是官方卡通形象吗
+
+*****
+
+####  Lorraine_Kinney  
+##### 15352#       发表于 2026-9-30 09:59
+
+6.1整体还不错，比6sol便宜
+
+小红书居然还能看见meta粉，还骂我ai粉圈，真是一条，笑死了
+
