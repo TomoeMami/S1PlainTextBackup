@@ -7052,3 +7052,56 @@ ds这所谓的小模型不是说是内部测试用例标识吗？现在实锤有
 
 希望qwen4能到0731水平，那真的自由了
 
+
+*****
+
+####  Saker_bobo  
+##### 15425#       发表于 2026-9-30 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305844&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-9-30 16:30</a>
+deepseek没要华为的1024超节点，也没要8096超节点，定制了一个128卡的超节点。这个结构肯定是deepseek认为 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">超节点纯纯欺负领导看不懂 觉得数量大就是好 这套方案规模越大互联越差
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  Esoterica  
+##### 15426#       发表于 2026-9-30 19:18
+
+dsh用的有点血压高了，让它用three.js写个演示折纸的网页出现了五六次“本轮运行失败DeepSeek Messages transport failed”<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+而且感觉是不是原因还不一样，之前有一次让它自检说是截图验证截的图太大，然后今天做一个好像和图没关系的东西又挂了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  泰坦失足  
+##### 15427#       发表于 2026-9-30 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306259&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-9-30 17:59</a>
+
+我刚查了一下这个，好像4C/24GB/200G是ARM服务器，常见的agent在上面干活会遇到问题吗？ ...</blockquote>
+用到现在几乎没啥问题. 就失败过两次: 1是想折腾 服务器上跑明日方舟挂机, 因为虚拟化之类的问题没成功, 2是Dropbox CLI不支持ARM版.
+
+主要问题反而是Arm机器难抢, 需要上脚本. 不过我两次成功的都是心血来潮随手一点就抢到了.
+
+*****
+
+####  目灼灼似贼  
+##### 15428#       发表于 2026-9-30 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306009&amp;ptid=2275806" target="_blank">chaoswing 发表于 2026-9-30 17:05</a>
+
+oai补偿的62500creadits已经收到，6.1 sol使用体验也还不错，在考虑下个月要不要降成$100，目前$200确实没 ...</blockquote>
+我也收到了，这个额度相当于多少张重置卡？
+
+*****
+
+####  有鱼  
+##### 15429#       发表于 2026-9-30 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306566&amp;ptid=2275806" target="_blank">Esoterica 发表于 2026-9-30 19:18</a>
+
+dsh用的有点血压高了，让它用three.js写个演示折纸的网页出现了五六次“本轮运行失败DeepSeek Messages tra ...</blockquote>
+这是api的服务问题，不是dsh的问题
+
