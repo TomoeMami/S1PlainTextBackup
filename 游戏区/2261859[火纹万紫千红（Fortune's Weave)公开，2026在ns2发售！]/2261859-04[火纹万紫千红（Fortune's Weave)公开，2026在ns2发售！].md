@@ -16387,3 +16387,20 @@ is对限制跳舞刷级是有意识的 三房和engage一张图里跳十次左�
 罗蕾塔转法师拿雷剑，想靠阳炎和特技加40回避当个回避t，技成长一般雷剑命中不高，特技回避又要满血稳定性一般。
 其他法师波拿索非亚丹提正常养不会差的。
 
+
+*****
+
+####  Humpy  
+##### 5894#       发表于 2026-10-1 01:14
+
+ 本帖最后由 Humpy 于 2026-10-1 01:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307746&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-1 00:22</a>
+索绯雅 诺克裘拉 西洛可 努蒂奴 妮涅 罗蕾塔 丹提
+
+这些都是女王线能早招募 名声要求低 综合实力不错的角 ...</blockquote>
+希洛克只是看上去好招，实际上他那个交涉坑人难度对新手来说不低的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然颜值不讨喜，但是名声5就能挖的大刀其实算是个很适合女王线的强角色，而且交涉难度很容易。
+名声6能挖的哪吒同样是不错的角色，沙虫肉也算比较好弄到的素材了，提前准备下应该很难卡。
+
+第九章才能挖的努佐和魔弓，虽然加入晚但角色自身成长率就很出色而且人物技能还强，也可以作为主力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
