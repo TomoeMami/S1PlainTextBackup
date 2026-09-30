@@ -405,3 +405,21 @@ PV的导入部分，用 ...</blockquote>
 
 比较难以参悟的就是她所说的“你始终是自由的”的谜语究竟指什么，难道是玩家随时随地可以退出游戏登录这种超游选择的一种调侃吗？
 
+
+*****
+
+####  幽灵部长助理  
+##### 77#       发表于 2026-9-30 22:17
+
+这个谜底会在最终章的时候揭晓<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 78#       发表于 2026-9-30 22:24
+
+【【阿索拉：星之祈愿】 特區廳影像紀錄 ✨「文京的玫瑰」】 [https://www.bilibili.com/video/BV1AiaE6VESA](https://www.bilibili.com/video/BV1AiaE6VESA)
+
+官方3D小视频，北斗七星女很涩啊。
+

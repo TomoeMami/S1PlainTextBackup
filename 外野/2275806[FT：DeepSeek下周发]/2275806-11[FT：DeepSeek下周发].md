@@ -7283,3 +7283,26 @@ honcho 和 openviking 这两个的功能我看是相同的，为啥要同时使�
 你管他呢，qwen code自己装上然后本地27b就好了呀www</blockquote>
 主要是 gemini code 本身就很过时，而且现在也没怎么维护了。
 
+
+*****
+
+####  AraTurambar  
+##### 15447#       发表于 2026-9-30 22:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307146&amp;ptid=2275806" target="_blank">rcnoel 发表于 2026-9-30 21:51</a>
+
+honcho 和 openviking 这两个的功能我看是相同的，为啥要同时使用</blockquote>
+完全不同，honcho是人格模块，ov是知识库。
+
+两者都可以当hermes的记忆组件，但是一般我推荐honcho当记忆组件，ov用mcp外接。
+
+*****
+
+####  AraTurambar  
+##### 15448#       发表于 2026-9-30 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307147&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-9-30 21:52</a>
+
+主要是 gemini code 本身就很过时，而且现在也没怎么维护了。</blockquote>
+主要是干净无奇怪依赖的纯开源npm，而且其实过时一点也没什么。
+
