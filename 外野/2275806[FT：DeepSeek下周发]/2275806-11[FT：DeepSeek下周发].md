@@ -6499,3 +6499,13 @@ Qwen Code直接fork的geminicode。</blockquote>
 
 小红书的大模型也叫dots，这下尴尬了
 
+
+*****
+
+####  jojog  
+##### 15372#       发表于 2026-9-30 12:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不得不说o/的产品真的是一坨
+
+这dots改个头像居然还会因为排版点击不到想要的图标
+

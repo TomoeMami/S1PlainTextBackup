@@ -15571,3 +15571,17 @@ if粉甲强在怪力，一击各种脆皮，这点倒是和巴西初音差不多
 
 除了丁真能强制消火，其他人是不是很快就爆了。
 
+
+*****
+
+####  黛冬優子  
+##### 5827#       发表于 2026-9-30 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70304514&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-30 11:55</a>
+有个打拳的黑妹，晚点挖会带一个大熊的右钩爪。
+
+凯伊线早期挖她是没有的，女王线也是早期挖的，没有。
+
+只 ...</blockquote>
+a少挖来也有
+
