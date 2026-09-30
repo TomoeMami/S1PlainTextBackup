@@ -7200,3 +7200,24 @@ dsh用的有点血压高了，让它用three.js写个演示折纸的网页出现
 
 Sol 6.1慢的几乎没法用，切回astra了
 
+
+*****
+
+####  startraveller  
+##### 15440#       发表于 2026-9-30 20:46
+
+结果国内下半月大的全没来，是不是被美国队卷蒙了。
+
+
+*****
+
+####  chaoswing  
+##### 15441#       发表于 2026-9-30 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306583&amp;ptid=2275806" target="_blank">目灼灼似贼 发表于 2026-9-30 19:21</a>
+
+我也收到了，这个额度相当于多少张重置卡？</blockquote>
+之前一次invite给1000，3次一共得了3000，刚好上个周期赶上快重置了就没用重置卡，实际用下来，一个项目，一个astra medium thread加一些luna subagents大概坚持了1天，这样使用的话所以感觉是2-3张？
+
+如果用6.1 sol估计要多很多
+

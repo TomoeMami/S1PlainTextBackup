@@ -16221,3 +16221,35 @@ is对限制跳舞刷级是有意识的 三房和engage一张图里跳十次左�
 
 IO的马合并后还会送一只，不知道为啥粉毛的飞马没有，因为我转了个飞龙就没带过来吗？
 
+
+*****
+
+####  nancygreenlife  
+##### 5880#       发表于 2026-9-30 20:50
+
+<blockquote>姐霓姐霓 发表于 2026-9-30 17:56
+草啊，凯伊线打到12章才发现漏了外传，迪线也漏了，还得重打好几章，感觉国庆都打不完四线第一部了 ...</blockquote>
+外传进度四个人共享的，随便谁只要打了第三幕就不缺人，如果从练级的角度来讲外传关卡等级不太高，经验也不是很多
+
+
+*****
+
+####  姐霓姐霓  
+##### 5881#       发表于 2026-9-30 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306875&amp;ptid=2261859" target="_blank">nancygreenlife 发表于 2026-9-30 20:50</a>
+
+外传进度四个人共享的，随便谁只要打了第三幕就不缺人，如果从练级的角度来讲外传关卡等级不太高，经验也 ...</blockquote>
+但是不打的话这条线有的角色就不能进队
+
+
+*****
+
+####  bbluekid  
+##### 5882#       发表于 2026-9-30 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306621&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-9-30 19:30</a>
+
+除了努佐外还有谁自带雷电剑了？</blockquote>
+小丑也带了
+
