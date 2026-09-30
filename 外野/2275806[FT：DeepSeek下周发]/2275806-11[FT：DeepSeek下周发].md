@@ -6293,3 +6293,13 @@ Gpt和kimi
 
 小红书居然还能看见meta粉，还骂我ai粉圈，真是一条，笑死了
 
+
+*****
+
+####  德尔惠净水器  
+##### 15353#       发表于 2026-9-30 10:12
+
+DeepSeek 开源昇腾基础组件
+
+https://mp.weixin.qq.com/s/X41mKH4Ds-VXUAnK6M8Eww
+
