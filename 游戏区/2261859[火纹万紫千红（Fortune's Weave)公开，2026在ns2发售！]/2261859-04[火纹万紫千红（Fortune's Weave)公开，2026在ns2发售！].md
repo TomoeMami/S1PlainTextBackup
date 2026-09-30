@@ -16414,3 +16414,18 @@ is对限制跳舞刷级是有意识的 三房和engage一张图里跳十次左�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  纯夏  
+##### 5896#       发表于 2026-10-1 03:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70308048&amp;ptid=2261859" target="_blank">みさ 发表于 2026-10-1 03:20</a>
+
+显示无法挖角的就不能挖吗，还是有什么别的方法，玩的雷达线好喜欢爱娜特莉亚
+
+—— 来自 鹅球 v4.0 ...</blockquote>
+爱娜特莉亚完成外传即可让她在第3部第2区分正式入队 因为她是后期加入角色
+
+前两部你是没法让她入队的
+
