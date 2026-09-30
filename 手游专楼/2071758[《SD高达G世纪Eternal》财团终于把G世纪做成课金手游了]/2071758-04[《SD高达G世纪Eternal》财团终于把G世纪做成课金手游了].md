@@ -880,3 +880,25 @@ v2ab在ssp之后也就那样
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这次强敌有点难
 
+
+*****
+
+####  冰风血羽  
+##### 4793#       发表于 2026-9-30 18:46
+
+ 本帖最后由 冰风血羽 于 2026-9-30 18:48 编辑 
+
+47连只有米米船AGE1跟刘备独角兽，复刻池200抽1神2狼，去V池子40抽一个铃铛女一个黑猫，这个月得搞到50抽才能去换王牌船了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+*****
+
+####  gpx234mqx  
+##### 4794#       发表于 2026-9-30 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306442&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-9-30 18:42</a>
+
+这次强敌有点难</blockquote>
+的确，开自动只能打到11
+

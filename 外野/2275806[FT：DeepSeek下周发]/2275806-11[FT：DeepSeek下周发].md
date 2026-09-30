@@ -6999,3 +6999,39 @@ OAI的dots各位都拿来做什么呢？
 看到一个50系超频帖子，“RTX 50系列GPU在GDDR7显存超频上的巨大潜力，通过mvolt+ extreme工具可突破官方限 ...</blockquote>
 ds这所谓的小模型不是说是内部测试用例标识吗？现在实锤有这个模型了？
 
+
+*****
+
+####  来都来了  
+##### 15421#       发表于 2026-9-30 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306268&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-9-30 18:03</a>
+https://earendil.com/posts/you-said-no-mcp/
+
+Pi 准备内置 MCP 了，难怪 pi-mcp-adapter 插件把配置文件 ...</blockquote>
+这犟种作者终于发现Agent不能没有MCP了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  requiem116  
+##### 15422#       发表于 2026-9-30 18:50
+
+一个手游挂机脚本，glm怎么反而给我越搓越挫了无语
+
+前几天基本上只有小部分异常情况需要额外处理，结果现在越细化越跑不动了本来处理好的地方也会卡死了
+
+
+*****
+
+####  天堂懵懂人  
+##### 15423#       发表于 2026-9-30 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70283891&amp;ptid=2275806" target="_blank">mintslime 发表于 2026-9-25 04:36</a>
+
+dsh真的不行（
+
+但是你的要求也确实可以优化，我的感觉是最好做成一个html，使用时拖入或者选取对应的照片 ...</blockquote>
+东西OK的 不过最终还是需要外接API
+
+我让dsh在本地部署了一个OCR，下个月再试试看
+
