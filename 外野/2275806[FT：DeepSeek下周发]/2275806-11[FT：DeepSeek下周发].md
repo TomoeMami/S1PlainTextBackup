@@ -6795,3 +6795,13 @@ deepseek没要华为的1024超节点，也没要8096超节点，定制了一个1
 现在感觉ds说要搞游戏显卡能跑的模型可能是真的，qwen3.8 flash现在只要内存够就可以在16g游戏卡跑的飞快，智力也不赖
 ds掏个类似的100b+30b模型我都不敢想内存条价格要翻几倍<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 15401#       发表于 2026-9-30 16:48
+
+<blockquote>overflowal 发表于 2026-9-30 16:30
+deepseek没要华为的1024超节点，也没要8096超节点，定制了一个128卡的超节点。这个结构肯定是deepseek认为 ...</blockquote>
+这卡数大概率是在和英伟达的比，当然其实128卡也完全没问题，交付方案就是液冷64卡，再加64块就行
+
