@@ -16029,3 +16029,19 @@ a少完全就是：这披风不错，毛了。然 ...</blockquote>
 
 打到第二章就会发现这作一堆肌无力的角色根本打不动第二部困难模式下的重甲和斗士，必须要法术来打。但是哪怕20力的弓兵用加2铁攻都能秒那些龙骑，20力的天马两下也能打死那些法师。很难不怀疑肌无力是算计好的。
 
+
+*****
+
+####  土卫七  
+##### 5861#       发表于 2026-9-30 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305459&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-9-30 15:23</a>
+奇怪，我看到好多人都说女王成长不行。
+
+我自己玩起来也是。不看加成的话力量和魔力差不多了。
+
+50力不应该 ...</blockquote>
+这还是我尽力救的结果了，遇到烂成长就回档回城转职，每章开头也都先全丢旅馆升级看看成长再凹，结果这女王力量速度一点不带动的，能买到的转职证也耗完了，绝望<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
