@@ -6637,3 +6637,13 @@ s1变卡了，难道大的要来了 <img src="https://static.stage1st.com/image/
 
 6.1用Ultra感觉都没有之前用Astral消耗额度快，可以使劲的蹬
 
+
+*****
+
+####  umamusume  
+##### 15383#       发表于 2026-9-30 15:11
+
+6.1的缓存命中50％，肯定耐用很多，astra大人就算了，太贵了
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
