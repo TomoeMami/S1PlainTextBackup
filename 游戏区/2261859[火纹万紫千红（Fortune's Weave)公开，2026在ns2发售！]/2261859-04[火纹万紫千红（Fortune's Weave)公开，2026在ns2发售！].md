@@ -16336,3 +16336,23 @@ is对限制跳舞刷级是有意识的 三房和engage一张图里跳十次左�
 
 按这个顺序可以推断其他君主的天冠
 
+
+*****
+
+####  chiefshi  
+##### 5890#       发表于 2026-10-1 00:08
+
+女王线培养哪些人啊，困难第一章11关感觉人物都养废了，商人对战那关主线除了主角几乎都是被秒<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  magicc  
+##### 5891#       发表于 2026-10-1 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307673&amp;ptid=2261859" target="_blank">涂鸦恶魔 发表于 2026-10-1 00:02</a>
+谁知道呢，剧情里都没说，君主这个设定也是万紫千红后加的
+
+反正君主的天冠都是按塔罗牌顺序连号的，像鞑古 ...</blockquote>
+意思马兹和那个魔法的神是鞑古扎和其他君主生的？我看他们不是鞑古扎对应的天冠
+
