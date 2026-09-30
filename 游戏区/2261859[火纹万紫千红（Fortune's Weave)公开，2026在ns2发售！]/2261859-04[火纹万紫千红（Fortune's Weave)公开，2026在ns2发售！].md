@@ -16138,3 +16138,29 @@ a少完全就是：这披风不错，毛了。然 ...</blockquote>
 迪特里希第二个圣焰技上完debuff加的经验是固定值么 l难度要是没改这个 直接一把遭遇战99级了 谁打得过他啊 ...</blockquote>
 实际上雷达跳舞还不消耗血量（）1级转职舞娘之后就是99级说是（
 
+
+*****
+
+####  Jabeck  
+##### 5871#       发表于 2026-9-30 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306343&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-9-30 18:19</a>
+
+迪特里希篇9月初这几个外传全挤在一起是人设计的吗，何必要搞成这样，不是看着攻略知道时间的人玩了都会骂 ...</blockquote>
+除了众所周知的坑爹白发鬼其他还好吧。。。商人的能到10月做。
+
+
+*****
+
+####  ShitOverflow  
+##### 5872#       发表于 2026-9-30 19:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">恰饭赏析bgm中，这代西班牙要素拉挺满，水友戏称朱紫还真有点通感了，老任是着了西班牙什么道
+
+*****
+
+####  JOJOROY  
+##### 5873#       发表于 2026-9-30 19:02
+
+女王的战备增强已经拿到两个隐藏职业了，之后的还需要再做吗
+
