@@ -752,3 +752,19 @@ V反派那堆歪瓜裂枣最出圈就多格拉吧，还有台赞尼克，后面�
 
 200抽V2倒是满破了，黄鸡就一个，不一破这白值根本打不动人吧，给齿轮又觉得不划算<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 4779#       发表于 2026-9-30 13:25
+
+300抽一条船没出，换个V的船跑路了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ティグル  
+##### 4780#       发表于 2026-9-30 13:31
+
+重击有点太战未来了，现在点开搜索除了V2AB全是歪瓜裂枣
+

@@ -15650,3 +15650,17 @@ a少挖来也有
 
 —— 来自 nubia NX733J, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  a3a4sc  
+##### 5832#       发表于 2026-9-30 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70301921&amp;ptid=2261859" target="_blank">a3a4sc 发表于 2026-9-29 19:55</a>
+啊。。。我是看了两个日本攻略wiki的推荐顺序，两个网站都推荐一周目凯伊开荒，我就选了凯伊
+
+现在已经第七 ...</blockquote>
+凯伊线要干的事情太多了，根本没有精力去喂坐骑放生坐骑吃那放生奖励。没空养马
+
+想着怎么培养队友就耗尽能量了。
+
