@@ -7433,3 +7433,14 @@ qwen flash居然免费延长了，还没说啥时候结束
 
 哈吉米4出来了 不知道怎么样
 
+
+*****
+
+####  jojog  
+##### 15461#       发表于 2026-10-1 04:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70308086&amp;ptid=2275806" target="_blank">usernotfound 发表于 2026-10-1 04:24</a>
+
+哈吉米4出来了 不知道怎么样</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一般人不给用的，现在除了看人吹B没有任何价值
+
