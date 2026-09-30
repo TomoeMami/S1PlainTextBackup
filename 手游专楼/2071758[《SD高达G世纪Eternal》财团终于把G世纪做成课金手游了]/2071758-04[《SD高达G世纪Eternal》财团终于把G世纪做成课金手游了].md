@@ -802,3 +802,26 @@ V反派那堆歪瓜裂枣最出圈就多格拉吧，还有台赞尼克，后面�
 
 其他驾驶员地图炮后不能再动，开发机没那么好用的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 4785#       发表于 2026-9-30 14:37
+
+v2ab在ssp之后也就那样
+
+*****
+
+####  Abomination  
+##### 4786#       发表于 2026-9-30 14:39
+
+<img src="https://img.stage1st.com/forum/202609/30/143623olwm7z9b7qpqdskt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260930_134418_com_bandainamcoent_gget_WW_UnityPlayerActivity.jpg</strong> (216.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-30 14:36 上传
+
+二百抽好女孩们满突了还是没有胡索，等钻存够一百抽再抽过，反正要换王牌船<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
