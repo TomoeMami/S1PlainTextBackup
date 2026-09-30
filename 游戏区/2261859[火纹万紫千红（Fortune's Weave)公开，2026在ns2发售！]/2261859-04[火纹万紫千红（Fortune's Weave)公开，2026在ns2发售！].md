@@ -16404,3 +16404,13 @@ is对限制跳舞刷级是有意识的 三房和engage一张图里跳十次左�
 
 第九章才能挖的努佐和魔弓，虽然加入晚但角色自身成长率就很出色而且人物技能还强，也可以作为主力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  みさ  
+##### 5895#       发表于 2026-10-1 03:20
+
+显示无法挖角的就不能挖吗，还是有什么别的方法，玩的雷达线好喜欢爱娜特莉亚
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
