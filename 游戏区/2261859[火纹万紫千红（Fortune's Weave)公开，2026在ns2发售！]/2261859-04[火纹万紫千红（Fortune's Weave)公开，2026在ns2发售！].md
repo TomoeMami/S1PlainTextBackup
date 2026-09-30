@@ -15609,3 +15609,14 @@ a少挖来也有
 
 2026-9-30 12:21 上传
 
+
+*****
+
+####  纯夏  
+##### 5830#       发表于 2026-9-30 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303803&amp;ptid=2261859" target="_blank">偎 发表于 2026-9-30 09:34</a>
+
+话说我迪哥线把所有的外传都打完了，是不是除了他自己的外传，别的外传我不用再打了？ ...</blockquote>
+是 相同的外传打一遍 其他线可以不打 
+
