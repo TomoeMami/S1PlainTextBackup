@@ -959,3 +959,13 @@ v高达池子里塞一个宇宙恶女，麻了
 
 连出3个ur都是up外的<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 4801#       发表于 2026-9-30 23:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这塔，15层太有设计了一个晚上几小时正攻逃课都过不去
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
