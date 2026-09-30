@@ -6681,3 +6681,47 @@ s1变卡了，难道大的要来了</blockquote>
 
 今天 KIMI 和 DS 能憋出来吗？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RookieTnT  
+##### 15388#       发表于 2026-9-30 15:50
+
+openai出的模型怎么要么速度慢质量还行，要么速度快质量垃圾，要么速度还行，质量还行却极其的贵。 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vergilno1  
+##### 15389#       发表于 2026-9-30 15:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer"><blockquote>DeepSeek 开源昇腾基础组件
+
+今天，我们正式开源面向华为昇腾算力平台的基础设施组件，涵盖 TileLang 高级语言编译工具、计算库、分布式通信库。所有组件与此前面向英伟达平台的开源组件一一对应。工欲善其事，必先利其器。建立新一代自主可控的 GPU 软件生态，首要的事情是先建立一个通用的、编程简单的、同时能达到硬件性能上限的高级语言。TileLang 在这样的历史背景下诞生。一方面，相对于英伟达的 CUDA 语言，TileLang 的编程更简单，能显著提高开发效率、简化代码逻辑。另一方面，相对于其它同类高级语言，TileLang 的编程模型可以充分发挥芯片的特性，达到硬件的性能上限。TileLang 路线首先在英伟达成熟平台上得到了验证，如今已承载了 DeepSeek V4 系列模型训练中大部分算子的实现，是我们探索 AGI 新范式、开发高性能算子的核心工具。本次开源的 TileLang 昇腾版本，对昇腾 Ascend C 底层指令进行封装、提供高级语言的编程方式、同时不损失硬件性能。这正是 TileLang 的设计初衷。目前，DeepSeek 训练中用到的每一个 TileLang 算子，在昇腾上都有对应的高性能实现。 TileLang 昇腾版本作为一个开源工作，希望能对更多 AI 芯片建立高可用软件生态起到示范作用。本次开源还包括昇腾平台核心计算与通信组件，为不同使用场景提供可复用的基础能力：DeepGEMM 加速通用矩阵运算；DeepEP 提供高效的大规模跨设备通信；TileKernels 提供数据处理所需的常规向量计算和访存算子；FlashMLA 提供稀疏注意力算子，提升长上下文处理效率；DeepSelect 则实现了高效的数据筛选。在多项关键测试用例中，上述组件的计算与通信性能已接近硬件上限。在面向昇腾平台的研发过程中，华为团队给予了毫无保留的大力支持。双方紧密合作，共同推进基于昇腾 950 的 128 卡超节点方案、共同对计算与通信进行了深度优化。我们将持续推进技术创新，与社区共同建设开放的软件生态、共同进步。————附开源项目链接：TileLang: https://github.com/tile-ai/tilelangDeepGEMM Ascend: https://github.com/deepseek-ai/DeepGEMM-AscendDeepEP Ascend: https://github.com/deepseek-ai/DeepEP-AscendTileKernels: https://github.com/deepseek-ai/TileKernelsFlashMLA: https://github.com/deepseek-ai/FlashMLADeepSelect: https://github.com/deepseek-ai/DeepSelect</blockquote>
+—— 来自 HONOR ELP-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  很久就在那边l  
+##### 15390#       发表于 2026-9-30 15:53
+
+速度要是快了还出加速模式干啥呢
+
+*****
+
+####  nxmonitor  
+##### 15391#       发表于 2026-9-30 15:56
+
+ 本帖最后由 nxmonitor 于 2026-9-30 15:58 编辑 
+
+这个开源的项目很重要，但是对用户不怎么直观。所以还是前几十页的某次观点，华为对这块有点脑子不清楚，只有DS能搞出生态来…
+
+*****
+
+####  cscbzcbz  
+##### 15392#       发表于 2026-9-30 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305593&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-9-30 15:45</a>
+今天 KIMI 和 DS 能憋出来吗？</blockquote>
+4点了，不可能来了吧<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
