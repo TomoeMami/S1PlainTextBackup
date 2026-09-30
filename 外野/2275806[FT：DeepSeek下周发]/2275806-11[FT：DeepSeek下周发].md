@@ -7347,3 +7347,19 @@ pi有巨大的bun依赖啊。
 这犟种作者终于发现Agent不能没有MCP了</blockquote>
 Pi 的 MCP 是为了 code mode 这盘醋加的，最新的 0.99.0 已经内置了
 
+
+*****
+
+####  L-JoeW  
+##### 15453#       发表于 2026-9-30 23:22
+
+大佬们，想咨询一下，workbuddy里有个流式输出过程中如果有多个方案或者需要中途确认的信息，会有一个类似图中的弹窗让选择或者自定义回答，dsh有实现类似这种功能的插件吗
+
+<img src="https://img.stage1st.com/forum/202609/30/232130uov8jc4c44s9x44u.png" referrerpolicy="no-referrer">
+
+<strong>20260930231939.png</strong> (17.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-30 23:21 上传
+

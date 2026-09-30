@@ -16293,3 +16293,17 @@ is对限制跳舞刷级是有意识的 三房和engage一张图里跳十次左�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  涂鸦恶魔  
+##### 5887#       发表于 2026-9-30 23:14
+
+ 本帖最后由 涂鸦恶魔 于 2026-9-30 23:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307181&amp;ptid=2261859" target="_blank">magicc 发表于 2026-9-30 22:02</a>
+
+剧情说一个大陆一个君主，一个君主又对应三个天冠，为什么风花雪月里的纹章种类会有那么多 ...</blockquote>
+一样的，都是塔罗牌对应的22种类型，只不过叫法不一样
+
+大苏把除自己的全能之天冠（炎之纹章）之外的21种天冠平均分给7君主，每个君主分得3份，其他龙族眷属都是继续细分
+
