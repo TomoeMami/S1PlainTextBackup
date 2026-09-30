@@ -6355,3 +6355,18 @@ https://mp.weixin.qq.com/s/X41mKH4Ds-VXUAnK6M8Eww</blockquote>
 
 来的这个真是大的
 
+
+*****
+
+####  pale219  
+##### 15359#       发表于 2026-9-30 10:35
+
+dsh现在有啥好点的记忆插件推荐<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  RookieTnT  
+##### 15360#       发表于 2026-9-30 10:39
+
+我在 Pi 里用了一下 6.1 Sol，2.18M消耗了6%的5h额度，缓存率92.8%，输出5.1‰，按官方 API 定价反推每周额度大约67刀，应该还是有隐藏倍率 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
