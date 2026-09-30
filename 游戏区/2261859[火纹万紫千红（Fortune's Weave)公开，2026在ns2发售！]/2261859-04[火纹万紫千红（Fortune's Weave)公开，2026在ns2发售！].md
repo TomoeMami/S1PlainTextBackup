@@ -16045,3 +16045,22 @@ a少完全就是：这披风不错，毛了。然 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  5ew47  
+##### 5862#       发表于 2026-9-30 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305429&amp;ptid=2261859" target="_blank">土卫七 发表于 2026-9-30 15:18</a>
+我这女王彻底是废物了，力速技都没怎么动过，莉莉安的力量都和女王一样了
+
+—— 来自 S1Fun ...</blockquote>
+我的也是，初期非常绝望，后面转了重装再转卫士后就都好起来了，强的要命
+
+*****
+
+####  5ew47  
+##### 5863#       发表于 2026-9-30 16:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">本来想下一条线玩凯伊线的，被你们说的心动想玩迪哥线了
+
