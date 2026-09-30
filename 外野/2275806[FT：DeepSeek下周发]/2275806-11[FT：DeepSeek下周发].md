@@ -6970,3 +6970,22 @@ qoder cn第一次买了一个月59的，网页的流量那边明明已经看到�
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  icer  
+##### 15418#       发表于 2026-9-30 18:31
+
+看到一个50系超频帖子，“RTX 50系列GPU在GDDR7显存超频上的巨大潜力，通过mvolt+ extreme工具可突破官方限制，获得高达40%的带宽提升。”，原帖 [https://www.reddit.com/r/overclo ... _overclocking_with/](https://www.reddit.com/r/overclocking/comments/1wsnllh/finally_unlocked_gddr7_memory_overclocking_with/)   
+
+如果deepseek的小模型确认了，5060ti是不是价格又要升了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Gmlazy  
+##### 15419#       发表于 2026-9-30 18:32
+
+OAI的dots各位都拿来做什么呢？
+
+当作是一台Agent24小时操作的云电脑？
+
