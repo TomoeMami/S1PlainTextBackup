@@ -935,3 +935,11 @@ v高达池子里塞一个宇宙恶女，麻了
 
 还抽到了，更麻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 4798#       发表于 2026-9-30 21:48
+
+卡迪公早晚会进卡池，不如直接进去免得大家提心吊胆
+

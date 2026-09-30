@@ -7261,3 +7261,25 @@ Hermes非常好用，配honcho和openviking。
 
 你想用小模型可以试试minerU，每天1000页够用了，准确度也行
 
+
+*****
+
+####  rcnoel  
+##### 15445#       发表于 2026-9-30 21:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306887&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-30 20:54</a>
+
+OpenClaw重点是gateway啊，这个目前完全被hermes挤占了。
+
+Hermes非常好用，配honcho和openviking。 ...</blockquote>
+honcho 和 openviking 这两个的功能我看是相同的，为啥要同时使用
+
+*****
+
+####  startraveller  
+##### 15446#       发表于 2026-9-30 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306890&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-30 20:55</a>
+你管他呢，qwen code自己装上然后本地27b就好了呀www</blockquote>
+主要是 gemini code 本身就很过时，而且现在也没怎么维护了。
+
