@@ -6563,3 +6563,19 @@ Qwen Code直接fork的geminicode。</blockquote>
 
 年初所谓的OpenClaw热, 不过对是CodeX/Calude Code的模仿罢了. 没有什么人在用龙虾, 或者说每个Agent GUI/CLI都是龙虾.
 
+
+*****
+
+####  tonyunreal  
+##### 15377#       发表于 2026-9-30 13:11
+
+s1变卡了，难道大的要来了 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tonyunreal  
+##### 15377#       发表于 2026-9-30 13:11
+
+s1变卡了，难道大的要来了 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

@@ -702,3 +702,53 @@ V反派那堆歪瓜裂枣最出圈就多格拉吧，还有台赞尼克，后面�
 
 开发机倒是控水温了，全是残疾人
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 4777#       发表于 2026-9-30 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70304469&amp;ptid=2071758" target="_blank">里村紅葉 发表于 2026-9-30 11:46</a>
+看到开发的V2AB也是红机还惊了一下，然后一看武器BYD3个地图炮</blockquote>
+还原G世纪F<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  真贝尔奈普斯  
+##### 4777#       发表于 2026-9-30 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70304469&amp;ptid=2071758" target="_blank">里村紅葉 发表于 2026-9-30 11:46</a>
+看到开发的V2AB也是红机还惊了一下，然后一看武器BYD3个地图炮</blockquote>
+还原G世纪F<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  fireadol  
+##### 4778#       发表于 2026-9-30 13:12
+
+200抽V2倒是满破了，黄鸡就一个，不一破这白值根本打不动人吧，给齿轮又觉得不划算<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真贝尔奈普斯  
+##### 4777#       发表于 2026-9-30 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70304469&amp;ptid=2071758" target="_blank">里村紅葉 发表于 2026-9-30 11:46</a>
+看到开发的V2AB也是红机还惊了一下，然后一看武器BYD3个地图炮</blockquote>
+还原G世纪F<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  fireadol  
+##### 4778#       发表于 2026-9-30 13:12
+
+200抽V2倒是满破了，黄鸡就一个，不一破这白值根本打不动人吧，给齿轮又觉得不划算<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
