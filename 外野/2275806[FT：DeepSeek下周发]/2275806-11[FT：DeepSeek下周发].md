@@ -7124,3 +7124,14 @@ dsh用的有点血压高了，让它用three.js写个演示折纸的网页出现
 这是api的服务问题，不是dsh的问题</blockquote>
 我是直接登录的自己的账号，这样也会有api问题吗，还是比起登录账号直接用api会更方便？
 
+
+*****
+
+####  noneoneone  
+##### 15432#       发表于 2026-9-30 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306568&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-9-30 19:18</a>
+
+用到现在几乎没啥问题. 就失败过两次: 1是想折腾 服务器上跑明日方舟挂机, 因为虚拟化之类的问题没成功,  ...</blockquote>
+注册都注册不上，放弃了。
+
