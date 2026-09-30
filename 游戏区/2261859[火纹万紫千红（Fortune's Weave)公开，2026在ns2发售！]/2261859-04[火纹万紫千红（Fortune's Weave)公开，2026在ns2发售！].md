@@ -15970,3 +15970,54 @@ a少完全就是：这披风不错，毛了。然 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  土卫七  
+##### 5855#       发表于 2026-9-30 15:18
+
+我这女王彻底是废物了，力速技都没怎么动过，莉莉安的力量都和女王一样了<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Jabeck  
+##### 5856#       发表于 2026-9-30 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305292&amp;ptid=2261859" target="_blank">DARK_HGCG 发表于 2026-9-30 14:49</a>
+
+就是一回合不攻击就行？用别的武器也不行吗</blockquote>
+剧情推进会解锁一个控制圣焰的技能。
+
+
+*****
+
+####  mai6696  
+##### 5857#       发表于 2026-9-30 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305429&amp;ptid=2261859" target="_blank">土卫七 发表于 2026-9-30 15:18</a>
+
+我这女王彻底是废物了，力速技都没怎么动过，莉莉安的力量都和女王一样了
+
+—— 来自 S1Fun ...</blockquote>
+奇怪，我看到好多人都说女王成长不行。
+
+我自己玩起来也是。不看加成的话力量和魔力差不多了。
+
+50力不应该啊。
+
+*****
+
+####  kalavinka  
+##### 5858#       发表于 2026-9-30 15:23
+
+我的女王全程重甲，35级23力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">假肢占模了属于是
+
+*****
+
+####  Aresu  
+##### 5859#       发表于 2026-9-30 15:24
+
+迪特里希第二个圣焰技上完debuff加的经验是固定值么 l难度要是没改这个 直接一把遭遇战99级了 谁打得过他啊
+

@@ -6647,3 +6647,19 @@ s1变卡了，难道大的要来了 <img src="https://static.stage1st.com/image/
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  hugosol  
+##### 15384#       发表于 2026-9-30 15:20
+
+6.1sol吐字好慢啊，是因为大家都在蹬吗
+
+
+*****
+
+####  FACS  
+##### 15385#       发表于 2026-9-30 15:24
+
+感觉6.1比早上慢了，是早上给我路由到mini了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
