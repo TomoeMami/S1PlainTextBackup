@@ -6135,3 +6135,26 @@ Gpt和kimi
 6.1sol已经上了吗？可选模型没找到。
 这下是真用不起了。
 
+
+*****
+
+####  FACS  
+##### 15340#       发表于 2026-9-30 08:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303444&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-9-30 08:03</a>
+6.1sol已经上了吗？可选模型没找到。
+这下是真用不起了。</blockquote>
+6.1sol比astra额度消耗低<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">降本模型这一块
+
+
+*****
+
+####  tillnight  
+##### 15341#       发表于 2026-9-30 08:10
+
+<blockquote>Gmlazy 发表于 2026-9-30 08:03
+6.1sol已经上了吗？可选模型没找到。
+
+这下是真用不起了。</blockquote>
+6.1sol是被逼价格战的产物，astra能力，1/4的5.6sol价格，plus都可以爽蹬。
+
