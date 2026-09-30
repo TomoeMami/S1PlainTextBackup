@@ -6742,3 +6742,25 @@ openai出的模型怎么要么速度慢质量还行，要么速度快质量垃�
 4点了，不可能来了吧</blockquote>
 K3和v4p都是半夜出来的<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  misuzu0723  
+##### 15395#       发表于 2026-9-30 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305736&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-30 16:14</a>
+
+K3和v4p都是半夜出来的</blockquote>
+V4P的半夜发布可不是啥好事情。。。
+
+*****
+
+####  love4aids  
+##### 15396#       发表于 2026-9-30 16:18
+
+ 本帖最后由 love4aids 于 2026-9-30 16:21 编辑 
+
+6.1sol 也是被a出5.5踢屁股上赶出来了，6sol是一坨。
+
+6.1也确实慢，蹬的人多了吗？而且今天我也感觉Astra降智了，至少medium这个档是这样的，之前medium这个档就挺舒服的，现在差点意思了
+
