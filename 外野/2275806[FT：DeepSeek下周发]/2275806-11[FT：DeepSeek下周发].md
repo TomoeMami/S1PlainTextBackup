@@ -7326,3 +7326,24 @@ O÷的6.1sol怎么这么慢<img src="https://static.stage1st.com/image/smiley/fa
 主要是干净无奇怪依赖的纯开源npm，而且其实过时一点也没什么。</blockquote>
 最近半年其实 harness 进步很大的，要纯净直接 pi 就好了。
 
+
+*****
+
+####  AraTurambar  
+##### 15451#       发表于 2026-9-30 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307396&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-9-30 22:57</a>
+
+最近半年其实 harness 进步很大的，要纯净直接 pi 就好了。</blockquote>
+pi有巨大的bun依赖啊。
+
+*****
+
+####  moekyo  
+##### 15452#       发表于 2026-9-30 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306476&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-9-30 18:49</a>
+
+这犟种作者终于发现Agent不能没有MCP了</blockquote>
+Pi 的 MCP 是为了 code mode 这盘醋加的，最新的 0.99.0 已经内置了
+
