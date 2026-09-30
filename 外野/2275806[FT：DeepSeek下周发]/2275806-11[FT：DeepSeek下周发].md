@@ -6158,3 +6158,23 @@ Gpt和kimi
 这下是真用不起了。</blockquote>
 6.1sol是被逼价格战的产物，astra能力，1/4的5.6sol价格，plus都可以爽蹬。
 
+
+*****
+
+####  Gmlazy  
+##### 15342#       发表于 2026-9-30 08:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303461&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-30 08:10</a>
+
+6.1sol是被逼价格战的产物，astra能力，1/4的5.6sol价格，plus都可以爽蹬。</blockquote>
+在红迪上面看到评价还行，不过我的Codex还没有推送6.1sol。
+
+准备等泥潭朋友们的使用体验。
+
+*****
+
+####  jinuzuktII  
+##### 15343#       发表于 2026-9-30 08:25
+
+推特上看了一些反馈，说是 6.1sol 比肩 opus5.5，价格还便宜，实际水平不知道是什么样
+
