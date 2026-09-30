@@ -1007,3 +1007,16 @@ v高达池子里塞一个宇宙恶女，麻了
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 4805#       发表于 2026-10-1 04:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307965&amp;ptid=2071758" target="_blank">冰风血羽 发表于 2026-10-1 01:58</a>
+
+抄了个开发机流程，省下的狗粮拉起来一只菲尼克斯终于过去了，太恶心了
+
+—— 来自 realme RMX6699, Andro ...</blockquote>
+为什么不找个3动驾驶员开会更方便
+
