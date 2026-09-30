@@ -6424,3 +6424,22 @@ workbuddy的确是毒瘤，把自己注册到了大部分格式文件的关联�
 
 6.1sol很明显也是雷霆大思考
 
+
+*****
+
+####  Hattle  
+##### 15365#       发表于 2026-9-30 11:16
+
+还是搞定Linux 端的打包了，让DsF4.1库库干<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer"> 这个网址下载 我打包的 Appimage
+
+*****
+
+####  jinuzuktII  
+##### 15366#       发表于 2026-9-30 11:19
+
+6.1sol@MAX
+
+&gt;超级雷霆大思考
+
+&gt;额度燃烧速度明显降低
+
