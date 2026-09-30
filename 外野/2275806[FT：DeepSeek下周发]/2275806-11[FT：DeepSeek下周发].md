@@ -6483,3 +6483,19 @@ Qwen Code直接fork的geminicode。</blockquote>
 <img src="https://p.sda1.dev/35/35fd40290cd0240cc3e3e279891199c0/image.jpg" referrerpolicy="no-referrer">
 排版还有问题 不过的确顺眼多了
 
+
+*****
+
+####  很久就在那边l  
+##### 15371#       发表于 2026-9-30 11:57
+
+小红书的大模型也叫dots，这下尴尬了
+
+
+*****
+
+####  很久就在那边l  
+##### 15371#       发表于 2026-9-30 11:57
+
+小红书的大模型也叫dots，这下尴尬了
+
