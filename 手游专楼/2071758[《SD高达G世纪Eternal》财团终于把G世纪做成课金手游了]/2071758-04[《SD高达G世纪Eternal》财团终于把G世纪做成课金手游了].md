@@ -825,3 +825,23 @@ v2ab在ssp之后也就那样
 
 二百抽好女孩们满突了还是没有胡索，等钻存够一百抽再抽过，反正要换王牌船<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 4787#       发表于 2026-9-30 14:48
+
+抽了四百连，换满了狼王和v2ab，石头榨干了
+
+两艘船都有了，两个好女孩，也有了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">终于有两艘44加成的船了
+
+试用了一下v2ab，四连双地图炮清场效率太高了
+
+*****
+
+####  里村紅葉  
+##### 4788#       发表于 2026-9-30 14:49
+
+这V2AB的四动+双地图炮配置比想象中还丝滑，就是EN烧的厉害<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

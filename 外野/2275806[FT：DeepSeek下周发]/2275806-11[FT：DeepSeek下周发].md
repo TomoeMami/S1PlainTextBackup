@@ -6614,3 +6614,26 @@ s1变卡了，难道大的要来了 <img src="https://static.stage1st.com/image/
 
 谁知道还有什么渠道么
 
+
+*****
+
+####  misuzu0723  
+##### 15381#       发表于 2026-9-30 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305211&amp;ptid=2275806" target="_blank">FeteFete 发表于 2026-9-30 14:33</a>
+
+之前闲鱼渠道可以买gpt，现在封杀名词了
+
+谁知道还有什么渠道么</blockquote>
+如果有苹果设备，就注册一个iOS美区账号，然后在上面下载chatGPT，再去买个20刀的礼品卡然后开会员
+
+安卓一样，注册美区Play账号就行，但是安卓这么搞我被封过Google账号，可能是因为一注册就去开会员的原因
+
+
+*****
+
+####  bartholo4  
+##### 15382#       发表于 2026-9-30 14:50
+
+6.1用Ultra感觉都没有之前用Astral消耗额度快，可以使劲的蹬
+
