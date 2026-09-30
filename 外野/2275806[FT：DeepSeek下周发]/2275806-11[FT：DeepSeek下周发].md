@@ -6100,3 +6100,38 @@ Gpt和kimi
 
 一觉醒来还能看到a/给智谱打广告了，年初抱抱脸是谁解决问题怎么不讲了<img src="https://static.stage1st.com/image/smiley/face/52.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yxydd88  
+##### 15337#       发表于 2026-9-30 07:52
+
+<img src="https://img.stage1st.com/forum/202609/30/075035qzefzdfd4z7xrr47.jpg" referrerpolicy="no-referrer">
+
+<strong>1000006535.jpg</strong> (622.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-30 07:50 上传
+
+一觉醒来还能看到a/给智谱打广告了，年初抱抱脸是谁解决问题怎么不讲了<img src="https://static.stage1st.com/image/smiley/face/52.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛拉斯  
+##### 15338#       发表于 2026-9-30 08:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303428&amp;ptid=2275806" target="_blank">yxydd88 发表于 2026-9-30 07:52</a>
+
+一觉醒来还能看到a/给智谱打广告了，年初抱抱脸是谁解决问题怎么不讲了    Re:Source ...</blockquote>
+小偷之间的互相吸引罢了
+
+*****
+
+####  Gmlazy  
+##### 15339#       发表于 2026-9-30 08:03
+
+6.1sol已经上了吗？可选模型没找到。
+这下是真用不起了。
+
