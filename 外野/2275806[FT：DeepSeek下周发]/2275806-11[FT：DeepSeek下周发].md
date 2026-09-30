@@ -7192,3 +7192,11 @@ dsh用的有点血压高了，让它用three.js写个演示折纸的网页出现
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lowezack  
+##### 15439#       发表于 2026-9-30 20:35
+
+Sol 6.1慢的几乎没法用，切回astra了
+
