@@ -6472,3 +6472,14 @@ Qwen Code直接fork的geminicode。
 Qwen Code直接fork的geminicode。</blockquote>
 问题是他们主推的是Qoder，那个可不干净
 
+
+*****
+
+####  唠叨  
+##### 15370#       发表于 2026-9-30 11:39
+
+试了一下硬邦邦提示词
+<img src="https://p.sda1.dev/35/251bca3049b400f09af930166042687f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/35fd40290cd0240cc3e3e279891199c0/image.jpg" referrerpolicy="no-referrer">
+排版还有问题 不过的确顺眼多了
+
