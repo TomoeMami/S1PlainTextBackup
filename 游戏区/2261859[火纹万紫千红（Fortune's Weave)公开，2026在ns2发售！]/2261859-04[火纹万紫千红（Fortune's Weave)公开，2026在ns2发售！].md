@@ -15485,3 +15485,51 @@ if粉甲强在怪力，一击各种脆皮，这点倒是和巴西初音差不多
 
 猫猫头转啥职业好
 
+
+*****
+
+####  索非亚  
+##### 5824#       发表于 2026-9-30 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70304391&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-9-30 11:35</a>
+
+猫猫头转啥职业好</blockquote>
+卫士-圣枪把，斧子这么低的技成长可以无视了。
+
+
+*****
+
+####  酒红色的存在  
+##### 5825#       发表于 2026-9-30 11:50
+
+貌似高声望招的人会带特殊武器？
+
+—— 来自 vivo V2307A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  酒红色的存在  
+##### 5825#       发表于 2026-9-30 11:50
+
+貌似高声望招的人会带特殊武器？
+
+—— 来自 vivo V2307A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  mai6696  
+##### 5826#       发表于 2026-9-30 11:55
+
+ 本帖最后由 mai6696 于 2026-9-30 11:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70304492&amp;ptid=2261859" target="_blank">酒红色的存在 发表于 2026-9-30 11:50</a>
+
+貌似高声望招的人会带特殊武器？
+
+—— 来自 vivo V2307A, Android 16, 鹅球 v4.0</blockquote>
+有个打拳的黑妹，晚点挖会带一个大熊的右钩爪。
+
+凯伊线早期挖她是没有的，女王线也是早期挖的，没有。
+
+不过我感觉这些咒器都不咋好用。
+

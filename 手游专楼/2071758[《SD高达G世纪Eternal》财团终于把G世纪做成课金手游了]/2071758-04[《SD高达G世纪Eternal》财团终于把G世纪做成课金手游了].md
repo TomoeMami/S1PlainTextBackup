@@ -598,3 +598,51 @@ V反派那堆歪瓜裂枣最出圈就多格拉吧，还有台赞尼克，后面�
 
 不过这次给了台橙色水中用，绿色那台只有sr的话，难道以后挑战还有一台ssr？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 4768#       发表于 2026-9-30 11:46
+
+看到开发的V2AB也是红机还惊了一下，然后一看武器BYD3个地图炮<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Schw  
+##### 4769#       发表于 2026-9-30 11:51
+
+复刻池200抽6海牛，0神，3王牌船，反而v高池100抽3v2ab 2赞斯派因，1卡迪，0船。平衡了
+
+*****
+
+####  blue321  
+##### 4770#       发表于 2026-9-30 11:52
+
+两台限定都是真四动，猛了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  里村紅葉  
+##### 4768#       发表于 2026-9-30 11:46
+
+看到开发的V2AB也是红机还惊了一下，然后一看武器BYD3个地图炮<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Schw  
+##### 4769#       发表于 2026-9-30 11:51
+
+复刻池200抽6海牛，0神，3王牌船，反而v高池100抽3v2ab 2赞斯派因，1卡迪，0船。平衡了
+
+*****
+
+####  blue321  
+##### 4770#       发表于 2026-9-30 11:52
+
+两台限定都是真四动，猛了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
