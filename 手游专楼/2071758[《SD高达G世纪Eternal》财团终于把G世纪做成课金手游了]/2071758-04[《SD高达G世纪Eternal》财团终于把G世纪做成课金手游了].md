@@ -845,3 +845,20 @@ v2ab在ssp之后也就那样
 
 这V2AB的四动+双地图炮配置比想象中还丝滑，就是EN烧的厉害<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4789#       发表于 2026-9-30 15:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">160抽铃铛女满破，卡迪公1破，求求了最后40发给我出个V2，我想换狼王
+
+*****
+
+####  一个陆仁贾  
+##### 4790#       发表于 2026-9-30 15:32
+
+47连new了盾牛和t3，新安洲和盾风景改+1<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
