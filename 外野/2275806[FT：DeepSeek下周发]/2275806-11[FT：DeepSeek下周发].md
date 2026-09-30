@@ -6825,3 +6825,14 @@ oai补偿的62500creadits已经收到，6.1 sol使用体验也还不错，在考
 
 另外现在推理速度真的很慢，现在还没到美国那边的上班时间，晚上估计会更慢
 
+
+*****
+
+####  ymm1030  
+##### 15404#       发表于 2026-9-30 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303341&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-30 06:58</a>
+
+这个6.1sol才是真正有威胁的模型，能力很全面而且真正的准sota，任务不并发情况下，即使plus订阅都能用足5h ...</blockquote>
+这不大好事嘛，唐叔叔和杨叔叔有点太飘了，就需要敲打一下
+

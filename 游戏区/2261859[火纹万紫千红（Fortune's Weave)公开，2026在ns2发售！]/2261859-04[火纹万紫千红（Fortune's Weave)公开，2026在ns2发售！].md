@@ -16092,3 +16092,23 @@ a少完全就是：这披风不错，毛了。然 ...</blockquote>
 西洛可这人该走什么方向，听说非常强</blockquote>
 剑人多加上成长双刀 速度高转法师拿雷电剑又独特又好用
 
+
+*****
+
+####  没取名啊  
+##### 5866#       发表于 2026-9-30 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305976&amp;ptid=2261859" target="_blank">白昼梦DD 发表于 2026-9-30 16:57</a>
+剑人多加上成长双刀 速度高转法师拿雷电剑又独特又好用</blockquote>
+什么意思，没看懂
+
+*****
+
+####  duraa  
+##### 5867#       发表于 2026-9-30 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305942&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-9-30 16:50</a>
+西洛可这人该走什么方向，听说非常强</blockquote>
+水桶成长，特技好，法表好，玩法很丰富，很难养坏吧
+法师，卫士，锻造师（我印象中西洛克战技能自己学到魔法斧），雷电剑游侠啥的感觉都能玩玩，看定位吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
