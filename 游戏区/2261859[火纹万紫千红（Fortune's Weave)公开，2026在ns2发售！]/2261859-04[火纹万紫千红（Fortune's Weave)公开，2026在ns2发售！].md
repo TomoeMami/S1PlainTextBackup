@@ -16253,3 +16253,14 @@ IO的马合并后还会送一只，不知道为啥粉毛的飞马没有，因为
 除了努佐外还有谁自带雷电剑了？</blockquote>
 小丑也带了
 
+
+*****
+
+####  Aresu  
+##### 5883#       发表于 2026-9-30 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306550&amp;ptid=2261859" target="_blank">Aresu 发表于 2026-9-30 19:12</a>
+
+is对限制跳舞刷级是有意识的 三房和engage一张图里跳十次左右就不给加经验了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧有人发帖了 还真能无限刷级啊 顺带舞娘奶妈也可以 is你的数值控制呢
+
