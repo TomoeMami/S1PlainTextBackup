@@ -15222,3 +15222,36 @@ if粉甲强在怪力，一击各种脆皮，这点倒是和巴西初音差不多
 凯伊线第8章终于收集到3块沙虫肉了，高高兴兴进城准备收哪吒了，结果城里找不到哪吒了？是BUG还是剧情这章 ...</blockquote>
 可能在大地图和爱娜出门了，也可能当天有比赛在斗技场
 
+
+*****
+
+####  5ew47  
+##### 5806#       发表于 2026-9-30 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303125&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-9-30 00:51</a>
+
+突然发现地拖这队感觉是练废了
+
+只有巴西初音稳定地强，但移动太慢了
+
+地拖肌无力，42级力量都不到30</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 这是系统送的40级迪哥的数据，只要不比这个还废那就还行
+
+<img src="https://img.stage1st.com/forum/202609/30/093157dxl6r069vhv0b60x.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8958.jpeg</strong> (406.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-30 09:31 上传
+
+*****
+
+####  逆旅行客  
+##### 5807#       发表于 2026-9-30 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303746&amp;ptid=2261859" target="_blank">达达达达葱 发表于 2026-9-30 09:20</a>
+
+汗血宝马有什么好处</blockquote>
+5力10防的成长率加成，战车坐骑成长加成翻倍，等于提供10力20防的额外加成
+
