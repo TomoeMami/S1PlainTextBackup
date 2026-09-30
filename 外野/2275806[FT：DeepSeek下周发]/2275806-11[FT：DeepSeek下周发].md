@@ -7173,3 +7173,22 @@ dsh用的有点血压高了，让它用three.js写个演示折纸的网页出现
 
 —— 来自 Lenovo TB-9707F, Android 11, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  cscbzcbz  
+##### 15437#       发表于 2026-9-30 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306566&amp;ptid=2275806" target="_blank">Esoterica 发表于 2026-9-30 19:18</a>
+dsh用的有点血压高了，让它用three.js写个演示折纸的网页出现了五六次“本轮运行失败DeepSeek Messages tra ...</blockquote>
+没遇到过这个问题<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Milarvoz  
+##### 15438#       发表于 2026-9-30 20:29
+
+说起来不知道哪个版本开始的，卡巴斯基会拦截lmstudio的所有网络连接，要不是ds帮忙，我就以为是lmstudio自己的问题了。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
