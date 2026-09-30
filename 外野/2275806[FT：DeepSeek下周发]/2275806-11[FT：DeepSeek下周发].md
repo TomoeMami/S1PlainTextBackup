@@ -6989,3 +6989,13 @@ OAI的dots各位都拿来做什么呢？
 
 当作是一台Agent24小时操作的云电脑？
 
+
+*****
+
+####  serj005  
+##### 15420#       发表于 2026-9-30 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306394&amp;ptid=2275806" target="_blank">icer 发表于 2026-9-30 18:31</a>
+看到一个50系超频帖子，“RTX 50系列GPU在GDDR7显存超频上的巨大潜力，通过mvolt+ extreme工具可突破官方限 ...</blockquote>
+ds这所谓的小模型不是说是内部测试用例标识吗？现在实锤有这个模型了？
+
