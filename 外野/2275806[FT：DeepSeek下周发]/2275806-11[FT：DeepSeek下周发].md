@@ -6960,3 +6960,13 @@ Pi 准备内置 MCP 了，难怪 pi-mcp-adapter 插件把配置文件改成 mcp-
 
 上微软商店更新，或者codex官网下载安装程序，也是唤起微软商店更新。就有了。
 
+
+*****
+
+####  魔法师lain  
+##### 15417#       发表于 2026-9-30 18:17
+
+qoder cn第一次买了一个月59的，网页的流量那边明明已经看到了，qoder cn这app的本体里却只看到我免费领的credits，不到100，一定要等明天才有吗
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
