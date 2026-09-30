@@ -15585,3 +15585,27 @@ if粉甲强在怪力，一击各种脆皮，这点倒是和巴西初音差不多
 只 ...</blockquote>
 a少挖来也有
 
+
+*****
+
+####  索非亚  
+##### 5828#       发表于 2026-9-30 12:17
+
+挖角带的武器会跟章节进度更新的，更新几次和频率就没细看了
+
+
+*****
+
+####  5ew47  
+##### 5829#       发表于 2026-9-30 12:21
+
+后来看见这个技能我就和肌无力和解了，现在恨不得自家天马多涨点速度
+
+<img src="https://img.stage1st.com/forum/202609/30/122140s0jab2bb0qn9hib4.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8959.jpeg</strong> (49.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-30 12:21 上传
+
