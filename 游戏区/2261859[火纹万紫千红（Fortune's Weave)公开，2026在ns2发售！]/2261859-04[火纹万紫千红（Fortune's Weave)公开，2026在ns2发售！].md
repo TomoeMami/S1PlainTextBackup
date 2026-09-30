@@ -15383,3 +15383,55 @@ if粉甲强在怪力，一击各种脆皮，这点倒是和巴西初音差不多
 
 假随机你懂的。
 
+
+*****
+
+####  mai6696  
+##### 5815#       发表于 2026-9-30 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303864&amp;ptid=2261859" target="_blank">达达达达葱 发表于 2026-9-30 09:43</a>
+
+确认一下
+
+成长率就是
+
+升级时对应数值加点的概率</blockquote>
+是
+
+但是这代乱数表有点抽象，没法凹点。
+
+只能通过特殊手段干预。
+
+假随机你懂的。
+
+*****
+
+####  真田源次郎信繁  
+##### 5816#       发表于 2026-9-30 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303795&amp;ptid=2261859" target="_blank">5ew47 发表于 2026-9-30 09:32</a>
+
+这是系统送的40级迪哥的数据，只要不比这个还废那就还行</blockquote>
+说了你可能不信，我的就比他力量多两点<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光焰天下第一  
+##### 5817#       发表于 2026-9-30 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68441416&amp;ptid=2261859" target="_blank">风使塞缇 发表于 2025-9-17 00:33</a>
+
+风花雪月最大的毛病就是想讲宏大叙事，但没这个能力。
+
+分线叙事完全破坏了整体故事的起承转折，导致一篇 ...</blockquote>
+很有意思的想法，但工作多年之后我更能理解为啥风花雪月是最后这个样子，工作之中有很多好的想法难以实现，最后出来也就50-60%的样子。
+
+
+*****
+
+####  索非亚  
+##### 5818#       发表于 2026-9-30 09:53
+
+5年后人物介绍更新，几乎所有人都是听闻救世主出现前往达古席翁。就被砍的4人是为了报答xxx的恩情(你第一次完成外传的线)来达古席翁。
+确实和救世主不熟<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
