@@ -7035,3 +7035,20 @@ dsh真的不行（
 
 我让dsh在本地部署了一个OCR，下个月再试试看
 
+
+*****
+
+####  qwased  
+##### 15424#       发表于 2026-9-30 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306454&amp;ptid=2275806" target="_blank">serj005 发表于 2026-9-30 18:44</a>
+
+ds这所谓的小模型不是说是内部测试用例标识吗？现在实锤有这个模型了？</blockquote>
+一直都是流言
+
+但是并不影响qwen的小模型越来越牛逼的趋势<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+现在游戏电脑能跑的模型已经和v4flash差不多了
+
+希望qwen4能到0731水平，那真的自由了
+
