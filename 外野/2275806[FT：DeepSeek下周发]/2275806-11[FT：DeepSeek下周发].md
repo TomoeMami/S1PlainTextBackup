@@ -6945,3 +6945,18 @@ oai补偿的62500creadits已经收到，6.1 sol使用体验也还不错，在考
 
 Pi 准备内置 MCP 了，难怪 pi-mcp-adapter 插件把配置文件改成 mcp-adapter.json 了，因为 mcp.json 要让给 pi 自己用，不过还没有实装。
 
+
+*****
+
+####  Gmlazy  
+##### 15416#       发表于 2026-9-30 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306195&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-9-30 17:47</a>
+
+有个问题，我的GPT网页端是有6.1-Sol的，能开启session
+
+但是桌面端开启新session的话，没有6.1-Sol，只有6- ...</blockquote>
+我和你一样。
+
+上微软商店更新，或者codex官网下载安装程序，也是唤起微软商店更新。就有了。
+
