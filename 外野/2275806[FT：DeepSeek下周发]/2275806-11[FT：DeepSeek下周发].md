@@ -7444,3 +7444,11 @@ qwen flash居然免费延长了，还没说啥时候结束
 哈吉米4出来了 不知道怎么样</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一般人不给用的，现在除了看人吹B没有任何价值
 
+
+*****
+
+####  andychen  
+##### 15462#       发表于 2026-10-1 04:50
+
+Gemini4来了，看跑分应该是泛化能力强，相对强调通用性的模型。我比较期待
+
