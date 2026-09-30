@@ -6190,3 +6190,13 @@ Gpt和kimi
 准备等泥潭朋友们的使用体验。 ...</blockquote>
 你没更新codex吧，更新了就出来了。
 
+
+*****
+
+####  紧那罗  
+##### 15345#       发表于 2026-9-30 08:39
+
+更新完有6.1sol了，姑且先试试
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
