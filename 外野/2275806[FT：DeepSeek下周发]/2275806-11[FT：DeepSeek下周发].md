@@ -7152,3 +7152,14 @@ dsh用的有点血压高了，让它用three.js写个演示折纸的网页出现
 
 6.1 sol tps只有20，开fast也就40，加上首字经常会卡住，不慢就怪了
 
+
+*****
+
+####  jojog  
+##### 15435#       发表于 2026-9-30 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306583&amp;ptid=2275806" target="_blank">目灼灼似贼 发表于 2026-9-30 19:21</a>
+
+我也收到了，这个额度相当于多少张重置卡？</blockquote>
+理论上说是3-4张，不过这玩意标准从来就不透明的，天知道有多少
+
