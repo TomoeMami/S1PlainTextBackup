@@ -6913,3 +6913,35 @@ oai补偿的62500creadits已经收到，6.1 sol使用体验也还不错，在考
 
 这是什么问题呢？版本已经是最新了
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 15413#       发表于 2026-9-30 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306195&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-9-30 17:47</a>
+有个问题，我的GPT网页端是有6.1-Sol的，能开启session
+
+但是桌面端开启新session的话，没有6.1-Sol，只有6- ...</blockquote>
+我今天codex一直没有自动更新，手动点检查更新也提示是最新的。但其实不是最新的，在微软商店手动更新了就有了。
+
+*****
+
+####  noneoneone  
+##### 15414#       发表于 2026-9-30 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303859&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-9-30 09:42</a>
+
+这些"我们XX助手给你一个一直在线的V PS太酷啦"都比不少Oracle默默的给了好几年的永久免费的 V P S, 不给支 ...</blockquote>
+我刚查了一下这个，好像4C/24GB/200G是ARM服务器，常见的agent在上面干活会遇到问题吗？
+
+
+*****
+
+####  小野賢章  
+##### 15415#       发表于 2026-9-30 18:03
+
+[https://earendil.com/posts/you-said-no-mcp/](https://earendil.com/posts/you-said-no-mcp/)
+
+Pi 准备内置 MCP 了，难怪 pi-mcp-adapter 插件把配置文件改成 mcp-adapter.json 了，因为 mcp.json 要让给 pi 自己用，不过还没有实装。
+

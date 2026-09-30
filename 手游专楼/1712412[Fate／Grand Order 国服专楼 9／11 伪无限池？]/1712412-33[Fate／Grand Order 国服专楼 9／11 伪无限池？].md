@@ -296,3 +296,13 @@ MuMu-20260919-205429-531.jpg
 
 全部石头allin冠呆~
 
+
+*****
+
+####  盲目者  
+##### 48248#       发表于 2026-9-30 18:06
+
+BGO新的小游戏来了，这次是自走棋<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
