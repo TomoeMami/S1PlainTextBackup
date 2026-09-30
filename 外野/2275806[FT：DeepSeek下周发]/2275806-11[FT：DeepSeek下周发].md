@@ -7221,3 +7221,28 @@ Sol 6.1慢的几乎没法用，切回astra了
 
 如果用6.1 sol估计要多很多
 
+
+*****
+
+####  AraTurambar  
+##### 15442#       发表于 2026-9-30 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70304819&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-9-30 13:00</a>
+
+现在的AI助手大吃鸡时代不知道最后谁能活下来.
+
+年初所谓的OpenClaw热, 不过对是CodeX/Calude Code的模仿罢 ...</blockquote>
+OpenClaw重点是gateway啊，这个目前完全被hermes挤占了。
+
+Hermes非常好用，配honcho和openviking。
+
+*****
+
+####  AraTurambar  
+##### 15443#       发表于 2026-9-30 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70304386&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-30 11:34</a>
+
+问题是他们主推的是Qoder，那个可不干净</blockquote>
+你管他呢，qwen code自己装上然后本地27b就好了呀www
+

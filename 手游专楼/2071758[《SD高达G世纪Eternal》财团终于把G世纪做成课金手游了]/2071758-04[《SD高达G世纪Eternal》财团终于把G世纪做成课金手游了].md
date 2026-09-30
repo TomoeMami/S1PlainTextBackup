@@ -910,3 +910,18 @@ v2ab在ssp之后也就那样
 
 两个限定拿到了，停手走人
 
+
+*****
+
+####  plok201  
+##### 4796#       发表于 2026-9-30 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70305131&amp;ptid=2071758" target="_blank">12481632 发表于 2026-9-30 14:18</a>
+
+其他驾驶员地图炮后不能再动，开发机没那么好用的</blockquote>
+不需要再动啊，就算不给UR胡索用，也能当成正常MAP机体用
+
+说到底这游戏就需要对杂兵一招，对boss一招就够了，3种MAP刚好能适应不同场景，虽然有光束太多的缺陷
+
+强度可能差一口气，但是特殊性有了，外加那一身词条，总能找到就业
+
