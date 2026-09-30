@@ -6509,3 +6509,19 @@ Qwen Code直接fork的geminicode。</blockquote>
 
 这dots改个头像居然还会因为排版点击不到想要的图标
 
+
+*****
+
+####  RookieTnT  
+##### 15373#       发表于 2026-9-30 12:35
+
+这dots试了下纯鸡肋啊. 和muse 没啥区别..<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cyberalogo  
+##### 15374#       发表于 2026-9-30 12:40
+
+笑死，早上想做点啥蹬光Zcode 给的1亿Glm5.3 Flash新手token，结果蹬了2000W后居然触发过滤内容，模型拒绝响应。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
