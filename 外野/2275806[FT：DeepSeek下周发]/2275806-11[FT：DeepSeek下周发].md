@@ -6303,3 +6303,47 @@ DeepSeek 开源昇腾基础组件
 
 https://mp.weixin.qq.com/s/X41mKH4Ds-VXUAnK6M8Eww
 
+
+*****
+
+####  AraTurambar  
+##### 15354#       发表于 2026-9-30 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303859&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-9-30 09:42</a>
+
+这些"我们XX助手给你一个一直在线的V PS太酷啦"都比不少Oracle默默的给了好几年的永久免费的 V P S, 不给支 ...</blockquote>
+我hermes都是直接家里装了台电脑给她跑的……云电脑我都不太看得上。
+
+当然这个主要是痛电脑的原因（ROG联动加藤田签名然后我往里面塞了个SOUL.md写成初音的agent）。
+
+唯一可惜的就是CFM禁止用初音声库tts，虽然盗版的存在但是我不想用，只能自己用v6录制。
+
+*****
+
+####  eno_emos  
+##### 15355#       发表于 2026-9-30 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70303990&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-9-30 10:12</a>
+
+DeepSeek 开源昇腾基础组件
+
+https://mp.weixin.qq.com/s/X41mKH4Ds-VXUAnK6M8Eww</blockquote>
+他这个是自己搞了一整套对标cuda出来？
+
+*****
+
+####  Milarvoz  
+##### 15356#       发表于 2026-9-30 10:22
+
+<blockquote>今天，我们正式开源面向华为昇腾算力平台的基础设施组件，涵盖 TileLang 高级语言编译工具、计算库、分布式通信库。所有组件与此前面向英伟达平台的开源组件一一对应。</blockquote>
+梁圣<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  cscbzcbz  
+##### 15357#       发表于 2026-9-30 10:23
+
+知道格局大了，4.1pro什么时候放出来<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
