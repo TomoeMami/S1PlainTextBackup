@@ -987,3 +987,23 @@ v高达池子里塞一个宇宙恶女，麻了
 
 我开池头天没带位移机进的15层，打到boss门口才发现是堵住的，要不位移要不耗盾，最后强忍着恶心还挂了个人头才正攻打过去的，不然花费一个小时沉没成本这一块
 
+
+*****
+
+####  冰风血羽  
+##### 4804#       发表于 2026-10-1 01:58
+
+ 本帖最后由 冰风血羽 于 2026-10-1 02:00 编辑 
+
+<img src="https://img.stage1st.com/forum/202610/01/015658w8z6s3v6qs687sjf.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1790791017291_8.webp</strong> (203.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 01:56 上传
+
+抄了个开发机流程，省下的狗粮拉起来一只菲尼克斯终于过去了，太恶心了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
