@@ -7752,3 +7752,13 @@ codebase-memory-mcp是真的好用
 
 我现在搓了个extension，打开后每轮回复前注入一句，用grep或者read 100行以上的源码时想想要不要用codebase-memory-mcp，agent就会自己调各种工具了，效果特别好<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 15491#       发表于 2026-10-1 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309362&amp;ptid=2275806" target="_blank">gawain 发表于 2026-10-1 14:30</a>
+pi这越整合越多是不是有点违反初衷了</blockquote>
+基本上每个人拿到Pi的第一件事就是去下载一个，或者自己搓一个MCP接入功能，比如我搓的第一个扩展就是MCP接入。与其这样脱裤子放屁，还不如官方自己整合进来呢。如果真的有人不用MCP，那不装MCP就行了，对上下文没有负担的。
+
