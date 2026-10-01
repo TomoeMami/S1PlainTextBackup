@@ -1069,3 +1069,73 @@ v高达池子里塞一个宇宙恶女，麻了
 
 不是说狗粮本可以全一键跳过了，还没实装？
 
+
+*****
+
+####  Abomination  
+##### 4811#       发表于 2026-10-1 13:18
+
+我知道重击船是垃圾，而且我连狼王都没抽到，但我加抽的100抽连出3个，成为我第一艘满破的44船<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">还好出了胡索<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/01/131322uzpbu56zu7uusebp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260930_133649_com_bandainamcoent_gget_WW_UnityPlayerActivity.jpg</strong> (334.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 13:13 上传
+
+<img src="https://img.stage1st.com/forum/202610/01/131351v8f3ekwji8o8fwgg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20261001_124957_com_bandainamcoent_gget_WW_UnityPlayerActivity.jpg</strong> (133.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 13:13 上传
+
+<img src="https://img.stage1st.com/forum/202610/01/131350v1asschwca9huxhq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20261001_125040_com_bandainamcoent_gget_WW_UnityPlayerActivity.jpg</strong> (145.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 13:13 上传
+
+<img src="https://img.stage1st.com/forum/202610/01/131351hnvn913zjj9ljv9l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20261001_125221_com_bandainamcoent_gget_WW_UnityPlayerActivity.jpg</strong> (143.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 13:13 上传
+
+
+*****
+
+####  gpx234mqx  
+##### 4812#       发表于 2026-10-1 13:23
+
+ 本帖最后由 gpx234mqx 于 2026-10-1 13:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307943&amp;ptid=2071758" target="_blank">裂空之龙 发表于 2026-10-1 01:48</a>
+
+塔15抽个up的v2ab吧，这次故意错开关塔时间多半也是狗策划算好的
+
+我开池头天没带位移机进的15层，打到boss ...</blockquote>
+地图炮欧巴桑更容易啊
+
+地图炮三动，闭着眼睛够能过
+
+最简单的用ssr凤凰和尊者
+
+*****
+
+####  gpx234mqx  
+##### 4813#       发表于 2026-10-1 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70308889&amp;ptid=2071758" target="_blank">plok201 发表于 2026-10-1 12:07</a>
+
+新船没啥用，那几台重击都有其他更好队伍，V2老老实实试验机大家庭
+
+专用机和突破力船二周年能出来么，掉毛 ...</blockquote>
+后面活动的missing link和G-unit机体肯定加重击词条
+

@@ -16633,3 +16633,27 @@ A少线我得法比奥不弱，但最后都没声望8养出来的丹缇强
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">  费尽心思挖的小丑完全废了   转了土匪能10级加一点力的 牛逼   别的线只能后期挖到了   倒是巨人转个弓手能提升点技速
 
+
+*****
+
+####  DARK_HGCG  
+##### 5915#       发表于 2026-10-1 13:23
+
+<blockquote>jockeyjoestar 发表于 2026-10-1 13:08
+费尽心思挖的小丑完全废了   转了土匪能10级加一点力的 牛逼   别的线只能后期挖到了   倒是巨人转个弓手 ...</blockquote>
+土匪是哪个职业来着
+
+我打日文版有些译名反应不过来
+
+*****
+
+####  jockeyjoestar  
+##### 5916#       发表于 2026-10-1 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309144&amp;ptid=2261859" target="_blank">DARK_HGCG 发表于 2026-10-1 13:23</a>
+
+土匪是哪个职业来着
+
+我打日文版有些译名反应不过来</blockquote>
+。。除了重装力量加成最高那个  用剑和斧的  之前风花雪月不就全员土匪吗  
+

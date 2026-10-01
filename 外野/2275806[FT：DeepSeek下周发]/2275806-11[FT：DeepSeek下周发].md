@@ -7612,3 +7612,11 @@ gemini都出了，国模新一代还没出吗
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  RookieTnT  
+##### 15479#       发表于 2026-10-1 13:17
+
+fable5 带的坏头，以后模型发布都能先 ppt 赚个几周噱头再掏出来了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
