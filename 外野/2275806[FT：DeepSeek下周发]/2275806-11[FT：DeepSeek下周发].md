@@ -7873,3 +7873,37 @@ dot目前无限astra有点爽，tibo说有了dot现在暂时没重置了</blockq
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hencechen  
+##### 15502#       发表于 2026-10-2 00:28
+
+dot到底有什么用途，。请大家告诉我<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我实在没弄明白这玩意……
+
+*****
+
+####  malisa  
+##### 15503#       发表于 2026-10-2 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311418&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-10-2 00:22</a>
+
+可我用 dot 还是会消耗额度啊，难道只能用来对话吗？
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+不要让它调用codex 能在云完成的就在云完成
+
+*****
+
+####  moekyo  
+##### 15504#       发表于 2026-10-2 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311418&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-10-2 00:22</a>
+
+可我用 dot 还是会消耗额度啊，难道只能用来对话吗？
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+一样可以用 github connector 干活啊，比网页好用多了，还能连本地，就是网络比较头疼，我经常 offline，就我连的那一下，感觉没怎么耗额度
+

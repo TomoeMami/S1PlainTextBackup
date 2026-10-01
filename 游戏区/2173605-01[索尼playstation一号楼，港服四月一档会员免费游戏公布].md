@@ -252,3 +252,24 @@ MP1ST说档期排在星际异端后面的是Shaun Escayg带队的神海新作，
 
 新出了个上采样方式qssr，给ps5用，
 
+
+*****
+
+####  黑猫软  
+##### 844#       发表于 2026-10-2 00:28
+
+▫️ QSSR是PSSR的轻量版，PSSR是PS5 Pro独有技术。
+
+▫️ 它采用优化的神经网络来增强锐度、细节和图像稳定性，而无需PS5 Pro的强大性能。
+
+▫️ PSSR将继续在PS5 Pro上提供最佳画质，而QSSR则希望将部分体验带到PS5上。
+
+<img src="https://img.stage1st.com/forum/202610/02/002822vej777er55lgkkjr.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1790872059650_293.jpg</strong> (147.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-2 00:28 上传
+
