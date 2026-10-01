@@ -373,3 +373,44 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  哌啶  
+##### 5954#       发表于 2026-10-1 22:34
+
+怎么感觉这作纯弓箭手这么没用，投矛投斧泛滥，法师人均多功能，后期难道有很多龙给他们射吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX733J, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jabeck  
+##### 5955#       发表于 2026-10-1 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311074&amp;ptid=2261859" target="_blank">哌啶 发表于 2026-10-1 22:34</a>
+怎么感觉这作纯弓箭手这么没用，投矛投斧泛滥，法师人均多功能，后期难道有很多龙给他们射吗
+
+—— 来自 nu ...</blockquote>
+至少第二章一堆龙骑士
+
+*****
+
+####  纯夏  
+##### 5956#       发表于 2026-10-1 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311074&amp;ptid=2261859" target="_blank">哌啶 发表于 2026-10-1 22:34</a>
+
+怎么感觉这作纯弓箭手这么没用，投矛投斧泛滥，法师人均多功能，后期难道有很多龙给他们射吗
+
+—— 来自 nu ...</blockquote>
+第3部满地的冥界飞龙骑 多准备点弓箭手吧<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aresu  
+##### 5957#       发表于 2026-10-1 22:40
+
+弓手出场率很高啊 战车上那个每把都会出击啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

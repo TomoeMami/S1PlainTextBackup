@@ -241,3 +241,65 @@ MyGO!!!!! 9th LIVE「つなぎ目の向こうに」- 神戸再景編 -
 
        [https://www.instagram.com/reel/Dd5baSdgWBe](https://www.instagram.com/reel/Dd5baSdgWBe)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42058#       发表于 2026-10-1 22:42
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/01/224138l5rg5pxpzywxzkry.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-10-01_22-38-19.jpg</strong> (228.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 22:41 上传
+
+       [https://x.com/bang_dream_info/status/2105637604192362775](https://x.com/bang_dream_info/status/2105637604192362775)
+
+       [https://www.youtube.com/watch?v=e_5g6iuLDkc](https://www.youtube.com/watch?v=e_5g6iuLDkc)
+
+       <strong>【元祖！BanG Dream Chan】 #52 再见了！BanG Dream Chan</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/01/224210n41owwhdhqd4woz4.jpg" referrerpolicy="no-referrer">
+
+<strong>9ea4cba04db6a7c0f3b3fda1a8e6816e20e67fd4.jpg</strong> (209.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 22:42 上传
+
+</blockquote>
+       [https://www.bilibili.com/video/BV1A8aZ6DEzo](https://www.bilibili.com/video/BV1A8aZ6DEzo)
+
+*****
+
+####  堀内爱里衣  
+##### 42059#       发表于 2026-10-1 22:43
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/01/224303rgbcb8skkozhs44h.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-01_22-39-31.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 22:43 上传
+
+       [https://x.com/miyaji_maseiya/status/2105643903353225605](https://x.com/miyaji_maseiya/status/2105643903353225605)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/01/224303cq2w1w81w81g1rrq.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-01_22-40-18.png</strong> (493.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 22:43 上传
+
+       [https://t.bilibili.com/1254220475155873810](https://t.bilibili.com/1254220475155873810)
+
