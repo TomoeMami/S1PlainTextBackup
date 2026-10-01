@@ -7987,3 +7987,46 @@ plus会员到期后转回用deepseek api，两天用了30元，有什么比较�
 
 顺便提一句，之前因为需求定义还挺明确的，所以用Luna感觉也还行，这两天换回Deepseek，发现Deepseek 4.1 Flash比Luna强太多了<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 15511#       发表于 2026-10-2 04:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311659&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-10-2 04:09</a>
+
+我看opencode go在空闲时段也有60🔪的额度，开了订阅试试看，之前用ChatGPT Plus 6 luna我都快把额度用光 ...</blockquote>
+ocg会降智的，现在真没必要用了
+
+
+*****
+
+####  蛋黄酱Release  
+##### 15512#       发表于 2026-10-2 04:23
+
+deepseek官方的api和网页挂了好久了，ocg的没影响，显然ocg已经是别的渠道了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我也发现ocg的有点降智，但是还是便宜的多
+
+*****
+
+####  stackoverflow  
+##### 15513#       发表于 2026-10-2 04:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311662&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-2 04:20</a>
+
+ocg会降智的，现在真没必要用了
+
+command code现在也不咋行了</blockquote>
+使用体验确实比官方的差得多，开都开了为了省钱先忍一个月<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 15514#       发表于 2026-10-2 04:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311659&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-10-2 04:09</a>
+
+我看opencode go在空闲时段也有60🔪的额度，开了订阅试试看，之前用ChatGPT Plus 6 luna我都快把额度用光 ...</blockquote>
+opencode go的便宜模型现在不是直接接官方渠道，第三方提供商做了多少量化不好说。他们最近也开始推更贵的40刀套餐，明显是低价套餐覆盖不了成本了
+
+另外不是所有模型都是60刀用量，注意看一下你需要的模型实际用量给了多少
+
