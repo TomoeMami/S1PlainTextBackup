@@ -7546,3 +7546,25 @@ AA野榜分数一点都不要看，毕竟这个榜很多榜单本身就是哈基
 目前看测试，编程能力和国模以及grok啥的拉不开代差，审美和写作好很多
 咸鱼会员挺超值，真要充正价会员就算了
 
+
+*****
+
+####  lactone  
+##### 15473#       发表于 2026-10-1 12:36
+
+gemini都出了，国模新一代还没出吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  cscbzcbz  
+##### 15474#       发表于 2026-10-1 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70308967&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-1 12:36</a>
+gemini都出了，国模新一代还没出吗
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99</blockquote>
+放假了，怎么出<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
