@@ -142,3 +142,16 @@
 
 2026-10-1 15:57 上传
 
+
+*****
+
+####  无知的小鼠人  
+##### 5933#       发表于 2026-10-1 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309628&amp;ptid=2261859" target="_blank">达达达达葱 发表于 2026-10-1 15:55</a>
+
+哪个斧子山贼
+
+10块钱的那个？</blockquote>
+渣科涅，就是10金币的那个，只能说对得起价格
+
