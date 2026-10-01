@@ -249,3 +249,15 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 我之前女王线一周目时刚11章就名声12了，然后做外传支线时间紧战备增强 ...</blockquote>
 解锁新职业，重装骑士好像只有女王战备增强解锁。
 
+
+*****
+
+####  Humpy  
+##### 5943#       发表于 2026-10-1 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70310103&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-10-1 18:23</a>
+解锁新职业，重装骑士好像只有女王战备增强解锁。</blockquote>
+飞龙那个解锁在凯伊篇也行吧
+
+重装骑士很早就能拿了不用全做
+
