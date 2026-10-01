@@ -16625,3 +16625,11 @@ A少线我得法比奥不弱，但最后都没声望8养出来的丹缇强
 
 第一个PV顺带王国的国王和王后也看起来挺有料<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jockeyjoestar  
+##### 5914#       发表于 2026-10-1 13:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">  费尽心思挖的小丑完全废了   转了土匪能10级加一点力的 牛逼   别的线只能后期挖到了   倒是巨人转个弓手能提升点技速
+

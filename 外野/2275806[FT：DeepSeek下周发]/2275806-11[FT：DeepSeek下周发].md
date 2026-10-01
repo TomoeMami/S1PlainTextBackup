@@ -7599,3 +7599,16 @@ gemini都出了，国模新一代还没出吗
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 15478#       发表于 2026-10-1 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70308878&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-1 12:04</a>
+目前看测试，编程能力和国模以及grok啥的拉不开代差，审美和写作好很多
+咸鱼会员挺超值，真要充正价会员 ...</blockquote>
+我三月份美元价买的一年pro……
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
