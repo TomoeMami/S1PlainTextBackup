@@ -7533,3 +7533,16 @@ AA野榜分数一点都不要看，毕竟这个榜很多榜单本身就是哈基
 
 还记得初期只开放给200刀Ultra用户的Gemini Spark吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 15472#       发表于 2026-10-1 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70308697&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-10-1 11:13</a>
+藏着掖着的，不会拉了吧
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0</blockquote>
+目前看测试，编程能力和国模以及grok啥的拉不开代差，审美和写作好很多
+咸鱼会员挺超值，真要充正价会员就算了
+
