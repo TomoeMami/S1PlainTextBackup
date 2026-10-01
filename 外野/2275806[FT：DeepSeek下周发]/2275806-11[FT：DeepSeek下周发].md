@@ -7661,3 +7661,11 @@ Pi 的 MCP 是为了 code mode 这盘醋加的，最新的 0.99.0 已经内置�
 
 pi 的内存占用，其实我不太满意，但毕竟是 bun/node ，暂时忍了
 
+
+*****
+
+####  gawain  
+##### 15483#       发表于 2026-10-1 14:30
+
+pi这越整合越多是不是有点违反初衷了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
