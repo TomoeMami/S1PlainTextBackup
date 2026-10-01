@@ -8030,3 +8030,14 @@ opencode go的便宜模型现在不是直接接官方渠道，第三方提供商
 
 另外不是所有模型都是60刀用量，注意看一下你需要的模型实际用量给了多少
 
+
+*****
+
+####  qwased  
+##### 15515#       发表于 2026-10-2 04:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311666&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-10-2 04:24</a>
+
+使用体验确实比官方的差得多，开都开了为了省钱先忍一个月</blockquote>
+我看群友测试说clinepass实际可以用40亿左右的df41，装好客户端在里面首月优惠是2刀，应该还是值得试试的，反正2刀也吃亏不了
+
