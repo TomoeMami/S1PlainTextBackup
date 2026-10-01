@@ -7845,3 +7845,11 @@ Honcho要好用不能用默认的低级模型，至少挂KimiK3这个级别的�
 
 6.1sol直接爆了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sontag  
+##### 15499#       发表于 2026-10-1 23:37
+
+dot目前无限astra有点爽，tibo说有了dot现在暂时没重置了
+

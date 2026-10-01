@@ -444,3 +444,13 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 罗蕾塔自带满血20闪避，如果养成肌无力了可以转成舞者专职闪避，但是我这个档力量加得不错，42级31力，拿起疾风剑去前线砍人也算得上是能打能闪，有点不舍得
 
+
+*****
+
+####  lelouchwang  
+##### 5961#       发表于 2026-10-1 23:44
+
+话说吃饭猫猫头是给啥菜都超喜欢，新娘则都是不错<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
