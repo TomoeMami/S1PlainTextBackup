@@ -7934,3 +7934,30 @@ dot到底有什么用途，。请大家告诉我<img src="https://static.stage1s
 
 plus会员到期后转回用deepseek api，两天用了30元，有什么比较划算的Coding Plan吗，opencode go 10🔪套餐看着好像还行？<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 15507#       发表于 2026-10-2 02:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311591&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-10-2 01:58</a>
+
+plus会员到期后转回用deepseek api，两天用了30元，有什么比较划算的Coding Plan吗，opencode go 10🔪套 ...</blockquote>
+现在token已经涨价了，以前那么高性价比的套餐已经没了
+
+最高性价比的就是chatgpt plus
+
+*****
+
+####  qwased  
+##### 15508#       发表于 2026-10-2 02:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311591&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-10-2 01:58</a>
+
+plus会员到期后转回用deepseek api，两天用了30元，有什么比较划算的Coding Plan吗，opencode go 10🔪套 ...</blockquote>
+command code
+
+cline 
+
+或者qoder还能无限量白嫖挺久的qwen3.8flash
+
