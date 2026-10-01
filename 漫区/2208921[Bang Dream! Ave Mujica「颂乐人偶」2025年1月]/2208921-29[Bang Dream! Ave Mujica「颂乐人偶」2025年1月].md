@@ -303,3 +303,21 @@ MyGO!!!!! 9th LIVE「つなぎ目の向こうに」- 神戸再景編 -
 
        [https://t.bilibili.com/1254220475155873810](https://t.bilibili.com/1254220475155873810)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42060#       发表于 2026-10-1 22:44
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/01/224441o616vvv1v1v1dwfq.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-10-01_22-43-38.jpg</strong> (385.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 22:44 上传
+
+       [https://x.com/miyaji_maseiya/status/2105647214467109273](https://x.com/miyaji_maseiya/status/2105647214467109273)
+
