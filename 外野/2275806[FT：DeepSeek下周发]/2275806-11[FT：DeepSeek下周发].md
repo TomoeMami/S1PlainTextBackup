@@ -7722,3 +7722,13 @@ OpenClaw重点是gateway啊，这个目前完全被hermes挤占了。
 Hermes非常好用，配honcho和openviking。 ...</blockquote>
 ncho和openviking你是一起用吗？honcho（自建）之前用了一阵子感觉没什么效果，现在换hindsight了…
 
+
+*****
+
+####  serj005  
+##### 15488#       发表于 2026-10-1 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309362&amp;ptid=2275806" target="_blank">gawain 发表于 2026-10-1 14:30</a>
+pi这越整合越多是不是有点违反初衷了</blockquote>
+不算，skill和mcp发展到现在已经算是agent的基础设施之一了，虽然污染上下文但好歹用到的时候是真方便，也能动态开关，只要pi别整啥todolist和选择题之类的花哨功能就好。
+
