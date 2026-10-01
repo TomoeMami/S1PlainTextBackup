@@ -1189,3 +1189,11 @@ xx机里最多也是专用机，139个，当然有个原因是SD系列基本全�
 
 高达tah必然是44船，但是44船又太超模了，卡住了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4818#       发表于 2026-10-1 21:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怕是得等关服那天
+
