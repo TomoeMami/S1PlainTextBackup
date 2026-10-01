@@ -7961,3 +7961,14 @@ cline
 
 或者qoder还能无限量白嫖挺久的qwen3.8flash
 
+
+*****
+
+####  squallx  
+##### 15509#       发表于 2026-10-2 03:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311591&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-10-2 01:58</a>
+
+plus会员到期后转回用deepseek api，两天用了30元，有什么比较划算的Coding Plan吗，opencode go 10🔪套 ...</blockquote>
+肥鱼都能蹬出这个量来，你该回头买PRO啦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
