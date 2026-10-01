@@ -100,3 +100,45 @@
 ブリガンド</blockquote>
 是不是替补都建议转土匪第三章再转需要的职业？
 
+
+*****
+
+####  达达达达葱  
+##### 5931#       发表于 2026-10-1 15:55
+
+<blockquote>无知的小鼠人 发表于 2026-10-1 15:41
+盖茨属性都是合格的，特性甚至有点小厉害
+
+最拉的应该是那个斧子土匪，特技加斧子命中，然后成长只有技高 ...</blockquote>
+哪个斧子山贼
+
+10块钱的那个？
+
+*****
+
+####  mai6696  
+##### 5932#       发表于 2026-10-1 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309603&amp;ptid=2261859" target="_blank">DARK_HGCG 发表于 2026-10-1 15:44</a>
+
+是不是替补都建议转土匪第三章再转需要的职业？</blockquote>
+我还在打第一章第三条线。
+
+板凳一般都是按各自职业走。到第二部再看能不能用得上。
+
+你要补力量的话，中级职业肯定是土匪。
+
+要补速度就是ローグ
+
+到上级职业很多人就换战车了吧。
+
+给你看张贴吧图。
+
+<img src="https://img.stage1st.com/forum/202610/01/155736tteeue0k677mz7mx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 15:57 上传
+
