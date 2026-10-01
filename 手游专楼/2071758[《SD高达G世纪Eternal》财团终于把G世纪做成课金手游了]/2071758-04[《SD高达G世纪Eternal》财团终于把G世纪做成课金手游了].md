@@ -1181,3 +1181,11 @@ xx机里最多也是专用机，139个，当然有个原因是SD系列基本全�
 
 所以这游戏直到关服前能出高达词条的船不<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 4817#       发表于 2026-10-1 20:32
+
+高达tah必然是44船，但是44船又太超模了，卡住了
+
