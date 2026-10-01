@@ -450,3 +450,14 @@ PV的导入部分，用 ...</blockquote>
 
 所以作为NCsoft摆脱他天堂模式僵局的首支雇佣兵，韩国游戏策划让你排名以及坐大牢我是毫不奇怪，但这次课金系统能不能搞温柔一点啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modkingr  
+##### 82#         楼主| 发表于 2026-10-1 18:02
+
+明天CBT我会在b站播这个游戏，想看的直接进
+
+直播间
+[https://live.bilibili.com/4072202](https://live.bilibili.com/4072202)
+
