@@ -7680,3 +7680,32 @@ pi这越整合越多是不是有点违反初衷了<img src="https://static.stage
 pi这越整合越多是不是有点违反初衷了</blockquote>
 这不就是omp吗
 
+
+*****
+
+####  linhaolin1  
+##### 15485#       发表于 2026-10-1 15:00
+
+<img src="https://img.stage1st.com/forum/202610/01/150041lp2jhxxpy88jq1jz.png" referrerpolicy="no-referrer">
+
+<strong>6B4E19848EA9D0ACFD819FA02CC69358.png</strong> (457.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-1 15:00 上传
+
+
+*****
+
+####  jinuzuktII  
+##### 15486#       发表于 2026-10-1 15:05
+
+<img src="https://img.stage1st.com/forum/202610/01/150501v51ow19fxf6666kr.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (84.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 15:05 上传
+
