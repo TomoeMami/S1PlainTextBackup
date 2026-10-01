@@ -7770,3 +7770,15 @@ pi这越整合越多是不是有点违反初衷了</blockquote>
 
 codemode这个算是更优雅地减少MCP的上下文污染吧
 
+
+*****
+
+####  gawain  
+##### 15493#       发表于 2026-10-1 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309856&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-1 17:09</a>
+基本上每个人拿到Pi的第一件事就是去下载一个，或者自己搓一个MCP接入功能，比如我搓的第一个扩展就是MCP ...</blockquote>
+对啊，用pi就是图不会一开始塞一大堆提示词进去，用什么接入就行了。 像mcp adapter这种，也不会一次性把mcp工具都塞给llm。不知道pi自己整的mcp会是怎么样的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
