@@ -1223,3 +1223,14 @@ xx机里最多也是专用机，139个，当然有个原因是SD系列基本全�
 
 惊呆了，还有这种东西的
 
+
+*****
+
+####  洛克萨斯  
+##### 4821#       发表于 2026-10-2 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311508&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-10-2 01:01</a>
+
+惊呆了，还有这种东西的</blockquote>
+不ssp没法用，感觉设计出来就是让你ssp的
+
