@@ -7782,3 +7782,24 @@ codemode这个算是更优雅地减少MCP的上下文污染吧
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  andychen  
+##### 15494#       发表于 2026-10-1 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309856&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-1 17:09</a>
+
+基本上每个人拿到Pi的第一件事就是去下载一个，或者自己搓一个MCP接入功能，比如我搓的第一个扩展就是MCP ...</blockquote>
+就我个人来说，考虑用pi就是图它相对干净的框架，我可以依照自己的需求进行定制
+
+例如我现在手上的项目准备pi用作执行器，但是我已经有独立的skill和mcp管理了，这时候pi自带的组件就显得多余，甚至可能带来潜在的兼容性问题
+
+
+*****
+
+####  01一14  
+##### 15495#       发表于 2026-10-1 19:45
+
+gpt降智到发本地图路径了，这个图应该是恢复了吧，我的dspro啥时候回来啊<img src="https://static.stage1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/35/e816bd01b6fe72faffa1c72055c1d1dd/image.jpg" referrerpolicy="no-referrer">
+
