@@ -355,3 +355,21 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 有些人想长点力真是难如登天，我迪特里希和小丑全转土匪升了几级一点力都不长的，力被米凯拉和艾斯梅拉开一大截
 打昆仑那关有召唤师其实是不是可以带几个板凳无限刷级的
 
+
+*****
+
+####  kalavinka  
+##### 5953#       发表于 2026-10-1 22:22
+
+这雷达是人啊，力是一点不加，卡塔尼亚这条线倒是疯狂加，已经是队里力量第二高了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/01/222150zn0ouocpooo1f554.jpg" referrerpolicy="no-referrer">
+
+<strong>img_2760.jpg</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 22:21 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
