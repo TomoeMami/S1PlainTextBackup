@@ -7803,3 +7803,16 @@ codemode这个算是更优雅地减少MCP的上下文污染吧
 
 gpt降智到发本地图路径了，这个图应该是恢复了吧，我的dspro啥时候回来啊<img src="https://static.stage1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/35/e816bd01b6fe72faffa1c72055c1d1dd/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大肥鱼  
+##### 15496#       发表于 2026-10-1 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70310381&amp;ptid=2275806" target="_blank">01一14 发表于 2026-10-1 19:45</a>
+gpt降智到发本地图路径了，这个图应该是恢复了吧，我的dspro啥时候回来啊</blockquote>
+是啊，今年虽然一定会有，但两个月的时间度日如年呀。
+总感觉 AI 甚至可以说加速了人对时间的感知。明明 AI 诞生才没几年，但每一天都让人很期待后面的 AI。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

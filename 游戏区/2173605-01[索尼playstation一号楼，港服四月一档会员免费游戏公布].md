@@ -225,3 +225,11 @@ NateTheHate说自己听说的消息相同，所以ND接下来的三个游戏就�
 
 https://mp1st.com/news/new-uncharted-game-development-naughty-dog-headed-lost-legacy-director
 
+
+*****
+
+####  黑猫软  
+##### 841#       发表于 2026-10-1 20:35
+
+原定于2026年推出的《柯娜：科斯莫拉的伤痕》，现已决定延期至2027年发售
+
