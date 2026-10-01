@@ -212,3 +212,40 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 女王重新打第一章战备捐献的任务居然没继承？难道要打过第二章再重打才会？
 
+
+*****
+
+####  reficul  
+##### 5940#       发表于 2026-10-1 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309977&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-10-1 17:44</a>
+
+一周左右刷新，杀完了也可以重新打</blockquote>
+原来是时间刷新，有一次探洞发现空空荡荡只剩下素材还以为是杀光就不再生了= =
+
+*****
+
+####  Humpy  
+##### 5941#       发表于 2026-10-1 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70310015&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-10-1 17:59</a>
+女王重新打第一章战备捐献的任务居然没继承？难道要打过第二章再重打才会？ ...</blockquote>
+说起来战备增强任务有必要全做吗
+
+我之前女王线一周目时刚11章就名声12了，然后做外传支线时间紧战备增强就没做。
+
+有没有全做的奖励？
+
+
+*****
+
+####  Jabeck  
+##### 5942#       发表于 2026-10-1 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70310090&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-10-1 18:19</a>
+
+说起来战备增强任务有必要全做吗
+
+我之前女王线一周目时刚11章就名声12了，然后做外传支线时间紧战备增强 ...</blockquote>
+解锁新职业，重装骑士好像只有女王战备增强解锁。
+
