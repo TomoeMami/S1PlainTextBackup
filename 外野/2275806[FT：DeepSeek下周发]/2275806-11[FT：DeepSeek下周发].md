@@ -7972,3 +7972,18 @@ cline
 plus会员到期后转回用deepseek api，两天用了30元，有什么比较划算的Coding Plan吗，opencode go 10🔪套 ...</blockquote>
 肥鱼都能蹬出这个量来，你该回头买PRO啦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stackoverflow  
+##### 15510#       发表于 2026-10-2 04:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311624&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-2 02:44</a>
+
+现在token已经涨价了，以前那么高性价比的套餐已经没了
+
+最高性价比的就是chatgpt plus。不过oai今后很可 ...</blockquote>
+我看opencode go在空闲时段也有60🔪的额度，开了订阅试试看，之前用ChatGPT Plus 6 luna我都快把额度用光了<img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+顺便提一句，之前因为需求定义还挺明确的，所以用Luna感觉也还行，这两天换回Deepseek，发现Deepseek 4.1 Flash比Luna强太多了<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
