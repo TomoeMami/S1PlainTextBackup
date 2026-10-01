@@ -16598,3 +16598,30 @@ A少线我得法比奥不弱，但最后都没声望8养出来的丹缇强
 
 高声望也有强的，比如作家吃货奶妈这种再高声望入队都能打
 
+
+*****
+
+####  蓮華  
+##### 5912#       发表于 2026-10-1 11:23
+
+<img src="https://img.stage1st.com/forum/202610/01/112043hcq3l2632dpgvpz3.png" referrerpolicy="no-referrer">
+
+<strong>A489BFA88386F7535902791F74459E39.png</strong> (36.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 11:20 上传
+
+笑到我了，直面会上万紫千红第一个PV的时候
+
+楼里的确不少说神威法王看起来就是个幕后大反派
+
+现在X上的风评变成了一个:3脸的如果一起旅行会是挺轻松的伙伴但是把重要事情交给他他肯定会搞砸的人了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hl氏  
+##### 5913#       发表于 2026-10-1 11:28
+
+第一个PV顺带王国的国王和王后也看起来挺有料<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
