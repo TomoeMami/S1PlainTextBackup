@@ -16459,3 +16459,22 @@ is对限制跳舞刷级是有意识的 三房和engage一张图里跳十次左�
 
 这柯南打到一半怎么变哥斯拉了 打怪兽在现代城市对打
 
+
+*****
+
+####  纯夏  
+##### 5900#       发表于 2026-10-1 07:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70308106&amp;ptid=2261859" target="_blank">みさ 发表于 2026-10-1 05:05</a>
+
+那么后期岂不是加入了也没用
+
+—— 来自 鹅球 v4.0</blockquote>
+爱娜特莉亚原本是开发组设定的8位主角之一 
+
+后来开发组因为8位主角太多 会让玩家的学习成本大幅提高 所以又砍成了4位  
+
+而被砍掉的4位主角前期很多相关的剧情也跟着砍掉了 
+
+所以最好的办法就是放在后期加入 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
