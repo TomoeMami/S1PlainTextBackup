@@ -7709,3 +7709,16 @@ pi这越整合越多是不是有点违反初衷了</blockquote>
 
 2026-10-1 15:05 上传
 
+
+*****
+
+####  dodolee  
+##### 15487#       发表于 2026-10-1 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306887&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-30 20:54</a>
+
+OpenClaw重点是gateway啊，这个目前完全被hermes挤占了。
+
+Hermes非常好用，配honcho和openviking。 ...</blockquote>
+ncho和openviking你是一起用吗？honcho（自建）之前用了一阵子感觉没什么效果，现在换hindsight了…
+
