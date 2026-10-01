@@ -2295,3 +2295,26 @@ RenoDX更新了
 —— 来自 Xiaomi 251 ...</blockquote>
 通关后面看杰西房间有文件提到动机不明，这ip一直有很多没啥解释的事情也不奇怪
 
+
+*****
+
+####  Racyjackman  
+##### 225#       发表于 2026-10-1 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309242&amp;ptid=2104476" target="_blank">BK10 发表于 2026-10-1 13:50</a>
+通关后面看杰西房间有文件提到动机不明，这ip一直有很多没啥解释的事情也不奇怪 ...</blockquote>
+主要是上一部里杰西绑定局长的枪包括其他能量之体都解释的很明白，这部弟弟就有点不清不楚的
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  BK10  
+##### 226#       发表于 2026-10-1 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309270&amp;ptid=2104476" target="_blank">Racyjackman 发表于 2026-10-1 13:59</a>
+主要是上一部里杰西绑定局长的枪包括其他能量之体都解释的很明白，这部弟弟就有点不清不楚的
+
+—— 来自  ...</blockquote>
+迪伦可以说整个人都不算很透明吧，能力上限在哪里都摸不清，只知道很nb
+
