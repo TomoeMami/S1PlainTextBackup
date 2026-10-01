@@ -7460,3 +7460,14 @@ Gemini4来了，看跑分应该是泛化能力强，相对强调通用性的模�
 
 怎么还没上反重力，手里屯了3个号等不及贷出来用了
 
+
+*****
+
+####  LeoDT  
+##### 15464#       发表于 2026-10-1 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307457&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-9-30 23:11</a>
+
+pi有巨大的bun依赖啊。</blockquote>
+只是支持node和bun两种运行环境而已，想要纯净要么就是用pi要么就是用某些更小的rust/c做的个人项目了，哪还有纯净的harness。
+
