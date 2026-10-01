@@ -308,3 +308,24 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 给俩弓手配了后，这练级效率、输出和抗性笑嘻了。我第一次笑出声。
 这就是我最爱的轮椅。
 
+
+*****
+
+####  reficul  
+##### 5949#       发表于 2026-10-1 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70310261&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-10-1 19:07</a>
+
+跑图过程中怎么把人物视角拉远？</blockquote>
+只有大地图能用右摇杆调，其他跑图都是固定的。晕的话把转视角灵敏度调低或者用ZL调整视角
+
+*****
+
+####  Jabeck  
+##### 5950#       发表于 2026-10-1 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70310797&amp;ptid=2261859" target="_blank">reficul 发表于 2026-10-1 21:34</a>
+
+只有大地图能用右摇杆调，其他跑图都是固定的。晕的话把转视角灵敏度调低或者用ZL调整视角 ...</blockquote>
+研究出来十字键能调视角远近。
+
