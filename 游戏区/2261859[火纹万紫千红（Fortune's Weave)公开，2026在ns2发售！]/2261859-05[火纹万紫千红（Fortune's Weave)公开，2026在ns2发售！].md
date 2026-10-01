@@ -478,3 +478,11 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 女王线外传必须都要在12章清掉吗
 
+
+*****
+
+####  hl氏  
+##### 5964#       发表于 2026-10-2 02:11
+
+迪线9月在主线的最后一个回合前开启弹力moon的外传，踩过点了应该没事，想到没事就特别想作<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
