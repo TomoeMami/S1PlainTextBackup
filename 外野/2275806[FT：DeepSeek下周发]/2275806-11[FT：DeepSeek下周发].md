@@ -7620,3 +7620,19 @@ gemini都出了，国模新一代还没出吗
 
 fable5 带的坏头，以后模型发布都能先 ppt 赚个几周噱头再掏出来了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RookieTnT  
+##### 15480#       发表于 2026-10-1 13:37
+
+<img src="https://img.stage1st.com/forum/202610/01/133709x9d7w2q7ao17wq4a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 13:37 上传
+
+今日小黄鱼gpt黑话，让人难绷
+

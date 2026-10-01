@@ -431,3 +431,12 @@ PV的导入部分，用 ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">PV主角看到房子那幕跟四月一日进壹原侑子的店非常神似不是吗，确实可以算扭曲亡妻文学
 
+
+*****
+
+####  伊布桑  
+##### 80#       发表于 2026-10-1 13:33
+
+真搞亡妻文学吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说实话挺好这口的，推测就算亡妻也会变成阿罗那那样回主角身边当吉祥物？
+
