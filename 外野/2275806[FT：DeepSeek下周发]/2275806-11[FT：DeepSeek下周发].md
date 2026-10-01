@@ -7918,3 +7918,19 @@ dot到底有什么用途，。请大家告诉我<img src="https://static.stage1s
 对啊，用pi就是图不会一开始塞一大堆提示词进去，用什么接入就行了。 像mcp adapter这种，也不会一次性把 ...</blockquote>
 我之前是让pi自己给我手搓了一个。 更新到0.99之后，基本上直接无缝切过去官方的了。 
 
+
+*****
+
+####  stackoverflow  
+##### 15506#       发表于 2026-10-2 01:58
+
+<img src="https://img.stage1st.com/forum/202610/02/015724oohvyt4fxehefxhh.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-10-02_01-57-01.png</strong> (64.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 01:57 上传
+
+plus会员到期后转回用deepseek api，两天用了30元，有什么比较划算的Coding Plan吗，opencode go 10🔪套餐看着好像还行？<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
