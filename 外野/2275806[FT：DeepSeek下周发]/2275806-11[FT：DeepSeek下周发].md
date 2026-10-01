@@ -7907,3 +7907,14 @@ dot到底有什么用途，。请大家告诉我<img src="https://static.stage1s
 —— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99 ...</blockquote>
 一样可以用 github connector 干活啊，比网页好用多了，还能连本地，就是网络比较头疼，我经常 offline，就我连的那一下，感觉没怎么耗额度
 
+
+*****
+
+####  13号  
+##### 15505#       发表于 2026-10-2 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70310339&amp;ptid=2275806" target="_blank">gawain 发表于 2026-10-1 19:31</a>
+
+对啊，用pi就是图不会一开始塞一大堆提示词进去，用什么接入就行了。 像mcp adapter这种，也不会一次性把 ...</blockquote>
+我之前是让pi自己给我手搓了一个。 更新到0.99之后，基本上直接无缝切过去官方的了。 
+
