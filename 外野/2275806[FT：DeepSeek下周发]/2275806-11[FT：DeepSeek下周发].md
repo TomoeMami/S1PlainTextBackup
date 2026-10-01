@@ -7829,3 +7829,19 @@ ncho和openviking你是一起用吗？honcho（自建）之前用了一阵子感
 
 Honcho要好用不能用默认的低级模型，至少挂KimiK3这个级别的。
 
+
+*****
+
+####  andychen  
+##### 15498#       发表于 2026-10-1 21:21
+
+<img src="https://img.stage1st.com/forum/202610/01/212008bou3t3844tyg40z2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 21:20 上传
+
+6.1sol直接爆了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
