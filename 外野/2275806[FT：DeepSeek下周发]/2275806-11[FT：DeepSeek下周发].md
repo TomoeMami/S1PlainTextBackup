@@ -7816,3 +7816,16 @@ gpt降智到发本地图路径了，这个图应该是恢复了吧，我的dspro
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  AraTurambar  
+##### 15497#       发表于 2026-10-1 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309480&amp;ptid=2275806" target="_blank">dodolee 发表于 2026-10-1 15:11</a>
+
+ncho和openviking你是一起用吗？honcho（自建）之前用了一阵子感觉没什么效果，现在换hindsight了… ...</blockquote>
+一起用。Hindsight和Honcho其实都能用的，看个人喜欢吧。
+
+Honcho要好用不能用默认的低级模型，至少挂KimiK3这个级别的。
+
