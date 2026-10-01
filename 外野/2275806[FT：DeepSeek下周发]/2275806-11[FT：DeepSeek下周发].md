@@ -7742,3 +7742,13 @@ pi这越整合越多是不是有点违反初衷了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hugosol  
+##### 15490#       发表于 2026-10-1 17:04
+
+codebase-memory-mcp是真的好用
+
+我现在搓了个extension，打开后每轮回复前注入一句，用grep或者read 100行以上的源码时想想要不要用codebase-memory-mcp，agent就会自己调各种工具了，效果特别好<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
