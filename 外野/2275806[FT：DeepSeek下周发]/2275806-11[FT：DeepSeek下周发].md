@@ -7471,3 +7471,23 @@ Gemini4来了，看跑分应该是泛化能力强，相对强调通用性的模�
 pi有巨大的bun依赖啊。</blockquote>
 只是支持node和bun两种运行环境而已，想要纯净要么就是用pi要么就是用某些更小的rust/c做的个人项目了，哪还有纯净的harness。
 
+
+*****
+
+####  jinuzuktII  
+##### 15465#       发表于 2026-10-1 09:19
+
+gemini 4 从野榜来看是 gpt6 同级，也行吧
+
+*****
+
+####  LeoDT  
+##### 15466#       发表于 2026-10-1 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70307478&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-9-30 23:15</a>
+
+Pi 的 MCP 是为了 code mode 这盘醋加的，最新的 0.99.0 已经内置了</blockquote>
+为了这个Pi团队还被各种骂背叛社区，也是挺有意思。
+
+另外他们还发现了Figma MCP做了个莫名其妙的限制，验证了调用者传来的clientName必须是Claude Code或者Codex，Pi传了pi所以没法调用Figma MCP，虽然想绕过非常简单，这也算是MCP这个东西乱象之一吧。
+
