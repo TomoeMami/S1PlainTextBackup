@@ -16552,3 +16552,13 @@ A少线我得法比奥不弱，但最后都没声望8养出来的丹缇强
 
 —— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  真田源次郎信繁  
+##### 5907#       发表于 2026-10-1 10:19
+
+女王这剧情，各方面太织田信长了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+预料到玩家可能对非洲味的剧情没兴趣，搞了个套壳信长公还行
+
