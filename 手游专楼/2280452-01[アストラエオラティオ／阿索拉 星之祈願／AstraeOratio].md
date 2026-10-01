@@ -423,3 +423,11 @@ PV的导入部分，用 ...</blockquote>
 
 官方3D小视频，北斗七星女很涩啊。
 
+
+*****
+
+####  rilakkuma  
+##### 79#       发表于 2026-10-1 12:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">PV主角看到房子那幕跟四月一日进壹原侑子的店非常神似不是吗，确实可以算扭曲亡妻文学
+
