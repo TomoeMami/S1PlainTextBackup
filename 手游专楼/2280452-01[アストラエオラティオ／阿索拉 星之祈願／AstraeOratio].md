@@ -471,3 +471,11 @@ PV的导入部分，用 ...</blockquote>
 
 除非它像偶像大师闪耀色彩初期那样连赢一把单机模式都赢不了，那我只能走<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  缺德猫  
+##### 84#       发表于 2026-10-2 00:16
+
+估计还是那套PVE冲榜玩法，氪与不氪差点榜单蚊子腿奖励，本质还是为爱付费
+

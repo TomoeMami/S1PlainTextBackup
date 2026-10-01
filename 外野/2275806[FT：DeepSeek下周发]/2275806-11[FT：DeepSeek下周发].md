@@ -7861,3 +7861,15 @@ dot目前无限astra有点爽，tibo说有了dot现在暂时没重置了
 
 dot我倒是今天用了一天 的确有不少可能性 主要可以用gpt生态
 
+
+*****
+
+####  nianiania  
+##### 15501#       发表于 2026-10-2 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311268&amp;ptid=2275806" target="_blank">Sontag 发表于 2026-10-1 23:37</a>
+dot目前无限astra有点爽，tibo说有了dot现在暂时没重置了</blockquote>
+可我用 dot 还是会消耗额度啊，难道只能用来对话吗？
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

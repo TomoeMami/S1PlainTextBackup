@@ -454,3 +454,19 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  索非亚  
+##### 5962#       发表于 2026-10-2 00:20
+
+怎么会设计出战车这么变态的成长，故意还是不小心的，这还没算上双倍马加成。
+
+<img src="https://img.stage1st.com/forum/202610/02/001846xr6f51fakk4lrykr.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1790871526278_4.webp</strong> (22.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 00:18 上传
+
