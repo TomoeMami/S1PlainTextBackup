@@ -7669,3 +7669,14 @@ pi 的内存占用，其实我不太满意，但毕竟是 bun/node ，暂时忍�
 
 pi这越整合越多是不是有点违反初衷了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jyj256  
+##### 15484#       发表于 2026-10-1 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309362&amp;ptid=2275806" target="_blank">gawain 发表于 2026-10-1 14:30</a>
+
+pi这越整合越多是不是有点违反初衷了</blockquote>
+这不就是omp吗
+

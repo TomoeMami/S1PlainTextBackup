@@ -26,3 +26,15 @@
 
 这次火纹竟然让我看到了主角父母齐上阵的剧情。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达达达葱  
+##### 5924#       发表于 2026-10-1 14:41
+
+<blockquote>jockeyjoestar 发表于 2026-10-1 14:07
+这一章三个外传呢。。 从马兹神殿走最后一天其实是来得及的  不要进大地图再从神殿传送 可以省一回合  中 ...</blockquote>
+所以盖茨是不是这作地滑板
+
+收得最晚而且只有一条线能收不能合成
+
