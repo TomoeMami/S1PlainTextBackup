@@ -16533,3 +16533,22 @@ A少线我得法比奥不弱，但最后都没声望8养出来的丹缇强
 
 2026-10-1 10:02 上传
 
+
+*****
+
+####  星花  
+##### 5905#       发表于 2026-10-1 10:10
+
+9个主角 几个固定的奶 重甲 弓手 飞马  其实没多少位置了 。
+
+*****
+
+####  绕指流光  
+##### 5906#       发表于 2026-10-1 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70308449&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-1 10:03</a>
+贴张red看到的挖角数据和期望对比</blockquote>
+鱼叉王作为挖角不好用，迪线被我养成大爹了，主线送了山猪枪之后就是导弹发射器<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
