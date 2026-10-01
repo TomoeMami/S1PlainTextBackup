@@ -461,3 +461,13 @@ PV的导入部分，用 ...</blockquote>
 直播间
 [https://live.bilibili.com/4072202](https://live.bilibili.com/4072202)
 
+
+*****
+
+####  幽灵部长助理  
+##### 83#       发表于 2026-10-1 22:08
+
+不管怎么逼氪都是不会氪的，只要躺得够平就不会坐牢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+除非它像偶像大师闪耀色彩初期那样连赢一把单机模式都赢不了，那我只能走<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

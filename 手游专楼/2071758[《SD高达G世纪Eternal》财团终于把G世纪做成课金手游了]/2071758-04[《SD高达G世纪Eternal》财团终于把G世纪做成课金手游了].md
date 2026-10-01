@@ -1197,3 +1197,13 @@ xx机里最多也是专用机，139个，当然有个原因是SD系列基本全�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怕是得等关服那天
 
+
+*****
+
+####  冰风血羽  
+##### 4819#       发表于 2026-10-1 22:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">打到19层了，这没有即时存档跟阶段回溯好累人啊
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
