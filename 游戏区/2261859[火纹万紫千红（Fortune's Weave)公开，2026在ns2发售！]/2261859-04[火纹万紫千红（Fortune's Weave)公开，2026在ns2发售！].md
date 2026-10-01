@@ -16517,3 +16517,19 @@ A少线我得法比奥不弱，但最后都没声望8养出来的丹缇强
 
 反正最后别的线也练能合成大水桶
 
+
+*****
+
+####  索非亚  
+##### 5904#       发表于 2026-10-1 10:03
+
+贴张red看到的挖角数据和期望对比
+
+<img src="https://img.stage1st.com/forum/202610/01/100217mv593pjwvnvjevb3.png" referrerpolicy="no-referrer">
+
+<strong>00dib02u06rh1.png</strong> (261.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 10:02 上传
+
