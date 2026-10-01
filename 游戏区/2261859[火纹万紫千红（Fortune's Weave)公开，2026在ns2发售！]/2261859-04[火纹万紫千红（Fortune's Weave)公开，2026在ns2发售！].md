@@ -16478,3 +16478,15 @@ is对限制跳舞刷级是有意识的 三房和engage一张图里跳十次左�
 
 所以最好的办法就是放在后期加入 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空气先生  
+##### 5901#       发表于 2026-10-1 08:42
+
+<blockquote>みさ 发表于 2026-10-1 05:05
+那么后期岂不是加入了也没用
+
+—— 来自 鹅球 v4.0</blockquote>
+后期加入的角色因为是固定等级，所以数值挺正常的（例如小绿）
+
