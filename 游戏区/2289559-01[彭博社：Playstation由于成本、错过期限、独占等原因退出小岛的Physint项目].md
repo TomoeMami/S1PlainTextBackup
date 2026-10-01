@@ -19,3 +19,11 @@ Christopher Dring再次表示此前播客中说的“据报道小岛要求4亿�
 
 4亿就是所谓加入A咖演员之后的预算吧，归xbox后小岛明显妥协了，演员阵容咖位都降了好几档，男主跟最初的封面都不像同一个人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ultraseven  
+##### 216#       发表于 2026-10-2 01:56
+
+索尼还是亏了啊。对自己就是要4亿，分手了隔壁巨硬哥哥上门也不挑了，1亿就行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
