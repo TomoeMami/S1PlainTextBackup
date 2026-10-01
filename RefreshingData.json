@@ -3042,10 +3042,10 @@
     "update": false
   },
   "1860168": {
-    "totalreply": 10297,
+    "totalreply": 10298,
     "title": "[无职转生动画楼 剧透慎入]",
     "newtitle": "[无职转生动画楼 剧透慎入]",
-    "lastedit": 1790749686,
+    "lastedit": 1790873164,
     "category": "漫区",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 47554,
+    "totalreply": 47556,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》9.30 问心无愧]",
-    "lastedit": 1790872445,
+    "lastedit": 1790872809,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 21230,
+    "totalreply": 21231,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼7月]",
-    "lastedit": 1790868606,
+    "lastedit": 1790873285,
     "category": "外野",
     "active": true,
     "update": false
@@ -13869,10 +13869,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 20895,
+    "totalreply": 20899,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1790872686,
+    "lastedit": 1790873045,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14751,10 +14751,10 @@
     "update": false
   },
   "2274657": {
-    "totalreply": 255,
+    "totalreply": 256,
     "title": "[恶魔城：贝尔蒙特的诅咒公开，2026发售]",
     "newtitle": "[恶魔城：贝尔蒙特的诅咒公开，2026发售]",
-    "lastedit": 1790871605,
+    "lastedit": 1790872809,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16110,10 +16110,10 @@
     "update": false
   },
   "2272764": {
-    "totalreply": 146,
+    "totalreply": 147,
     "title": "[FX战士久留美 TV动画化 2026年]",
     "newtitle": "[FX战士久留美 TV动画化 2026年]",
-    "lastedit": 1790872565,
+    "lastedit": 1790873165,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16466,7 +16466,7 @@
     "newtitle": "[薛剑称“日本在反华厌华领域已经成为世界冠军”]",
     "lastedit": 1790613606,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2289297": {
@@ -17307,10 +17307,10 @@
     "update": false
   },
   "2290808": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[40岁，丧失了随意打飞机的能力。]",
     "newtitle": "[40岁，丧失了随意打飞机的能力。]",
-    "lastedit": 1790872687,
+    "lastedit": 1790872925,
     "category": "外野",
     "active": true,
     "update": false
@@ -17379,10 +17379,10 @@
     "update": false
   },
   "2290806": {
-    "totalreply": 42,
+    "totalreply": 44,
     "title": "[空前绝后的性转马尔福热潮]",
     "newtitle": "[空前绝后的性转马尔福热潮]",
-    "lastedit": 1790871006,
+    "lastedit": 1790872809,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17393,6 +17393,15 @@
     "newtitle": "[虚幻引擎5的主流制作生涯已经走过一半了，大家对UE5游戏的看法如何？]",
     "lastedit": 1790871007,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2290776": {
+    "totalreply": 42,
+    "title": "[摸排一下国庆7天法定节假日上班情况]",
+    "newtitle": "[摸排一下国庆7天法定节假日上班情况]",
+    "lastedit": 1790873285,
+    "category": "外野",
     "active": true,
     "update": false
   }
