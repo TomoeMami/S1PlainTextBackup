@@ -440,3 +440,13 @@ PV的导入部分，用 ...</blockquote>
 真搞亡妻文学吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 说实话挺好这口的，推测就算亡妻也会变成阿罗那那样回主角身边当吉祥物？
 
+
+*****
+
+####  长谷川红叶  
+##### 81#       发表于 2026-10-1 15:23
+
+叛忍是懂得炒热度的，明天CBT测试就开为期五天的偷心怪盗的卡池，宅友说看到这种角色施虐心都膨胀起来了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+所以作为NCsoft摆脱他天堂模式僵局的首支雇佣兵，韩国游戏策划让你排名以及坐大牢我是毫不奇怪，但这次课金系统能不能搞温柔一点啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
