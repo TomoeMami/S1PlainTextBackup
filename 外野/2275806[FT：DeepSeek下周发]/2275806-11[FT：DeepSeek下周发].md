@@ -7568,3 +7568,24 @@ gemini都出了，国模新一代还没出吗
 —— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99</blockquote>
 放假了，怎么出<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 15475#       发表于 2026-10-1 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70308967&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-1 12:36</a>
+gemini都出了，国模新一代还没出吗
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99</blockquote>
+感觉应该是看到fable5.1的常规提升水平本来是要出的，但是下半月美国队各种提质降价发大招，决定回去再练练。
+
+*****
+
+####  hugosol  
+##### 15476#       发表于 2026-10-1 12:57
+
+今天还看到Mario Zechner在X上吵内置mcp和codemode的事情
+
+不过我其实是支持这种“臃肿的极简主义”，只要是可选的，我不排斥加一些奇奇怪怪的功能进来，我看重的是可塑性而不是真的就喜欢毛坯房，所以目前为止omp非常符合我对harness的定位
+
