@@ -1154,3 +1154,20 @@ v高达池子里塞一个宇宙恶女，麻了
 
 专用机词条太狭隘了
 
+
+*****
+
+####  plok201  
+##### 4815#       发表于 2026-10-1 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309195&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-10-1 13:39</a>
+
+初期词条就 电光石火和突破力没44船
+
+专用机词条太狭隘了</blockquote>
+专用机可是大词条，热门的EW系列全是这个tag
+
+xx机里最多也是专用机，139个，当然有个原因是SD系列基本全是专用机，如果出44船那SD系列就毕业了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+直播池限定就掉毛没有44船上，突破力强度完美，专用机就可以直接EW一队，不屈不挠机子有点少，不知道代便选哪个了
+
