@@ -1139,3 +1139,18 @@ v高达池子里塞一个宇宙恶女，麻了
 专用机和突破力船二周年能出来么，掉毛 ...</blockquote>
 后面活动的missing link和G-unit机体肯定加重击词条
 
+
+*****
+
+####  gpx234mqx  
+##### 4814#       发表于 2026-10-1 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70308889&amp;ptid=2071758" target="_blank">plok201 发表于 2026-10-1 12:07</a>
+
+新船没啥用，那几台重击都有其他更好队伍，V2老老实实试验机大家庭
+
+专用机和突破力船二周年能出来么，掉毛 ...</blockquote>
+初期词条就 电光石火和突破力没44船
+
+专用机词条太狭隘了
+

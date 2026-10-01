@@ -16678,3 +16678,46 @@ A少线我得法比奥不弱，但最后都没声望8养出来的丹缇强
 
 噗，玩到特洛伊亚给女王讲“文字传承”这段，我截了不少图，有点意思。
 
+
+*****
+
+####  hl氏  
+##### 5919#       发表于 2026-10-1 13:37
+
+我终于来到传说中的9月份了，主线前一格地底人说了话，是不是就算踩点了？再进一步就是跳转日期
+
+20261001133606-01M3TZBXH2RQ1FSTTEGN8ZC7WH.jpg
+(405.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 13:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/01/133639cqokv4m4854b4z0f.jpg" referrerpolicy="no-referrer">
+
+20261001133615-01M3TZBBZP5G8690JKGE19T893.jpg
+(239.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 13:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/01/133642qgod6gixbcbdmocd.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hl氏  
+##### 5920#       发表于 2026-10-1 13:44
+
+根据AI提示要在上面待命，然后看到目的地打勾了，应该万无一失了
+
+20261001134410-01M3TZTRQ92C15XZPG35E6BYVE.jpg
+(385.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-1 13:44 上传
+
+<img src="https://img.stage1st.com/forum/202610/01/134422xvm6monvtrf05prk.jpg" referrerpolicy="no-referrer">
+

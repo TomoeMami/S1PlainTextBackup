@@ -7636,3 +7636,13 @@ fable5 带的坏头，以后模型发布都能先 ppt 赚个几周噱头再掏�
 
 今日小黄鱼gpt黑话，让人难绷
 
+
+*****
+
+####  来都来了  
+##### 15481#       发表于 2026-10-1 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70306818&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-9-30 20:29</a>
+说起来不知道哪个版本开始的，卡巴斯基会拦截lmstudio的所有网络连接，要不是ds帮忙，我就以为是lmstudio自 ...</blockquote>
+我现在电脑问题已经全都交给AI了，以前的日子不知道是怎么过的。前不久我的浏览器Bing死活上不去，一点就秒报错。我查了半天，找不到原因没招了，只好丢给AI，AI查了一会就出了结果，才知道是我的杀毒软件的一个功能给莫名其妙的拦截了。
+
