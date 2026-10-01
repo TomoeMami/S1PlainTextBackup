@@ -233,3 +233,14 @@ https://mp1st.com/news/new-uncharted-game-development-naughty-dog-headed-lost-le
 
 原定于2026年推出的《柯娜：科斯莫拉的伤痕》，现已决定延期至2027年发售
 
+
+*****
+
+####  哈罗  
+##### 842#       发表于 2026-10-1 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70310146&amp;ptid=2173605" target="_blank">SergeGlenn 发表于 2026-10-1 18:36</a>
+
+MP1ST说档期排在星际异端后面的是Shaun Escayg带队的神海新作，可以确定的是Nate会以某种形式出场，女儿接 ...</blockquote>
+600人不应该并行吗
+
