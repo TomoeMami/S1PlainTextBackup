@@ -8049,3 +8049,209 @@ opencode go的便宜模型现在不是直接接官方渠道，第三方提供商
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">ds怎么突然挂了
 
+
+*****
+
+####  moekyo  
+##### 15517#       发表于 2026-10-2 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311418&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-10-2 00:22</a>
+
+可我用 dot 还是会消耗额度啊，难道只能用来对话吗？
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+一样可以用 github connector 干活啊，比网页好用多了，还能连本地，就是网络比较头疼，我经常 offline，就我连的那一下，感觉没怎么耗额度
+
+*****
+
+####  13号  
+##### 15518#       发表于 2026-10-2 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70310339&amp;ptid=2275806" target="_blank">gawain 发表于 2026-10-1 19:31</a>
+
+对啊，用pi就是图不会一开始塞一大堆提示词进去，用什么接入就行了。 像mcp adapter这种，也不会一次性把 ...</blockquote>
+我之前是让pi自己给我手搓了一个。 更新到0.99之后，基本上直接无缝切过去官方的了。 
+
+*****
+
+####  stackoverflow  
+##### 15519#       发表于 2026-10-2 01:58
+
+<img src="https://img.stage1st.com/forum/202610/02/015724oohvyt4fxehefxhh.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-10-02_01-57-01.png</strong> (64.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 01:57 上传
+
+plus会员到期后转回用deepseek api，两天用了30元，有什么比较划算的Coding Plan吗，opencode go 10🔪套餐看着好像还行？<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 15520#       发表于 2026-10-2 02:44
+
+ 本帖最后由 andychen 于 2026-10-2 03:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311591&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-10-2 01:58</a>
+
+plus会员到期后转回用deepseek api，两天用了30元，有什么比较划算的Coding Plan吗，opencode go 10🔪套 ...</blockquote>
+现在token已经涨价了，以前那么高性价比的套餐已经没了
+
+最高性价比的就是chatgpt plus。不过oai今后很可能不搞额外的用量重置了，所以这个套餐的性价比也下降了不少
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ stackoverflow + 1思路广
+
+查看全部评分
+
+
+*****
+
+####  qwased  
+##### 15521#       发表于 2026-10-2 02:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311591&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-10-2 01:58</a>
+
+plus会员到期后转回用deepseek api，两天用了30元，有什么比较划算的Coding Plan吗，opencode go 10🔪套 ...</blockquote>
+command code
+
+cline 
+
+或者qoder还能无限量白嫖挺久的qwen3.8flash
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ stackoverflow + 1备选了~
+
+查看全部评分
+
+*****
+
+####  squallx  
+##### 15522#       发表于 2026-10-2 03:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311591&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-10-2 01:58</a>
+
+plus会员到期后转回用deepseek api，两天用了30元，有什么比较划算的Coding Plan吗，opencode go 10🔪套 ...</blockquote>
+肥鱼都能蹬出这个量来，你该回头买PRO啦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ stackoverflow + 1好评加鹅
+
+查看全部评分
+
+*****
+
+####  stackoverflow  
+##### 15523#       发表于 2026-10-2 04:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311624&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-2 02:44</a>
+
+现在token已经涨价了，以前那么高性价比的套餐已经没了
+
+最高性价比的就是chatgpt plus。不过oai今后很可 ...</blockquote>
+我看opencode go在空闲时段也有60🔪的额度，开了订阅试试看，之前用ChatGPT Plus 6 luna我都快把额度用光了<img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+顺便提一句，之前因为需求定义还挺明确的，所以用Luna感觉也还行，这两天换回Deepseek，发现Deepseek 4.1 Flash比Luna强太多了<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 15524#       发表于 2026-10-2 04:20
+
+ 本帖最后由 qwased 于 2026-10-2 04:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311659&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-10-2 04:09</a>
+
+我看opencode go在空闲时段也有60🔪的额度，开了订阅试试看，之前用ChatGPT Plus 6 luna我都快把额度用光 ...</blockquote>
+ocg会降智的，现在真没必要用了
+
+command code现在也不咋行了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋黄酱Release  
+##### 15525#       发表于 2026-10-2 04:23
+
+deepseek官方的api和网页挂了好久了，ocg的没影响，显然ocg已经是别的渠道了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我也发现ocg的有点降智，但是还是便宜的多
+
+*****
+
+####  stackoverflow  
+##### 15526#       发表于 2026-10-2 04:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311662&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-2 04:20</a>
+
+ocg会降智的，现在真没必要用了
+
+command code现在也不咋行了</blockquote>
+使用体验确实比官方的差得多，开都开了为了省钱先忍一个月<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 15527#       发表于 2026-10-2 04:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311659&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-10-2 04:09</a>
+
+我看opencode go在空闲时段也有60🔪的额度，开了订阅试试看，之前用ChatGPT Plus 6 luna我都快把额度用光 ...</blockquote>
+opencode go的便宜模型现在不是直接接官方渠道，第三方提供商做了多少量化不好说。他们最近也开始推更贵的40刀套餐，明显是低价套餐覆盖不了成本了
+
+另外不是所有模型都是60刀用量，注意看一下你需要的模型实际用量给了多少
+
+*****
+
+####  qwased  
+##### 15528#       发表于 2026-10-2 04:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311666&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-10-2 04:24</a>
+
+使用体验确实比官方的差得多，开都开了为了省钱先忍一个月</blockquote>
+我看群友测试说clinepass实际可以用40亿左右的df41，装好客户端在里面首月优惠是2刀，应该还是值得试试的，反正2刀也吃亏不了
+
+*****
+
+####  jojog  
+##### 15529#       发表于 2026-10-2 05:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">ds怎么突然挂了
+
+*****
+
+####  cscbzcbz  
+##### 15530#       发表于 2026-10-2 05:26
+
+好像炸了1个多小时了
+
+[https://status.deepseek.com](https://status.deepseek.com)
+
+*****
+
+####  novem  
+##### 15531#       发表于 2026-10-2 05:29
+
+半夜突然有脑洞问题想问，大肥鱼竟然挂了
+
