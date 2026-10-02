@@ -8329,3 +8329,43 @@ opencode 10美元一个月 支持DeepSeek60刀额度
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  andychen  
+##### 15538#       发表于 2026-10-2 14:49
+
+Opencode上了一个新的免费模型fledge-alpha-free
+
+见鬼的是这模型同时把中国和欧洲的访问封了，某些美国实验室真丧心病狂吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 15539#       发表于 2026-10-2 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312876&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-2 14:49</a>
+Opencode上了一个新的免费模型fledge-alpha-free
+
+见鬼的是这模型同时把中国和欧洲的访问封了，某些美国实 ...</blockquote>
+搞不好是muse
+
+连欧洲都封的只有扎克伯格的ctb
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  andychen  
+##### 15540#       发表于 2026-10-2 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312893&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-2 14:54</a>
+
+搞不好是muse
+
+连欧洲都封的只有扎克伯格的ctb</blockquote>
+没怎么关注meta
+
+我之前一直以为只是muse机器人不让欧洲人用，原来连模型都封啊？这Alexander Wang真牛逼吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

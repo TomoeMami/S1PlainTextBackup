@@ -555,3 +555,11 @@ https://img.stage1st.com/forum/202608/31/202645cx2yhn85aonu822n.jpeg
 
 我看叛忍是懂传播学的，一开始就把最核心热度最高的东西丢出来刺激你，后面的大牢来日方长慢慢坐<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萌二  
+##### 92#       发表于 2026-10-2 14:50
+
+序章这个剧情真的不错 就是战斗都是轻飘飘的
+
