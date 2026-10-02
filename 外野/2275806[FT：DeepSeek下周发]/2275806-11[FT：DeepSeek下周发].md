@@ -9021,3 +9021,29 @@ download.png
 
 然后DGX Spark出了个64G版卖4999刀，128G版涨到了6999刀……
 
+
+*****
+
+####  乌桃内设格温  
+##### 15596#       发表于 2026-10-3 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312737&amp;ptid=2275806" target="_blank">ZBY901026 发表于 2026-10-2 13:54</a>
+
+百元内的性价比排序
+
+codebuddy白嫖每天100点 支持DeepSeek 轻度开发够用</blockquote>
+似乎现在Google one ai没法通过api调用了，只能去aistudio上面去调api。操蛋了<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  静哮苍穹  
+##### 15597#       发表于 2026-10-3 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314447&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-10-3 00:01</a>
+社区Strata仓库新出了qwen3.8flashnext的部署方案
+
+12G 5070ti 64G内存跑256k上下文的iq3s量化版，50token/s ...</blockquote>
+隔壁帖子已经用上两天了，确实不错
+
+—— 来自 OPPO OPD2515, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
