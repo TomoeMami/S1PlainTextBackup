@@ -571,3 +571,13 @@ https://img.stage1st.com/forum/202608/31/202645cx2yhn85aonu822n.jpeg
 
 不是哥们，这剧情还有开场报赞助商和中场转场，真致敬老动画是吧<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 94#       发表于 2026-10-2 16:21
+
+感觉有点机械套ba公式了，ba爽到不是因为它偏门，而是刚好偏到黄金律法上了
+
+复古赛璐璐看个pv还行，真出一季动画谁能坚持下来，抽卡画面这个裤子我直接在减速带上磨脸，公务员语料且看身体够不够诚实能不能扛得住
+
