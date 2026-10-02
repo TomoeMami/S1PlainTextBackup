@@ -43,3 +43,18 @@
 复活道具是反魂镜，需要带在身上生效，最后一把武具是太刀，在岚山大沼的一条岔路尽头，我也漏掉了还以为 ...</blockquote>
 翻了翻道具库，也没有返魂镜，难道一周目就没有捡到过
 
+
+*****
+
+####  黑暗之眼  
+##### 1952#       发表于 2026-10-2 18:43
+
+ 本帖最后由 黑暗之眼 于 2026-10-2 18:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313401&amp;ptid=2210366" target="_blank">Leliel 发表于 2026-10-2 18:18</a>
+翻了翻道具库，也没有返魂镜，难道一周目就没有捡到过</blockquote>
+固定点位的话，八坂塔最顶层外沿的袋子射下来就是，就是鬼之秘宝五那一圈。
+
+太刀止水在岚山大毒池右上角，有单独一个破魔镜，破魔镜上面有一条岔路，里面就是。
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
