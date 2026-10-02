@@ -1257,3 +1257,25 @@ D 少这里全是重要的剧情 + 世界观揭露 + callback 三房啊
 
 不过我第一次玩的时候为了保险确实放诱饵前就保存
 
+
+*****
+
+####  月华刹那  
+##### 6032#       发表于 2026-10-2 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313470&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-2 18:48</a>
+
+战象兵进入第3部第2区分解锁 算是战车兵的上位版</blockquote>
+所以才说象兵这兵种太抽象了，最后一部才给用
+
+第二部开始播片的时候女王的部下坐着象兵创人，而到关卡里我方一个象兵都没有，敌人倒是一堆
+
+合着我方才是被象兵碾的减速带啊<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fireadol  
+##### 6033#       发表于 2026-10-2 22:37
+
+第二部第六章水温也太高了，特别第九回合刷出来的一群飞龙，除了带净化剑的根本打不动，还想慢慢清，结果还是只能选择跑路
+
