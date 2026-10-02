@@ -1513,3 +1513,17 @@ lv3能挖诺克裘拉算是最早的
 
 还有啊为啥要把部分支援设定成5年后没法开了，就不能学习三房绝大部份支援不锁时间的
 
+
+*****
+
+####  onlv星骸  
+##### 6055#       发表于 2026-10-3 05:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314787&amp;ptid=2261859" target="_blank">1wq1 发表于 2026-10-3 04:31</a>
+救世篇玩的好累啊.jpg
+
+还有啊为啥要把部分支援设定成5年后没法开了，就不能学习三房绝大部份支援不锁时间的 ...</blockquote>
+支援对话锁着的，只要一条线第一部通关之后，回到之前章节，把对话解锁看完就行了，不需要打完章节更不需要重新通关，看完直接退出就行了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
