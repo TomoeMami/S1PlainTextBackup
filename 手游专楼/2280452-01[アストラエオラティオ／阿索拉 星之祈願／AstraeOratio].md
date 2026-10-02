@@ -644,3 +644,16 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 
 三种最常见的死库水都有，太变态了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 100#       发表于 2026-10-2 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313102&amp;ptid=2280452" target="_blank">whzfjd 发表于 2026-10-2 16:21</a>
+
+感觉有点机械套ba公式了，ba爽到不是因为它偏门，而是刚好偏到黄金律法上了
+
+复古赛璐璐看个pv还行，真出一 ...</blockquote>
+赛璐璐风格又不是啥奇怪被抗拒的画风，日本番剧各种各样的画风多的去了，一部动画能不能看下去不都是看制作嘛，和画风有啥直接关系。
+

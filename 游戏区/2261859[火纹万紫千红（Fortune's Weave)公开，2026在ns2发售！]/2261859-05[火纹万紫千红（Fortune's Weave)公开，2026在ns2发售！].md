@@ -1192,3 +1192,13 @@ D 少这里全是重要的剧情 + 世界观揭露 + callback 三房啊
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我的迪哥自从转了土匪后再也没升过力量了，20级和现在30级力是一样的数值，然后又因为等级太高每次只能观星一次，凹起来太费劲，是不是告别迪哥自己当主力了
 
+
+*****
+
+####  u2deack  
+##### 6027#       发表于 2026-10-2 22:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314095&amp;ptid=2261859" target="_blank">噗呸破屁诚 发表于 2026-10-2 22:04</a>
+我的迪哥自从转了土匪后再也没升过力量了，20级和现在30级力是一样的数值，然后又因为等级太高每次只能观星 ...</blockquote>
+我现在35级技已经42了力24，真的笑不出来，上级转剑圣还要减力只能硬转勇士了
+

@@ -540,10 +540,10 @@
     "update": false
   },
   "2094432": {
-    "totalreply": 14185,
+    "totalreply": 14186,
     "title": "[【Mr.Quin／秦川】真爱（？）讨论三号楼]",
     "newtitle": "[【Mr.Quin／秦川】秦智障真爱（？）讨论三号楼]",
-    "lastedit": 1790949365,
+    "lastedit": 1790950566,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -752,7 +752,7 @@
     "newtitle": "[『JOJO的奇妙冒险』动画楼 ／ 第七部飙马野郎 动画制作决定]",
     "lastedit": 1790691134,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2010578": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 47617,
+    "totalreply": 47618,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》9.30 问心无愧]",
-    "lastedit": 1790948886,
+    "lastedit": 1790950686,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12024,10 +12024,10 @@
     "update": false
   },
   "2261859": {
-    "totalreply": 6026,
+    "totalreply": 6027,
     "title": "[火纹万紫千红（Fortune's Weave)公开，2026在ns2发售！]",
     "newtitle": "[火纹万紫千红（Fortune's Weave)公开，2026.9.17在ns2发售！／8.4晚22点专场nd]",
-    "lastedit": 1790949965,
+    "lastedit": 1790950206,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 21267,
+    "totalreply": 21270,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼10月]",
-    "lastedit": 1790949486,
+    "lastedit": 1790950325,
     "category": "外野",
     "active": true,
     "update": false
@@ -12546,10 +12546,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 5853,
+    "totalreply": 5854,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1790950085,
+    "lastedit": 1790950686,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2271276": {
-    "totalreply": 10023,
+    "totalreply": 10027,
     "title": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
     "newtitle": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
-    "lastedit": 1790949125,
+    "lastedit": 1790950566,
     "category": "外野",
     "active": true,
     "update": false
@@ -13077,10 +13077,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 41339,
+    "totalreply": 41340,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1790948285,
+    "lastedit": 1790950685,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13725,10 +13725,10 @@
     "update": false
   },
   "2280452": {
-    "totalreply": 99,
+    "totalreply": 100,
     "title": "[アストラエオラティオ／阿索拉 星之祈願／AstraeOratio]",
     "newtitle": "[アストラエオラティオ／阿索拉 星之祈願／AstraeOratio]",
-    "lastedit": 1790943608,
+    "lastedit": 1790950446,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -13869,10 +13869,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 21282,
+    "totalreply": 21283,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1790950085,
+    "lastedit": 1790950446,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14427,21 +14427,12 @@
     "update": false
   },
   "2104476": {
-    "totalreply": 227,
+    "totalreply": 228,
     "title": "[Remedy 控制续作《控制： 共振 ／ CONTROL Resonant》正式公开，2026年发售]",
     "newtitle": "[Remedy 控制续作《控制： 共振 ／ CONTROL Resonant》正式公开，2026年发售]",
-    "lastedit": 1790878685,
+    "lastedit": 1790950205,
     "category": "游戏区",
     "active": true,
-    "update": false
-  },
-  "2190389": {
-    "totalreply": 60,
-    "title": "[脑洞学生会 TV动画化]",
-    "newtitle": "[脑洞学生会 TV动画化]",
-    "lastedit": 1789741008,
-    "category": "漫区",
-    "active": false,
     "update": false
   },
   "2244986": {
@@ -16853,7 +16844,7 @@
     "newtitle": "[回顾仁王1，有点佩服当年能玩下去的人]",
     "lastedit": 1790691018,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2290656": {
@@ -17127,10 +17118,10 @@
     "update": false
   },
   "2290741": {
-    "totalreply": 113,
+    "totalreply": 114,
     "title": "[刚看B站科普，法老控能活到现在，就因为他们的运营理念非常健康]",
     "newtitle": "[刚看B站科普，法老控能活到现在，就因为他们的运营理念非常健康]",
-    "lastedit": 1790949605,
+    "lastedit": 1790950206,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17235,10 +17226,10 @@
     "update": false
   },
   "2290802": {
-    "totalreply": 82,
+    "totalreply": 83,
     "title": "[问界也有离婚冷静期？]",
     "newtitle": "[问界也有离婚冷静期？]",
-    "lastedit": 1790943608,
+    "lastedit": 1790950566,
     "category": "外野",
     "active": true,
     "update": false
@@ -17271,10 +17262,10 @@
     "update": false
   },
   "2290808": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[40岁，丧失了随意打飞机的能力。]",
     "newtitle": "[40岁，丧失了随意打飞机的能力。]",
-    "lastedit": 1790949727,
+    "lastedit": 1790950567,
     "category": "外野",
     "active": true,
     "update": false
@@ -17343,10 +17334,10 @@
     "update": false
   },
   "2290806": {
-    "totalreply": 76,
+    "totalreply": 78,
     "title": "[空前绝后的性转马尔福热潮]",
     "newtitle": "[空前绝后的性转马尔福热潮]",
-    "lastedit": 1790948285,
+    "lastedit": 1790950686,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17442,10 +17433,10 @@
     "update": false
   },
   "2290840": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "[鸿蒙智行 9 月销量 37490，继续暴跌]",
     "newtitle": "[鸿蒙智行 9 月销量 37490，继续暴跌]",
-    "lastedit": 1790931368,
+    "lastedit": 1790950326,
     "category": "外野",
     "active": true,
     "update": false
@@ -17469,10 +17460,10 @@
     "update": false
   },
   "2290867": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[华为、赛力斯“续约” 五年 将组建问界专属团队]",
     "newtitle": "[华为、赛力斯“续约” 五年 将组建问界专属团队]",
-    "lastedit": 1790945409,
+    "lastedit": 1790950326,
     "category": "外野",
     "active": true,
     "update": false
