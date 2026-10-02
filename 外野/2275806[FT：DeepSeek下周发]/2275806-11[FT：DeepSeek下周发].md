@@ -8641,3 +8641,13 @@ K3最大问题是降智了，糖果测试都过不了
 
 看推上各路谣言聊GEMINI4，1M输出，对它的写作能力充满了期待
 
+
+*****
+
+####  FACS  
+##### 15562#       发表于 2026-10-2 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313003&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-2 15:37</a>
+tibo是真鸡贼啊. 本来4号就是大部分人明天也要刷新的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前还发了10.3 10.4两张重置卡，这波oai是损失最小化了
+

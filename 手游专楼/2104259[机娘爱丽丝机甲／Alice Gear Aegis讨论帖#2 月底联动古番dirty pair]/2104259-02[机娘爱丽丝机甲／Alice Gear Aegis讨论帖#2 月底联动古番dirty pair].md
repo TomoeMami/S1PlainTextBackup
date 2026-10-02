@@ -53,3 +53,16 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">感觉要用的话为了追数值得把专武换了？否则这一加一减不是等于跟旧AN+30%一样了
 
+
+*****
+
+####  江戸前ルナ  
+##### 2138#         楼主| 发表于 2026-10-2 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313075&amp;ptid=2104259" target="_blank">madcow 发表于 2026-10-2 16:14</a>
+
+没有啊，挂了新SP以后旧AN平时也挂着那两的。
+
+看了下技能表怎么还有加有减的</blockquote>
+这些是为了开盘子给射击特化或者格斗特化用的词条吧？
+
