@@ -8622,3 +8622,22 @@ K3最大问题是降智了，糖果测试都过不了
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  novalli  
+##### 15560#       发表于 2026-10-2 19:19
+
+今天下午6点20左右的时候突然失去响应了，过了一会继续也没啥问题。然后6点54的时候开了一个新会话，出现了一堆Now let me。
+虽然我觉得DeepSeek是不会加班的，但是万一呢<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  jinuzuktII  
+##### 15561#       发表于 2026-10-2 19:26
+
+看推上各路谣言聊GEMINI4，1M输出，对它的写作能力充满了期待
+
