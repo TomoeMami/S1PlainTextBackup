@@ -8651,3 +8651,36 @@ K3最大问题是降智了，糖果测试都过不了
 tibo是真鸡贼啊. 本来4号就是大部分人明天也要刷新的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前还发了10.3 10.4两张重置卡，这波oai是损失最小化了
 
+
+*****
+
+####  lactone  
+##### 15563#       发表于 2026-10-2 19:39
+
+最近B站AI相关评论区各种速败贴<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 15564#       发表于 2026-10-2 19:41
+
+这边放个长假回来就发现对面卷出fable 5.5和gemini 4，astra 6.1和grok 4.8大概也快乐。降低预期国庆后中国队先来个fable 5.1这级别的吧
+
+
+*****
+
+####  RookieTnT  
+##### 15565#       发表于 2026-10-2 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313499&amp;ptid=2275806" target="_blank">13号 发表于 2026-10-2 18:58</a>
+
+智谱现在有个杭州专属补贴，有补贴后pro年卡大约是3000出头。 看重glm-5.3-flash量够大， glm-5.3也算能力 ...</blockquote>
+opencode-go 目前DeepSeek v4-flash 不全是官方API了 有自部署和第三方的来源. 纯看运气..
+
+*****
+
+####  cscbzcbz  
+##### 15566#       发表于 2026-10-2 19:45
+
+所以到底谁说的要减速<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
