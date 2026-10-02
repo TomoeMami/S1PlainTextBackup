@@ -1427,3 +1427,28 @@ lv3能挖诺克裘拉算是最早的
 
 所以第二部和第三部的自动升级和正常练的效果是一样的吧？最亏的应该只有挖角前的垃圾成长了吧，真不知道是故意的还是忘改了
 
+
+*****
+
+####  土卫七  
+##### 6047#       发表于 2026-10-3 02:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314622&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-3 01:37</a>
+系统拉等级是吃职业成长值的 如果你给板凳角色拉等级 这个角色是初始职业 那成长率是很低的 
+
+第2部的内容 ...</blockquote>
+那这亏的也不算太夸张吧，我还以为像挖人一样不算职业成长的。那我就偷个懒只打迪线的第二部了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  纯夏  
+##### 6048#       发表于 2026-10-3 02:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314648&amp;ptid=2261859" target="_blank">PigMourne 发表于 2026-10-3 02:05</a>
+
+所以第二部和第三部的自动升级和正常练的效果是一样的吧？最亏的应该只有挖角前的垃圾成长了吧，真不知道是 ...</blockquote>
+是的 所以我希望以后更新超难之后能给挖角前的垃圾成长改了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
