@@ -961,3 +961,24 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 不过第3部还是回归大地图那些把戏了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月华刹那  
+##### 6008#       发表于 2026-10-2 18:04
+
+象兵是要第三部才能转的吗？
+
+这职业加进来完全是给玩家添堵大于实用吧
+
+第二部一大堆敌人象兵，杀一只得要好几个人围殴才行。。。
+
+*****
+
+####  bad_alloc  
+##### 6009#       发表于 2026-10-2 18:07
+
+其实神威法王就纯菜逼吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 身为一国之主被人耍得团团转，自己一点信息都没有，基本靠主角团点醒，统治能力约等于0
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
