@@ -758,3 +758,35 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 感觉卡塔尼雅转天马养废了，速度和力量都不高，等其他线救
 
+
+*****
+
+####  mai6696  
+##### 5987#       发表于 2026-10-2 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312223&amp;ptid=2261859" target="_blank">哌啶 发表于 2026-10-2 11:12</a>
+
+游侠能当弓手用吗
+
+—— 来自 nubia NX733J, Android 15, 鹅球 v3.5.99</blockquote>
+狙击手有弓命中+10和精通的弓命中+15
+
+游侠是开锁和探索术，弓命中不太行吧。
+
+鸟有各种回避加成。
+
+
+*****
+
+####  新HGCG  
+##### 5988#       发表于 2026-10-2 11:51
+
+“地图上没有的岛”要怎么去？
+
+*****
+
+####  milky658  
+##### 5989#       发表于 2026-10-2 11:55
+
+一动砍坎德拉一条命，要爱上古扎岚大人了，主角就该嫁给这样的好女孩啊<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
