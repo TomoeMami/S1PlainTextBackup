@@ -591,3 +591,11 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 
 — from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  chino77  
+##### 96#       发表于 2026-10-2 17:37
+
+居然没有扫荡，自动和手操差距太大了，完全替代不了扫荡啊
+
