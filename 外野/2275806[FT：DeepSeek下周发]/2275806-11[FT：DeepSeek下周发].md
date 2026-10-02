@@ -8447,3 +8447,14 @@ tibo是真鸡贼啊. 本来4号就是大部分人明天也要刷新的
 只用了百分之十几上下文的情况下,经常要30多秒才 ...</blockquote>
 是的，还经常动不动卡死，体验比官方API差多了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stackoverflow  
+##### 15548#       发表于 2026-10-2 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313107&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-2 16:22</a>
+
+他们现在是自己部署的，远没有官网快。</blockquote>
+之前还没上V4.1 Flash的时候接的官网的也慢的不行。我用的时候最慢能去到30-40tok/s，现在切到4.1，看着有200+，实际上经常开局在那潜水卡着不知道在干嘛，只能说胜在便宜了，捏着鼻子凑合用<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
