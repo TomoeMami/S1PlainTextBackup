@@ -8992,3 +8992,24 @@ OpenAI烂完了，Astra的推理速度都成乌龟了
 
 我还想趁重置前这会儿赶紧把剩下的额度全用完呢
 
+
+*****
+
+####  自由之紫roy  
+##### 15594#       发表于 2026-10-3 00:01
+
+社区Strata仓库新出了qwen3.8flashnext的部署方案
+
+12G 5070ti 64G内存跑256k上下文的iq3s量化版，50token/s以上，带多模态，和原版全血差异很小
+
+内存和显卡又要迎来新一波的上涨了
+
+download.png
+(726.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 00:02 上传
+
+<img src="https://img.stage1st.com/forum/202610/03/000215g3vm5m3ggqqo3vmt.png" referrerpolicy="no-referrer">
+
