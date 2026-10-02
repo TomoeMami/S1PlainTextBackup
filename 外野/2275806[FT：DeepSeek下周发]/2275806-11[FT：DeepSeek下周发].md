@@ -8913,3 +8913,42 @@ tibo 是怎么敢说出这东西很好的
 
 ——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  RookieTnT  
+##### 15588#       发表于 2026-10-2 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313902&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-10-2 21:15</a>
+
+我试过几次让k3帮忙调整其他AI做的UI，基本都只是微调，强是强点但很有限，是不是这么用就不对啊
+
+——来自 ...</blockquote>
+K3来做UI. DeepSeek来做微调这样比较合理. 
+
+*****
+
+####  med  
+##### 15589#       发表于 2026-10-2 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313691&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-2 20:10</a>
+
+请问一下，哪家模型的前端审美比较好？
+
+之前看坛友们有提到过，GPT的前端审美很不行
+
+Claude家族的话先不考 ...</blockquote>
+我试过的几个，cc最强，其次kimi，gpt要astra才行；sol和ds差不多，都属于前端不太行的水平；哈吉米流口水太长时间，没试过。
+
+*****
+
+####  andychen  
+##### 15590#       发表于 2026-10-2 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313902&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-10-2 21:15</a>
+
+我试过几次让k3帮忙调整其他AI做的UI，基本都只是微调，强是强点但很有限，是不是这么用就不对啊
+
+——来自 ...</blockquote>
+现在的AI训练方法不鼓励推翻重构，除非用户明确指令。你让模型调整永远只会小修小改
+

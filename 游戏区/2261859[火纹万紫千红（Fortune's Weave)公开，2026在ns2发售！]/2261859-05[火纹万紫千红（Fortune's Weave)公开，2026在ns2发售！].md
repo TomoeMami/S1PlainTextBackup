@@ -1119,3 +1119,29 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 https://fire-emblem-fw.site/
 这种吗
 
+
+*****
+
+####  Jabeck  
+##### 6020#       发表于 2026-10-2 21:23
+
+现在火纹最高等级能到99，感觉可以搞个每升五级送一点自由加点。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a3a4sc  
+##### 6021#       发表于 2026-10-2 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313763&amp;ptid=2261859" target="_blank">南宫月汐 发表于 2026-10-2 20:32</a>
+
+请问怎么稳定刷马？
+
+—— 来自 鹅球 v3.5.99</blockquote>
+[https://www.bilibili.com/video/BV1SjeB6yEz9](https://www.bilibili.com/video/BV1SjeB6yEz9) 【火纹心得】凯伊线如何稳定抓汗血马，鸵鸟等稀有坐骑！
+
+大概是放下诱饵后，进隔壁的迷宫，从迷宫出来（自动保存）。
+
+这时在诱饵cd到之前，做固定动作（移动、待机、材料点探索）的组合可以roll出宝马的情况。可以参考视频里的组合。如果不出就读档，微调换一种行动组合。
+
+我花了大概20-30回合刷了5只。
+
