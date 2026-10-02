@@ -1527,3 +1527,20 @@ lv3能挖诺克裘拉算是最早的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  纯夏  
+##### 6056#       发表于 2026-10-3 07:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314756&amp;ptid=2261859" target="_blank">zpbzpb123123 发表于 2026-10-3 03:46</a>
+
+请教下进度到第二部，外传错过了找补，到底是回第一部重打那一章就行，还是得一路打回第二部？ ...</blockquote>
+错过的外传可以在第1部的其他主角篇里补
+
+或者重玩第1部错过外传的那个章节再接 
+
+4条主角线里的相同的外传只要完成一次就算数
+
+注意下赛奥朵拉外传只有迪托利希篇能接
+
