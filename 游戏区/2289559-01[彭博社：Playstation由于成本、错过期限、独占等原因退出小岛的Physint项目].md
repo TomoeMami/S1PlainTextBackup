@@ -45,3 +45,15 @@ Christopher Dring再次表示此前播客中说的“据报道小岛要求4亿�
 
 对岛黑岛白来说都是好消息啊，有压力才有动力
 
+
+*****
+
+####  nianiania  
+##### 219#       发表于 2026-10-2 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311723&amp;ptid=2289559" target="_blank">爱护动物抓根宝 发表于 2026-10-2 07:06</a>
+对岛黑岛白来说都是好消息啊，有压力才有动力</blockquote>
+确实，我觉得就是之前索尼支持的太大度了小岛才过于放飞自我，死亡搁浅 1 的程度就差不多了，2 实在是有点太放飞，我玩着都觉得尴尬了，希望后面的两款游戏能正经点
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
