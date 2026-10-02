@@ -884,3 +884,13 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 玩爽了 今年最强三十帧游戏跑不掉 
 
+
+*****
+
+####  白昼梦DD  
+##### 6000#       发表于 2026-10-2 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312674&amp;ptid=2261859" target="_blank">Losange 发表于 2026-10-2 13:33</a>
+凯伊线重打后的第三部坐骑继承是怎么样的，有印象说会吞坐骑，是要保持和第一次打的一致吗 ...</blockquote>
+合的时候坐骑取角色等级最高的骑的那个吧
+

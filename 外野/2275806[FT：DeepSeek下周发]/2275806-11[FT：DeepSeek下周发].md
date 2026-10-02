@@ -8310,3 +8310,22 @@ qwen4最乐观的估计也是打平opus5.5
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ZBY901026  
+##### 15537#       发表于 2026-10-2 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309742&amp;ptid=2275806" target="_blank">乌桃内设格温 发表于 2026-10-1 16:35</a>
+现在每个月50块钱左右的agentplan，平常也就用ai开发点小东西+维护sql+写写总结文档，有什么比较有性价比的 ...</blockquote>
+百元内的性价比排序
+
+codebuddy白嫖每天100点 支持DeepSeek 轻度开发够用
+Gemini 闲鱼20左右一年
+opencode 10美元一个月 支持DeepSeek60刀额度
+用量很小（一天2元以内）DeepSeek官方api 性价比也挺高的
+
+其他国模价格浮动太大了没怎么关注过
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
