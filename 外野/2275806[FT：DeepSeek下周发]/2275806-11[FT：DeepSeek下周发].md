@@ -8820,3 +8820,54 @@ Gemini或者Grok怎么样呢？
 Claude家族的话先不考 ...</blockquote>
 K3 真的有Claude的审美. 虽然是fable5的
 
+
+*****
+
+####  qwased  
+##### 15579#       发表于 2026-10-2 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313499&amp;ptid=2275806" target="_blank">13号 发表于 2026-10-2 18:58</a>
+
+智谱现在有个杭州专属补贴，有补贴后pro年卡大约是3000出头。 看重glm-5.3-flash量够大， glm-5.3也算能力 ...</blockquote>
+智普的glm5.3f非常非常慢，只有40tps
+
+<img src="https://img.stage1st.com/forum/202610/02/202823nm2pwzzyjwaji7y0.png" referrerpolicy="no-referrer">
+
+<strong>5B8BB023CA523A2BD540C4084DFF3936.png</strong> (159.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 20:28 上传
+
+*****
+
+####  Promeus  
+##### 15580#       发表于 2026-10-2 20:28
+
+预计国模能和OA竞争的只有各家计划里的10t+大模型(以及rsi)，还需要时间呢，现在的2t-3t大模型能跟上就行<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojog  
+##### 15581#       发表于 2026-10-2 20:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">gemini4已经没人吹了 看来是真的拉了
+
+
+*****
+
+####  qwased  
+##### 15582#       发表于 2026-10-2 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313751&amp;ptid=2275806" target="_blank">jojog 发表于 2026-10-2 20:28</a>
+
+gemini4已经没人吹了 看来是真的拉了</blockquote>
+给我用我一定吹<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可惜没得用
+
+*****
+
+####  Anarkia  
+##### 15583#       发表于 2026-10-2 20:34
+
+Gemini 4 Pro我觉得大多数人的期待都是能做到fable 5或者5.1的coding水平加Google一贯的世界知识水平吧
+
