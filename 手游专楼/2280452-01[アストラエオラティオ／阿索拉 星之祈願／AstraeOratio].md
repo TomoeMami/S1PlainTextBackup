@@ -513,3 +513,19 @@ https://img.stage1st.com/forum/202608/31/202645cx2yhn85aonu822n.jpeg
 
 感觉战斗中的受击互动部分有点……那种我方只管自己打自己的，boss也只管打自己的意思。
 
+
+*****
+
+####  伊布桑  
+##### 89#       发表于 2026-10-2 14:00
+
+卧槽，轨<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/02/140028oz4tm2lctk72472x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-10-02-13-58-13-120_com.nc.astraeo.jpg</strong> (314.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 14:00 上传
+
