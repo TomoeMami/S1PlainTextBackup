@@ -611,3 +611,36 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 
 太对了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 98#       发表于 2026-10-2 20:14
+
+卧槽说早了，原来这游戏的aoe不是说明对面能站多人，而是这游戏可以直接打后备的敌人<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 99#       发表于 2026-10-2 20:15
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2026-10-2 20:18 编辑 
+
+<img src="https://img.stage1st.com/forum/202610/02/201712er8w8herj8wjj58z.jpg" referrerpolicy="no-referrer">
+
+<strong>HTnQRdkbIAAdREx.jpg</strong> (219.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 20:17 上传
+
+<img src="https://img.stage1st.com/forum/202610/02/201720zece9szvw5fec47c.jpg" referrerpolicy="no-referrer">
+
+<strong>HTnQRdmaoAAh5ER.jpg</strong> (122.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 20:17 上传
+
+三种最常见的死库水都有，太变态了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
