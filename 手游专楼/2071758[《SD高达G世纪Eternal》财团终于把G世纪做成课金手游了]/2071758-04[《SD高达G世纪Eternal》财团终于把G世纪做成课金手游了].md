@@ -1264,3 +1264,19 @@ AB的2招单体只能说够用，最大亮点是那个扇形MAP，ssp后他是�
 
 其实掉毛有44船，就是和张五飞一起出的大舅子船，EW系列44%<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 4825#       发表于 2026-10-3 00:19
+
+看了一下自己的试验机队
+缺了黑猫，把ult的乱流拉上来凑和合用一下的话
+
+1星灵异+0星v2ab+乱流+0星卡迪公+1星f91倒是凑出来了，但是感觉主力输出星数太低了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+上个月给红f91和装甲百式一人一个齿轮、现在剩两个，太纠结是留着还是塞v2一个/f91直接满星补强试验机队了…
+
+现在没黑猫和黄双头龙真难受啊，还有托3你怎么那么废啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
