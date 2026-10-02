@@ -8458,3 +8458,34 @@ tibo是真鸡贼啊. 本来4号就是大部分人明天也要刷新的
 他们现在是自己部署的，远没有官网快。</blockquote>
 之前还没上V4.1 Flash的时候接的官网的也慢的不行。我用的时候最慢能去到30-40tok/s，现在切到4.1，看着有200+，实际上经常开局在那潜水卡着不知道在干嘛，只能说胜在便宜了，捏着鼻子凑合用<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BarricadeMKXX  
+##### 15549#       发表于 2026-10-2 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312030&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-2 10:07</a>
+
+我让d老师自己修了，你把下面内容让DSH验证下就是了</blockquote>
+另外补一个坑，开沙箱可能导致dsh自己改相应目录的完整性等级为Low，改过之后在里面的程序想访问外面没设置完整性等级（缺省为Medium）的目录会失败，需要把完整性等级删掉
+
+*****
+
+####  BarricadeMKXX  
+##### 15550#       发表于 2026-10-2 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313020&amp;ptid=2275806" target="_blank">天堂懵懂人 发表于 2026-10-2 15:46</a>
+
+让ds给yt-dlp套了个用户界面
+
+结果下载年龄审查的视频下不动了，因为我的土鳖账号没有上传身份证照片认证过 ...</blockquote>
+其实这个有现成轮子可以用的：[https://github.com/kannagi0303/yt-dlp-gui](https://github.com/kannagi0303/yt-dlp-gui)
+
+
+*****
+
+####  jojog  
+##### 15551#       发表于 2026-10-2 16:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">fable5.5什么时候出啊
+
