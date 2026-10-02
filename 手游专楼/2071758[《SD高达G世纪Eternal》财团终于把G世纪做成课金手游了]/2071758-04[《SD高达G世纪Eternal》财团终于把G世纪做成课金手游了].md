@@ -1256,3 +1256,11 @@ AB的2招单体只能说够用，最大亮点是那个扇形MAP，ssp后他是�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Abomination  
+##### 4824#       发表于 2026-10-2 15:51
+
+其实掉毛有44船，就是和张五飞一起出的大舅子船，EW系列44%<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
