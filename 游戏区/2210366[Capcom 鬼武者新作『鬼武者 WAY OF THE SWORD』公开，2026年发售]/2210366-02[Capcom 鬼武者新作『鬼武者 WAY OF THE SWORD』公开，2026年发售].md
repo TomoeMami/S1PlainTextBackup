@@ -21,3 +21,15 @@
 
 我打通关了，但是没有见过复活道具，武具格子看起来也空了一个，最后一个武具是长枪吗
 
+
+*****
+
+####  夜雨秋水  
+##### 1950#       发表于 2026-10-2 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313213&amp;ptid=2210366" target="_blank">Leliel 发表于 2026-10-2 17:01</a>
+我打通关了，但是没有见过复活道具，武具格子看起来也空了一个，最后一个武具是长枪吗 ...</blockquote>
+复活道具是反魂镜，需要带在身上生效，最后一把武具是太刀，在岚山大沼的一条岔路尽头，我也漏掉了还以为是是通关或者二周目才给。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
