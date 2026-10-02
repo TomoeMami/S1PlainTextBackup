@@ -826,3 +826,31 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 为了练刚入队的乌修拉和卡塔妮娅一场战斗的回溯全都用来回那些七八十命中率都打不中的回合我真的服了，有必要这么针对么
 
+
+*****
+
+####  Humpy  
+##### 5994#       发表于 2026-10-2 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312534&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-10-2 12:55</a>
+为了练刚入队的乌修拉和卡塔妮娅一场战斗的回溯全都用来回那些七八十命中率都打不中的回合我真的服了，有必 ...</blockquote>
+马兹至少点个一级能好不少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+野外遭遇战有不少全是丛林的关卡时马兹就是爹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mai6696  
+##### 5995#       发表于 2026-10-2 13:01
+
+树林刺客遭遇战真的全靠火神加护了。
+
+*****
+
+####  u2deack  
+##### 5996#       发表于 2026-10-2 13:03
+
+马兹一下30点消耗太大放不了几次，不过确实很有必要
+怎么官方还给自己正赛不做场地设计找理由的，你不说大家都不太会在意
+

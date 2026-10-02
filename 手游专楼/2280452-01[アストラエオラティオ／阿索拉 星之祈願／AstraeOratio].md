@@ -487,3 +487,21 @@ PV的导入部分，用 ...</blockquote>
 
 这个CBT测试的战斗细节有点太素了，非常的干涩，果然小厂的软肋在打磨和优化<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  长谷川红叶  
+##### 86#       发表于 2026-10-2 12:54
+
+https://img.stage1st.com/forum/202608/31/202645cx2yhn85aonu822n.jpeg
+角色本体加叠五命座，专武叠卡5张（还有带角色签名的隐藏款），场地支援卡叠5张，这课金深度，跑路了兄弟.jpg
+
+
+*****
+
+####  伊布桑  
+##### 87#       发表于 2026-10-2 13:01
+
+感觉这个战斗系统完全是服务于演出，游戏性和可拓展性有点一言难尽了。
+我方单位不能同时站场就算了，对面也只能一个吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就纯1v1攻坚？
+
