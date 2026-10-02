@@ -681,3 +681,26 @@ https://github.com/himdo/Fable-2-Recomp
 
 什么时候会有洛克人制造 马车制造 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慕容断月  
+##### 42#       发表于 2026-10-2 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312901&amp;ptid=2289851" target="_blank">mono 发表于 2026-10-2 14:58</a>
+
+什么时候会有洛克人制造 马车制造</blockquote>
+洛克人制造我没记错2020年好像就有了
+
+*****
+
+####  慕容断月  
+##### 43#       发表于 2026-10-2 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311161&amp;ptid=2289851" target="_blank">naiveyan 发表于 2026-10-1 23:07</a>
+
+https://github.com/himdo/Fable-2-Recomp
+
+在4chan看到的，原来只要qwen3.8-27b这种级别的模型就能recomp x ...</blockquote>
+对，知道怎么做的人，直接让模型干就行了，这种情况下qwen3.8 27b足够了
+
