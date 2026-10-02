@@ -8608,3 +8608,17 @@ K3现在降智很厉害，甚至出现了连续思考131k token导致截断的�
 
 智谱现在有个杭州专属补贴，有补贴后pro年卡大约是3000出头。 看重glm-5.3-flash量够大， glm-5.3也算能力过的去。  大概使用场景就是opencode-go高位替代，自己的一些玩具，公司的一些活考虑用glm-5.3-flash使劲地蹬，连夜的蹬。  我当前用的是opencode-go的10刀套餐，日常开DeepSeek-V4-Flash，量缺少的比较明显。  请问这个有坑吗？ 
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 15559#       发表于 2026-10-2 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313468&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-2 18:48</a>
+我对 K3 不满就是：
+
+1. 太慢了。不过最近 6.1 Sol 也很慢，但 K3 依然更难一筹。</blockquote>
+K3最大问题是降智了，糖果测试都过不了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
