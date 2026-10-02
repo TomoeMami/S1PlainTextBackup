@@ -9047,3 +9047,37 @@ codebuddy白嫖每天100点 支持DeepSeek 轻度开发够用</blockquote>
 
 —— 来自 OPPO OPD2515, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  自由之紫roy  
+##### 15598#       发表于 2026-10-3 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314520&amp;ptid=2275806" target="_blank">静哮苍穹 发表于 2026-10-3 00:38</a>
+
+隔壁帖子已经用上两天了，确实不错
+
+—— 来自 OPPO OPD2515, Android 16, 鹅球 v3.5.99 ...</blockquote>
+隔壁帖子是哪个，给我瞧瞧，有链接吗
+
+*****
+
+####  静哮苍穹  
+##### 15599#       发表于 2026-10-3 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314535&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-10-3 00:45</a>
+隔壁帖子是哪个，给我瞧瞧，有链接吗</blockquote>
+16G显卡+qwen3.8 27B上下文200K，个人经验总结（更新llamacpp推荐）  https://stage1st.com/2b/thread-2288655-0-1.html
+
+—— 来自 OPPO OPD2515, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  自由之紫roy  
+##### 15600#       发表于 2026-10-3 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314540&amp;ptid=2275806" target="_blank">静哮苍穹 发表于 2026-10-3 00:47</a>
+
+16G显卡+qwen3.8 27B上下文200K，个人经验总结（更新llamacpp推荐）  https://stage1st.com/2b/thread-22 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
+

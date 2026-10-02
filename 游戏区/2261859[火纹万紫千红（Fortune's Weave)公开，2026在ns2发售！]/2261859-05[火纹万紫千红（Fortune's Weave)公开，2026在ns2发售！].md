@@ -1358,3 +1358,13 @@ lv3能挖诺克裘拉算是最早的
 
 大剑斗祭篇应该也是同一个机制，不过不确定。
 
+
+*****
+
+####  土卫七  
+##### 6040#       发表于 2026-10-3 00:48
+
+听说跳过第二章直接进第三章的话，系统自动拉等级的成长率是偏低的。这是真的吗，如果真这样那还得四线第二章全都打一遍<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
