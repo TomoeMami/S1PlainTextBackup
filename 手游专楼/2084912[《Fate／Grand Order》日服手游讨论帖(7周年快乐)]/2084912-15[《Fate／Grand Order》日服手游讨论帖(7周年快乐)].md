@@ -74,3 +74,14 @@ FSR漫画版作者雾月（剑阶羁绊礼装也是他画的）认领了杰士�
 
 2026-9-30 17:11 上传
 
+
+*****
+
+####  khxooo  
+##### 21625#       发表于 2026-10-3 02:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313755&amp;ptid=2084912" target="_blank">希望之花 发表于 2026-10-2 20:29</a>
+
+要怎样的强化才不会倒欠100np</blockquote>
+开个和码头一样的宝具本，给队友加个BUFF，然后刷新二技能CD<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，现在不是一直在诟病青子的2技能没有在切换形态是没有独立CD嘛。
+
