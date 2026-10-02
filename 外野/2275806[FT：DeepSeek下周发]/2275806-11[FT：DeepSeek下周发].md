@@ -8968,3 +8968,17 @@ K3 字数补丁
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Lazia  
+##### 15592#       发表于 2026-10-2 22:26
+
+ 本帖最后由 Lazia 于 2026-10-2 22:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313902&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-10-2 21:15</a>
+
+我试过几次让k3帮忙调整其他AI做的UI，基本都只是微调，强是强点但很有限，是不是这么用就不对啊
+
+——来自 ...</blockquote>
+委派子代理，子代理不继承上下文，做出来比较干净。
+

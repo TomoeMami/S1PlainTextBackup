@@ -1210,3 +1210,50 @@ D 少这里全是重要的剧情 + 世界观揭露 + callback 三房啊
 
 迪特里希力量多少无所谓的 平时勤用圣焰技 遭遇战把银木乃伊的经验全吃了 第一部结束都要80级了 我甚至觉得l难度他应该转法师升级
 
+
+*****
+
+####  蓮華  
+##### 6029#       发表于 2026-10-2 22:26
+
+<img src="https://img.stage1st.com/forum/202610/02/222559ailcyk11n6i2nkl3.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5839.jpeg</strong> (452.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 22:25 上传
+
+<img src="https://img.stage1st.com/forum/202610/02/222559gawh4blwh65mlhi5.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5838.jpeg</strong> (467.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 22:25 上传
+
+凑合用，初音大爹
+
+*****
+
+####  bad_alloc  
+##### 6030#       发表于 2026-10-2 22:27
+
+开始打女王线，感觉初始队友有点菜啊
+
+莱桑达，剑拳不擅长，白瞎了40力50速的基础成长。本来想着转个土匪/格斗-上级转剑圣的，感觉有点难搞，枪斧擅长，但是斧头太区了不想用，骑兵系职业全都是垃圾，难道顶着不擅长剑强行玩剑圣吗
+
+莉莉安，35力弓箭手，第一章还不好凹点，还好剑资质只是普通，斗士-土匪-游侠近战砍上去，最后估计转个狙击射射鸟吧
+
+*****
+
+####  a3a4sc  
+##### 6031#       发表于 2026-10-2 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314070&amp;ptid=2261859" target="_blank">reficul 发表于 2026-10-2 21:56</a>
+
+不建议上面回复里那样放了诱饵后进迷宫，要保存请在放诱饵前保存，因为放诱饵时就决定了诱捕成功还是失败 ...</blockquote>
+诱饵放对了凯伊会有个提示对话框说，诱饵是对的
+
+不过我第一次玩的时候为了保险确实放诱饵前就保存
+
