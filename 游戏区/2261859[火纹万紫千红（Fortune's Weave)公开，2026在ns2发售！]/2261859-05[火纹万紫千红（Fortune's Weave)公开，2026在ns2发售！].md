@@ -1108,3 +1108,14 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 2026-10-2 20:52 上传
 
+
+*****
+
+####  Adrenaline!!!  
+##### 6019#       发表于 2026-10-2 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312853&amp;ptid=2261859" target="_blank">winder0707 发表于 2026-10-2 14:40</a>
+有没有攻略站了，感觉第一部任务漏太多了</blockquote>
+https://fire-emblem-fw.site/
+这种吗
+
