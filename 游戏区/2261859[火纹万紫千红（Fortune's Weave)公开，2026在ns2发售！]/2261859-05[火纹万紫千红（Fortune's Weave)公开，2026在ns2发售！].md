@@ -948,3 +948,16 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 第一章结束就不能挖人了吗，最后三回合了，急头白脸做完外传好几个支线来不及做了 ...</blockquote>
 对，可以其他路线挖人。
 
+
+*****
+
+####  纯夏  
+##### 6007#       发表于 2026-10-2 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312998&amp;ptid=2261859" target="_blank">reficul 发表于 2026-10-2 15:33</a>
+
+第二部是一共6章？第二部强调战棋内容后太好玩了，每章之间不需要搞那么多把戏就是爽玩 ...</blockquote>
+是的 第2部和第3部都是6章 第2部很传统火纹 
+
+不过第3部还是回归大地图那些把戏了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
