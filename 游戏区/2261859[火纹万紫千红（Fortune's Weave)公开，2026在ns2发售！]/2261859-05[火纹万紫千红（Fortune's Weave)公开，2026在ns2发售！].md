@@ -1544,3 +1544,18 @@ lv3能挖诺克裘拉算是最早的
 
 注意下赛奥朵拉外传只有迪托利希篇能接
 
+
+*****
+
+####  mai6696  
+##### 6057#       发表于 2026-10-3 07:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314787&amp;ptid=2261859" target="_blank">1wq1 发表于 2026-10-3 04:31</a>
+
+救世篇玩的好累啊.jpg
+
+还有啊为啥要把部分支援设定成5年后没法开了，就不能学习三房绝大部份支援不锁时间的 ...</blockquote>
+还有这种设定？
+
+看来IS一定很喜欢让玩家反复请客吃饭然后重开本章。
+
