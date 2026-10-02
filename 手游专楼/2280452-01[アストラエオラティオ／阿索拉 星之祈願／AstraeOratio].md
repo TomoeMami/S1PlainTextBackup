@@ -529,3 +529,29 @@ https://img.stage1st.com/forum/202608/31/202645cx2yhn85aonu822n.jpeg
 
 2026-10-2 14:00 上传
 
+
+*****
+
+####  伊布桑  
+##### 90#       发表于 2026-10-2 14:20
+
+看了下职业里还是有aoe专精的，说明对面可以同时站场吧
+
+<img src="https://img.stage1st.com/forum/202610/02/142017kpi6hwwjhv1pet4t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-10-02-14-17-42-934_com.nc.astraeo.jpg</strong> (134.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 14:20 上传
+
+
+*****
+
+####  长谷川红叶  
+##### 91#       发表于 2026-10-2 14:26
+
+港区的黄毛丫头们的日常和开局丢给你的激斗剧情有点割裂……虽然能感受到编剧在不起眼之处随手埋伏笔的样子，但让给我儿戏和胡闹感还是太强烈。
+
+我看叛忍是懂传播学的，一开始就把最核心热度最高的东西丢出来刺激你，后面的大牢来日方长慢慢坐<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
