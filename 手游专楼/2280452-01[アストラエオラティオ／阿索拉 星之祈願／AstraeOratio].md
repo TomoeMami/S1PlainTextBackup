@@ -563,3 +563,11 @@ https://img.stage1st.com/forum/202608/31/202645cx2yhn85aonu822n.jpeg
 
 序章这个剧情真的不错 就是战斗都是轻飘飘的
 
+
+*****
+
+####  伊布桑  
+##### 93#       发表于 2026-10-2 15:06
+
+不是哥们，这剧情还有开场报赞助商和中场转场，真致敬老动画是吧<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
