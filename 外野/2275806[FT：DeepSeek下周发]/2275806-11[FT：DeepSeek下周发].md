@@ -8255,3 +8255,16 @@ opencode go的便宜模型现在不是直接接官方渠道，第三方提供商
 
 半夜突然有脑洞问题想问，大肥鱼竟然挂了
 
+
+*****
+
+####  zhongjie  
+##### 15532#       发表于 2026-10-2 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312384&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-10-2 12:06</a>
+
+视频后面讲了 专武得分非常低
+
+zcode+ds其实也就是很能根 你说写的很好也说不上</blockquote>
+专武他偏偏要用极简模式，明明有标准模式的
+

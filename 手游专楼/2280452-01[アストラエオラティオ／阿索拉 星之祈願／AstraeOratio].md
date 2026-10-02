@@ -505,3 +505,11 @@ https://img.stage1st.com/forum/202608/31/202645cx2yhn85aonu822n.jpeg
 感觉这个战斗系统完全是服务于演出，游戏性和可拓展性有点一言难尽了。
 我方单位不能同时站场就算了，对面也只能一个吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就纯1v1攻坚？
 
+
+*****
+
+####  长谷川红叶  
+##### 88#       发表于 2026-10-2 13:11
+
+感觉战斗中的受击互动部分有点……那种我方只管自己打自己的，boss也只管打自己的意思。
+
