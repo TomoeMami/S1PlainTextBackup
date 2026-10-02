@@ -8739,3 +8739,35 @@ a\要ipo，怎么可能减速，这波肯定是为了ipo冲击的，很可能把
 
 2026-10-2 19:53 上传
 
+
+*****
+
+####  lactone  
+##### 15572#       发表于 2026-10-2 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313630&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-2 19:52</a>
+看6.1 Sol这波搞得这么狼狈，看上去不像有后手的样子，而且估计A/ IPO就十一月了。 ...</blockquote>
+bel这个模型应该是存在的
+
+现在的astra不像能爆破ns方程的水平
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  startraveller  
+##### 15573#       发表于 2026-10-2 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313638&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-2 19:57</a>
+bel这个模型应该是存在的
+
+现在的astra不像能爆破ns方程的水平</blockquote>
+说是年底才ready，估计等十一月A/上线，然后甩出来砸股价。
+
+*****
+
+####  未知伤亡  
+##### 15574#       发表于 2026-10-2 20:01
+
+其他国模不好说，我相信梁子肯定已经虎视眈眈了，多好的做空机会啊
+
