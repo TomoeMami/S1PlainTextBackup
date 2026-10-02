@@ -1491,3 +1491,15 @@ lv3能挖诺克裘拉算是最早的
 
 第一部加第二部一共几个上级证啊，第八章才跑到右下角城里每章买一个，感觉加起来凑不到10个的样子，全员上级有点难<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  onlv星骸  
+##### 6053#       发表于 2026-10-3 03:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314761&amp;ptid=2261859" target="_blank">噗呸破屁诚 发表于 2026-10-3 03:50</a>
+第一部加第二部一共几个上级证啊，第八章才跑到右下角城里每章买一个，感觉加起来凑不到10个的样子，全员上 ...</blockquote>
+第二部每章前都会白给5个上级证
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
