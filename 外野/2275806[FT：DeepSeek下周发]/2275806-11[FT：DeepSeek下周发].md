@@ -8489,3 +8489,16 @@ tibo是真鸡贼啊. 本来4号就是大部分人明天也要刷新的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">fable5.5什么时候出啊
 
+
+*****
+
+####  天堂懵懂人  
+##### 15552#       发表于 2026-10-2 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313176&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-10-2 16:49</a>
+
+其实这个有现成轮子可以用的：https://github.com/kannagi0303/yt-dlp-gui</blockquote>
+唉就是因为现成的轮子都是英文的  我让它搞个中文的界面
+
+之前我用的最多的是ytdlp-interface，但是和我自己遇到的问题差不多  要是视频有年龄审查就下不动
+
