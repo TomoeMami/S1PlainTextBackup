@@ -8684,3 +8684,58 @@ opencode-go 目前DeepSeek v4-flash 不全是官方API了 有自部署和第三�
 
 所以到底谁说的要减速<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 15567#       发表于 2026-10-2 19:46
+
+fable5.5如果按现在泄露的水平，前端和审美至少领先两代了
+
+我倒是希望这波国产大模型，某些领域能打opus5.5，整体打平fable5就好<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  RookieTnT  
+##### 15568#       发表于 2026-10-2 19:48
+
+Claude code 居然开放了mod 可以自定义tools 和一部分ui了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 15569#       发表于 2026-10-2 19:49
+
+a\要ipo，怎么可能减速，这波肯定是为了ipo冲击的，很可能把压箱底的都拿出来了
+
+但是我觉得搞不好a\不会那么快推fable5.5，而是会在ipo前夕推，不然万一o也有大杀器比如bel，a\把bel引出来了自己没后手，这不完了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  startraveller  
+##### 15570#       发表于 2026-10-2 19:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313623&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-2 19:49</a>
+a\要ipo，怎么可能减速，这波肯定是为了ipo冲击的，很可能把压箱底的都拿出来了
+
+但是我觉得搞不好a\不会那 ...</blockquote>
+看6.1 Sol这波搞得这么狼狈，看上去不像有后手的样子，而且估计A/ IPO就十一月了。
+
+*****
+
+####  jinuzuktII  
+##### 15571#       发表于 2026-10-2 19:53
+
+<img src="https://img.stage1st.com/forum/202610/02/195321s0zfj97jo02jojjj.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (145.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 19:53 上传
+
