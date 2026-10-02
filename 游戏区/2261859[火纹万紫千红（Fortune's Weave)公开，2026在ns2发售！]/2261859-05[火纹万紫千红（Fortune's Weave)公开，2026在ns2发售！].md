@@ -715,3 +715,38 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 封盘等超难了。
 
+
+*****
+
+####  reficul  
+##### 5983#       发表于 2026-10-2 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312187&amp;ptid=2261859" target="_blank">milky658 发表于 2026-10-2 11:01</a>
+
+凯伊外传说骚乱发生在23号，做了以后时间直接跳到23以后吗</blockquote>
+凯伊线我记得只有白发鬼的外传会跳时间，而且跳之前会问你这段时间你怎么处理（跟旅馆一样）。其他三个外传不会跳时间
+
+
+*****
+
+####  mai6696  
+##### 5984#       发表于 2026-10-2 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312187&amp;ptid=2261859" target="_blank">milky658 发表于 2026-10-2 11:01</a>
+
+凯伊外传说骚乱发生在23号，做了以后时间直接跳到23以后吗</blockquote>
+先接了，任务前一天再次找他对话就行。
+
+雷达外传也是类似情况。
+
+*****
+
+####  哌啶  
+##### 5985#       发表于 2026-10-2 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311118&amp;ptid=2261859" target="_blank">oniwarud 发表于 2026-10-1 22:49</a>
+中后期一堆飞兵大鸟要靠弓手来治，其他兵种打动不动就五六十命中</blockquote>
+游侠能当弓手用吗
+
+—— 来自 nubia NX733J, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

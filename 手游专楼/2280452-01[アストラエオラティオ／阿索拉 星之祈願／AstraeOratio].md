@@ -479,3 +479,11 @@ PV的导入部分，用 ...</blockquote>
 
 估计还是那套PVE冲榜玩法，氪与不氪差点榜单蚊子腿奖励，本质还是为爱付费
 
+
+*****
+
+####  长谷川红叶  
+##### 85#       发表于 2026-10-2 11:06
+
+这个CBT测试的战斗细节有点太素了，非常的干涩，果然小厂的软肋在打磨和优化<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
