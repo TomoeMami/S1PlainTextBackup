@@ -8369,3 +8369,13 @@ Opencode上了一个新的免费模型fledge-alpha-free
 
 我之前一直以为只是muse机器人不让欧洲人用，原来连模型都封啊？这Alexander Wang真牛逼吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HellMaster  
+##### 15541#       发表于 2026-10-2 14:58
+
+主要是跟某法国佬闹得很掰。
+
+当然支持的服务一般都不涵盖欧洲和国内也倒是事实
+
