@@ -581,3 +581,13 @@ https://img.stage1st.com/forum/202608/31/202645cx2yhn85aonu822n.jpeg
 
 复古赛璐璐看个pv还行，真出一季动画谁能坚持下来，抽卡画面这个裤子我直接在减速带上磨脸，公务员语料且看身体够不够诚实能不能扛得住
 
+
+*****
+
+####  astrayveller  
+##### 95#       发表于 2026-10-2 17:19
+
+nc运营不奇怪 bgm感觉可以到时候找找ost听好了
+
+— from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

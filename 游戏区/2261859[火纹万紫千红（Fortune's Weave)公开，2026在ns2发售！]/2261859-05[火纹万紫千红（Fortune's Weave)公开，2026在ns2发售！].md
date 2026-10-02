@@ -937,3 +937,14 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 第一章结束就不能挖人了吗，最后三回合了，急头白脸做完外传好几个支线来不及做了
 
+
+*****
+
+####  Jabeck  
+##### 6006#       发表于 2026-10-2 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313248&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-10-2 17:14</a>
+
+第一章结束就不能挖人了吗，最后三回合了，急头白脸做完外传好几个支线来不及做了 ...</blockquote>
+对，可以其他路线挖人。
+

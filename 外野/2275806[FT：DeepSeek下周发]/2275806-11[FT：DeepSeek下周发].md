@@ -8502,3 +8502,71 @@ tibo是真鸡贼啊. 本来4号就是大部分人明天也要刷新的
 
 之前我用的最多的是ytdlp-interface，但是和我自己遇到的问题差不多  要是视频有年龄审查就下不动
 
+
+*****
+
+####  jinuzuktII  
+##### 15553#       发表于 2026-10-2 17:21
+
+ 本帖最后由 jinuzuktII 于 2026-10-2 17:23 编辑 
+
+<img src="https://pbs.twimg.com/media/HTmWpKMXwAE2fcQ?format=jpg&amp;name=medium" id="aimg_MeEw6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/HTmWpKMXwAE2fcQ?format=jpg&amp;name=medium" id="aimg_G2Hto" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+<img src="https://img.stage1st.com/forum/202610/02/172307d9v4md0qmu340m0k.jpg" referrerpolicy="no-referrer">
+
+<strong>HTmWpKMXwAE2fcQ.jpg</strong> (589.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 17:23 上传
+
+*****
+
+####  moekyo  
+##### 15554#       发表于 2026-10-2 17:23
+
+你们没看到这个吗
+
+<img src="https://img.stage1st.com/forum/202610/02/171914k6aoq8qiqz67ccs7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (45.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 17:19 上传
+
+<img src="https://img.stage1st.com/forum/202610/02/172113yggdhf7yfx87qbxi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (117.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 17:21 上传
+
+<img src="https://img.stage1st.com/forum/202610/02/172144jz4fcti4736ttnoc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 17:21 上传
+
+我现在只剩下 1%，目前 dot说还在跑，我还让它并行来跑，额度应该就是我本地的 codex session耗的
+
+<img src="https://img.stage1st.com/forum/202610/02/172157spfuu88y9uxrl6oi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 17:21 上传
+
+image.png
+(45.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-2 17:19 上传
+
+<img src="https://img.stage1st.com/forum/202610/02/171917ns7xl6vc726cduqb.png" referrerpolicy="no-referrer">
+
