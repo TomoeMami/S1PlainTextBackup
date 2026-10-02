@@ -1452,3 +1452,16 @@ lv3能挖诺克裘拉算是最早的
 所以第二部和第三部的自动升级和正常练的效果是一样的吧？最亏的应该只有挖角前的垃圾成长了吧，真不知道是 ...</blockquote>
 是的 所以我希望以后更新超难之后能给挖角前的垃圾成长改了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无知的小鼠人  
+##### 6049#       发表于 2026-10-3 03:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311286&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-10-1 23:44</a>
+
+话说吃饭猫猫头是给啥菜都超喜欢，新娘则都是不错
+
+论坛助手,iPhone</blockquote>
+猫猫头机器人不吃饭，啥饭都是看着大家吃很开心
+
