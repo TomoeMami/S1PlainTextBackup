@@ -1368,3 +1368,14 @@ lv3能挖诺克裘拉算是最早的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  纯夏  
+##### 6041#       发表于 2026-10-3 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314504&amp;ptid=2261859" target="_blank">reficul 发表于 2026-10-3 00:29</a>
+
+顺便问一下第二部拉等级是怎么确定升到几级的？上一章出战队伍的最低等级吗？那是不是在第五章的时候先把等 ...</blockquote>
+第2部每章是有个推荐等级的 是拉低于推荐等级的角色升级到推荐等级 这个升级是吃职业成长值的  所以最好给板凳角色进行转职
+
