@@ -564,3 +564,14 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 风火轮哪里拿？
 
+
+*****
+
+####  纯夏  
+##### 5972#       发表于 2026-10-2 08:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70311769&amp;ptid=2261859" target="_blank">达达达达葱 发表于 2026-10-2 08:00</a>
+
+风火轮哪里拿？</blockquote>
+风火轮在第3部大地图上的迷宫“迪欧涅堡垒”的宝箱里
+
