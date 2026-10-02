@@ -8578,3 +8578,23 @@ image.png
 
 崔添翼是懂得怎么阴阳的<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RookieTnT  
+##### 15556#       发表于 2026-10-2 18:48
+
+我对 K3 不满就是：
+
+1. 太慢了。不过最近 6.1 Sol 也很慢，但 K3 依然更难一筹。
+
+2. 不适合做 code review， 太宽松了。
+
+
+*****
+
+####  qwased  
+##### 15557#       发表于 2026-10-2 18:53
+
+K3现在降智很厉害，甚至出现了连续思考131k token导致截断的神秘操作
+

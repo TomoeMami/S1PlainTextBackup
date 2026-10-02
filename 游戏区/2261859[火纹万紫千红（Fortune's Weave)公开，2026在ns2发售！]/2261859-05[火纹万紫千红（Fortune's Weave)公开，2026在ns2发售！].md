@@ -982,3 +982,18 @@ B站刷到还有隐藏任务，要特定时间才能接到的连环任务，按�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  纯夏  
+##### 6010#       发表于 2026-10-2 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313369&amp;ptid=2261859" target="_blank">月华刹那 发表于 2026-10-2 18:04</a>
+
+象兵是要第三部才能转的吗？
+
+这职业加进来完全是给玩家添堵大于实用吧
+
+第二部一大堆敌人象兵，杀一只得要好 ...</blockquote>
+战象兵进入第3部第2区分解锁 算是战车兵的上位版
+
