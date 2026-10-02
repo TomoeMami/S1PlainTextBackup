@@ -9013,3 +9013,11 @@ download.png
 
 <img src="https://img.stage1st.com/forum/202610/03/000215g3vm5m3ggqqo3vmt.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 15595#       发表于 2026-10-3 00:33
+
+然后DGX Spark出了个64G版卖4999刀，128G版涨到了6999刀……
+

@@ -19,3 +19,21 @@
 （FAは投稿許可頂いております）
 <img src="https://p.sda1.dev/35/3083ecd7666869c48a8520e63f6ab28b/1000174751.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 628#         楼主| 发表于 2026-10-3 00:29
+
+[https://x.com/asasafrrgreg/status/2105702387994468746](https://x.com/asasafrrgreg/status/2105702387994468746)
+
+さよならララで描いたもの　（掲載許可済み）
+
+参加して最初のころは建物や人魚の城まわりのもの等描いてました。
+
+世界観に関わるもの描けて楽しかったです。ありがとうございました🙇‍♂️
+<img src="https://p.sda1.dev/35/d4513d47301e0c532a6f77261ab31e56/HTjvdpAawAER6x_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/4a2b8a6d6284ba0e2f77c1d2825efdba/HTjvmTNacAQBJ9A.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/5c183b88ee22ff2cdac500e2a6503200/HTjvo2XasAANSR0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/c489ca5ec37e1572ab61d140e7aeb225/HTjwjWYacAIBcmY.jpg" referrerpolicy="no-referrer">
+
