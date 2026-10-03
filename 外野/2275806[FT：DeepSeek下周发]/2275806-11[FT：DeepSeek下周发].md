@@ -9244,3 +9244,14 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 
 谷歌咋了？有没有具体消息 我这个pixel会员现在也看不到5.5
 
+
+*****
+
+####  kingtigerc  
+##### 15616#       发表于 2026-10-3 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314540&amp;ptid=2275806" target="_blank">静哮苍穹 发表于 2026-10-3 00:47</a>
+
+16G显卡+qwen3.8 27B上下文200K，个人经验总结（更新llamacpp推荐）  https://stage1st.com/2b/thread-22 ...</blockquote>
+qwen3.8 27B的iq3版本用下来，效果非常差，跟4bit比只是跑分一样，但降智非常明显，而且指令服从性非常差，经常你要它干什么偏不，非要按自己逻辑跑完再来看用户指令，甚至你强行打断它，它还会质疑你的指令，觉得自己才是对的
+

@@ -1948,3 +1948,12 @@ lv3能挖诺克裘拉算是最早的
 
 2026-10-3 17:36 上传
 
+
+*****
+
+####  jockeyjoestar  
+##### 6091#       发表于 2026-10-3 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70317022&amp;ptid=2261859" target="_blank">蓮華 发表于 2026-10-3 17:36</a></blockquote>
+新角色登场也没多久  老角色毕竟人气积累了那么多年
+
