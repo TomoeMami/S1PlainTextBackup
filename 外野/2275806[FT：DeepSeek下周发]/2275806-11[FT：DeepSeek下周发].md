@@ -9286,3 +9286,13 @@ qwen3.8 27B的iq3版本用下来，效果非常差，跟4bit比只是跑分一�
 
 任何其他地方送的都不行
 
+
+*****
+
+####  startraveller  
+##### 15619#       发表于 2026-10-3 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70316918&amp;ptid=2275806" target="_blank">未知伤亡 发表于 2026-10-3 17:13</a>
+峰价还是原来的好多倍</blockquote>
+那比起32块的GLM和100块的kimi，也是便宜
+
