@@ -9124,3 +9124,15 @@ GEMINI4 如果回到主流大模型水平，肯定支撑不了这么多用户
 
 这个怎么解决一下？
 
+
+*****
+
+####  startraveller  
+##### 15605#       发表于 2026-10-3 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314896&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-10-3 07:54</a>
+fledge alpha说是封我国 结果我用中文就思维链是中文的
+明明opencode自己部署的ds4f都是英文思维链
+该说是 ...</blockquote>
+据说是thinking machine的inkling，现在做开源模型很难不蒸开源模型，这不得中文咯
+
