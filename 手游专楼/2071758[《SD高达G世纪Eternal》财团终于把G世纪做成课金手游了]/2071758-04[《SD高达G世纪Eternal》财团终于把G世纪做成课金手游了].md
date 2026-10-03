@@ -1328,3 +1328,15 @@ AB的2招单体只能说够用，最大亮点是那个扇形MAP，ssp后他是�
 
 140抽2船 0限定<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  saber2000  
+##### 4831#       发表于 2026-10-3 18:23
+
+<blockquote>ティグル 发表于 2026-10-3 01:07
+试验机最大的问题还是没什么人抽铁假面吧，除了要给红91 44船的基本都是看运气没出就拉倒
+
+结果现在标签的强 ...</blockquote>
+试验机有83的飞马级还是hp船
+

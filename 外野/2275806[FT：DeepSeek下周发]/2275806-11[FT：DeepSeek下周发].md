@@ -9296,3 +9296,66 @@ qwen3.8 27B的iq3版本用下来，效果非常差，跟4bit比只是跑分一�
 峰价还是原来的好多倍</blockquote>
 那比起32块的GLM和100块的kimi，也是便宜
 
+
+*****
+
+####  来都来了  
+##### 15620#       发表于 2026-10-3 18:22
+
+ 本帖最后由 来都来了 于 2026-10-3 18:23 编辑 
+
+借地方推销一下自己做的小工具，专门用来生成绘图的提示词。内置破甲，基本上不会拒绝你的要求。可以根据你的需求，对提示词进行定制化修改。接入大肥鱼 api ，每次使用费用大约 0.001 人民币，也就是用 10 次一分钱的样子。<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+源代码：[https://github.com/petrel-cn/prompt-generator](https://github.com/petrel-cn/prompt-generator)
+打包版下载即用：[https://github.com/petrel-cn/prompt-generator/releases/tag/v2.1.0](https://github.com/petrel-cn/prompt-generator/releases/tag/v2.1.0) 
+
+<img src="https://img.stage1st.com/forum/202610/03/182245ft6zz4a6t0ndrde7.jpg" referrerpolicy="no-referrer">
+
+<strong>main-01.jpg</strong> (93.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 18:22 上传
+
+提示词翻译
+
+<img src="https://img.stage1st.com/forum/202610/03/182245vkkk4307p339wpp6.jpg" referrerpolicy="no-referrer">
+
+<strong>main-02.jpg</strong> (100.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 18:22 上传
+
+图片反推
+
+<img src="https://img.stage1st.com/forum/202610/03/182245ziob3popp4rrjf30.jpg" referrerpolicy="no-referrer">
+
+<strong>main-03.jpg</strong> (87.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 18:22 上传
+
+图片反推+额外指令
+
+<img src="https://img.stage1st.com/forum/202610/03/182245vmg1ap5c1g5llg9l.jpg" referrerpolicy="no-referrer">
+
+<strong>main-04.jpg</strong> (88.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 18:22 上传
+
+支持 Pony 格式的提示词生成
+
+<img src="https://img.stage1st.com/forum/202610/03/182245yhffm1plxd9mhymx.jpg" referrerpolicy="no-referrer">
+
+<strong>save-01.jpg</strong> (92.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 18:22 上传
+
+效果好的提示词可以保存下来，以后查阅。
+
