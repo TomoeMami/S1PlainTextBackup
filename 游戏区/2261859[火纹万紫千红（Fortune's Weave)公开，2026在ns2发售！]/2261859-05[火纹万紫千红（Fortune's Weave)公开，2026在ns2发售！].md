@@ -2589,3 +2589,13 @@ pmm往死里玩通关了，等视频
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  saintgory  
+##### 6151#       发表于 2026-10-4 06:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70318641&amp;ptid=2261859" target="_blank">reficul 发表于 2026-10-3 23:51</a>
+问一下第二部第五章打大帝时门口的长长楼梯有什么解法吗？这上去轻易就要被炮台炸死啊，还想飞马侧面偷鸡的 ...</blockquote>
+女王和白发鬼先冲到中间扛住一波，下一个回合直接冲上去能冲到炮台旁边打掉就好，先上去的最好站到阵里，这样被集火也没那么容易暴毙
+
