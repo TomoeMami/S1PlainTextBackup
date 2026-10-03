@@ -1777,3 +1777,16 @@ lv3能挖诺克裘拉算是最早的
 —— 来自 Xiaomi 25113PN0EC, And ...</blockquote>
 有些职业没法用弓吧
 
+
+*****
+
+####  mai6696  
+##### 6079#       发表于 2026-10-3 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70315884&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-10-3 12:45</a>
+
+迪线10月份在柯雷尔神殿接到了支线，真坑人，柯雷尔加护我全满了，要不是6个全满我随便去了柯雷尔做侍奉刷 ...</blockquote>
+神殿里面会刷支线？其他三条线没见过啊。
+
+是共同的马桶支线还是个人的特殊支线？
+
