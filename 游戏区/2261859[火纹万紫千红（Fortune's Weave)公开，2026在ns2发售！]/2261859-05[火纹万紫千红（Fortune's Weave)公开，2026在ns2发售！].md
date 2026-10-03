@@ -2025,3 +2025,54 @@ a少需要注意9/17的外传容易错过，想全清的话，玩着可能会觉
 
 需要注意的是因为A少线可以打满所有其他人的外传 因此从第一个外传开始后可能需要一些日程规划
 
+
+*****
+
+####  没取名啊  
+##### 6098#       发表于 2026-10-3 19:15
+
+城里头的角色聊天内容是每个月刷新？试了几下感觉不是按章节刷新的
+
+
+*****
+
+####  Humpy  
+##### 6099#       发表于 2026-10-3 19:20
+
+ 本帖最后由 Humpy 于 2026-10-3 19:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70317041&amp;ptid=2261859" target="_blank">jockeyjoestar 发表于 2026-10-3 17:42</a>
+新角色登场也没多久  老角色毕竟人气积累了那么多年</blockquote>
+这个不是人气投票，是有随机性的偷鸡大战<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+每过一个小时刷新一次倍率，最开始双方都是1.0倍率，分数少很多的劣势方会得到下一个小时数倍的倍率加成，这个翻倍越往后数字越高，最后能接近12倍打出去。
+
+我第一轮选的女王，基本上大部分时间都是优势方或持平，人数方面选女王的人其实是多了很多的。
+
+忙着打正作结果今天上午的投票都忘了，憋了八百旗子在手里
+
+不过这个结果是很喜感的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  达达葱2  
+##### 6100#       发表于 2026-10-3 19:22
+
+<blockquote>没取名啊 发表于 2026-10-3 11:44
+【【狗蛋的游戏评测】火焰纹章 万缕千丝—倾尽所有-哔哩哔哩】 https://b23.tv/StEmZdP ...</blockquote>
+还有啥评测的up主的吐槽值得看的？
+
+*****
+
+####  Humpy  
+##### 6101#       发表于 2026-10-3 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70317217&amp;ptid=2261859" target="_blank">a3a4sc 发表于 2026-10-3 18:25</a>
+对话框的人物立绘头像3D差分做得好生动啊。有时候一眼就能看出是仓花千夏画得好还是建模比较好。
+
+比如欧若 ...</blockquote>
+立绘最好看的我觉得还是猫猫头真身<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+太娇媚了，能理解某个人因何为了这个颜失了智。
+
+建模相对就没那么媚了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
