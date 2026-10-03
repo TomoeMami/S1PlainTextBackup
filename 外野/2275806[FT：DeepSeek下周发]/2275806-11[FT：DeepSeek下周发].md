@@ -9416,3 +9416,11 @@ dot到底怎么用？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">flash从昨天开始就在疯狂的卡输出，自己在思维链里跟个自闭儿童一样不停地嗯，输出，嗯，好，输出，然后就是不出东西
 
+
+*****
+
+####  scikirbypoke  
+##### 15626#       发表于 2026-10-4 00:16
+
+v4.1似乎有概率唐突以为自己在cc总结，总结完就不输出了，被迫让ai搓了个pi插件专门删这种片段
+
