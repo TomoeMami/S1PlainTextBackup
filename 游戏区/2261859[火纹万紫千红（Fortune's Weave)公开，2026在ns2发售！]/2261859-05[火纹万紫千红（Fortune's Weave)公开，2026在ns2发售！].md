@@ -1683,3 +1683,16 @@ lv3能挖诺克裘拉算是最早的
 
 但是怎么全是重复作业啊，不停的喂人吃饭按跳过，不停的摸鸟按跳过，进洞不停的按跳过，大地图纯跑路也感受不到乐趣，怎么这么多垃圾时间<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">受不了了
 
+
+*****
+
+####  duraa  
+##### 6070#       发表于 2026-10-3 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70315689&amp;ptid=2261859" target="_blank">caicaistar 发表于 2026-10-3 11:58</a>
+
+剧情和人设还满对胃口的
+
+但是怎么全是重复作业啊，不停的喂人吃饭按跳过，不停的摸鸟按跳过，进洞不停的按 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">玩到第三条线的时候实在受不了了，后面几章直接酒馆全跳了
+
