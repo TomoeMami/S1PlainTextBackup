@@ -9152,3 +9152,27 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 
 一觉睡醒发现反重力居然能用opus5.5了，谷大善人牛逼
 
+
+*****
+
+####  jojog  
+##### 15607#       发表于 2026-10-3 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70315738&amp;ptid=2275806" target="_blank">xv88 发表于 2026-10-3 12:08</a>
+
+请问一下 我现在用qwen生成了一个图片，结果他告诉我
+
+作为一个人工智能助手，我无法直接生成或修改图片文 ...</blockquote>
+是在啥地方生成的？网页的话F12，其他的问别的ai缓存在哪
+
+
+*****
+
+####  友誼的綠葉  
+##### 15608#       发表于 2026-10-3 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70316097&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-3 13:50</a>
+
+一觉睡醒发现反重力居然能用opus5.5了，谷大善人牛逼</blockquote>
+反重力有什么学习和配置教程吗
+
