@@ -2177,3 +2177,11 @@ IS，Expansion Pass赶紧把安娜入队搞起来，那么好看的人设浪费�
 
 但感觉这次应该还是季票商法不能单买。
 
+
+*****
+
+####  Aresu  
+##### 6112#       发表于 2026-10-3 20:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盖茨有连击枪 海贼王甚至能学四连击
+
