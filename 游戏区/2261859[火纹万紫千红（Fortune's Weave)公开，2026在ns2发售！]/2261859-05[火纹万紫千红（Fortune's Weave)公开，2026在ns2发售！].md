@@ -2472,3 +2472,14 @@ dlc真出几个副主角的话肯定不会再让你跑4遍这个破图了，一�
 
 io太无耻了 学完地形消耗降低就是7移动满地图乱创 65级51的物防 90的成长率
 
+
+*****
+
+####  reficul  
+##### 6142#       发表于 2026-10-4 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70318674&amp;ptid=2261859" target="_blank">月华刹那 发表于 2026-10-4 00:02</a>
+
+炮台的炮弹有数量的啊，找个高防的耗完就行了</blockquote>
+对哦，这一场没有增援可以慢慢打
+
