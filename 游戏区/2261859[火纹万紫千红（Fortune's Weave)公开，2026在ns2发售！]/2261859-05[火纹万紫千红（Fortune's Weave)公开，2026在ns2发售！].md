@@ -1934,3 +1934,17 @@ lv3能挖诺克裘拉算是最早的
 莱桑达，剑拳不擅长，白瞎了40力50速的基础成长。本来想着转个土匪/格 ...</blockquote>
 他是唯二能学到重甲回避的  但是重甲不擅长。。 可以试试转成重甲骑士
 
+
+*****
+
+####  蓮華  
+##### 6090#       发表于 2026-10-3 17:36
+
+<img src="https://img.stage1st.com/forum/202610/03/173600qge8qt3gphpgshlo.jpg" referrerpolicy="no-referrer">
+
+<strong>HTsBhQtasAAzI7K.jpg</strong> (208.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 17:36 上传
+
