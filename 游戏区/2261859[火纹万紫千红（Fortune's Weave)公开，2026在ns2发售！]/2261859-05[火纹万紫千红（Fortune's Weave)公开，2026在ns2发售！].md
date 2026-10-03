@@ -2147,3 +2147,33 @@ IS，Expansion Pass赶紧把安娜入队搞起来，那么好看的人设浪费�
 —— 来 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第二部我打了迪的，其他跳过，到了第三部，等级随便涨，武器熟练度拉下不少
 
+
+*****
+
+####  新HGCG  
+##### 6109#       发表于 2026-10-3 20:32
+
+第三部的黑色火焰，除了计策和主角范围攻击，还有哪些方式可以消除？
+
+丁真和白娘子和猫猫头的范围攻击可以吗
+
+*****
+
+####  -マユ‐  
+##### 6110#       发表于 2026-10-3 20:34
+
+迪线打完了，第一部还剩两条怎么感觉已经力竭了，本来还打算放假通关呢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Humpy  
+##### 6111#       发表于 2026-10-3 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70317814&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-10-3 20:12</a>
+如果另外四个的主角正传是单卖的话，商人肯定是销量最低的吧？</blockquote>
+如果和正传四主角一样有完整的养成探索环节，那能早期就养成露背露乳冰山闷骚美人的吸引力还是有的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+即使没有，商人线感觉剧情上能说的东西也不少，不至于没人买。
+
+但感觉这次应该还是季票商法不能单买。
+
