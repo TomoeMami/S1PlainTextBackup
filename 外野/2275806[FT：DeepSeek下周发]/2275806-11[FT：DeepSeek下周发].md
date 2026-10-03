@@ -9424,3 +9424,14 @@ dot到底怎么用？
 
 v4.1似乎有概率唐突以为自己在cc总结，总结完就不输出了，被迫让ai搓了个pi插件专门删这种片段
 
+
+*****
+
+####  qwased  
+##### 15627#       发表于 2026-10-4 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70318535&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-3 23:17</a>
+
+flash从昨天开始就在疯狂的卡输出，自己在思维链里跟个自闭儿童一样不停地嗯，输出，嗯，好，输出，然后就 ...</blockquote>
+这种词有很强烈的回音效果，开始频繁出现就得马上让它写交接文档开新窗口了，压缩都不管用
+
