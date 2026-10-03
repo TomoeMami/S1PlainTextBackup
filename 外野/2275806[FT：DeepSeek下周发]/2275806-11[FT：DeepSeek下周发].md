@@ -9379,3 +9379,16 @@ dot到底怎么用？
 
 —— 来自 HONOR PTP-AN10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  jojog  
+##### 15623#       发表于 2026-10-3 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70317798&amp;ptid=2275806" target="_blank">hencechen 发表于 2026-10-3 20:10</a>
+
+dot到底怎么用？
+
+—— 来自 HONOR PTP-AN10, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+和codex一样 现在把算力挪到上面硬推产品而已
+
