@@ -727,3 +727,18 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  伊布桑  
+##### 105#       发表于 2026-10-3 11:39
+
+ 本帖最后由 伊布桑 于 2026-10-3 11:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70315537&amp;ptid=2280452" target="_blank">modkingr 发表于 2026-10-3 11:29</a>
+蓄力技就是长按啊？有啥不懂的。
+
+除了填充技能能减cd之外其他都只是随回合推进自然减，不减队友</blockquote>
+我试过长按，但是ui没有明显反馈，都不知道自己有没有按成功<img src="https://static.stage1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+也就是说吃豆不减队友cd，但是回合结束会减是吧，那切人减不减？切人也吃豆
+感觉这游戏挺需要一个短cd输出的，像宝石姐和燃烧瓶那种，在队友都cd了的时候可以出来打打技能输出<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
