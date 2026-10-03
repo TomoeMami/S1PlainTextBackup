@@ -440,3 +440,11 @@ Adobe和自动桌早该死了  office WPS全家桶能不能也顺带一起
 
 对于一些容易被整理成训练素材的小体量游戏而言，没准还真会陷入这种状况。。。？
 
+
+*****
+
+####  FACS  
+##### 46#       发表于 2026-10-3 09:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">支持复刻adobe全家桶
+
