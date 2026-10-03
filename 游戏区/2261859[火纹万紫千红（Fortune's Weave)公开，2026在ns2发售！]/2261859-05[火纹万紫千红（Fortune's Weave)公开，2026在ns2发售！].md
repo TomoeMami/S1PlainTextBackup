@@ -1790,3 +1790,36 @@ lv3能挖诺克裘拉算是最早的
 
 是共同的马桶支线还是个人的特殊支线？
 
+
+*****
+
+####  hl氏  
+##### 6080#       发表于 2026-10-3 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70316471&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-3 15:42</a>
+
+神殿里面会刷支线？其他三条线没见过啊。
+
+是共同的马桶支线还是个人的特殊支线？
+
+ ...</blockquote>
+神庙里接到这个：
+
+<img src="https://img.stage1st.com/forum/202610/03/155134bukqqau44ignf36u.jpg" referrerpolicy="no-referrer">
+
+<strong>20261003155047-01M40BT30TVDNWV1E4T5S3J1PS.jpg</strong> (231.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 15:51 上传
+
+交完任务弹出了这个，时间不够没能报告：
+
+<img src="https://img.stage1st.com/forum/202610/03/155202o24quk8emfmjm2q1.jpg" referrerpolicy="no-referrer">
+
+<strong>20261003155103-01M40BTDRGW7G682D46Y8VNYSQ.jpg</strong> (220.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 15:52 上传
+

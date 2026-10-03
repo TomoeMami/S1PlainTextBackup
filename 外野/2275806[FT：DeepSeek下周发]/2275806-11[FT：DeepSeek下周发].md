@@ -9189,3 +9189,21 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 
 咸鱼上的5块18个月套餐全军覆没<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zy450  
+##### 15610#       发表于 2026-10-3 15:48
+
+所以我说只有DS是真正的人民的大模型，其他模型都是降速、降智、降套餐……
+
+*****
+
+####  andychen  
+##### 15611#       发表于 2026-10-3 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70316490&amp;ptid=2275806" target="_blank">zy450 发表于 2026-10-3 15:48</a>
+
+所以我说只有DS是真正的人民的大模型，其他模型都是降速、降智、降套餐…… ...</blockquote>
+可别给公司立人设了，刚涨过的价忘记了？
+
