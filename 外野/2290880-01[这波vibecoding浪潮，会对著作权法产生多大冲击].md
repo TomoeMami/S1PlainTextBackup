@@ -416,3 +416,11 @@ Adobe和自动桌早该死了  office WPS全家桶能不能也顺带一起
 
 但是很快就有人在不看IBM代码的情况下（所以版权管不着）实现了一样的BIOS功能，所以PC就等于完全自由了。
 
+
+*****
+
+####  神圣天使书记官  
+##### 44#       发表于 2026-10-3 09:01
+
+支持正义复刻photoshop<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
