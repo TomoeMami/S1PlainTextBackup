@@ -742,3 +742,33 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 也就是说吃豆不减队友cd，但是回合结束会减是吧，那切人减不减？切人也吃豆
 感觉这游戏挺需要一个短cd输出的，像宝石姐和燃烧瓶那种，在队友都cd了的时候可以出来打打技能输出<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modkingr  
+##### 106#         楼主| 发表于 2026-10-3 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70315590&amp;ptid=2280452" target="_blank">伊布桑 发表于 2026-10-3 11:39</a>
+
+我试过长按，但是ui没有明显反馈，都不知道自己有没有按成功
+
+也就是说吃豆不减队友cd，但是回合结束会减 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/03/121122t36wexz6g0geak3k.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (68.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 12:11 上传
+
+蓄力角色核心技这里有个条，你长按这条就走进度，挺直观的啊？标枪女长按引爆标枪层数（LOL卡莉斯塔），千景长按是给自己挂盾
+
+减CD只会被两个事情所影响
+
+1 回合数。你头上的1R变2R了，所有角色的CD往前走一格，场上场下都是
+
+2 打填充技，这个是对当前场上角色生效。谁打填充技就转谁的核心技CD，和场下无关
+
+切人只是一个常规动作，和1和2都无关，所以不减
+
