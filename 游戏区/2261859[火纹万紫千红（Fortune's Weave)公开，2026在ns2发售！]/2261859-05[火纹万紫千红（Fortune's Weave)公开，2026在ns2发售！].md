@@ -2134,3 +2134,16 @@ IS，Expansion Pass赶紧把安娜入队搞起来，那么好看的人设浪费�
 
 如果另外四个的外传是单卖的话，商人肯定是销量最低的吧？
 
+
+*****
+
+####  ShitOverflow  
+##### 6108#       发表于 2026-10-3 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314666&amp;ptid=2261859" target="_blank">土卫七 发表于 2026-10-3 02:19</a>
+
+那这亏的也不算太夸张吧，我还以为像挖人一样不算职业成长的。那我就偷个懒只打迪线的第二部了
+
+—— 来 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第二部我打了迪的，其他跳过，到了第三部，等级随便涨，武器熟练度拉下不少
+
