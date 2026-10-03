@@ -444,3 +444,32 @@ SLG格子那种步进位移，用鼠标动起来感觉怪怪的，尤其在快�
 我主要掌机玩，觉得手柄支持还是有用的
 这次幻世录重制也支持了手柄
 
+
+*****
+
+####  Link213  
+##### 48#       发表于 2026-10-3 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312179&amp;ptid=2290833" target="_blank">mes 发表于 2026-10-2 10:58</a>
+
+我也不能理解这种模板出来的主机玩家思维，玩游戏自然瞪着屏幕，我用显示屏，不管怎样都是坐在台前玩。 ...</blockquote>
+
+1.png
+(330.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 18:31 上传
+
+<img src="https://img.stage1st.com/forum/202610/03/183113ruixmwrmn5lavggi.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Link213  
+##### 49#       发表于 2026-10-3 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70312179&amp;ptid=2290833" target="_blank">mes 发表于 2026-10-2 10:58</a>
+
+我也不能理解这种模板出来的主机玩家思维，玩游戏自然瞪着屏幕，我用显示屏，不管怎样都是坐在台前玩。 ...</blockquote>
+真的吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
