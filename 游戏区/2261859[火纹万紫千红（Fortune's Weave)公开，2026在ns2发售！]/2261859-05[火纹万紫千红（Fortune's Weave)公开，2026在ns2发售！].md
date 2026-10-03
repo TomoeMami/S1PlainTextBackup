@@ -2275,3 +2275,20 @@ dlc搞些老四主拯救猫猫头索雷尔的if线差不多了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aresu  
+##### 6122#       发表于 2026-10-3 22:07
+
+某章有个逛街事件铺垫了莱拉的剧情 11章感觉突兀多半是错过了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hl氏  
+##### 6123#       发表于 2026-10-3 22:09
+
+巴西初音转了卫士感觉很不错，补了些短板
+
+反派三人娘我都不喜欢，会让我想起円给几那些傻逼角色，尤其是冒牌幽法丝，听她说话就烦
+
