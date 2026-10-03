@@ -1340,3 +1340,14 @@ AB的2招单体只能说够用，最大亮点是那个扇形MAP，ssp后他是�
 结果现在标签的强 ...</blockquote>
 试验机有83的飞马级还是hp船
 
+
+*****
+
+####  ティグル  
+##### 4832#       发表于 2026-10-3 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70317208&amp;ptid=2071758" target="_blank">saber2000 发表于 2026-10-3 18:23</a>
+
+试验机有83的飞马级还是hp船</blockquote>
+那是我漏掉了，感觉没啥存在感
+
