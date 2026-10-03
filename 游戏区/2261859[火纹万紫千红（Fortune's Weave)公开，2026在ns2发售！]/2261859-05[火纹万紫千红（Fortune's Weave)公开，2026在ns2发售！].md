@@ -2397,3 +2397,31 @@ dlc真出几个副主角的话肯定不会再让你跑4遍这个破图了，一�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  duraa  
+##### 6135#       发表于 2026-10-3 23:50
+
+雷达第二部快打完了（最后的脱出今天打不动，明天再说)，感想是队伍里能射箭的多打得真舒服（侍道你悔改吧）
+
+队伍里1舞娘4游侠1狙击手，喜欢瞎jb刷飞龙是吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  reficul  
+##### 6136#       发表于 2026-10-3 23:51
+
+问一下第二部第五章打大帝时门口的长长楼梯有什么解法吗？这上去轻易就要被炮台炸死啊，还想飞马侧面偷鸡的，但是高度差好像不给偷鸡的机会
+
+
+*****
+
+####  duraa  
+##### 6137#       发表于 2026-10-3 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70318641&amp;ptid=2261859" target="_blank">reficul 发表于 2026-10-3 23:51</a>
+
+问一下第二部第五章打大帝时门口的长长楼梯有什么解法吗？这上去轻易就要被炮台炸死啊，还想飞马侧面偷鸡的 ...</blockquote>
+楼梯左边给的炮台（注意有两个，位置靠上的才可以）能清掉上楼梯上边的炮台
+
