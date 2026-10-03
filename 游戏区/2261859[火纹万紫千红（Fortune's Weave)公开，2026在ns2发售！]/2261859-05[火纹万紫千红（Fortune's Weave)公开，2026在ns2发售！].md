@@ -2385,3 +2385,15 @@ dlc真出几个副主角的话肯定不会再让你跑4遍这个破图了，一�
 
 盖茨和粉毛天马和露背秘书都有A支援，这吊毛是什么玩意看得我不爽<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">第一部不知道他干嘛的
 
+
+*****
+
+####  土卫七  
+##### 6134#       发表于 2026-10-3 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70318587&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-10-3 23:33</a>
+盖茨和粉毛天马和露背秘书都有A支援，这吊毛是什么玩意看得我不爽第一部不知道他干嘛的 ...</blockquote>
+露背秘书不清楚，你仔细想想粉毛天马的剧情，大概能猜到盖茨为什么会有a支援<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

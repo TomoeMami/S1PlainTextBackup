@@ -1721,3 +1721,14 @@ wiki上说5个祠堂后可以去湾岸市场隐藏商店买晶纹，这个入口
 出了序章以后可以跑酷拿到所有伤害增加luc点的首饰，然后黄魂里有加大额luc的，都拿到以后绿毛天生高幸运+ ...</blockquote>
 这个首饰怎么拿，我把花田洞窟负一楼的所有宝箱开了都没有
 
+
+*****
+
+####  blackll7  
+##### 128#       发表于 2026-10-3 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70318083&amp;ptid=2256342" target="_blank">麦吉卡 发表于 2026-10-3 21:20</a>
+
+这个首饰怎么拿，我把花田洞窟负一楼的所有宝箱开了都没有</blockquote>
+你看下wiki
+
