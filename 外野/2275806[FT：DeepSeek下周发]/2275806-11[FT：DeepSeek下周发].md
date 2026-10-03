@@ -9455,3 +9455,19 @@ flash从昨天开始就在疯狂的卡输出，自己在思维链里跟个自闭
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NeTlk  
+##### 15630#       发表于 2026-10-4 02:07
+
+<img src="https://img.stage1st.com/forum/202610/04/020638oiiwbvp61zi8n214.png" referrerpolicy="no-referrer">
+
+<strong>1000005176.png</strong> (389.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-4 02:06 上传
+
+这个水过没，让模型根据经纬度判断陆地还是海洋
+

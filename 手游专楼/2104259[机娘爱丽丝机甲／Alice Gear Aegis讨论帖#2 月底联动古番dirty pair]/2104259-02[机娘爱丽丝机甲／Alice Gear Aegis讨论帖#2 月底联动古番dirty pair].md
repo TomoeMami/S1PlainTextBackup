@@ -66,3 +66,13 @@
 看了下技能表怎么还有加有减的</blockquote>
 这些是为了开盘子给射击特化或者格斗特化用的词条吧？
 
+
+*****
+
+####  冰风血羽  
+##### 2139#       发表于 2026-10-4 02:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">为什么京姐姐不爱我，以前从来没有一个池子两次出必出特效，结果东京最强+2了，一个池子经历两次绝望说是
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
