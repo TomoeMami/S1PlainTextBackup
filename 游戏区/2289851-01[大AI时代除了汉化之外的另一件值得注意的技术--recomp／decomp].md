@@ -726,3 +726,18 @@ https://github.com/himdo/Fable-2-Recomp
 
 已经看到忍龙2有不少重编译的视频出来了，不过现在应该还只是完成功能，看之后会整出什么花活来。
 
+
+*****
+
+####  慕容断月  
+##### 46#       发表于 2026-10-3 12:32
+
+ 本帖最后由 慕容断月 于 2026-10-3 12:34 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313066&amp;ptid=2289851" target="_blank">rougecoelacanth 发表于 2026-10-2 16:09</a>
+实测用ds4.1f，魔改五分钟出来的启动器（基于北美版），可以正常加载北妹1的1.04汉化镜像（基于日文版）
+
+ ...</blockquote>
+因为3D游戏渲染器可能不认某些东西，我移植的那个越玩到后面贴图花屏现象越严重，2D我不好说
+
+那个日版当时剧情过场，整个花朵都是彩色马赛克<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
