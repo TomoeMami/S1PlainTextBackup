@@ -66,3 +66,13 @@
 
 把三档的新鬼武者打通后，PDD的碟也差不多到了。目前玩了60小时，差把鬼难的义经打过，再刷一遍boss就可以白金了，真的爽玩～
 
+
+*****
+
+####  astrayveller  
+##### 1954#       发表于 2026-10-3 10:59
+
+对 这代武藏塑造挺好的，吊儿郎当但又坚守原则 嘴欠但是内心善良 很久没见到这么讨喜的主角了
+
+— from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
