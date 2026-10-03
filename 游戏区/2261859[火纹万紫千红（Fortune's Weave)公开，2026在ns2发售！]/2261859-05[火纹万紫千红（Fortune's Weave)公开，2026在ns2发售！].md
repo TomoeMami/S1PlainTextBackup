@@ -2645,3 +2645,11 @@ pmm往死里玩通关了，等视频
 
 —— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  Adrenaline!!!  
+##### 6157#       发表于 2026-10-4 07:43
+
+八选四不就为了每个角色专属系统可以带到最后一部这个框架的饺子醋吗，商人和新娘特殊系统跑商占卜听着就没意思，贝特兰只能宅家玩背包整理了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
