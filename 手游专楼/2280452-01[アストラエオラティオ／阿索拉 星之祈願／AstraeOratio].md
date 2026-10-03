@@ -713,3 +713,17 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 
 战斗系统基本理解了，除了蓄力技能理解不了，有人懂的能说说吗？
 
+
+*****
+
+####  modkingr  
+##### 104#         楼主| 发表于 2026-10-3 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70315321&amp;ptid=2280452" target="_blank">伊布桑 发表于 2026-10-3 10:45</a>
+战斗系统基本理解了，除了蓄力技能理解不了，有人懂的能说说吗？</blockquote>
+蓄力技就是长按啊？有啥不懂的。
+
+除了填充技能能减cd之外其他都只是随回合推进自然减，不减队友
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1627,3 +1627,21 @@ lv3能挖诺克裘拉算是最早的
 —— 来自 nub ...</blockquote>
 刚过完这个，好像自动赚取一天直接在城里做外传，然后坐车去买上级，再通过马兹神殿最后一回合进迷宫打旁边的凶战士
 
+
+*****
+
+####  u2deack  
+##### 6064#       发表于 2026-10-3 11:27
+
+爱娜特莉亚外传还是重打了遍全员撤离了，我这的艾斯梅打不了这个boss一管血只有迪特里希出暴击能打一条，最后剩一条血打不动了，每回合护盾回满还三格射程真的有点赖
+
+
+*****
+
+####  lelouchwang  
+##### 6065#       发表于 2026-10-3 11:31
+
+凯线挖穆要佳兰，查了下在沙漠那才有，只能大地图碰运气找商人买吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
