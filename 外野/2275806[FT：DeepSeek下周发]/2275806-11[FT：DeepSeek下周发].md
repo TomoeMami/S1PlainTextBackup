@@ -9136,3 +9136,19 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 该说是 ...</blockquote>
 据说是thinking machine的inkling，现在做开源模型很难不蒸开源模型，这不得中文咯
 
+
+*****
+
+####  qwased  
+##### 15606#       发表于 2026-10-3 13:50
+
+<img src="https://img.stage1st.com/forum/202610/03/135040fo00pg09wkp0apaj.jpg" referrerpolicy="no-referrer">
+
+<strong>D624082EEE597848DA61EE579B598EED.jpg</strong> (25.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 13:50 上传
+
+一觉睡醒发现反重力居然能用opus5.5了，谷大善人牛逼
+

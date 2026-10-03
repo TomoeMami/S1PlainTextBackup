@@ -741,3 +741,11 @@ https://github.com/himdo/Fable-2-Recomp
 
 那个日版当时剧情过场，整个花朵都是彩色马赛克<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千秋难诉  
+##### 47#       发表于 2026-10-3 13:49
+
+节前也一直在二改elite redux，在本就便利化的基础上进行了更多的现代化操作和人工平衡，当策划比玩游戏还爽
+
