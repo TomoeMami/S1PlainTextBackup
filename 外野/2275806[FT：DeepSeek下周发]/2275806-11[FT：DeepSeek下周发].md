@@ -9226,3 +9226,21 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 可别给公司立人设了，刚涨过的价忘记了？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">降回来了啊
 
+
+*****
+
+####  未知伤亡  
+##### 15614#       发表于 2026-10-3 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70316854&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-3 16:57</a>
+
+降回来了啊</blockquote>
+峰价还是原来的好多倍
+
+*****
+
+####  Saker_bobo  
+##### 15615#       发表于 2026-10-3 17:14
+
+谷歌咋了？有没有具体消息 我这个pixel会员现在也看不到5.5
+
