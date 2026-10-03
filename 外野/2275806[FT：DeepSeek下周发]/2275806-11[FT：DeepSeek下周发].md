@@ -9215,3 +9215,14 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 
 谷歌平常喜欢装大善人没脑子瞎鸡儿乱发学生优惠、印度JIO、pixel的pro套餐，被滥用降智流口水，最后大刀一砍，把最无辜、用量最低的客户端普通free用户的体验一刀砍没了，小丑完了。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 15613#       发表于 2026-10-3 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70316503&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-3 15:51</a>
+
+可别给公司立人设了，刚涨过的价忘记了？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">降回来了啊
+
