@@ -1764,3 +1764,16 @@ lv3能挖诺克裘拉算是最早的
 迪线10月份在柯雷尔神殿接到了支线，真坑人，柯雷尔加护我全满了，要不是6个全满我随便去了柯雷尔做侍奉刷 ...</blockquote>
 回去报告后又弹出一个支线，又要去35迷宫附近，然后赶不及回来报告，打完主线超过了期限一天，我日
 
+
+*****
+
+####  Jabeck  
+##### 6078#       发表于 2026-10-3 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70316290&amp;ptid=2261859" target="_blank">mggr 发表于 2026-10-3 14:51</a>
+
+火焰纹章万缕千丝角色弓属性已经是 D+，为什么还是无法装备 D 的铁弓？
+
+—— 来自 Xiaomi 25113PN0EC, And ...</blockquote>
+有些职业没法用弓吧
+

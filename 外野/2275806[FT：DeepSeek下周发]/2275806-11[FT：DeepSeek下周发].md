@@ -9176,3 +9176,16 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 一觉睡醒发现反重力居然能用opus5.5了，谷大善人牛逼</blockquote>
 反重力有什么学习和配置教程吗
 
+
+*****
+
+####  andychen  
+##### 15609#       发表于 2026-10-3 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70316097&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-3 13:50</a>
+
+一觉睡醒发现反重力居然能用opus5.5了，谷大善人牛逼</blockquote>
+然而这一波把非付费的Pro用户全踢下车了。后续非付费的都只能用谷歌自家模型，我估计后续Argon也碰不到
+
+咸鱼上的5块18个月套餐全军覆没<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
