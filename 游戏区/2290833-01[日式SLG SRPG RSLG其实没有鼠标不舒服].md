@@ -401,3 +401,15 @@ SLG格子那种步进位移，用鼠标动起来感觉怪怪的，尤其在快�
 
 毫无问题, 我在PC上玩都用手柄.
 
+
+*****
+
+####  忙趁东风放纸鸢  
+##### 44#       发表于 2026-10-3 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70313018&amp;ptid=2290833" target="_blank">mcq_2 发表于 2026-10-2 15:45</a>
+首先，即便用鼠标也没有纯鼠标的，而鼠标加键盘的组合还不如纯键盘，而纯键盘还不如手柄。 ...</blockquote>
+楼上有坛友说了，曹操传
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

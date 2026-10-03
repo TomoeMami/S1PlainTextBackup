@@ -1717,3 +1717,21 @@ lv3能挖诺克裘拉算是最早的
 论坛助手,iPhone ...</blockquote>
 凯可以在主城附近的田里栽培出来的，sl几次试试，我不知道从哪摸到的好几朵佳兰
 
+
+*****
+
+####  mggr  
+##### 6073#       发表于 2026-10-3 14:51
+
+火焰纹章万缕千丝角色弓属性已经是 D+，为什么还是无法装备 D 的铁弓？
+
+—— 来自 Xiaomi 25113PN0EC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Yugao  
+##### 6074#       发表于 2026-10-3 14:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前后加起来快200小时，总算打成全员到期打第三部，虽然时之笛虫豸还没发售，但我的goty已经有着落了
+
