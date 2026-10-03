@@ -9255,3 +9255,34 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 16G显卡+qwen3.8 27B上下文200K，个人经验总结（更新llamacpp推荐）  https://stage1st.com/2b/thread-22 ...</blockquote>
 qwen3.8 27B的iq3版本用下来，效果非常差，跟4bit比只是跑分一样，但降智非常明显，而且指令服从性非常差，经常你要它干什么偏不，非要按自己逻辑跑完再来看用户指令，甚至你强行打断它，它还会质疑你的指令，觉得自己才是对的
 
+
+*****
+
+####  kingtigerc  
+##### 15617#       发表于 2026-10-3 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314540&amp;ptid=2275806" target="_blank">静哮苍穹 发表于 2026-10-3 00:47</a>
+
+16G显卡+qwen3.8 27B上下文200K，个人经验总结（更新llamacpp推荐）  https://stage1st.com/2b/thread-22 ...</blockquote>
+如果用IQ3XXS切记保持思考强度XHIGH，作者说他们只校准了XHIGH强度，medium会导致明显的质量下降
+
+啊，难怪，我一直用med模式。但是XHIGH太慢了
+
+
+*****
+
+####  白日依山尽  
+##### 15618#       发表于 2026-10-3 17:52
+
+<img src="https://img.stage1st.com/forum/202610/03/175041ptxpgzt0mspkkmxt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-3 17:50 上传
+
+只有真正付费的 pro / ultra 才能使用5.5
+
+任何其他地方送的都不行
+

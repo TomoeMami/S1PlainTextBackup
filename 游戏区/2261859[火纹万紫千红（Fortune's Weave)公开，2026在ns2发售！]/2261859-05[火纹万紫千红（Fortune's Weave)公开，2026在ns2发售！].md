@@ -1957,3 +1957,16 @@ lv3能挖诺克裘拉算是最早的
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70317022&amp;ptid=2261859" target="_blank">蓮華 发表于 2026-10-3 17:36</a></blockquote>
 新角色登场也没多久  老角色毕竟人气积累了那么多年
 
+
+*****
+
+####  jockeyjoestar  
+##### 6092#       发表于 2026-10-3 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70316290&amp;ptid=2261859" target="_blank">mggr 发表于 2026-10-3 14:51</a>
+
+火焰纹章万缕千丝角色弓属性已经是 D+，为什么还是无法装备 D 的铁弓？
+
+—— 来自 Xiaomi 25113PN0EC, And ...</blockquote>
+职业限制啊。。哥们  考试的时候考的都是你能用的武器 
+
