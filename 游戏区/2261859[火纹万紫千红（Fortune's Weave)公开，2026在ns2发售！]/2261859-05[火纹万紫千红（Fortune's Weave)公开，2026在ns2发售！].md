@@ -1660,3 +1660,16 @@ lv3能挖诺克裘拉算是最早的
 
 【【狗蛋的游戏评测】火焰纹章 万缕千丝—倾尽所有-哔哩哔哩】 https://b23.tv/StEmZdP
 
+
+*****
+
+####  saintgory  
+##### 6068#       发表于 2026-10-3 11:50
+
+ 本帖最后由 saintgory 于 2026-10-3 11:52 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70315528&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-10-3 11:27</a>
+
+爱娜特莉亚外传还是重打了遍全员撤离了，我这的艾斯梅打不了这个boss一管血只有迪特里希出暴击能打一条，最 ...</blockquote>
+
+这boss和关卡的设计就是不推荐硬打呗，主要靠晕住过回合。而且撤离完了想打把爱娜留下来不结束战斗继续打也可以
+
