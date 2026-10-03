@@ -1845,3 +1845,35 @@ lv3能挖诺克裘拉算是最早的
 
 当初做加护的时候每周都会地图扫一遍神殿。看看有没有加声望的。
 
+
+*****
+
+####  DancingAndy  
+##### 6083#       发表于 2026-10-3 16:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这传奇雕刻家的支线，四面找雕像的位置有谁做了吗
+
+*****
+
+####  duraa  
+##### 6084#       发表于 2026-10-3 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70316812&amp;ptid=2261859" target="_blank">DancingAndy 发表于 2026-10-3 16:48</a>
+
+这传奇雕刻家的支线，四面找雕像的位置有谁做了吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">B站有发攻略的
+
+
+*****
+
+####  新HGCG  
+##### 6085#       发表于 2026-10-3 16:57
+
+蒂耶戈啥情况啊
+
+女王篇第一关混在敌人中间
+
+之后没事人一样来参赛
+
+路上遇到了也没互动
+
