@@ -9435,3 +9435,23 @@ v4.1似乎有概率唐突以为自己在cc总结，总结完就不输出了，�
 flash从昨天开始就在疯狂的卡输出，自己在思维链里跟个自闭儿童一样不停地嗯，输出，嗯，好，输出，然后就 ...</blockquote>
 这种词有很强烈的回音效果，开始频繁出现就得马上让它写交接文档开新窗口了，压缩都不管用
 
+
+*****
+
+####  阿刚  
+##### 15628#       发表于 2026-10-4 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70318751&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-4 00:34</a>
+
+这种词有很强烈的回音效果，开始频繁出现就得马上让它写交接文档开新窗口了，压缩都不管用 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">嗯，确实，就整个坏了，反应和思路都受影响
+
+*****
+
+####  大肥鱼  
+##### 15629#       发表于 2026-10-4 01:03
+
+想要V4 Pro呀，什么时候才能够出来呀？今年肯定大概是有的。但两个月，呃，两三个月的时间等起来真的是度日如年呀。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
