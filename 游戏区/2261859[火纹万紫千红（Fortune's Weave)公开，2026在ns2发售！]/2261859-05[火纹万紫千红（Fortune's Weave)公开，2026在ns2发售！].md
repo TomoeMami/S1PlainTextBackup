@@ -2259,3 +2259,11 @@ dlc搞些老四主拯救猫猫头索雷尔的if线差不多了
 迪特里希这个11章怎么搞得贵圈这么乱，各种ntr修罗场，绿毛这个突然表白也是有点突兀前面的铺垫太少了
 但是最搞笑的还是艾斯梅出来的败犬发言，我想说我们队里最强的其实是你，迪特里希都打不过你<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Adrenaline!!!  
+##### 6120#       发表于 2026-10-3 21:48
+
+<img src="https://p.sda1.dev/35/22069c73b05d13b4c8b3b1a508704d07/image.jpg" referrerpolicy="no-referrer">
+
