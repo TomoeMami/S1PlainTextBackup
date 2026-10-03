@@ -1905,3 +1905,32 @@ lv3能挖诺克裘拉算是最早的
 之后没事人一样来参赛</blockquote>
 剧情上是暗杀女王失败被当作祭品献祭  然后被猫猫头神官救了   这段剧情人物简介里有 估计是砍了
 
+
+*****
+
+####  纯夏  
+##### 6088#       发表于 2026-10-3 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70316812&amp;ptid=2261859" target="_blank">DancingAndy 发表于 2026-10-3 16:48</a>
+
+这传奇雕刻家的支线，四面找雕像的位置有谁做了吗</blockquote>
+茱拉雕像：戈拉草原带（帝都西边，最近）
+
+卡拉雕像：乌兹纳岭（帝都东北，艾欧希德站往西）
+
+幽法斯雕像：布隆提斯湖（帝都南边，萨拉基亚站往东）
+
+芙托娜雕像：索雷尔神殿 主殿（费罗尼亚站旁）
+
+*****
+
+####  jockeyjoestar  
+##### 6089#       发表于 2026-10-3 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70314181&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-10-2 22:27</a>
+
+开始打女王线，感觉初始队友有点菜啊
+
+莱桑达，剑拳不擅长，白瞎了40力50速的基础成长。本来想着转个土匪/格 ...</blockquote>
+他是唯二能学到重甲回避的  但是重甲不擅长。。 可以试试转成重甲骑士
+
