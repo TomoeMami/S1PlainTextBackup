@@ -9081,3 +9081,19 @@ codebuddy白嫖每天100点 支持DeepSeek 轻度开发够用</blockquote>
 16G显卡+qwen3.8 27B上下文200K，个人经验总结（更新llamacpp推荐）  https://stage1st.com/2b/thread-22 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 15601#       发表于 2026-10-3 07:54
+
+ 本帖最后由 neptunehs 于 2026-10-3 07:58 编辑 
+
+fledge alpha说是封我国 结果我用中文就思维链是中文的
+明明opencode自己部署的ds4f都是英文思维链
+该说是傲娇 还是后训练不过关呢（
+
+（不过话又说回来 muse spark我记得不能完全看到思维链 难道不是？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
