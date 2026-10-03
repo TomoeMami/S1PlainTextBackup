@@ -2573,3 +2573,19 @@ pmm往死里玩通关了，等视频
 
 —— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  trotsky  
+##### 6150#       发表于 2026-10-4 03:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70318888&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-10-4 01:39</a>
+一打开女王线开头就讲述原来萨国是白卵人的后裔，又明白了一些设定
+
+路线8选4，实在不认同制作组选蕾达，既 ...</blockquote>
+蕾达线主要是副官太瞎比了，看看法比欧看看波拿，再对比下巴卡尼亚…
+
+另外，蕾达线应该是信息量最少的一条了…黑幕点到为止世界观也没揭秘，剧情有一小半是围绕奥利哈钢，这个奥利哈钢是干嘛用的还得等其他线爆出来<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
