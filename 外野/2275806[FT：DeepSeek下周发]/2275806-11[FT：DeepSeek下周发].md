@@ -9367,3 +9367,15 @@ qwen3.8 27B的iq3版本用下来，效果非常差，跟4bit比只是跑分一�
 
 这一两天的 dot 真的用爽了，Astra xhigh 做事真的不错，很聪明。就是审美确实抠脚。。
 
+
+*****
+
+####  hencechen  
+##### 15622#       发表于 2026-10-3 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70317594&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-3 19:33</a>
+这一两天的 dot 真的用爽了，Astra xhigh 做事真的不错，很聪明。就是审美确实抠脚。。 ...</blockquote>
+dot到底怎么用？
+
+—— 来自 HONOR PTP-AN10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
