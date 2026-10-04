@@ -3043,3 +3043,51 @@ twi:@souyou26
 就是波拿说的情报，但是他指的那个路被封了，我过不去。</blockquote>
 我现在在城里，卡到 17:59 了，感觉好像是不是错过了？
 
+
+*****
+
+####  达达葱2  
+##### 6195#       发表于 2026-10-4 12:28
+
+<blockquote>julia黑 发表于 2026-10-4 12:25
+我现在在城里，卡到 17:59 了，感觉好像是不是错过了？</blockquote>
+出城再进去就行了
+
+说是说6点开始其实六点这个时间段就行
+
+*****
+
+####  蓝色暴鲤龙  
+##### 6196#       发表于 2026-10-4 12:29
+
+<blockquote>julia黑 发表于 2026-10-4 12:22
+女王线跟我说 4 月 6 号有一个秘密的白发鬼比赛可以看，但是我到了时间，找不到去哪看啊 ...</blockquote>
+在那个什么宫门口，到了准时时间后，会出现一个npc（平时没有），你和他说话就能进去了，这段剧情非常不错，我专楼里面提过。
+
+*****
+
+####  bbluekid  
+##### 6197#       发表于 2026-10-4 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319774&amp;ptid=2261859" target="_blank">julia黑 发表于 2026-10-4 12:25</a>
+我现在在城里，卡到 17:59 了，感觉好像是不是错过了？</blockquote>
+去旅馆自动一回合就行了
+
+*****
+
+####  julia黑  
+##### 6198#       发表于 2026-10-4 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319785&amp;ptid=2261859" target="_blank">达达葱2 发表于 2026-10-4 12:28</a>
+出城再进去就行了
+
+说是说6点开始其实六点这个时间段就行</blockquote>
+好的谢谢，进去了，竟然不让提前进，感情都在里边等我呢<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  索非亚  
+##### 6199#       发表于 2026-10-4 12:31
+
+同样彷徨之壁，怎么爱娜射程3红花射程才1<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
