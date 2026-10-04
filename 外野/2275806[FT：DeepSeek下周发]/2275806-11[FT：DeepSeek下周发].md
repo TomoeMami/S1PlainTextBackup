@@ -9489,3 +9489,18 @@ flash从昨天开始就在疯狂的卡输出，自己在思维链里跟个自闭
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  SmterC  
+##### 15632#       发表于 2026-10-4 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319123&amp;ptid=2275806" target="_blank">goranger 发表于 2026-10-4 08:17</a>
+
+一晚上遇到好多次，额度蹭蹭掉，是4.1的问题还是第三方量化的问题？
+
+论坛助手,iPhone ...</blockquote>
+我用的火山引擎的v4和v4.1都有这个问题
+
+最后还是dsh写了个重复检测插件强制注入提示词终止循环
+
