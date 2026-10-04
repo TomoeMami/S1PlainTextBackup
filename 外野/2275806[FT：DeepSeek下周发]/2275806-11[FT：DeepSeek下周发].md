@@ -9538,3 +9538,13 @@ flash从昨天开始就在疯狂的卡输出，自己在思维链里跟个自闭
 
 也就只能爽这个月了。
 
+
+*****
+
+####  serj005  
+##### 15636#       发表于 2026-10-4 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70318535&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-3 23:17</a>
+flash从昨天开始就在疯狂的卡输出，自己在思维链里跟个自闭儿童一样不停地嗯，输出，嗯，好，输出，然后就 ...</blockquote>
+我也遇到了，之前的4.1没出现这个情况，不知道是这几天ds换模型版本了还是部署出了什么问题。
+
