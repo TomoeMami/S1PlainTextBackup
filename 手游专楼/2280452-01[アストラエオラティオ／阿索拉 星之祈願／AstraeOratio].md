@@ -792,3 +792,22 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 
 话说up池过后会进普池吗？试玩版只有一个up还看不出来
 
+
+*****
+
+####  白金口袋  
+##### 109#       发表于 2026-10-4 11:25
+
+云了下剧情还挺有趣的，不过主任变猫没有后续？应该没看漏吧？反正接下来直接跳到怪谈狩猎但看对话主任是变回人了没错，只能等正式服解释了啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  伊布桑  
+##### 110#       发表于 2026-10-4 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319579&amp;ptid=2280452" target="_blank">白金口袋 发表于 2026-10-4 11:25</a>
+云了下剧情还挺有趣的，不过主任变猫没有后续？应该没看漏吧？反正接下来直接跳到怪谈狩猎但看对话主任是变 ...</blockquote>
+其实就是类似ba那种每个大章讲一队人的编排，第一大章是三小只，第二大章是怪谈狩猎。
+大概是第一大章最后给主任变回来吧
+
