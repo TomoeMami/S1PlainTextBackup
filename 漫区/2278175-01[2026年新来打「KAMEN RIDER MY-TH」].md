@@ -217,3 +217,15 @@
 
 老虎还在善解人意和温柔，这人真能活过圣诞节嘛
 
+
+*****
+
+####  blue321  
+##### 215#       发表于 2026-10-4 17:19
+
+不可思议这东西是随时代变化的啊，十二支这群老东西竟然一点情报都没有……
+
+蛇换成女性变身的话感觉人气会很高啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+狗哥太正派，后续不知道会入队还是拿来给红猫垫了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
