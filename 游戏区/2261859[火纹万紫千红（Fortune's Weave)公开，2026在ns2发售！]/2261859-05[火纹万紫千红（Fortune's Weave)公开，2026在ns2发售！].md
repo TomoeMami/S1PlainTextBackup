@@ -3101,3 +3101,35 @@ twi:@souyou26
 
 还有什么办法去补救解锁么。
 
+
+*****
+
+####  达达葱2  
+##### 6201#       发表于 2026-10-4 12:52
+
+那几个人会群疗的啊
+
+*****
+
+####  onlv星骸  
+##### 6202#       发表于 2026-10-4 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319853&amp;ptid=2261859" target="_blank">风使塞缇 发表于 2026-10-4 12:46</a>
+
+问个问题，确定已经在第一部错过了剑士线隐藏职业的情况下，好像叫什么锻造师。
+
+还有什么办法去补救解锁么 ...</blockquote>
+第一部可以随时回去选章节解锁吧
+
+*****
+
+####  Jabeck  
+##### 6203#       发表于 2026-10-4 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319853&amp;ptid=2261859" target="_blank">风使塞缇 发表于 2026-10-4 12:46</a>
+
+问个问题，确定已经在第一部错过了剑士线隐藏职业的情况下，好像叫什么锻造师。
+
+还有什么办法去补救解锁么 ...</blockquote>
+重开章节只要解锁就可以。
+
