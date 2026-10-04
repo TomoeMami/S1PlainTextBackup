@@ -3264,3 +3264,17 @@ twi:@souyou26
 
 声优是山口胜平
 
+
+*****
+
+####  Humpy  
+##### 6217#       发表于 2026-10-4 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70320509&amp;ptid=2261859" target="_blank">DARK_HGCG 发表于 2026-10-4 16:03</a>
+大刀很强吗
+
+声优是山口胜平</blockquote>
+力防高成长有重破坏个人特性强早期能挖的猛人，转战车转重甲都有数值的美，但是长相和性格都不太讨喜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别说外国人了，就是中国那堆喜欢白鸦新娘的人都不会觉得这个在对白里反复强调那是他女人的人能多受欢迎
+
