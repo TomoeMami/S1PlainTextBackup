@@ -1369,3 +1369,21 @@ AB的2招单体只能说够用，最大亮点是那个扇形MAP，ssp后他是�
 
 也就是说在火力溢出的情况下PVE环境大概会变得更恶心人了
 
+
+*****
+
+####  冰风血羽  
+##### 4835#       发表于 2026-10-4 16:31
+
+<img src="https://img.stage1st.com/forum/202610/04/162713jm8827bftg1wtffv.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1791102432952_1.webp</strong> (120.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-4 16:27 上传
+
+残血掉毛冲上去给哈姆太郎一发大的被反杀后才想起来应该截个图的，前面漏油说的没错这塔真是故意给池子留着的，三星神跟v2ab出大力了。
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

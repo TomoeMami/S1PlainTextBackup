@@ -9570,3 +9570,13 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 
 现在opencode和commandcode哪个值得用？官方API大量写代码还是肉疼
 
+
+*****
+
+####  蜇灵  
+##### 15639#       发表于 2026-10-4 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70318751&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-4 00:34</a>
+这种词有很强烈的回音效果，开始频繁出现就得马上让它写交接文档开新窗口了，压缩都不管用 ...</blockquote>
+原来不是我一个人有这个问题，被这个折磨的我直接把思考关了
+
