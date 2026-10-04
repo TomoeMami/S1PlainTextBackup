@@ -3254,3 +3254,13 @@ twi:@souyou26
 
 —— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DARK_HGCG  
+##### 6216#       发表于 2026-10-4 16:03
+
+大刀很强吗
+
+声优是山口胜平
+
