@@ -473,3 +473,14 @@ SLG格子那种步进位移，用鼠标动起来感觉怪怪的，尤其在快�
 我也不能理解这种模板出来的主机玩家思维，玩游戏自然瞪着屏幕，我用显示屏，不管怎样都是坐在台前玩。 ...</blockquote>
 真的吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mes  
+##### 50#         楼主| 发表于 2026-10-4 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70317241&amp;ptid=2290833" target="_blank">Link213 发表于 2026-10-3 18:31</a>
+
+真的吗</blockquote>
+到底哪个部分不真呢？而且主机那边摆的很乱，平时没事都懒得去玩。
+
