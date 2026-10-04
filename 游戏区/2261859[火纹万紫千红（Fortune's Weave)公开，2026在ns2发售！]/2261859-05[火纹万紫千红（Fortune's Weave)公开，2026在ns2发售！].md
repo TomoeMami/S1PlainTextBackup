@@ -3091,3 +3091,13 @@ twi:@souyou26
 
 同样彷徨之壁，怎么爱娜射程3红花射程才1<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风使塞缇  
+##### 6200#       发表于 2026-10-4 12:46
+
+问个问题，确定已经在第一部错过了剑士线隐藏职业的情况下，好像叫什么锻造师。
+
+还有什么办法去补救解锁么。
+
