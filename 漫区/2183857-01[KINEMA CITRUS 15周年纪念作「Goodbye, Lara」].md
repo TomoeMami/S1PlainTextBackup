@@ -51,3 +51,22 @@
 <img src="https://p.sda1.dev/35/cf5003f668824505cbd6619c81d7ed69/HTdxUsaawAA_e2C.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/35/7c63abc016a7b25cd4aa3efd90d455a6/HSjnM23aUAA61gW.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 630#         楼主| 发表于 2026-10-4 21:54
+
+小里明花
+
+おつララ〜👋
+
+リサとコータがあたたかい光に包まれますように🫶
+
+最終話視聴後のスッキリ感を感じてる人の感想も、もやもやしてる人の感想もどっちもわかる！というw最後のやり取りで説明不足を感じることはなかったけどね。ただいま、おかえりを言うためのさよならだったと思ってます。
+
+ヘビーキネマウォッチャーとしては、かなりキネマの血を感じましたが、キネマオタクのみんなはどうだったろう。
+
+皆さんお疲れ様でした、見てくれた方もありがとう。
+<img src="https://p.sda1.dev/35/a862b727bc165a5015f95fd6321c8703/1000174913.jpg" referrerpolicy="no-referrer">
+
