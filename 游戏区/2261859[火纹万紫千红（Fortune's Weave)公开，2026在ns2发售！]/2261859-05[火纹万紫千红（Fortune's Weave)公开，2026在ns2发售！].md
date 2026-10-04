@@ -2803,3 +2803,21 @@ pmm往死里玩通关了，等视频
 
 安纳托利亚的希腊语词源本来就有日出之地的意思啊
 
+
+*****
+
+####  lost_恩恩  
+##### 6171#       发表于 2026-10-4 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70317271&amp;ptid=2261859" target="_blank">hkguty 发表于 2026-10-3 18:42</a>
+
+限定的终于到了，别人都玩完通关了，第一条线是不是选A少比较好？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">第一条开了凯伊的我人都麻了，忙不完的事，资金也不够，时间管理也费劲
+
+*****
+
+####  oniwarud  
+##### 6172#       发表于 2026-10-4 09:42
+
+新娘的这个名字寓意很多，安纳托利亚高原是拜占庭的核心区域，现实中的拜占庭1453年灭亡，游戏中是1454年白鸟如闪电般归来光复鞑古扎。新娘的具体剧情得等dlc补完了，现在那几个里主角参加大剑斗祭的愿望都不清楚。
+

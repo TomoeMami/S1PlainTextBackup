@@ -1732,3 +1732,22 @@ wiki上说5个祠堂后可以去湾岸市场隐藏商店买晶纹，这个入口
 这个首饰怎么拿，我把花田洞窟负一楼的所有宝箱开了都没有</blockquote>
 你看下wiki
 
+
+*****
+
+####  麦吉卡  
+##### 129#       发表于 2026-10-4 09:42
+
+<blockquote>blackll7 发表于 2026-10-3 23:39
+你看下wiki</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/04/094200iy2vylg2rp3rgzr9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-10-04-09-41-22-502_com.quark.browser-edit.jpg</strong> (25.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-4 09:42 上传
+
+就是这个，我把洞窟负一楼找遍了也没有，就是有一个风火恶魔的那一层
+
