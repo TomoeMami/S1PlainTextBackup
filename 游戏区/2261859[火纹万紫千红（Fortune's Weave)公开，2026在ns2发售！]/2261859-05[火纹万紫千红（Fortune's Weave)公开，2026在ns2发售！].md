@@ -4167,3 +4167,23 @@ a少线除了任务需要基本可以忘了采集这件事（
 在第2区分 武僧支线任务的前置任务是完成“盛托利翁的救援请求” ；复兴欧若拉神殿 ...</blockquote>
 这个我看到了，但是接不到，就没有那人
 
+
+*****
+
+####  skyfall_tr  
+##### 6298#       发表于 2026-10-5 03:57
+
+蕾达写的是啥啊，你们都在表演川剧变脸吗，还不止一次。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  纯夏  
+##### 6299#       发表于 2026-10-5 03:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70322508&amp;ptid=2261859" target="_blank">duraa 发表于 2026-10-5 03:42</a>
+
+这个我看到了，但是接不到，就没有那人</blockquote>
+“盛托利翁的救援请求” 这个支线任务你得通了凯伊线才能触发 
+
