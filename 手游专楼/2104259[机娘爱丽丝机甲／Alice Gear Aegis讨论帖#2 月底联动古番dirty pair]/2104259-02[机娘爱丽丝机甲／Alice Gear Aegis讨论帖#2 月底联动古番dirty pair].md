@@ -76,3 +76,11 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 2140#         楼主| 发表于 2026-10-4 11:39
+
+抽到了OD大凤。话说这热量条和子机的设计，要连续按出攻击才能打出后面的高伤攻击，比如说射击是最容易的，一直射就OK。但按平常近战平A+取消的按法，子机的高段数攻击是打不出来的，热量条也涨得很慢。招笑的是见到热量条快满了大凤来个蓄力射击就能立刻清空<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

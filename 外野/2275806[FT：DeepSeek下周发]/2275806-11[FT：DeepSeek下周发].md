@@ -9562,3 +9562,11 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 该说是 ...</blockquote>
 这不是个路由吗？
 
+
+*****
+
+####  UncleDracula  
+##### 15638#       发表于 2026-10-4 11:41
+
+现在opencode和commandcode哪个值得用？官方API大量写代码还是肉疼
+
