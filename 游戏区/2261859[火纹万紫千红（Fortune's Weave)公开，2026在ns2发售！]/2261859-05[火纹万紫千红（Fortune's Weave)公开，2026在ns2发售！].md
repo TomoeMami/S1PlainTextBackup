@@ -3597,3 +3597,18 @@ A少怎么刷声望，感觉杀野怪效率好低</blockquote>
 
 这堆箱子有快速打开的方式吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Milkyway  
+##### 6247#       发表于 2026-10-4 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321424&amp;ptid=2261859" target="_blank">Aresu 发表于 2026-10-4 20:39</a>
+
+首先第一部没必要转飞马 凯线要声望10才来 其他线转飞马对比亚历山德拉没有优势
+
+蕾达线是她唯一够时间在 ...</blockquote>
+...还有这种思路，不过她白魔有远疗有传送确实很实用
+
+这么说转圣枪也可以？
+
