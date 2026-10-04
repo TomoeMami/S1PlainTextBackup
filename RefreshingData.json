@@ -12416,7 +12416,7 @@
     "newtitle": "[索尼playstation一号楼，港服四月一档会员免费游戏公布]",
     "lastedit": 1790895244,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2252759": {
@@ -13050,10 +13050,10 @@
     "update": false
   },
   "2269426": {
-    "totalreply": 1191,
+    "totalreply": 1192,
     "title": "[皇牌空战系列新作《皇牌空战8：希孚之翼》正式公开！2026年发售]",
     "newtitle": "[皇牌空战系列新作《皇牌空战8：希孚之翼》正式公开！2026年发售]",
-    "lastedit": 1791152165,
+    "lastedit": 1791154325,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13860,19 +13860,19 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 23467,
+    "totalreply": 23468,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1791153365,
+    "lastedit": 1791154685,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
   },
   "2288933": {
-    "totalreply": 525,
+    "totalreply": 526,
     "title": "[俄乌9月楼]",
     "newtitle": "[俄乌10月楼]",
-    "lastedit": 1791101526,
+    "lastedit": 1791154205,
     "category": "外野",
     "active": true,
     "update": false
@@ -17536,6 +17536,15 @@
     "title": "[我感觉国内关于国外舆论的信息渠道已经被X垄断了]",
     "newtitle": "[我感觉国内关于国外舆论的信息渠道已经被X垄断了]",
     "lastedit": 1791153005,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2290142": {
+    "totalreply": 41,
+    "title": "[你们认识的身边有钱人破产的多吗]",
+    "newtitle": "[你们认识的身边有钱人破产的多吗]",
+    "lastedit": 1791154205,
     "category": "外野",
     "active": true,
     "update": false
