@@ -3278,3 +3278,11 @@ twi:@souyou26
 
 别说外国人了，就是中国那堆喜欢白鸦新娘的人都不会觉得这个在对白里反复强调那是他女人的人能多受欢迎
 
+
+*****
+
+####  索非亚  
+##### 6218#       发表于 2026-10-4 16:16
+
+还是得转贤士啊，普通黑魔法哪有沙拉曼达好使<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
