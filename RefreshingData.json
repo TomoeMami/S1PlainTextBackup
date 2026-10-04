@@ -6543,10 +6543,10 @@
     "update": false
   },
   "2089646": {
-    "totalreply": 2853,
+    "totalreply": 2855,
     "title": "[药屋少女的呢喃 TV动画化 2023年10月]",
     "newtitle": "[药屋少女的呢喃 TV动画化 2023年10月 剧透请反白]",
-    "lastedit": 1791085567,
+    "lastedit": 1791086166,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9239,7 +9239,7 @@
     "newtitle": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
     "lastedit": 1790826486,
     "category": "手游战斗",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2192962": {
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 46227,
+    "totalreply": 46229,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1791084606,
+    "lastedit": 1791086166,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11178,10 +11178,10 @@
     "update": false
   },
   "2071758": {
-    "totalreply": 4833,
+    "totalreply": 4834,
     "title": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
     "newtitle": "[《SD高达G世纪永恒》 S1游戏讨论群：9314964]",
-    "lastedit": 1791081126,
+    "lastedit": 1791086166,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12024,10 +12024,10 @@
     "update": false
   },
   "2261859": {
-    "totalreply": 6179,
+    "totalreply": 6181,
     "title": "[火纹万紫千红（Fortune's Weave)公开，2026在ns2发售！]",
     "newtitle": "[火纹万紫千红（Fortune's Weave)公开，2026.9.17在ns2发售！／8.4晚22点专场nd]",
-    "lastedit": 1791085568,
+    "lastedit": 1791086166,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13869,10 +13869,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 22956,
+    "totalreply": 22965,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1791085570,
+    "lastedit": 1791086284,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14440,15 +14440,6 @@
     "title": "[男子连用十几个西瓜砸摊主头部，摊主全程未起身还手，夫妻被拘留罚款后赔偿近7万元]",
     "newtitle": "[男子连用十几个西瓜砸摊主头部，摊主全程未起身还手，夫妻被拘留罚款后赔偿近7万元]",
     "lastedit": 1790142847,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2290089": {
-    "totalreply": 163,
-    "title": "[失业率上热搜。。]",
-    "newtitle": "[失业率上热搜。。]",
-    "lastedit": 1789876099,
     "category": "外野",
     "active": false,
     "update": false
@@ -17154,10 +17145,10 @@
     "update": false
   },
   "2290844": {
-    "totalreply": 172,
+    "totalreply": 173,
     "title": "[X上热议：中国人在海外缺乏安全意识，像一群不知道天敌存在的渡渡鸟]",
     "newtitle": "[X上热议：中国人在海外缺乏安全意识，像一群不知道天敌存在的渡渡鸟]",
-    "lastedit": 1791084727,
+    "lastedit": 1791086045,
     "category": "外野",
     "active": true,
     "update": false
@@ -17199,10 +17190,10 @@
     "update": false
   },
   "2290806": {
-    "totalreply": 116,
+    "totalreply": 117,
     "title": "[空前绝后的性转马尔福热潮]",
     "newtitle": "[空前绝后的性转马尔福热潮]",
-    "lastedit": 1791084606,
+    "lastedit": 1791085806,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17568,10 +17559,10 @@
     "update": false
   },
   "2290946": {
-    "totalreply": 69,
+    "totalreply": 71,
     "title": "[万代派几个人在WF展挨个摊位要求国模撤展]",
     "newtitle": "[万代派几个人在WF展挨个摊位要求国模撤展]",
-    "lastedit": 1791085569,
+    "lastedit": 1791086045,
     "category": "外野",
     "active": true,
     "update": false
@@ -17600,6 +17591,15 @@
     "newtitle": "[脑洞学生会 TV动画化]",
     "lastedit": 1791083526,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2201788": {
+    "totalreply": 42,
+    "title": "[【AT1】魔塔大陆汉化发布 v1.0（20241012更新补丁）]",
+    "newtitle": "[【AT1】魔塔大陆汉化发布 v1.0（20241012更新补丁）]",
+    "lastedit": 1791085925,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
