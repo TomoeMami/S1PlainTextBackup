@@ -4104,3 +4104,13 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 本质还是考验抗线大哥能力，或者说队伍短板有多短，奶妈这些被突是真没脾气（客观说第三章强度是挺高，我最强的a少都没法彻底单扛，该开老妈加护还是得开的
 
+
+*****
+
+####  jockeyjoestar  
+##### 6291#       发表于 2026-10-5 02:08
+
+[https://docs.google.com/spreadsh ... 16638#gid=439416638](https://docs.google.com/spreadsheets/d/1YW5AdvPUbLPr1RAGlnotcRaNTFCQPTKiIgshwrcdUtE/edit?pli=1&amp;gid=439416638#gid=439416638)
+
+技能表只找到了英文版  咆啸虎好像也有重甲移动+  惊了。
+
