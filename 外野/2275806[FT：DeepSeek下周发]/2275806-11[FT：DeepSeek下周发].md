@@ -9525,3 +9525,16 @@ flash从昨天开始就在疯狂的卡输出，自己在思维链里跟个自闭
 论坛助手,iPhone ...</blockquote>
 是模型自己的问题，上下文超出一定长度容易发生
 
+
+*****
+
+####  Gmlazy  
+##### 15635#       发表于 2026-10-4 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319221&amp;ptid=2275806" target="_blank">Sontag 发表于 2026-10-4 09:17</a>
+
+6.1astra又要来了，准备正面大战fable 5.5。但现在砍了又砍的额度感觉根本用不起astra，5x用起astra感觉跟 ...</blockquote>
+20x也觉得用的很快，感觉比最初的时候消耗得快的多。
+
+也就只能爽这个月了。
+
