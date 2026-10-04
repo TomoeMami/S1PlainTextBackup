@@ -4146,3 +4146,14 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 第三章最上级那些隐藏职业是不是和你打没打哪条线还有关系啊，我没打凯伊线接不到解锁武僧的任务<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯夏  
+##### 6296#       发表于 2026-10-5 03:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70322483&amp;ptid=2261859" target="_blank">duraa 发表于 2026-10-5 02:45</a>
+
+第三章最上级那些隐藏职业是不是和你打没打哪条线还有关系啊，我没打凯伊线接不到解锁武僧的任务 ...</blockquote>
+在第2区分 武僧支线任务的前置任务是完成“盛托利翁的救援请求” ；复兴欧若拉神殿
+
