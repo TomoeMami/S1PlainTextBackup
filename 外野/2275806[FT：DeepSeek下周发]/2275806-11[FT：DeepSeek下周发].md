@@ -9512,3 +9512,16 @@ flash从昨天开始就在疯狂的卡输出，自己在思维链里跟个自闭
 
 6.1astra又要来了，准备正面大战fable 5.5。但现在砍了又砍的额度感觉根本用不起astra，5x用起astra感觉跟流水一样.....
 
+
+*****
+
+####  nxmonitor  
+##### 15634#       发表于 2026-10-4 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319123&amp;ptid=2275806" target="_blank">goranger 发表于 2026-10-4 08:17</a>
+
+一晚上遇到好多次，额度蹭蹭掉，是4.1的问题还是第三方量化的问题？
+
+论坛助手,iPhone ...</blockquote>
+是模型自己的问题，上下文超出一定长度容易发生
+
