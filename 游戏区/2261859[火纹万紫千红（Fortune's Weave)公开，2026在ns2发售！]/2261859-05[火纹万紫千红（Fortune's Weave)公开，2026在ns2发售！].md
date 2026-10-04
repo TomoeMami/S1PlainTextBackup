@@ -3658,3 +3658,45 @@ A少怎么刷声望，感觉杀野怪效率好低</blockquote>
 
 假如你的主角等级高于42反而吃亏
 
+
+*****
+
+####  风祭果凛  
+##### 6251#       发表于 2026-10-4 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321573&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-10-4 21:10</a>
+
+打完了迪特里希篇，怎么马兹是个走地龙感觉排面不够大，打完迪特里希疯狂升级完全压不住一点
+
+这篇剧情我是 ...</blockquote>
+a少线升级太简单了，而且他太强了，一不注意容易一个人清图，我打完第一部时a少记得就已经45了（马兹记忆里是碾过去的
+
+以及这条线应该是公认剧情最好的线了，一方面经典旁观者反而深入世界观最多，一方面角色刻画没有主线钳制反而比较深入，光海王这场的角色刻画都是某些角色的一辈子了。
+
+但也依然有篇幅问题，一些情感铺垫少了，也就出现了你说的少了狂气的问题，有了牵绊所以没有踏入深渊这个主题的表现确实差了口气。
+
+*****
+
+####  纯夏  
+##### 6252#       发表于 2026-10-4 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321432&amp;ptid=2261859" target="_blank">Aresu 发表于 2026-10-4 20:41</a>
+
+坐骑加成有的 只是坐骑不让装卸 只有自带坐骑的人能享受加成</blockquote>
+凯伊线战车兵拉满成长率到140 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以其他线自带坐骑的角色成长率也可以拉到140的？
+
+*****
+
+####  Aresu  
+##### 6253#       发表于 2026-10-4 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321544&amp;ptid=2261859" target="_blank">Milkyway 发表于 2026-10-4 21:02</a>
+...还有这种思路，不过她白魔有远疗有传送确实很实用
+
+这么说转圣枪也可以？ ...</blockquote>
+武僧比拿枪多了格斗回避 还有加回避的两格魔法武器 职业的速度补正也高一点 卡塔妮雅个人技对速度又要求
+
+如果能学到很强的枪战技倒是可以玩 不过这种速度型角色基本学不到攻击性太强的战技
+
