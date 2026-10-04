@@ -3345,3 +3345,15 @@ A少怎么刷声望，感觉杀野怪效率好低</blockquote>
 
 第一部要进行高级职业转职吗？还是留到第二部？
 
+
+*****
+
+####  Aresu  
+##### 6226#       发表于 2026-10-4 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70320980&amp;ptid=2261859" target="_blank">聊nsy专用号 发表于 2026-10-4 18:23</a>
+凯线以外自带坐骑的角色也可以通过转战车拉成长率吗
+
+迪少线最容易招的骑士的骑兵成长率好像没有特殊之处 ...</blockquote>
+可以 也就io一个人的坐骑转战车能用
+

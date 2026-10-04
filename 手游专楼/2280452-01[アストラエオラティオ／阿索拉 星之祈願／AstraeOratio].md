@@ -844,3 +844,11 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 
 特别是护士感觉头发都要融化到背景里去了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 114#       发表于 2026-10-4 18:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">怎么又有这狗屎圣遗物啊....到底有什么好抄的
+

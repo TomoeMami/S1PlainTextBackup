@@ -9589,3 +9589,13 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 崔添翼跑知乎带A/Z/节奏去了(不是)<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <blockquote>DeepSeek Harness 的核心理念是“一切皆插件”，这个理念是从立项之初、写第一行代码之前就确立下来的，正如“开源”的理念是从 DeepSeek 成立之初、发布第一个模型之前就确立下来的一样。开源是我们的初心，不是被迫开源的。让我们的 Agent Harness 产品以开放、开源的方式具备尽量极致的可扩展性，也是我们的初心，并不是被迫或模仿别人才做开放可扩展的。</blockquote>
 
+
+*****
+
+####  tillnight  
+##### 15641#       发表于 2026-10-4 18:56
+
+<blockquote>UncleDracula 发表于 2026-10-4 11:41
+现在opencode和commandcode哪个值得用？官方API大量写代码还是肉疼</blockquote>
+体感比官方api都有明显降智。看降智后的是不是满足你的项目需求，能满足就相当于没降智。就两家之间而言，oc理论上是官方合作伙伴，部署的水平应该更高，但oc实际没有自部署的能力，本质还是采购的第三方，所以其实两者在抽到非官方源（说实话我觉得现在可能已经抽不到官方源了）时的降智程度应该差不多。
+
