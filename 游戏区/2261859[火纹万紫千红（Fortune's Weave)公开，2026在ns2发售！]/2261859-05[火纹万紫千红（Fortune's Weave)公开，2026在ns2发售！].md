@@ -3302,3 +3302,14 @@ twi:@souyou26
 
 A少怎么刷声望，感觉杀野怪效率好低
 
+
+*****
+
+####  hl氏  
+##### 6221#       发表于 2026-10-4 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70320829&amp;ptid=2261859" target="_blank">hkguty 发表于 2026-10-4 17:40</a>
+
+A少怎么刷声望，感觉杀野怪效率好低</blockquote>
+不急，可以打最多外传的男人，好像10月就满了
+
