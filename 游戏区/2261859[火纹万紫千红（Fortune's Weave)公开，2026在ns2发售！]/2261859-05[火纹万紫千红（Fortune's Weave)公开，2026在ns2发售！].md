@@ -3243,3 +3243,14 @@ twi:@souyou26
 
 不过按产能来说，除非4条线已经是差不多完成了，只是从游戏性上考虑砍掉4条，不然的话就算有半年也做不完把
 
+
+*****
+
+####  mull132  
+##### 6215#       发表于 2026-10-4 15:53
+
+第三部黑魔法就是区<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">没有远疗的都可以仓库了，换几个远疗的圣枪手还能扛线
+我看不如让主角来用雷电剑吧<img src="https://static.stage1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">想想是转圣天马还是烈骏神将，烈骏神将攻防高，高阶墓志铭魔成长高，黑圣天马速高能飞，这么说刃辉神将也很好啊就是腿短点
+
+—— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
