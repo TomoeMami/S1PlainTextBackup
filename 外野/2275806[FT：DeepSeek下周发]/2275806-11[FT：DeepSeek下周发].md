@@ -9471,3 +9471,21 @@ flash从昨天开始就在疯狂的卡输出，自己在思维链里跟个自闭
 
 这个水过没，让模型根据经纬度判断陆地还是海洋
 
+
+*****
+
+####  goranger  
+##### 15631#       发表于 2026-10-4 08:17
+
+<img src="https://img.stage1st.com/forum/202610/04/081622sax9jiw7niwjlx88.jpg" referrerpolicy="no-referrer">
+
+<strong>img_9312.jpg</strong> (718.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-4 08:16 上传
+
+一晚上遇到好多次，额度蹭蹭掉，是4.1的问题还是第三方量化的问题？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
