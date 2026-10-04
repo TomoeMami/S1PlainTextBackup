@@ -3534,3 +3534,38 @@ A少怎么刷声望，感觉杀野怪效率好低</blockquote>
 为啥我的穆力量还没蕾达高 主力位置都快没了</blockquote>
 你早点从土匪转勇士 不会缺力量成长的
 
+
+*****
+
+####  Humpy  
+##### 6241#       发表于 2026-10-4 20:38
+
+开始打蕾妲线，上来挖古大哥就给我来了个开门红<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/a945bd886d8a885acbea8cba4d2ec843/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aresu  
+##### 6242#       发表于 2026-10-4 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321266&amp;ptid=2261859" target="_blank">Milkyway 发表于 2026-10-4 20:00</a>
+蕾达线是第一条线的卡塔尼娅怎么培养比较好？
+
+蕾达线前排有穆、古扎岚，罗蕾塔加入也早感，觉定位重复的人 ...</blockquote>
+首先第一部没必要转飞马 凯线要声望10才来 其他线转飞马对比亚历山德拉没有优势
+
+蕾达线是她唯一够时间在斗技场刷出传送的线 真要用就玩法师 其他线拉一点速度 最后转武僧或者骑黑天马当回避t
+
+代价就是圣吸姐和希洛克有一个人的高级魔法要去其他线拿 推荐圣吸姐去迪线练 反正卡塔妮雅也有远回复
+
+*****
+
+####  Aresu  
+##### 6243#       发表于 2026-10-4 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321238&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-4 19:53</a>
+其他线转的话 除了战车兵的固有成长技能以外
+
+是没有凯伊线给战车装备坐骑时的成长率加成翻倍的 ...</blockquote>
+坐骑加成有的 只是坐骑不让装卸 只有自带坐骑的人能享受加成
+
