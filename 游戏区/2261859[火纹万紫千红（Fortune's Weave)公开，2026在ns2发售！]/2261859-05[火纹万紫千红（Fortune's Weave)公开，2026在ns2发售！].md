@@ -3294,3 +3294,11 @@ twi:@souyou26
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉第三章需要纯职射手了，雷达42技巧射飞马只有6成命中，还好队伍里有魔弓姐走的宗师射手
 
+
+*****
+
+####  hkguty  
+##### 6220#       发表于 2026-10-4 17:40
+
+A少怎么刷声望，感觉杀野怪效率好低
+
