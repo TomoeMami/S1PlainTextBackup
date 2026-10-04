@@ -3832,3 +3832,24 @@ a少线升级太简单了，而且他太强了，一不注意容易一个人清�
 
 45级之后就是这个数值了
 
+
+*****
+
+####  ShitOverflow  
+##### 6264#       发表于 2026-10-4 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321718&amp;ptid=2261859" target="_blank">风祭果凛 发表于 2026-10-4 21:43</a>
+
+莉莉安确实血菜……这里确实有点设计问题，剧情上加入了，但实际你还要去正常走一次招募流程，城里没有就 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">露露，佩佩，莉莉这仨适合转舞者，只是这代舞者解放的太晚了，第一部也根本用不上雷达跳舞
+
+*****
+
+####  陆久舟  
+##### 6265#       发表于 2026-10-4 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321573&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-10-4 21:10</a>
+打完了迪特里希篇，怎么马兹是个走地龙感觉排面不够大，打完迪特里希疯狂升级完全压不住一点
+这篇剧情我是 ...</blockquote>
+主要秘传全是迪哥一个人去打的，经验全拿根本压不住
+

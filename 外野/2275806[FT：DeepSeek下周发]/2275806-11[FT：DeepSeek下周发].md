@@ -9599,3 +9599,14 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 现在opencode和commandcode哪个值得用？官方API大量写代码还是肉疼</blockquote>
 体感比官方api都有明显降智。看降智后的是不是满足你的项目需求，能满足就相当于没降智。就两家之间而言，oc理论上是官方合作伙伴，部署的水平应该更高，但oc实际没有自部署的能力，本质还是采购的第三方，所以其实两者在抽到非官方源（说实话我觉得现在可能已经抽不到官方源了）时的降智程度应该差不多。
 
+
+*****
+
+####  UncleDracula  
+##### 15642#       发表于 2026-10-4 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321098&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-4 18:56</a>
+
+体感比官方api都有明显降智。看降智后的是不是满足你的项目需求，能满足就相当于没降智。就两家之间而言 ...</blockquote>
+感谢解答，再请教下4.1flash的正确用法到底是high还是max？感觉max加上顾问插件，就是卧龙凤雏凑齐了的体验，现在都是用high了，但还是感觉笨笨的
+
