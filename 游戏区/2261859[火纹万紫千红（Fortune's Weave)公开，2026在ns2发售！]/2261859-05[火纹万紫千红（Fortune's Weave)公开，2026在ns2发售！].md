@@ -2653,3 +2653,22 @@ pmm往死里玩通关了，等视频
 
 八选四不就为了每个角色专属系统可以带到最后一部这个框架的饺子醋吗，商人和新娘特殊系统跑商占卜听着就没意思，贝特兰只能宅家玩背包整理了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 6158#       发表于 2026-10-4 07:52
+
+贝特兰除了人强三观正以外就不适合做主角，他做主角得从入狱前开始
+
+凯伊和雷达才是最有主角味的
+
+*****
+
+####  哌啶  
+##### 6159#       发表于 2026-10-4 07:55
+
+白发可以让盖茨在外面跑<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX733J, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
