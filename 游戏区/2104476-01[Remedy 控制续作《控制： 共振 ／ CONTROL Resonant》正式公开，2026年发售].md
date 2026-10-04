@@ -2344,3 +2344,13 @@ RenoDX更新了
 
 差点找不到专楼，在S1好没人气
 
+
+*****
+
+####  Leona_Akari  
+##### 230#       发表于 2026-10-5 01:08
+
+这游戏的光追是不是有点问题，没光源的地方那是一点都看不见一片漆黑。。。<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+我显卡虽然拉到极致有点累，但是拉到高还是没啥问题的，应该不是配置问题
+
