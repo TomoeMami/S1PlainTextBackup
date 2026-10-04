@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 21336,
+    "totalreply": 21337,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼10月]",
-    "lastedit": 1791090728,
+    "lastedit": 1791093846,
     "category": "外野",
     "active": true,
     "update": false
@@ -12992,7 +12992,7 @@
     "newtitle": "[极限竞速地平线6 日本背景，2026／5／19发售]",
     "lastedit": 1790834527,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2255762": {
@@ -13064,7 +13064,7 @@
     "newtitle": "[魔法少女奈叶 20周年完全新作TV动画始动]",
     "lastedit": 1790834286,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2202324": {
@@ -13653,10 +13653,10 @@
     "update": false
   },
   "2287573": {
-    "totalreply": 558,
+    "totalreply": 562,
     "title": "[有没有更多的蓝色大肥鱼]",
     "newtitle": "[有没有更多的蓝色大肥鱼]",
-    "lastedit": 1791093366,
+    "lastedit": 1791094086,
     "category": "外野",
     "active": true,
     "update": false
@@ -13869,10 +13869,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 23094,
+    "totalreply": 23098,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1791093366,
+    "lastedit": 1791093725,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14499,10 +14499,10 @@
     "update": false
   },
   "2017380": {
-    "totalreply": 337,
+    "totalreply": 338,
     "title": "[开个逻辑解谜游戏（Thinky Puzzle）的楼，Maxwell's puzzling demon 8.30]",
     "newtitle": "[开个逻辑解谜游戏（Thinky Puzzle）的楼，Maxwell's puzzling demon 8.30]",
-    "lastedit": 1790892966,
+    "lastedit": 1791093605,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16326,10 +16326,10 @@
     "update": false
   },
   "2290522": {
-    "totalreply": 348,
+    "totalreply": 349,
     "title": "[2026亚运会男足成绩预测（时隔28年重返亚运四强）]",
     "newtitle": "[2026亚运会男足成绩预测（国足已夺得铜牌！）]",
-    "lastedit": 1791076085,
+    "lastedit": 1791094085,
     "category": "外野",
     "active": true,
     "update": false
@@ -17361,10 +17361,10 @@
     "update": false
   },
   "2290825": {
-    "totalreply": 53,
+    "totalreply": 54,
     "title": "[2026年10月网文推荐交流互助楼]",
     "newtitle": "[2026年10月网文推荐交流互助楼]",
-    "lastedit": 1791077045,
+    "lastedit": 1791093846,
     "category": "外野",
     "active": true,
     "update": false
@@ -17604,11 +17604,20 @@
     "update": false
   },
   "2290978": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "[我们到底在游戏中逃避什么]",
     "newtitle": "[我们到底在游戏中逃避什么]",
-    "lastedit": 1791092406,
+    "lastedit": 1791093965,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2282455": {
+    "totalreply": 57,
+    "title": "[26年10月《兽王武神DANDIVINE》GSC投拍的原创机器人动画 监督：曹毅 脚本：井上敏树]",
+    "newtitle": "[26年10月《兽王武神DANDIVINE》GSC投拍的原创机器人动画 监督：曹毅 脚本：井上敏树]",
+    "lastedit": 1791093725,
+    "category": "漫区",
     "active": true,
     "update": false
   }
