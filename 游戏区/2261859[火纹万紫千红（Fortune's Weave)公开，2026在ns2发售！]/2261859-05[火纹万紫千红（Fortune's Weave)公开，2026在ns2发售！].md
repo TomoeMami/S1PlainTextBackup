@@ -3491,3 +3491,46 @@ A少怎么刷声望，感觉杀野怪效率好低</blockquote>
 剑客→侍道→刀剑将领</blockquote>
 蕾达第一条线的话，高级职业没有解锁驭龙；并且蕾达线适合转剑圣的人太多了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯夏  
+##### 6237#       发表于 2026-10-4 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321364&amp;ptid=2261859" target="_blank">Milkyway 发表于 2026-10-4 20:22</a>
+
+蕾达第一条线的话，高级职业没有解锁驭龙；并且蕾达线适合转剑圣的人太多了 ...</blockquote>
+她本来在第1部发挥空间不大
+
+让她转天马游击也挺合适的
+
+*****
+
+####  Milkyway  
+##### 6238#       发表于 2026-10-4 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321343&amp;ptid=2261859" target="_blank">风祭果凛 发表于 2026-10-4 20:19</a>
+
+雷达线的穆和古哥基本上最后进第三部也是主力前排底子，导致资源倾斜基本给不太到其他人。
+
+而卡妹的成长 ...</blockquote>
+好像确实适合转个荣光骑士凑合一下了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mjzs07  
+##### 6239#       发表于 2026-10-4 20:32
+
+为啥我的穆力量还没蕾达高 主力位置都快没了
+
+*****
+
+####  纯夏  
+##### 6240#       发表于 2026-10-4 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321400&amp;ptid=2261859" target="_blank">mjzs07 发表于 2026-10-4 20:32</a>
+
+为啥我的穆力量还没蕾达高 主力位置都快没了</blockquote>
+你早点从土匪转勇士 不会缺力量成长的
+
