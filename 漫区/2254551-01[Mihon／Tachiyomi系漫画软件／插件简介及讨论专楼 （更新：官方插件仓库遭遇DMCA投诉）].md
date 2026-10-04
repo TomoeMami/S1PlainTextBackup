@@ -2293,3 +2293,13 @@ tachiyomij2k本地怎么无法读取了，文件夹位置都是对的，鸿蒙�
 
 一直在用着matepad11和tachiyomiSY来看，但是现在连更新插件都禁止安装了，很恶心
 
+
+*****
+
+####  acejoe  
+##### 202#       发表于 2026-10-4 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70320493&amp;ptid=2254551" target="_blank">银鍠吞佛 发表于 2026-10-4 15:58</a>
+一直在用着matepad11和tachiyomiSY来看，但是现在连更新插件都禁止安装了，很恶心 ...</blockquote>
+安装开始出现就断网，我就这样安装的
+
