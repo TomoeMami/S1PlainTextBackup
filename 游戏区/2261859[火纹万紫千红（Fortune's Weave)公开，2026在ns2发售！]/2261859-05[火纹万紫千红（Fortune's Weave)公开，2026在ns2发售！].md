@@ -3173,3 +3173,11 @@ twi:@souyou26
 还有什么办法去补救解锁么 ...</blockquote>
 重回前面关卡收集材料搞10次就行了，职业解锁挺宽松的，只要解锁那一刻就整个存档解锁了
 
+
+*****
+
+####  Jabeck  
+##### 6207#       发表于 2026-10-4 14:24
+
+第二部第一章女王那个战象冲击的战术是穿插吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
