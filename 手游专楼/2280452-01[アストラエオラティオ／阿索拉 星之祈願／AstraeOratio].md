@@ -834,3 +834,13 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · にゃー
 
+
+*****
+
+####  iuiuk2  
+##### 113#       发表于 2026-10-4 13:41
+
+每次看的这个角色介绍的神秘黑灰背景都绷不住，没人觉得这对黑发角色纯纯死亡背景吗
+
+特别是护士感觉头发都要融化到背景里去了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
