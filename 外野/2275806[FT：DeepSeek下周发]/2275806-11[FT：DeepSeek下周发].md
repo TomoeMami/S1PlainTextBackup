@@ -9652,3 +9652,25 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 呃，上级模型有啥便宜大碗的推荐么，自己做项目，代码量太大，几个主流的都用不起了 ...</blockquote>
 基本除了A/O的订阅都比ds41f贵
 
+
+*****
+
+####  jinuzuktII  
+##### 15647#       发表于 2026-10-5 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321865&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-4 22:34</a>
+
+呃，上级模型有啥便宜大碗的推荐么，自己做项目，代码量太大，几个主流的都用不起了 ...</blockquote>
+便宜大碗还真就是GPT了
+
+
+*****
+
+####  nxmonitor  
+##### 15648#       发表于 2026-10-5 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321797&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-4 22:10</a>
+
+感谢解答，再请教下4.1flash的正确用法到底是high还是max？感觉max加上顾问插件，就是卧龙凤雏凑齐了的体 ...</blockquote>
+可以试试提示词大法，先来个角色扮演靠这个能提升性能
+

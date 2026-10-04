@@ -3977,3 +3977,19 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 敌人配置几乎全是速度高的职业，往树林一钻我方练度低一点的单位命中率全部不过50还要被追击<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  索非亚  
+##### 6280#       发表于 2026-10-5 00:22
+
+本作弓手的命运，就是被哥来亚斯狠狠钳制，无法挣脱<img src="https://static.stage1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/05/002152f61nttlyfgd1mh8z.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1791130911695_1.webp</strong> (239.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 00:21 上传
+
