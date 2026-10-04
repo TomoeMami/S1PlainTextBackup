@@ -824,3 +824,13 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 大概是第一大章最 ...</blockquote>
 原来如此，没玩过BA所以不知道是这种形式<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雨宿绘空事  
+##### 112#       发表于 2026-10-4 13:09
+
+说起来这男主变猫和粉毛女主的设定怎么那么有「黑猫与魔女的教室」的既视感 能不能也复刻下亲皮燕子变回来的操作<img src="https://static.stage1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · にゃー
+
