@@ -3447,3 +3447,47 @@ A少怎么刷声望，感觉杀野怪效率好低</blockquote>
 
 剑客→侍道→刀剑将领
 
+
+*****
+
+####  hl氏  
+##### 6234#       发表于 2026-10-4 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321254&amp;ptid=2261859" target="_blank">hkguty 发表于 2026-10-4 19:57</a>
+
+这部野外探索不吃饭露营的话不回复hp和魔法次数，hp就算了，魔法次数不回复是不是对法系有点不公平，物理系 ...</blockquote>
+做血量魔法管理也是游戏性的一环，我挺喜欢的，不过迪线外不太明显
+
+*****
+
+####  风祭果凛  
+##### 6235#       发表于 2026-10-4 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321266&amp;ptid=2261859" target="_blank">Milkyway 发表于 2026-10-4 20:00</a>
+
+蕾达线是第一条线的卡塔尼娅怎么培养比较好？
+
+蕾达线前排有穆、古扎岚，罗蕾塔加入也早感，觉定位重复的人 ...</blockquote>
+雷达线的穆和古哥基本上最后进第三部也是主力前排底子，导致资源倾斜基本给不太到其他人。
+
+而卡妹的成长率不特化的话，基本上注定最后是个拿雷电剑当高速游击的命（其实还挺强的，算是我队伍里第二梯队，偶尔能掏出来玩玩的）
+
+但第一部确实没她什么发挥空间，而且上级飞兵只有飞龙和神驼（算飞但不是飞），但雷达第一条线都解锁不了，实在很喜欢就转个骑兵练练武器经验，要么就战车挂着等级，用周活给她刷飞兵经验
+
+考虑到她的特性，战未来可以考虑转速度成长最高的职业，吧
+
+
+*****
+
+####  Milkyway  
+##### 6236#       发表于 2026-10-4 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321307&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-4 20:09</a>
+
+卡塔尼娅
+
+天马→驭龙兵→圣天马
+
+剑客→侍道→刀剑将领</blockquote>
+蕾达第一条线的话，高级职业没有解锁驭龙；并且蕾达线适合转剑圣的人太多了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
