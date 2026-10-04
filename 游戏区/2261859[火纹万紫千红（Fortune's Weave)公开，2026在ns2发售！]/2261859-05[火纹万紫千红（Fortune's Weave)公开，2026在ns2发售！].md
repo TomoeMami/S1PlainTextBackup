@@ -4114,3 +4114,11 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 技能表只找到了英文版  咆啸虎好像也有重甲移动+  惊了。
 
+
+*****
+
+####  jockeyjoestar  
+##### 6292#       发表于 2026-10-5 02:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">  女王线lv8  21级可入队 爽啊 这作招募等级只看日期  可惜几个外传人物有点废物
+
