@@ -9642,3 +9642,13 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 呃，上级模型有啥便宜大碗的推荐么，自己做项目，代码量太大，几个主流的都用不起了 ...</blockquote>
 这个真没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不还是开o/订阅吧
 
+
+*****
+
+####  startraveller  
+##### 15646#       发表于 2026-10-5 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70321865&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-4 22:34</a>
+呃，上级模型有啥便宜大碗的推荐么，自己做项目，代码量太大，几个主流的都用不起了 ...</blockquote>
+基本除了A/O的订阅都比ds41f贵
+
