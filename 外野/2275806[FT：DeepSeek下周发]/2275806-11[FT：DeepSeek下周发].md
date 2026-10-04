@@ -9580,3 +9580,12 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 这种词有很强烈的回音效果，开始频繁出现就得马上让它写交接文档开新窗口了，压缩都不管用 ...</blockquote>
 原来不是我一个人有这个问题，被这个折磨的我直接把思考关了
 
+
+*****
+
+####  Promeus  
+##### 15640#       发表于 2026-10-4 18:41
+
+崔添翼跑知乎带A/Z/节奏去了(不是)<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<blockquote>DeepSeek Harness 的核心理念是“一切皆插件”，这个理念是从立项之初、写第一行代码之前就确立下来的，正如“开源”的理念是从 DeepSeek 成立之初、发布第一个模型之前就确立下来的一样。开源是我们的初心，不是被迫开源的。让我们的 Agent Harness 产品以开放、开源的方式具备尽量极致的可扩展性，也是我们的初心，并不是被迫或模仿别人才做开放可扩展的。</blockquote>
+

@@ -1387,3 +1387,17 @@ AB的2招单体只能说够用，最大亮点是那个扇形MAP，ssp后他是�
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  blue321  
+##### 4836#       发表于 2026-10-4 18:43
+
+ 本帖最后由 blue321 于 2026-10-4 18:44 编辑 
+
+听说ssp的开发v2ab可以和0突的urv2ab比划比划，搞得给不给齿轮这方面更纠结了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+直接开发v2负责清杂帮f91攻坚开路好像也不错
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
