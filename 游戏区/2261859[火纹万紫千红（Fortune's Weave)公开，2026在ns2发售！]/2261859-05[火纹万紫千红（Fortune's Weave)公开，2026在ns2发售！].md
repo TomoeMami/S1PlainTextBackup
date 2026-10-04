@@ -3286,3 +3286,11 @@ twi:@souyou26
 
 还是得转贤士啊，普通黑魔法哪有沙拉曼达好使<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 6219#       发表于 2026-10-4 16:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉第三章需要纯职射手了，雷达42技巧射飞马只有6成命中，还好队伍里有魔弓姐走的宗师射手
+
