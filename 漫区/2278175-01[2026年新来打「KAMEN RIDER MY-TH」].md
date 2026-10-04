@@ -247,3 +247,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老鼠这样吃大招都没解体啊
 
+
+*****
+
+####  永恒的王牌  
+##### 218#       发表于 2026-10-5 04:25
+
+蛇王你好刮痧哦<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+因为上次虎打比方的时候好像对狗（动物）不咋地，加上番犬这名字，还以为狗是华武利死忠这样的角色，真登场了干的事还挺赚好感的，希望别太快退场吧
+
