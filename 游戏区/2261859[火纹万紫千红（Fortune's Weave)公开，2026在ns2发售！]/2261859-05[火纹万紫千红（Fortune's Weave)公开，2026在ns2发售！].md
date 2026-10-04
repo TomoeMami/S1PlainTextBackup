@@ -2831,3 +2831,19 @@ pmm往死里玩通关了，等视频
 
 但IS还是IS啊，你们一直觉得dlc会补剧情我觉得太乐观了
 
+
+*****
+
+####  シルフィエット  
+##### 6174#       发表于 2026-10-4 10:04
+
+twi:@souyou26
+
+<img src="https://img.stage1st.com/forum/202610/04/100412abtv8h57htihaeq3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (145.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-4 10:04 上传
+
