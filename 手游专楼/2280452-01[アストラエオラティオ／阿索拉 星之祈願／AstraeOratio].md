@@ -852,3 +852,13 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">怎么又有这狗屎圣遗物啊....到底有什么好抄的
 
+
+*****
+
+####  滝本日富美  
+##### 115#       发表于 2026-10-5 07:08
+
+白毛纯人权卡，配专武更是纯领域大神
+
+—— 来自 vivo V2408A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
