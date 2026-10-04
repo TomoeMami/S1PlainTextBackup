@@ -2980,3 +2980,66 @@ twi:@souyou26
 
 偶尔补刀两个重甲，或者托隆辅助下破盾，没啥能干的活了。感觉不如多转点贤士辅助，沉默是真好用。
 
+
+*****
+
+####  oniwarud  
+##### 6188#       发表于 2026-10-4 12:19
+
+回大厅看了下四主角方尖塔在的那个地方还可以再放四个方尖塔围成一个圆，可能就是在给dlc留位置吧
+
+
+*****
+
+####  julia黑  
+##### 6189#       发表于 2026-10-4 12:22
+
+女王线跟我说 4 月 6 号有一个秘密的白发鬼比赛可以看，但是我到了时间，找不到去哪看啊
+
+*****
+
+####  Beleth  
+##### 6190#       发表于 2026-10-4 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319758&amp;ptid=2261859" target="_blank">julia黑 发表于 2026-10-4 12:22</a>
+
+女王线跟我说 4 月 6 号有一个秘密的白发鬼比赛可以看，但是我到了时间，找不到去哪看啊 ...</blockquote>
+去问一下波拿
+
+*****
+
+####  julia黑  
+##### 6191#       发表于 2026-10-4 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319760&amp;ptid=2261859" target="_blank">Beleth 发表于 2026-10-4 12:22</a>
+去问一下波拿</blockquote>
+就是波拿说的情报，但是他指的那个路被封了，我过不去。
+
+*****
+
+####  索非亚  
+##### 6192#       发表于 2026-10-4 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319758&amp;ptid=2261859" target="_blank">julia黑 发表于 2026-10-4 12:22</a>
+
+女王线跟我说 4 月 6 号有一个秘密的白发鬼比赛可以看，但是我到了时间，找不到去哪看啊 ...</blockquote>
+说这事的时候视角不是会强制转给你看往哪走，在迎宾厅和参道之间的那条长走道，往北走有门卫把守。
+
+*****
+
+####  chiefshi  
+##### 6193#       发表于 2026-10-4 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319758&amp;ptid=2261859" target="_blank">julia黑 发表于 2026-10-4 12:22</a>
+女王线跟我说 4 月 6 号有一个秘密的白发鬼比赛可以看，但是我到了时间，找不到去哪看啊 ...</blockquote>
+不在斗技场，到时间以后去波拿边上什么水晶宫有个卫兵那边进去
+
+*****
+
+####  julia黑  
+##### 6194#       发表于 2026-10-4 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70319770&amp;ptid=2261859" target="_blank">julia黑 发表于 2026-10-4 12:24</a>
+就是波拿说的情报，但是他指的那个路被封了，我过不去。</blockquote>
+我现在在城里，卡到 17:59 了，感觉好像是不是错过了？
+
