@@ -4289,3 +4289,41 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 骑马神将给他吗？
 
+
+*****
+
+####  偎  
+##### 6307#       发表于 2026-10-5 08:55
+
+我有个问题
+
+我女王线的龙骑这个职业应该是因为我材料交早了导致错过了。。。<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+我是要重打吗，我看了下我很早很早就把那个人物交掉了导致没有龙骑这个职业<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 6308#       发表于 2026-10-5 08:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70322707&amp;ptid=2261859" target="_blank">偎 发表于 2026-10-5 08:55</a>
+
+我有个问题
+
+我女王线的龙骑这个职业应该是因为我材料交早了导致错过了。。。
+
+我是要重打吗，我看了下我很早 ...</blockquote>
+凯伊线也能解锁，如果不想重打可以打凯伊线。
+
+*****
+
+####  偎  
+##### 6309#       发表于 2026-10-5 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70322721&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-10-5 08:57</a>
+
+凯伊线也能解锁，如果不想重打可以打凯伊线。</blockquote>
+那还是凯伊吧
+
+凯伊线我看下攻略，否则要重打这个任务太重大了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
