@@ -9723,3 +9723,14 @@ k3最近也开始降智了 不知道是不是为了新模型腾算力
 
 —— 来自 Xiaomi 2608BPX34C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  e8f9  
+##### 15654#       发表于 2026-10-5 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70322245&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-5 00:17</a> 基本除了A/O的订阅都比ds41f贵</blockquote>
+本地部署qwen3.8 flash
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
