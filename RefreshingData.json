@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 47800,
+    "totalreply": 47801,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》9.30 问心无愧]",
-    "lastedit": 1791228246,
+    "lastedit": 1791230885,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -13842,10 +13842,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 25939,
+    "totalreply": 25941,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1791230165,
+    "lastedit": 1791230885,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17325,10 +17325,10 @@
     "update": false
   },
   "2291006": {
-    "totalreply": 56,
+    "totalreply": 57,
     "title": "[昨晚带孩子去熟人家作客，正好他带孩子在玩实体大富翁棋呢。]",
     "newtitle": "[昨晚带孩子去熟人家作客，正好他带孩子在玩实体大富翁棋呢。]",
-    "lastedit": 1791227045,
+    "lastedit": 1791230765,
     "category": "外野",
     "active": true,
     "update": false
@@ -17487,11 +17487,20 @@
     "update": false
   },
   "2291072": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[知乎疑似要被抛弃完蛋了]",
     "newtitle": "[知乎疑似要被抛弃完蛋了]",
-    "lastedit": 1791229804,
+    "lastedit": 1791230405,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2116960": {
+    "totalreply": 50,
+    "title": "[『魔法少女育成计划 restart』动画化]",
+    "newtitle": "[『魔法少女育成计划 restart』动画化]",
+    "lastedit": 1791230406,
+    "category": "漫区",
     "active": true,
     "update": false
   }
