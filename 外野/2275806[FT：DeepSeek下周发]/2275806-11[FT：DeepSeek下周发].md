@@ -9816,3 +9816,34 @@ DS现在所有传统手段都无法破甲了，无论网页端还是API。
 
 讽刺的是，网页端至少还会先生成出来一部分再突然给你全部删掉，API是直接拒了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  精金土豆泥  
+##### 15663#       发表于 2026-10-5 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70324417&amp;ptid=2275806" target="_blank">ww-tsl 发表于 2026-10-5 17:22</a>
+
+DS现在所有传统手段都无法破甲了，无论网页端还是API。
+
+讽刺的是，网页端至少还会先生成出来一部分再突然给 ...</blockquote>
+试了下酒馆拿夏瑾 天琴座破限依旧没问题啊，你去更下新的关键词或句子吧
+
+
+*****
+
+####  nxmonitor  
+##### 15664#       发表于 2026-10-5 17:36
+
+这几天各种小道消息乱飞，反正节后估计会上一批新模型应该是真的
+
+*****
+
+####  ww-tsl  
+##### 15665#       发表于 2026-10-5 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70324518&amp;ptid=2275806" target="_blank">精金土豆泥 发表于 2026-10-5 17:29</a>
+
+试了下酒馆拿夏瑾 天琴座破限依旧没问题啊，你去更下新的关键词或句子吧 ...</blockquote>
+我用的是大路货cherry studio，不知道酒馆的破甲能不能用。
+
