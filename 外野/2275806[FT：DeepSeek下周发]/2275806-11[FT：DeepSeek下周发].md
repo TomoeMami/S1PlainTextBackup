@@ -9882,3 +9882,13 @@ DS现在所有传统手段都无法破甲了，无论网页端还是API。
 我做错的两件事 
 我的失误
 
+
+*****
+
+####  jojog  
+##### 15669#       发表于 2026-10-5 19:16
+
+[https://huggingface.co/Cloudflare/clef](https://huggingface.co/Cloudflare/clef)
+
+<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">jev就这么死了
+
