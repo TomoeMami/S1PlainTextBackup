@@ -9943,3 +9943,22 @@ GPT自己的审美能力还是太垃圾了，最后我让opus做设计给GPT执�
 
 笑死，今天用DS网页版想翻译个字幕，结果触发关键词被过滤了，转而上DSH去操作，一条1900行的字幕翻译花了近900W的token。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heemoon  
+##### 15675#       发表于 2026-10-5 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70325794&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-5 19:39</a>
+有没有Skill指导它怎么干？有一个Skill叫做PPT Master，你试试看。</blockquote>
+ppt-master是我给dsh装的第一个也是唯一一个skill<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过必须承认我不太会用这个skill
+
+*****
+
+####  燕山雪  
+##### 15676#       发表于 2026-10-5 20:36
+
+<blockquote>来都来了 发表于 2026-10-5 19:39
+有没有Skill指导它怎么干？有一个Skill叫做PPT Master，你试试看。</blockquote>
+我就是用ppt master写的，除开格式配色没抄错其它编排思路主题文案全都一塌糊涂，全是“不是而是”的ai slop和摸不着头脑的红色大字强调，不如minimax甚至不如千问27b的水平。比之前v4f差了一两代
+
