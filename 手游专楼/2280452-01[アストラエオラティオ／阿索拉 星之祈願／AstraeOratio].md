@@ -862,3 +862,16 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 
 —— 来自 vivo V2408A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  缺德猫  
+##### 116#       发表于 2026-10-5 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70322585&amp;ptid=2280452" target="_blank">滝本日富美 发表于 2026-10-5 07:08</a>
+
+白毛纯人权卡，配专武更是纯领域大神
+
+—— 来自 vivo V2408A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+就她领地宣言会换场景
+

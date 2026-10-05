@@ -9744,3 +9744,11 @@ k3最近也开始降智了 不知道是不是为了新模型腾算力
 之前在家用k3搞了个小工具，今天带到公司用v41f接着修改，很直观能感受到差距，从写代码的能力到前端审美只 ...</blockquote>
 昨天试了用4.1f写ppt，完全不能用的水平，比v4f都差一大截，感觉4.1f的后训练完全是编码特化了
 
+
+*****
+
+####  love4aids  
+##### 15656#       发表于 2026-10-5 14:48
+
+昨天为了把gpt的重置卡用掉，我让ds指挥6.1Astra干活，让ds自己给它派任务，果然让Astra去修自己写的插件的bug去了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
