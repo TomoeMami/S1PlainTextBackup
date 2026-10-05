@@ -4793,3 +4793,28 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 第三次第一部的话第6章出来个要5个沙虫肉的支线，这游戏有点和沙虫肉过不去的感觉
 
+
+*****
+
+####  蓮華  
+##### 6349#       发表于 2026-10-5 17:52
+
+ 本帖最后由 蓮華 于 2026-10-5 17:54 编辑 
+
+<img src="https://img.stage1st.com/forum/202610/05/175151jfu454owvoywcfyv.png" referrerpolicy="no-referrer">
+
+<strong>6BC9DEF624F43A095EDC49CE3610358B.png</strong> (115.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 17:51 上传
+
+我看这俩还能再打个两作新火纹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chiefshi  
+##### 6350#       发表于 2026-10-5 17:53
+
+大帝有多少阶段，第二回合就冲出来了
+
