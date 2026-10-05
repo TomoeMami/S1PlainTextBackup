@@ -9682,3 +9682,11 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 
 之前在家用k3搞了个小工具，今天带到公司用v41f接着修改，很直观能感受到差距，从写代码的能力到前端审美<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说被大肥鱼气得不轻
 
+
+*****
+
+####  千秋难诉  
+##### 15650#       发表于 2026-10-5 10:38
+
+看到+人们说Gemini4Argon灰度的刘备水平更胜2.5，用不到急急急<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
