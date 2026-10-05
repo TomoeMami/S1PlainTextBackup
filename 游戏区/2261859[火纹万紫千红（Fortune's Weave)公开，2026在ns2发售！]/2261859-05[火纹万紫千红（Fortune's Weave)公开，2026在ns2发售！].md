@@ -4341,3 +4341,28 @@ a少线除了任务需要基本可以忘了采集这件事（
 如果现在重打第一部， ...</blockquote>
 翻一下我的回复
 
+
+*****
+
+####  纯夏  
+##### 6311#       发表于 2026-10-5 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70322678&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-10-5 08:42</a>
+
+现在这个同线因果融合是怎么算的呀
+
+比如我现在通了迪托利希线第一部，第二部全都没打
+
+如果现在重打第一部， ...</blockquote>
+不能 你要打完第2部才行
+
+详细看这个继承关系图：
+
+<img src="https://img.stage1st.com/forum/202610/05/093634w0ys1didmtwttiym.jpg" referrerpolicy="no-referrer">
+
+<strong>因果融合继承关系.JPG</strong> (64.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 09:36 上传
+
