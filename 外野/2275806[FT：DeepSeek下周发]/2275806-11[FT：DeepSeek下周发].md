@@ -9752,3 +9752,21 @@ k3最近也开始降智了 不知道是不是为了新模型腾算力
 
 昨天为了把gpt的重置卡用掉，我让ds指挥6.1Astra干活，让ds自己给它派任务，果然让Astra去修自己写的插件的bug去了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 15657#       发表于 2026-10-5 14:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有时候就感觉这家伙真是又蠢又坏的……
+
+
+*****
+
+####  pure_liquid  
+##### 15658#       发表于 2026-10-5 15:04
+
+<blockquote>UncleDracula 发表于 2026-10-4 22:10
+感谢解答，再请教下4.1flash的正确用法到底是high还是max？感觉max加上顾问插件，就是卧龙凤雏凑齐了的体 ...</blockquote>
+请问“顾问插件”是什么？
+

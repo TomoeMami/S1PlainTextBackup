@@ -4700,3 +4700,19 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 第二条线选个蕾达开荒沙漠图好了
 
+
+*****
+
+####  索非亚  
+##### 6340#       发表于 2026-10-5 15:02
+
+怎么还有这种迪哥爽图给你玩的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/05/150142wxq5zfqhm4df27qd.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1791183701051_2.webp</strong> (272.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 15:01 上传
+
