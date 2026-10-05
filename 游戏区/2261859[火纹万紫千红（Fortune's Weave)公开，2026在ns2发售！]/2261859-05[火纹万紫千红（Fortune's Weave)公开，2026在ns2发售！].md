@@ -5329,3 +5329,28 @@ D 线结束，还是那句话，人物塑造和描写的真好！喜欢这个家
 双人结局配对是怎么算的？看pmm的切片，凯伊和青梅的5级支援第一部就满了，支援对话也看完了，和女王的在第 ...</blockquote>
 按照三房的经验是根据游戏内部的花名册顺序排的，就是你点进角色支援页面里那个顺位，排在前面的角色先挑走可达成A/S支援里顺位高的，以此类推
 
+
+*****
+
+####  纯夏  
+##### 6403#       发表于 2026-10-6 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70327722&amp;ptid=2261859" target="_blank">南宫月汐 发表于 2026-10-6 01:24</a>
+
+这迪线第十章的隐藏事件，如果是通关后再去补，需要看了第五章的隐藏事件后打通第五章再跳转到第十章才能触 ...</blockquote>
+你即使打通第5章再跳第10章也无法触发 这个问题我看有不少玩家反馈
+
+即使打通第5章接着一路速推到第10章也无法触发 
+
+这个事件无法触发看起来像是BUG 或者是有其他的前置条件
+
+目前唯一的解法是回第1章开头重新打通迪线第1部 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hl氏  
+##### 6404#       发表于 2026-10-6 01:54
+
+死哪吒害我重开本章<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

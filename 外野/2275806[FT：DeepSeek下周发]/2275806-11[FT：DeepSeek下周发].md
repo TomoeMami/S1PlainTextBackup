@@ -10010,3 +10010,36 @@ ppt-master是我给dsh装的第一个也是唯一一个skill<img src="https://st
 
 大善人开始大清洗了啊，看反馈主要是印度JIO遭重，很多人的pro都被砍了，无论什么时候买的。<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  squallx  
+##### 15682#       发表于 2026-10-6 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70327776&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-10-6 01:40</a>
+
+大善人开始大清洗了啊，看反馈主要是印度JIO遭重，很多人的pro都被砍了，无论什么时候买的。 ...</blockquote>
+只砍PRO还是号一起？ 反正早够本了 渠道还在没
+
+*****
+
+####  一般市民  
+##### 15683#       发表于 2026-10-6 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70327625&amp;ptid=2275806" target="_blank">匿名用户 发表于 2026-10-6 00:59</a>
+
+从 GitHub 下下来的项目，涉及前后端，想自己改改用得更顺手。有什么推荐的 skill 可以让 agent 和我快速了 ...</blockquote>
+这个？ [https://github.com/tt-a1i/archify](https://github.com/tt-a1i/archify)
+
+*****
+
+####  qwased  
+##### 15684#       发表于 2026-10-6 01:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70327776&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-10-6 01:40</a>
+
+大善人开始大清洗了啊，看反馈主要是印度JIO遭重，很多人的pro都被砍了，无论什么时候买的。 ...</blockquote>
+jio本来就是不续费就无了的
+
+大概率是某上游号商自己刷的号统一停止续费了而已
+
