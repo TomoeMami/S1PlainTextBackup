@@ -4877,3 +4877,23 @@ D 线结束，还是那句话，人物塑造和描写的真好！喜欢这个家
 行的话打算救世篇人都齐了后再全员野餐刷了 ...</blockquote>
 可以重开章节但没法全员刷，只能最高9人编队崽地图上行动，但完成重建任务后城里吃饭也会进一步提升效果。此外不要轻易重开第二区，会吞融合使用的因果碎片。
 
+
+*****
+
+####  Humpy  
+##### 6357#       发表于 2026-10-5 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70325441&amp;ptid=2261859" target="_blank">Zod 发表于 2026-10-5 18:58</a>
+可以重开章节但没法全员刷，只能最高9人编队崽地图上行动，但完成重建任务后城里吃饭也会进一步提升效果 ...</blockquote>
+吞碎片是怎么个机制
+
+
+*****
+
+####  lypylf  
+##### 6358#       发表于 2026-10-5 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70325300&amp;ptid=2261859" target="_blank">DancingAndy 发表于 2026-10-5 18:42</a>
+终于打到第四线了迪托利息怎么招募不了老乡</blockquote>
+主线剧情里有安排，所以不能入队
+
