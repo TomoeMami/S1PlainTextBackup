@@ -11916,10 +11916,10 @@
     "update": false
   },
   "2260400": {
-    "totalreply": 11523,
+    "totalreply": 11524,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 9.29 矢量突破#3「拟生态」(本楼含YJWL动态交流)]",
-    "lastedit": 1791224285,
+    "lastedit": 1791231244,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -13667,7 +13667,7 @@
     "newtitle": "[对马岛之鬼系列续作《羊蹄山之鬼 ／ Ghost of Yōtei》新PV公开，2025年10月2日发售]",
     "lastedit": 1790972165,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2287665": {
@@ -17501,6 +17501,15 @@
     "newtitle": "[『魔法少女育成计划 restart』动画化]",
     "lastedit": 1791230406,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2291079": {
+    "totalreply": 41,
+    "title": "[迪士尼乐园是不是不行了]",
+    "newtitle": "[迪士尼乐园是不是不行了]",
+    "lastedit": 1791231366,
+    "category": "外野",
     "active": true,
     "update": false
   }
