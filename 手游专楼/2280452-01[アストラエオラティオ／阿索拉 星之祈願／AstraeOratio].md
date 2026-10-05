@@ -875,3 +875,14 @@ nc运营不奇怪 bgm感觉可以到时候找找ost听好了
 —— 来自 vivo V2408A, Android 16, 鹅球 v3.5.99 ...</blockquote>
 就她领地宣言会换场景
 
+
+*****
+
+####  eroneko  
+##### 117#       发表于 2026-10-5 21:02
+
+https://astrae-studio.pages.dev/#category=Music&amp;sort=duration
+OST已经扒出来辣
+
+—— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

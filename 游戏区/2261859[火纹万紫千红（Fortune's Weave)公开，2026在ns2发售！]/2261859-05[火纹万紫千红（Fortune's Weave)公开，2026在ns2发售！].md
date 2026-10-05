@@ -5039,3 +5039,18 @@ D 线结束，还是那句话，人物塑造和描写的真好！喜欢这个家
 
 寇恩这关给我人打晕了<img src="https://static.stage1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">缓一缓，最后两关
 
+
+*****
+
+####  纯夏  
+##### 6375#       发表于 2026-10-5 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70325673&amp;ptid=2261859" target="_blank">噗呸破屁诚 发表于 2026-10-5 19:24</a>
+
+技能书带不到第二部和第三部吗？买来的一个都没吃，这下尴尬了</blockquote>
+第2部只能带角色身上的东西过去 即便你第1部买过的一个都没吃也没关系
+
+你所有角色的箱子 魔法档案到第3部会全数回归 如果之前有错过 第3部依然能接着用  
+
+而且第3部4条线的金币会合并
+
