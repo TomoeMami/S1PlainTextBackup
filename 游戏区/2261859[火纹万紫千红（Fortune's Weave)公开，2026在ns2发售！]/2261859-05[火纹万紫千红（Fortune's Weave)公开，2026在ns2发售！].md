@@ -5416,3 +5416,18 @@ engage支援虽然是图一乐，但支援是真的能让人乐的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hl氏  
+##### 6411#       发表于 2026-10-6 03:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70327939&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-10-6 02:48</a>
+
+前面一个任务期限是11月27，结果后面这个任务期限是11月3日，是有什么大病
+
+—— 来自 S1Fun ...</blockquote>
+事后复盘，神殿里接的任务可能是第一次第一章的任务，我第二次第一章才发现，所以完成了这个任务后第二次第一章的任务才立即弹出来
+
+也就是说第二三四次第一章的任务是看有没有完成之前的
+
