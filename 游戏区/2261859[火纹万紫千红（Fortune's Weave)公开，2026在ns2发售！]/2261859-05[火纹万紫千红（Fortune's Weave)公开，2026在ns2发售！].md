@@ -4661,3 +4661,22 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 玩过蕾达线就知道了，对凯伊那场没天意加持是必败的。
 
+
+*****
+
+####  Humpy  
+##### 6337#       发表于 2026-10-5 14:08
+
+还没开始打救世篇，问下救世篇还能进行章节重置刷好感吗
+行的话打算救世篇人都齐了后再全员野餐刷了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chiefshi  
+##### 6338#       发表于 2026-10-5 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70322361&amp;ptid=2261859" target="_blank">风祭果凛 发表于 2026-10-5 01:18</a>
+有增援上限的，这关你稳扎稳打，不要贪冲上去的机会把增援清理掉比较好打 ，一旦同时吸引到前面火力和两 ...</blockquote>
+实在耗不下去了，索性把脆皮全扔出去吸仇恨重甲上去把boss rush了，最后还差点被大象卡位没输出位置
+
