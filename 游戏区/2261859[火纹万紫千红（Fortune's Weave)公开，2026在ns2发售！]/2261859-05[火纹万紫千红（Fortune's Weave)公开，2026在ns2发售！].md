@@ -5131,3 +5131,18 @@ D 线结束，还是那句话，人物塑造和描写的真好！喜欢这个家
 
 比如蔻恩这关，如果没带蕾达和奥林匹亚，估计就看不到一堆战前战后对话了
 
+
+*****
+
+####  milky658  
+##### 6383#       发表于 2026-10-5 22:34
+
+为了补力量转了四台泥头车，明白为什么雷达姐成凯伊儿了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  milky658  
+##### 6384#       发表于 2026-10-5 22:36
+
+<img src="https://p.sda1.dev/35/325d3fdcd63911c423ce7b55d03636eb/image.jpg" referrerpolicy="no-referrer">
+
