@@ -5404,3 +5404,15 @@ engage支援虽然是图一乐，但支援是真的能让人乐的
 
 感觉逛地牢巨无聊，但似乎又是最主要的快速提升等级手段
 
+
+*****
+
+####  yangchunsiyue  
+##### 6410#       发表于 2026-10-6 02:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70316506&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-10-3 15:52</a>
+神庙里接到这个：</blockquote>
+前面一个任务期限是11月27，结果后面这个任务期限是11月3日，是有什么大病<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
