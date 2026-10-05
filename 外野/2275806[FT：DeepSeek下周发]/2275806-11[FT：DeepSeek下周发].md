@@ -9782,3 +9782,16 @@ k3最近也开始降智了 不知道是不是为了新模型腾算力
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  love4aids  
+##### 15660#       发表于 2026-10-5 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70323953&amp;ptid=2275806" target="_blank">mr.qu 发表于 2026-10-5 15:33</a>
+
+6.1Astra 出了？
+
+—— 来自 鹅球 v4.0-alpha</blockquote>
+打错了，6.0astra 。
+
