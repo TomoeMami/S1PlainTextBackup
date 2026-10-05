@@ -76,3 +76,15 @@
 
 — from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  壳壳牛  
+##### 1955#       发表于 2026-10-5 16:44
+
+终于白金了
+
+不求续作，来个DLC吧卡婊，哪怕给鬼杀敌人加点新招
+
+给怒小弟和风雷兄弟加点源神二阶段那样的三连粉光，或者给个二段闪
+
