@@ -9972,3 +9972,17 @@ ppt-master是我给dsh装的第一个也是唯一一个skill<img src="https://st
 我就是用ppt master写的，除开格式配色没抄错其它编排思路主题文案全都一塌糊涂，全是“不是而是”的ai s ...</blockquote>
 现在真就只有A家5.5和咕咕家3.8 Flash写的文本能看一下
 
+
+*****
+
+####  andychen  
+##### 15678#       发表于 2026-10-5 22:59
+
+ 本帖最后由 andychen 于 2026-10-5 23:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70323756&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-10-5 14:35</a>
+
+昨天试了用4.1f写ppt，完全不能用的水平，比v4f都差一大截，感觉4.1f的后训练完全是编码特化了 ...</blockquote>
+今年所有的flash模型都是agentic coding特化了。
+
+别说做ppt写文案，做设计规划，写计划这些能力全都和大规模模型差距巨大。只能让更大的模型或者自己指挥当廉价码农
+
