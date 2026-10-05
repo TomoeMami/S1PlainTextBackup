@@ -4600,3 +4600,34 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 青梅单人结局了
 
+
+*****
+
+####  83913536  
+##### 6330#       发表于 2026-10-5 13:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">战争篇不小心有的角色练太高等级了亏成长，发现重打或者跳过都是数据合并，等级还是取高的看来是没救了
+
+*****
+
+####  1wq1  
+##### 6331#       发表于 2026-10-5 13:20
+
+<blockquote>alexmax1 发表于 2026-10-5 13:11
+双人结局配对是怎么算的？看pmm的切片，凯伊和青梅的5级支援第一部就满了，支援对话也看完了，和女王的在第 ...</blockquote>
+应该是看角色档案里的和谁好感度更高，这作哪怕支援5星了，后面加好感度这个好感度顺序也是会变的
+
+*****
+
+####  mai6696  
+##### 6332#       发表于 2026-10-5 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70323436&amp;ptid=2261859" target="_blank">alexmax1 发表于 2026-10-5 13:11</a>
+
+双人结局配对是怎么算的？看pmm的切片，凯伊和青梅的5级支援第一部就满了，支援对话也看完了，和女王的在第 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 坐等DLC给你解锁占星馆，直接自己配对。
+
+哦不对，这不是有新娘的占卜屋吗？周易应该也可以吧。
+
+（说不定原本计划的新娘线有这功能）
+
