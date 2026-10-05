@@ -886,3 +886,19 @@ OST已经扒出来辣
 
 —— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  茄子自走炮  
+##### 118#       发表于 2026-10-6 02:00
+
+问这个真有点搞笑了
+
+<img src="https://img.stage1st.com/forum/202610/06/015954ffwmoxbs1mbkxbf1.jpg" referrerpolicy="no-referrer">
+
+<strong>1000461238.jpg</strong> (63.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-6 01:59 上传
+
