@@ -4866,3 +4866,14 @@ D 线结束，还是那句话，人物塑造和描写的真好！喜欢这个家
 
 终于打到第四线了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Zod  
+##### 6356#       发表于 2026-10-5 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70323659&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-10-5 14:08</a>
+还没开始打救世篇，问下救世篇还能进行章节重置刷好感吗
+行的话打算救世篇人都齐了后再全员野餐刷了 ...</blockquote>
+可以重开章节但没法全员刷，只能最高9人编队崽地图上行动，但完成重建任务后城里吃饭也会进一步提升效果。此外不要轻易重开第二区，会吞融合使用的因果碎片。
+

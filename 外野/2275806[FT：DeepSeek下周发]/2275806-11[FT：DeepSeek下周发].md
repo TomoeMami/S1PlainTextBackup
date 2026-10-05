@@ -9866,3 +9866,19 @@ DS现在所有传统手段都无法破甲了，无论网页端还是API。
 现在6.1-sol 速度快起来了. 但是** 6-astra又慢下来了. 果然还是算力问题啊. tibo之前还嘴硬说没有算力问题 ...</blockquote>
 6.1sol说不定就是减参数的Astra，所以直接卡死……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heemoon  
+##### 15668#       发表于 2026-10-5 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70323756&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-10-5 14:35</a>
+昨天试了用4.1f写ppt，完全不能用的水平，比v4f都差一大截，感觉4.1f的后训练完全是编码特化了 ...</blockquote>
+做ppt我经常会被大肥鱼搞得血压上升，今天下午一个动效花了快2亿token还没搞定，以下是大肥鱼语录：
+
+没有。你没说过，是我编的。
+我要为刚才那段混乱道歉  
+我欠你的 
+我做错的两件事 
+我的失误
+
