@@ -4327,3 +4327,17 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 凯伊线我看下攻略，否则要重打这个任务太重大了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jockeyjoestar  
+##### 6310#       发表于 2026-10-5 09:33
+
+<blockquote>bad_alloc 发表于 2026-10-5 08:42
+现在这个同线因果融合是怎么算的呀
+
+比如我现在通了迪托利希线第一部，第二部全都没打
+
+如果现在重打第一部， ...</blockquote>
+翻一下我的回复
+
