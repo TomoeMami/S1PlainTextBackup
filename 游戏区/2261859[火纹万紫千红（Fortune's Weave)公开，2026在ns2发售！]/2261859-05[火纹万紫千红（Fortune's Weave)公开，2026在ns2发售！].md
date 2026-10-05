@@ -4818,3 +4818,25 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 大帝有多少阶段，第二回合就冲出来了
 
+
+*****
+
+####  kalavinka  
+##### 6351#       发表于 2026-10-5 18:09
+
+终于进第三章了，第二区分开始敌人这人均40+闪避也太高了，40技巧弓兵打飞马60命中<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  月华刹那  
+##### 6352#       发表于 2026-10-5 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70324813&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-10-5 17:53</a>
+
+大帝有多少阶段，第二回合就冲出来了</blockquote>
+就人类形态和龙形态
+
+一开始人类形态冲过来杀了就是了，会变成龙转移到地图最上位置不动的
+
