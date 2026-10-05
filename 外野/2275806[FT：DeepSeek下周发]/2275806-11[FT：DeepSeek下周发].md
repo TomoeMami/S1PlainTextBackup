@@ -9904,3 +9904,42 @@ DS现在所有传统手段都无法破甲了，无论网页端还是API。
 没 ...</blockquote>
 有没有Skill指导它怎么干？有一个Skill叫做PPT Master，你试试看。
 
+
+*****
+
+####  wlhlz  
+##### 15671#       发表于 2026-10-5 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70324417&amp;ptid=2275806" target="_blank">ww-tsl 发表于 2026-10-5 17:22</a>
+DS现在所有传统手段都无法破甲了，无论网页端还是API。
+
+讽刺的是，网页端至少还会先生成出来一部分再突然给 ...</blockquote>
+没这回事，我用了一年多的破甲提示词现在还照用不误
+
+*****
+
+####  Quelaan  
+##### 15672#       发表于 2026-10-5 20:21
+
+这两天试着用AI搓术力口PV，一开始让GPT直接描改现成PV，做的还不错。然后让它出一些原创设计，瞬间出的图就一股子标准image2的AI味了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+GPT自己的审美能力还是太垃圾了，最后我让opus做设计给GPT执行，效果好很多
+
+
+*****
+
+####  ww-tsl  
+##### 15673#       发表于 2026-10-5 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70326084&amp;ptid=2275806" target="_blank">wlhlz 发表于 2026-10-5 20:19</a>
+
+没这回事，我用了一年多的破甲提示词现在还照用不误</blockquote>
+求私信<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，不知道你用的是什么，反正我之前常用的都失效了。
+
+*****
+
+####  cyberalogo  
+##### 15674#       发表于 2026-10-5 20:24
+
+笑死，今天用DS网页版想翻译个字幕，结果触发关键词被过滤了，转而上DSH去操作，一条1900行的字幕翻译花了近900W的token。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
