@@ -5230,3 +5230,32 @@ D 线结束，还是那句话，人物塑造和描写的真好！喜欢这个家
 
 那啥，最上级的证书是不是数量有限的？我转职失败浪费了几个不够用了……
 
+
+*****
+
+####  索非亚  
+##### 6393#       发表于 2026-10-5 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70327216&amp;ptid=2261859" target="_blank">风祭果凛 发表于 2026-10-5 23:32</a>
+
+跳过是全员当前等级+5级，而且据说是不算你职业的，成长很烂的5级（这点不确定，但我也跳过了2章，确实不 ...</blockquote>
+第二部跳过我算是带职业补正的，第三部的招募升级才是不带职业补正。
+
+*****
+
+####  索非亚  
+##### 6394#       发表于 2026-10-5 23:48
+
+通关后，回方尖塔看了下BGM都能缺8首<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  风祭果凛  
+##### 6395#       发表于 2026-10-5 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70327252&amp;ptid=2261859" target="_blank">新HGCG 发表于 2026-10-5 23:40</a>
+
+那啥，最上级的证书是不是数量有限的？我转职失败浪费了几个不够用了…… ...</blockquote>
+到最后一章就无限了（
+
