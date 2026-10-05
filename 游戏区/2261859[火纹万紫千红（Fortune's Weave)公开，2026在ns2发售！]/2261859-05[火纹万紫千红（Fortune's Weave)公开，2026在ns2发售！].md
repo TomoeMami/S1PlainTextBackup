@@ -4905,3 +4905,40 @@ D 线结束，还是那句话，人物塑造和描写的真好！喜欢这个家
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">技能书带不到第二部和第三部吗？买来的一个都没吃，这下尴尬了
 
+
+*****
+
+####  黑上シグマ  
+##### 6360#       发表于 2026-10-5 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70324793&amp;ptid=2261859" target="_blank">蓮華 发表于 2026-10-5 17:52</a>
+
+我看这俩还能再打个两作新火纹</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一轮结束万紫千红四个全灭我直接一口茶喷出来
+
+
+*****
+
+####  1wq1  
+##### 6361#       发表于 2026-10-5 19:35
+
+<blockquote>哌啶 发表于 2026-10-5 18:29
+西提司和妮涅一个支援对话都没有？你俩不都是猫猫头队里的吗
+
+—— 来自 nubia NX733J, Android 15, 鹅球 v ...</blockquote>
+新娘队和猫猫头队的支援被砍完了，你看看新娘会发现她一个本队支援都没有，哪来的雇佣兵，甚至哪吒和沙兰的支援没写完就端上来了
+
+*****
+
+####  u2deack  
+##### 6362#       发表于 2026-10-5 19:35
+
+战争篇这一上来这展开是不是有点过于突兀了
+
+*****
+
+####  新HGCG  
+##### 6363#       发表于 2026-10-5 19:37
+
+第三部好多冤魂都不知道哪里来的……豹子怎么就死了
+
