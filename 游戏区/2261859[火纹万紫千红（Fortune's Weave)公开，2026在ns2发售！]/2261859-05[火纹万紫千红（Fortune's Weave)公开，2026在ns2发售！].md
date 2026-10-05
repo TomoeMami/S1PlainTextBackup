@@ -4472,3 +4472,15 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 5-5七门就靠自捏的高面板和高移动七进七出把带掉落会逃跑的贼都杀了。
 
+
+*****
+
+####  lilod  
+##### 6318#       发表于 2026-10-5 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70322606&amp;ptid=2261859" target="_blank">子夜的黑暗 发表于 2026-10-5 07:39</a>
+看完狗蛋的评测没忍住下单了实体版，以前好像没有完整地玩过一作火纹，好像只有fc上的外传和sfc上的系谱打 ...</blockquote>
+但是我真的很好奇 纯新人怎么看待这作 这代系统多而且整体非常庞大 我很好奇你后续的游玩体验
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
