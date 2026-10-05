@@ -88,3 +88,11 @@
 
 给怒小弟和风雷兄弟加点源神二阶段那样的三连粉光，或者给个二段闪
 
+
+*****
+
+####  theworld  
+##### 1956#       发表于 2026-10-5 16:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">机核做了期节目对着鬼武者一顿狂骂
+
