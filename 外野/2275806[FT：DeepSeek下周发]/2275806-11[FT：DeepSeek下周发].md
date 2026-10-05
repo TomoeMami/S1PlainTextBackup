@@ -9674,3 +9674,11 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 感谢解答，再请教下4.1flash的正确用法到底是high还是max？感觉max加上顾问插件，就是卧龙凤雏凑齐了的体 ...</blockquote>
 可以试试提示词大法，先来个角色扮演靠这个能提升性能
 
+
+*****
+
+####  heemoon  
+##### 15649#       发表于 2026-10-5 10:32
+
+之前在家用k3搞了个小工具，今天带到公司用v41f接着修改，很直观能感受到差距，从写代码的能力到前端审美<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说被大肥鱼气得不轻
+
