@@ -96,3 +96,85 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">机核做了期节目对着鬼武者一顿狂骂
 
+
+*****
+
+####  杀仁老登  
+##### 1957#       发表于 2026-10-5 21:55
+
+ 本帖最后由 杀仁老登 于 2026-10-5 21:57 编辑 
+
+大力水手5对颜值居然也有提升
+
+20261003213506_1.jpg
+(147.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 21:54 上传
+
+<img src="https://img.stage1st.com/forum/202610/05/215432k4h2gvsgifgcbobb.jpg" referrerpolicy="no-referrer">
+
+20261003175107_1.jpg
+(320.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 21:54 上传
+
+<img src="https://img.stage1st.com/forum/202610/05/215432j6v66866n56uz867.jpg" referrerpolicy="no-referrer">
+
+20261002164751_1.jpg
+(341.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 21:54 上传
+
+<img src="https://img.stage1st.com/forum/202610/05/215432n5ykvccuaqxqwc5e.jpg" referrerpolicy="no-referrer">
+
+20261002162238_1.jpg
+(169.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 21:54 上传
+
+<img src="https://img.stage1st.com/forum/202610/05/215433mpsxvfropnjax8am.jpg" referrerpolicy="no-referrer">
+
+20261002234006_1.jpg
+(305.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 21:55 上传
+
+<img src="https://img.stage1st.com/forum/202610/05/215528sii0h5y9zxv5hbq5.jpg" referrerpolicy="no-referrer">
+
+20261004143335_1.jpg
+(176.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 21:56 上传
+
+<img src="https://img.stage1st.com/forum/202610/05/215650vgz00duw0wa340u0.jpg" referrerpolicy="no-referrer">
+
+20261004153410_1.jpg
+(343.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 21:57 上传
+
+<img src="https://img.stage1st.com/forum/202610/05/215714i57hnzspm1zsnyn5.jpg" referrerpolicy="no-referrer">
+
+20261004153405_1.jpg
+(387.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 21:57 上传
+
+<img src="https://img.stage1st.com/forum/202610/05/215714qa2z0yxu95x575u5.jpg" referrerpolicy="no-referrer">
+
