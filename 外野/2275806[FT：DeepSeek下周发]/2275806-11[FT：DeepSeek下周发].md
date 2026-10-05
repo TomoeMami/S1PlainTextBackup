@@ -9795,3 +9795,14 @@ k3最近也开始降智了 不知道是不是为了新模型腾算力
 —— 来自 鹅球 v4.0-alpha</blockquote>
 打错了，6.0astra 。
 
+
+*****
+
+####  UncleDracula  
+##### 15661#       发表于 2026-10-5 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70323855&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-5 15:04</a>
+
+请问“顾问插件”是什么？</blockquote>
+就是每轮回答都会有个审核员，寻找回答中矛盾的地方。你可以指定用哪个模型审核。
+
