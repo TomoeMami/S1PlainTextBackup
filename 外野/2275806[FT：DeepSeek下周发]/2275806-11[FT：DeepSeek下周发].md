@@ -9690,3 +9690,11 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 
 看到+人们说Gemini4Argon灰度的刘备水平更胜2.5，用不到急急急<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蛋黄酱Release  
+##### 15651#       发表于 2026-10-5 11:14
+
+k3最近也开始降智了 不知道是不是为了新模型腾算力
+
