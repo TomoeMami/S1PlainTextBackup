@@ -4435,3 +4435,11 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 伤害就是纯粹的加减法 物理攻击减去防御 魔法攻击减去魔防
 
+
+*****
+
+####  milky658  
+##### 6315#       发表于 2026-10-5 10:48
+
+进凯伊线我开始怀念雷达姐的队友们了<img src="https://static.stage1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
