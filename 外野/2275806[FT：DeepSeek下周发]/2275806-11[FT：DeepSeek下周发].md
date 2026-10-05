@@ -9892,3 +9892,15 @@ DS现在所有传统手段都无法破甲了，无论网页端还是API。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">jev就这么死了
 
+
+*****
+
+####  来都来了  
+##### 15670#       发表于 2026-10-5 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70325509&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-10-5 19:03</a>
+做ppt我经常会被大肥鱼搞得血压上升，今天下午一个动效花了快2亿token还没搞定，以下是大肥鱼语录：
+
+没 ...</blockquote>
+有没有Skill指导它怎么干？有一个Skill叫做PPT Master，你试试看。
+
