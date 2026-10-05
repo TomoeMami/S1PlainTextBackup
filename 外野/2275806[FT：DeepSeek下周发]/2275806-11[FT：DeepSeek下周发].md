@@ -9698,3 +9698,28 @@ fledge alpha说是封我国 结果我用中文就思维链是中文的
 
 k3最近也开始降智了 不知道是不是为了新模型腾算力
 
+
+*****
+
+####  moekyo  
+##### 15652#       发表于 2026-10-5 13:40
+
+感觉是投降的样子了
+
+<img src="https://img.stage1st.com/forum/202610/05/134018hu72p5we8em7zmee.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-5 13:40 上传
+
+*****
+
+####  御坂MKII  
+##### 15653#       发表于 2026-10-5 13:42
+
+咕咕不会要等到 9 号吧
+
+—— 来自 Xiaomi 2608BPX34C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
