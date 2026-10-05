@@ -9994,3 +9994,11 @@ ppt-master是我给dsh装的第一个也是唯一一个skill<img src="https://st
 
 从 GitHub 下下来的项目，涉及前后端，想自己改改用得更顺手。有什么推荐的 skill 可以让 agent 和我快速了解项目结构吗？
 
+
+*****
+
+####  squallx  
+##### 15680#       发表于 2026-10-6 01:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">https://www.bilibili.com/video/BV1NiHn6RExP/ 现在各路AI综艺节目比废物戏子裸猿的好看多了啊
+

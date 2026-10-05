@@ -540,10 +540,10 @@
     "update": false
   },
   "2094432": {
-    "totalreply": 14195,
+    "totalreply": 14196,
     "title": "[【Mr.Quin／秦川】真爱（？）讨论三号楼]",
     "newtitle": "[【Mr.Quin／秦川】秦智障真爱（？）讨论三号楼]",
-    "lastedit": 1791215046,
+    "lastedit": 1791220205,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12096,10 +12096,10 @@
     "update": false
   },
   "2262701": {
-    "totalreply": 1039,
+    "totalreply": 1040,
     "title": "[立一座赛博打卡碑]",
     "newtitle": "[立一座赛博打卡碑]",
-    "lastedit": 1791211806,
+    "lastedit": 1791220325,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 15679,
+    "totalreply": 15680,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[Sonnet 5.5上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1791219726,
+    "lastedit": 1791220687,
     "category": "外野",
     "active": true,
     "update": false
@@ -12956,7 +12956,7 @@
     "newtitle": "[上伊那牡丹，酒醉身姿似百合花般 动画化]",
     "lastedit": 1790961125,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2277765": {
@@ -13050,10 +13050,10 @@
     "update": false
   },
   "2269426": {
-    "totalreply": 1253,
+    "totalreply": 1254,
     "title": "[皇牌空战系列新作《皇牌空战8：希孚之翼》正式公开！2026年发售]",
     "newtitle": "[皇牌空战系列新作《皇牌空战8：希孚之翼》正式公开！2026年发售]",
-    "lastedit": 1791219604,
+    "lastedit": 1791220445,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13356,10 +13356,10 @@
     "update": false
   },
   "2284681": {
-    "totalreply": 4793,
+    "totalreply": 4794,
     "title": "[中东砖楼 2026年7月版]",
     "newtitle": "[中东砖楼 2026年10月版]",
-    "lastedit": 1791220086,
+    "lastedit": 1791220687,
     "category": "外野",
     "active": true,
     "update": false
@@ -13842,10 +13842,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 25749,
+    "totalreply": 25769,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1791220086,
+    "lastedit": 1791220687,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17235,10 +17235,10 @@
     "update": false
   },
   "2290973": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[转转和那个CC真是炒作闹麻了]",
     "newtitle": "[转转和那个CC真是炒作闹麻了]",
-    "lastedit": 1791219125,
+    "lastedit": 1791220325,
     "category": "外野",
     "active": true,
     "update": false
@@ -17370,10 +17370,10 @@
     "update": false
   },
   "2291039": {
-    "totalreply": 129,
+    "totalreply": 130,
     "title": "[台湾著名主持人蔡康永参与TD份子竞选集会]",
     "newtitle": "[台湾著名主持人蔡康永参与TD份子竞选集会]",
-    "lastedit": 1791220086,
+    "lastedit": 1791220687,
     "category": "外野",
     "active": true,
     "update": false
@@ -17474,6 +17474,15 @@
     "newtitle": "[【转生贵族靠着鉴定技能扭转人生】TV动画化 2026年10月三期放送！]",
     "lastedit": 1791218410,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2291059": {
+    "totalreply": 41,
+    "title": "[高通与华为达成逻辑折叠芯片技术相关专利授权，韬定律加速出海]",
+    "newtitle": "[高通与华为达成逻辑折叠芯片技术相关专利授权，韬定律加速出海]",
+    "lastedit": 1791220326,
+    "category": "外野",
     "active": true,
     "update": false
   }
