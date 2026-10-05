@@ -4484,3 +4484,41 @@ a少线除了任务需要基本可以忘了采集这件事（
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  superlink  
+##### 6319#       发表于 2026-10-5 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70322707&amp;ptid=2261859" target="_blank">偎 发表于 2026-10-5 08:55</a>
+我有个问题
+
+我女王线的龙骑这个职业应该是因为我材料交早了导致错过了。。。
+
+我是要重打吗，我看了下我很早 ...</blockquote>
+我记得最后一章才解锁，战备完成
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+*****
+
+####  枫雨  
+##### 6320#       发表于 2026-10-5 11:47
+
+第三章哪里能重新编队啊，晕了。
+
+一开始遍了两队低级的，打不过守门的
+
+
+*****
+
+####  索非亚  
+##### 6321#       发表于 2026-10-5 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70323216&amp;ptid=2261859" target="_blank">枫雨 发表于 2026-10-5 11:47</a>
+
+第三章哪里能重新编队啊，晕了。
+
+一开始遍了两队低级的，打不过守门的</blockquote>
+队伍移动回帝都，在帝都上才能解散
+
