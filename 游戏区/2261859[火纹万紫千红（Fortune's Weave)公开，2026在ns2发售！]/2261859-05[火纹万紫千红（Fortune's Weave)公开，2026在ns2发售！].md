@@ -5319,3 +5319,13 @@ D 线结束，还是那句话，人物塑造和描写的真好！喜欢这个家
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  繭  
+##### 6402#       发表于 2026-10-6 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70323436&amp;ptid=2261859" target="_blank">alexmax1 发表于 2026-10-5 13:11</a>
+双人结局配对是怎么算的？看pmm的切片，凯伊和青梅的5级支援第一部就满了，支援对话也看完了，和女王的在第 ...</blockquote>
+按照三房的经验是根据游戏内部的花名册顺序排的，就是你点进角色支援页面里那个顺位，排在前面的角色先挑走可达成A/S支援里顺位高的，以此类推
+

@@ -10002,3 +10002,11 @@ ppt-master是我给dsh装的第一个也是唯一一个skill<img src="https://st
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">https://www.bilibili.com/video/BV1NiHn6RExP/ 现在各路AI综艺节目比废物戏子裸猿的好看多了啊
 
+
+*****
+
+####  陈八尺  
+##### 15681#       发表于 2026-10-6 01:40
+
+大善人开始大清洗了啊，看反馈主要是印度JIO遭重，很多人的pro都被砍了，无论什么时候买的。<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+

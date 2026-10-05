@@ -540,10 +540,10 @@
     "update": false
   },
   "2094432": {
-    "totalreply": 14196,
+    "totalreply": 14197,
     "title": "[【Mr.Quin／秦川】真爱（？）讨论三号楼]",
     "newtitle": "[【Mr.Quin／秦川】秦智障真爱（？）讨论三号楼]",
-    "lastedit": 1791220205,
+    "lastedit": 1791222365,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -7412,7 +7412,7 @@
     "newtitle": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
     "lastedit": 1790962686,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2170869": {
@@ -12024,10 +12024,10 @@
     "update": false
   },
   "2261859": {
-    "totalreply": 6401,
+    "totalreply": 6402,
     "title": "[火纹万紫千红（Fortune's Weave)公开，2026在ns2发售！]",
     "newtitle": "[火纹万紫千红（Fortune's Weave)公开，2026.9.17在ns2发售！／8.4晚22点专场nd]",
-    "lastedit": 1791221404,
+    "lastedit": 1791222005,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 15680,
+    "totalreply": 15681,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[Sonnet 5.5上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1791220687,
+    "lastedit": 1791222125,
     "category": "外野",
     "active": true,
     "update": false
@@ -13842,10 +13842,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 25804,
+    "totalreply": 25821,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1791221765,
+    "lastedit": 1791222365,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17343,10 +17343,10 @@
     "update": false
   },
   "2291028": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "[改革开放那么多年了，美签对福建人还是那么歧视吗？]",
     "newtitle": "[改革开放那么多年了，美签对福建人还是那么歧视吗？]",
-    "lastedit": 1791221885,
+    "lastedit": 1791222125,
     "category": "外野",
     "active": true,
     "update": false
@@ -17478,10 +17478,19 @@
     "update": false
   },
   "2291059": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[高通与华为达成逻辑折叠芯片技术相关专利授权，韬定律加速出海]",
     "newtitle": "[高通与华为达成逻辑折叠芯片技术相关专利授权，韬定律加速出海]",
-    "lastedit": 1791221525,
+    "lastedit": 1791222485,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2291078": {
+    "totalreply": 42,
+    "title": "[诺贝尔物理学科学家辛顿：必须培养出Al的母性，否则人类或被灭绝]",
+    "newtitle": "[诺贝尔物理学科学家辛顿：必须培养出Al的母性，否则人类或被灭绝]",
+    "lastedit": 1791222486,
     "category": "外野",
     "active": true,
     "update": false
