@@ -5146,3 +5146,23 @@ D 线结束，还是那句话，人物塑造和描写的真好！喜欢这个家
 
 <img src="https://p.sda1.dev/35/325d3fdcd63911c423ce7b55d03636eb/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯夏  
+##### 6385#       发表于 2026-10-5 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70326739&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-10-5 21:55</a>
+
+哪些物资是四条线都过后会合并的？
+
+论坛助手,iPhone</blockquote>
+物资的话 装备 技能书 箱子 药 素材 钱 都会在第3部合并
+
+*****
+
+####  新HGCG  
+##### 6386#       发表于 2026-10-5 22:52
+
+为啥阿斯旺的贴身嬷嬷不能吃饭
+
