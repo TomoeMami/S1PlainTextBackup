@@ -9962,3 +9962,13 @@ ppt-master是我给dsh装的第一个也是唯一一个skill<img src="https://st
 有没有Skill指导它怎么干？有一个Skill叫做PPT Master，你试试看。</blockquote>
 我就是用ppt master写的，除开格式配色没抄错其它编排思路主题文案全都一塌糊涂，全是“不是而是”的ai slop和摸不着头脑的红色大字强调，不如minimax甚至不如千问27b的水平。比之前v4f差了一两代
 
+
+*****
+
+####  startraveller  
+##### 15677#       发表于 2026-10-5 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70326208&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-10-5 20:36</a>
+我就是用ppt master写的，除开格式配色没抄错其它编排思路主题文案全都一塌糊涂，全是“不是而是”的ai s ...</blockquote>
+现在真就只有A家5.5和咕咕家3.8 Flash写的文本能看一下
+
