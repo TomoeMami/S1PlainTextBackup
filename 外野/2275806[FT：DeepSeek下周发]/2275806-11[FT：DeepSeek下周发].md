@@ -9847,3 +9847,22 @@ DS现在所有传统手段都无法破甲了，无论网页端还是API。
 试了下酒馆拿夏瑾 天琴座破限依旧没问题啊，你去更下新的关键词或句子吧 ...</blockquote>
 我用的是大路货cherry studio，不知道酒馆的破甲能不能用。
 
+
+*****
+
+####  RookieTnT  
+##### 15666#       发表于 2026-10-5 17:40
+
+现在6.1-sol 速度快起来了. 但是** 6-astra又慢下来了. 果然还是算力问题啊. tibo之前还嘴硬说没有算力问题
+
+
+*****
+
+####  nxmonitor  
+##### 15667#       发表于 2026-10-5 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70324654&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-5 17:40</a>
+
+现在6.1-sol 速度快起来了. 但是** 6-astra又慢下来了. 果然还是算力问题啊. tibo之前还嘴硬说没有算力问题 ...</blockquote>
+6.1sol说不定就是减参数的Astra，所以直接卡死……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
