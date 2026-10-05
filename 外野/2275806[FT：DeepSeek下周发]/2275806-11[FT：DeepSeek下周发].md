@@ -9770,3 +9770,15 @@ k3最近也开始降智了 不知道是不是为了新模型腾算力
 感谢解答，再请教下4.1flash的正确用法到底是high还是max？感觉max加上顾问插件，就是卧龙凤雏凑齐了的体 ...</blockquote>
 请问“顾问插件”是什么？
 
+
+*****
+
+####  mr.qu  
+##### 15659#       发表于 2026-10-5 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70323800&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-10-5 14:48</a>
+昨天为了把gpt的重置卡用掉，我让ds指挥6.1Astra干活，让ds自己给它派任务，果然让Astra去修自己写的插件的 ...</blockquote>
+6.1Astra 出了？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
