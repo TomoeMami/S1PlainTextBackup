@@ -6015,3 +6015,28 @@ OK，明白了，感谢解答，迪线需要多多留意一下是吧，我记得
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  clyde-wang  
+##### 6455#       发表于 2026-10-6 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70329029&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-6 11:43</a>
+第十章有个对话需要先看第五章的。
+
+这个如果漏掉了你要重打5-9章。
+
+当然了，可以跳回合。 ...</blockquote>
+你是说迪线？还是蕾达线？
+
+我蕾达线就第四，第七，第九有???
+
+第七那个我不知道是哪里漏掉了
+
+*****
+
+####  chiefshi  
+##### 6456#       发表于 2026-10-6 12:18
+
+女王线战争篇打完是不是该回头玩其他线召集复仇者了
+
