@@ -7084,3 +7084,11 @@ image.png
 
 刷那么多钱也没用，奸商都不进货的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 6552#       发表于 2026-10-7 00:36
+
+第三部第五章右上那个门给个忠告：应该派大量重甲，这关地形效果回避率奇低，敌人没啥魔法兵，重甲就是爹
+
