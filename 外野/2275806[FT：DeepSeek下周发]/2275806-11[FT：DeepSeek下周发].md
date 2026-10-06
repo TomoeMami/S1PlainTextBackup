@@ -10150,3 +10150,43 @@ WorkBuddy今天沙璧了，给它一个纪录片让它转录，事先给它说�
 
 如果有的话走礼品卡 → app 内购最方便
 
+
+*****
+
+####  moekyo  
+##### 15693#       发表于 2026-10-6 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70330075&amp;ptid=2275806" target="_blank">icedew 发表于 2026-10-6 15:32</a>
+
+想冲个gpt20刀的，发现还得国外卡，真没dsv4方便。
+
+各位在哪找的代冲，淘宝搜不到。 
+
+现在GPT的性价比怎么 ...</blockquote>
+google pay 不是说可以用国内信用卡吗
+
+*****
+
+####  icedew  
+##### 15694#       发表于 2026-10-6 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70330126&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-10-6 15:45</a>
+有苹果设备吗
+
+如果有的话走礼品卡 → app 内购最方便</blockquote>
+没有，这个要付苹果税吗，国内的苹果行吗？找到的代冲要180，还是个人不知道是否骗子，而且按汇率算才150。
+
+*****
+
+####  jinuzuktII  
+##### 15695#       发表于 2026-10-6 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70330295&amp;ptid=2275806" target="_blank">icedew 发表于 2026-10-6 16:25</a>
+
+没有，这个要付苹果税吗，国内的苹果行吗？找到的代冲要180，还是个人不知道是否骗子，而且按汇率算才150 ...</blockquote>
+只要是苹果设备都行不分地域
+
+但是充值的话需要外区的 Apple ID
+
+不同区的价格可以看这里：[https://appstoreprice.org/zh/apps/6448311069](https://appstoreprice.org/zh/apps/6448311069)
+

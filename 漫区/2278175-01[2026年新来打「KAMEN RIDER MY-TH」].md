@@ -265,3 +265,11 @@
 
 剧组是不是也发现变身时候的思考者姿势有点尴尬，这集总算换姿势了
 
+
+*****
+
+####  无敌のpeach  
+##### 220#       发表于 2026-10-6 16:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">思考者pose还好吧，总比抹嘴顺眼多了
+
