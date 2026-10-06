@@ -6673,3 +6673,15 @@ Leda 线就是一个完全的局外（状况外）视角，总之我觉得是最
 
 —— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  繭  
+##### 6515#       发表于 2026-10-6 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70328823&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-6 11:04</a>
+拉了下自用通关的排名
+
+神将分配，括号内拿了特技：</blockquote>
+最后两个是地底人的皮套，没记错的话就是后面三房里的粉红女妖和缪森
+
