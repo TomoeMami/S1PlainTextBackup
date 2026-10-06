@@ -7017,3 +7017,34 @@ image.png
 
 第三部我进的时候有30多万，最后穷困到没钱买转职证
 
+
+*****
+
+####  纯夏  
+##### 6546#       发表于 2026-10-6 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332680&amp;ptid=2261859" target="_blank">风祭果凛 发表于 2026-10-6 23:52</a>
+
+但其实外传还是推荐打完的，因为这是这个游戏给钱最多的地方了……
+
+第三部我进的时候有30多万，最后穷困到 ...</blockquote>
+第3部怎么会缺钱 你是不是没去沉船刷大金块 <img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zwqcm  
+##### 6547#       发表于 2026-10-7 00:03
+
+蕾达线剧情前期一直到进城前的节奏都还可以。编剧是把绷带男的身份当成这一条线剧情的谜面的，可惜没有借此让蕾达重新审视复仇，就渲染了下反派的黑手有多大。这导致剧情后面没啥内容可以写，就纯拧巴。
+
+
+*****
+
+####  风祭果凛  
+##### 6548#       发表于 2026-10-7 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332702&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-6 23:59</a>
+
+第3部怎么会缺钱 你是不是没去沉船刷大金块</blockquote>
+还真没有，没怎么去研究这方面的攻略，就随缘用了（（
+
