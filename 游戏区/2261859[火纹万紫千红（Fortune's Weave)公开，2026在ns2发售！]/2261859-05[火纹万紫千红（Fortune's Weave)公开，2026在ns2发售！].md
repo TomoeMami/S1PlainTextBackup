@@ -5914,3 +5914,45 @@ D：挖来养坏的选手
 看完了直接退回方尖碑房间就 ...</blockquote>
 但是蕾达那个第四章的我有个？？？好像要推进到去查看第一次幽灵马车那里，当中估计会有几个战斗，会影响我后续的属性么？
 
+
+*****
+
+####  a3a4sc  
+##### 6447#       发表于 2026-10-6 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70328806&amp;ptid=2261859" target="_blank">空气先生 发表于 2026-10-6 11:00</a>
+奥林琵娅，花嫁，猫猫头都可以练。其实还有更多，例如大胃妹、
+
+我记得希洛克转职白魔的话，除了全体圣疗 ...</blockquote>
+好的，马克了，感谢
+
+*****
+
+####  mai6696  
+##### 6448#       发表于 2026-10-6 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70328852&amp;ptid=2261859" target="_blank">clyde-wang 发表于 2026-10-6 11:10</a>
+
+但是蕾达那个第四章的我有个？？？好像要推进到去查看第一次幽灵马车那里，当中估计会有几个战斗，会影响 ...</blockquote>
+第四章两个都是自由时间就可以触发。
+
+你没见到商人的话推进时间试试。
+
+第九章是18:00找西洛可。
+
+只要你不一直打通到12章，就不会影响第二部。
+
+只是个临时的中断存档罢了。
+
+
+*****
+
+####  clyde-wang  
+##### 6449#       发表于 2026-10-6 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70328910&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-6 11:20</a>
+第四章两个都是自由时间就可以触发。
+
+你没见到商人的话推进时间试试。</blockquote>
+OK，明白了，感谢解答，迪线需要多多留意一下是吧，我记得有看到说他是支线最多而且基本上都有前置剧情
+
