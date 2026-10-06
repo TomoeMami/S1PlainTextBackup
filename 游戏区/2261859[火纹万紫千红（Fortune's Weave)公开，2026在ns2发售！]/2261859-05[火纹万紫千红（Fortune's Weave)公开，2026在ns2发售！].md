@@ -6157,3 +6157,33 @@ OK，明白了，感谢解答，迪线需要多多留意一下是吧，我记得
 
 蕾达在不同剧情里的性格太割裂了，一到主线就是我的内心被仇恨填满，但是主动搭话亚丝望和女王，跟巴西初音聊化妆又聊得特别小女生。如果说是舞女的营业笑容的话好歹得有点暗示，但实际就是真的纯天真而已，结果发现亚丝望跟白发鬼有关联又擅自破防了。要苦大仇深麻烦彻底一点
 
+
+*****
+
+####  索非亚  
+##### 6468#       发表于 2026-10-6 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70329538&amp;ptid=2261859" target="_blank">达达葱2 发表于 2026-10-6 13:18</a>
+
+眼花看错了……！对不起</blockquote>
+如果是指爱娜特利亚，只能说是选择红花为圣转后的牺牲品了，单就黑魔法质量爱娜还更好一些。但红花早早能学会救援。
+
+黑魔弱势，我想到的只能是集中喂精灵粉量变引起质变，100+魔攻和80不到魔攻差异还是比较大的。
+
+*****
+
+####  kalavinka  
+##### 6469#       发表于 2026-10-6 13:46
+
+可惜凯伊线看金毛属性烂就没喂坐骑好感<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不然能更强，拿个神殿试炼的防弓盾就横着走了
+
+<img src="https://img.stage1st.com/forum/202610/06/134148mnelu6aaqrv77fet.jpg" referrerpolicy="no-referrer">
+
+<strong>img_2780.jpg</strong> (488.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-6 13:41 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
