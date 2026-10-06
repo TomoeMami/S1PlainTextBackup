@@ -5735,3 +5735,13 @@ engage支援虽然是图一乐，但支援是真的能让人乐的
 </blockquote>
 第三部重甲敌人很少的，全都是飞兵，卫士还有一斧超人
 
+
+*****
+
+####  a3a4sc  
+##### 6435#       发表于 2026-10-6 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70328559&amp;ptid=2261859" target="_blank">duraa 发表于 2026-10-6 10:07</a>
+最后一关不想繁文缛节可以练个会雷暴的法师，加上送的花嫁就有两个超长距离攻击手段用来处理机制 ...</blockquote>
+好，我法师只拉个西洛克和奥林琵娅就好了。
+
