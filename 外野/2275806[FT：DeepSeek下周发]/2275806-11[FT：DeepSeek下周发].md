@@ -10270,3 +10270,24 @@ google pay 不是说可以用国内信用卡吗
 顺便问下codex 里另外买500的额度是20刀，这500经用嘛</blockquote>
 额度不经用的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mr.qu  
+##### 15702#       发表于 2026-10-6 21:07
+
+话说现在 Claude pro 额度吊打 GPT plus 
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  moekyo  
+##### 15703#       发表于 2026-10-6 21:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70331419&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-10-6 20:02</a>
+
+顺便问下codex 里另外买500的额度是20刀，这500经用嘛</blockquote>
+放心，有五小时的限额，而且输出慢到你怀疑人生，所以 token 根本花不完.jpg。用 Astra 另说，不过这货也是堆屎山
+
