@@ -10083,3 +10083,17 @@ archify我之前试用过，感觉太重了
 
 其实整各种花里胡哨的图还不如直接向agent提问，所以我觉得这些玩具价值不如代码索引类工具
 
+
+*****
+
+####  搞不好是洗衣粉  
+##### 15688#       发表于 2026-10-6 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70325509&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-10-5 19:03</a>
+做ppt我经常会被大肥鱼搞得血压上升，今天下午一个动效花了快2亿token还没搞定，以下是大肥鱼语录：
+
+没 ...</blockquote>
+你试试让它先给自己准备环境，自己去找skill之类的，我昨天让它破解手机安装包，开始也是各种低级错误，安装都没法安装，最后我被弄麻了，新开了个对话，让它自己先去找skill和需要的软件，又给它开了个模拟器，让它自己试好了再给我，结果一个雷霆大思考一遍出
+
+—— 来自 samsung SM-W9026, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
