@@ -10133,3 +10133,20 @@ WorkBuddy今天沙璧了，给它一个纪录片让它转录，事先给它说�
 各位在哪找的代冲，淘宝搜不到。 
 现在GPT的性价比怎么样？
 
+
+*****
+
+####  jinuzuktII  
+##### 15692#       发表于 2026-10-6 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70330075&amp;ptid=2275806" target="_blank">icedew 发表于 2026-10-6 15:32</a>
+
+想冲个gpt20刀的，发现还得国外卡，真没dsv4方便。
+
+各位在哪找的代冲，淘宝搜不到。 
+
+现在GPT的性价比怎么 ...</blockquote>
+有苹果设备吗
+
+如果有的话走礼品卡 → app 内购最方便
+
