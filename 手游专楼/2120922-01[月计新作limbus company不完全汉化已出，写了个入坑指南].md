@@ -36,3 +36,27 @@
 
 红神只有场上有小怪的时候才会用消耗充能的技能,基本不指望能控充能层数,建议速杀别等蜘蛛秀把人全杀完再启动(这样红神启动比你快)
 
+
+*****
+
+####  kurihayn  
+##### 1438#       发表于 2026-10-6 19:48
+
+来推一下红薯上从哲学和原作方面分析这一章的博主，觉得写得特别好一下子就厘清了我对这章的很多疑惑
+
+<img src="https://img.stage1st.com/forum/202610/06/194838i5gcgi33l11ygc0m.png" referrerpolicy="no-referrer">
+
+<strong>179128731200755.png</strong> (465 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-6 19:48 上传
+
+<img src="https://img.stage1st.com/forum/202610/06/194851ny22rpzxdwmwq2q0.png" referrerpolicy="no-referrer">
+
+<strong>179128732600848.png</strong> (451.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-6 19:48 上传
+
