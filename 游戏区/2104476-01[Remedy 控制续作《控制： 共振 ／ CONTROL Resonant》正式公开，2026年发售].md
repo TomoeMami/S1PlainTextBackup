@@ -2354,3 +2354,35 @@ RenoDX更新了
 
 我显卡虽然拉到极致有点累，但是拉到高还是没啥问题的，应该不是配置问题
 
+
+*****
+
+####  Leona_Akari  
+##### 231#       发表于 2026-10-6 23:07
+
+通关后今天在B站刷到了二周目竟然达林有新的录像带
+
+以下剧透
+
+在录像带里挑明了姐弟其实是同一个人，然后看评论其实1代文本里就有姐弟俩其实是一个人的设定了？
+
+
+*****
+
+####  金田一根葱  
+##### 232#       发表于 2026-10-6 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332451&amp;ptid=2104476" target="_blank">Leona_Akari 发表于 2026-10-6 23:07</a>
+通关后今天在B站刷到了二周目竟然达林有新的录像带</blockquote>
+现在回过头看一代和P6的对话里Dylen做的梦里就说了.
+
+*****
+
+####  Leona_Akari  
+##### 233#       发表于 2026-10-6 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332466&amp;ptid=2104476" target="_blank">金田一根葱 发表于 2026-10-6 23:12</a>
+
+现在回过头看一代和P6的对话里Dylen做的梦里就说了.</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说如果确实这样的话那游戏过程中很多感觉有点怪的地方就都不奇怪了。。。
+
