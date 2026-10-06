@@ -250,3 +250,38 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
        [https://x.com/bang_dream_info/status/2107396443531260156](https://x.com/bang_dream_info/status/2107396443531260156)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42073#       发表于 2026-10-6 19:08
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/06/190849srjfxc8czqvs8aaz.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-10-06_19-08-11.jpg</strong> (271.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-6 19:08 上传
+
+       [https://x.com/bang_dream_info/status/2107396696149754123](https://x.com/bang_dream_info/status/2107396696149754123)
+
+*****
+
+####  堀内爱里衣  
+##### 42074#       发表于 2026-10-6 19:09
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/06/190946v2zykyz1707z0t72.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-10-06_19-09-14.jpg</strong> (294.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-6 19:09 上传
+
+       [https://x.com/bang_dream_info/status/2107402986234274243](https://x.com/bang_dream_info/status/2107402986234274243)
+
