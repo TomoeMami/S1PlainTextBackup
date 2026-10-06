@@ -7048,3 +7048,16 @@ image.png
 第3部怎么会缺钱 你是不是没去沉船刷大金块</blockquote>
 还真没有，没怎么去研究这方面的攻略，就随缘用了（（
 
+
+*****
+
+####  ParukiaMKII  
+##### 6549#       发表于 2026-10-7 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332618&amp;ptid=2261859" target="_blank">前田利家 发表于 2026-10-6 23:38</a>
+
+女王第一章12话最后的几个外传怎么规划才能打全，我感觉时间不够，而且还有其他支线。
+
+—— 来自 S1Fun ...</blockquote>
+最后一个外传我没记错的话，正常你清完其他外传就剩个6天还是多少了，但是女王有船，走水路过去刚好够时间
+
