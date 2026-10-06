@@ -6424,3 +6424,36 @@ L难度快点来吧，想再跑一轮了。最好能直接再次降临改难度�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  廖化  
+##### 6493#       发表于 2026-10-6 18:15
+
+战争篇打一半能不能跳过啊，实在不想打了……
+
+四个主角的主线必须打完才能开第三部吗，只打1、2个主线开第三部对结局有啥影响不
+
+
+*****
+
+####  古畑任三郎2015  
+##### 6494#       发表于 2026-10-6 18:21
+
+小孩哥线玩完第二部，马不停蹄开第二条女王线<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+话说女王这个每次轰土都听得我虎躯一震，感觉我柯降临一脚歼星炮毁天灭地一般<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纯夏  
+##### 6495#       发表于 2026-10-6 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70330773&amp;ptid=2261859" target="_blank">廖化 发表于 2026-10-6 18:15</a>
+
+战争篇打一半能不能跳过啊，实在不想打了……
+
+四个主角的主线必须打完才能开第三部吗，只打1、2个主线开第 ...</blockquote>
+第2部可以跳的 第3部甚至过了序章就可以打 只不过己方战力不足 属于挑战项目 
+
+对人物加入有影响 对结局没影响
+
