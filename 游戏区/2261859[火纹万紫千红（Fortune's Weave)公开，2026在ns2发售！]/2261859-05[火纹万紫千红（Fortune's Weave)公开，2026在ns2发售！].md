@@ -5443,3 +5443,15 @@ engage支援虽然是图一乐，但支援是真的能让人乐的
 
 还有达古札也太tm性压抑了，大部分角色不是性压抑就是在性压抑的路上，有病啊
 
+
+*****
+
+####  fxc731  
+##### 6413#       发表于 2026-10-6 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70327799&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-6 01:48</a>
+你即使打通第5章再跳第10章也无法触发 这个问题我看有不少玩家反馈
+
+即使打通第5章接着一路速推到第10章也 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">本来有计划四线第三章合并后重打一下蕾达第一章，看这意思是还要重打下迪线？我基本没怎么管隐藏剧情，主打一个随缘
+
