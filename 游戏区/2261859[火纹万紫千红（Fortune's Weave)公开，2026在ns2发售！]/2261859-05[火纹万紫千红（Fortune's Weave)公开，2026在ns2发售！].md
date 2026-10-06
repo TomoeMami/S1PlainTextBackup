@@ -6642,3 +6642,13 @@ Leda 线就是一个完全的局外（状况外）视角，总之我觉得是最
 
 至于长歪我觉得担心也没用<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  土卫七  
+##### 6512#       发表于 2026-10-6 21:05
+
+孩子们第三部德鲁伊是真陷阱职业，千万别转，又脆输出又低又没功能性，纯战地记者来的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
