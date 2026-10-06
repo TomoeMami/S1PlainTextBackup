@@ -10260,3 +10260,13 @@ google pay 不是说可以用国内信用卡吗
 
 顺便问下codex 里另外买500的额度是20刀，这500经用嘛
 
+
+*****
+
+####  FACS  
+##### 15701#       发表于 2026-10-6 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70331419&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-10-6 20:02</a>
+顺便问下codex 里另外买500的额度是20刀，这500经用嘛</blockquote>
+额度不经用的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
