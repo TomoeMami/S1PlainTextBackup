@@ -6040,3 +6040,18 @@ OK，明白了，感谢解答，迪线需要多多留意一下是吧，我记得
 
 女王线战争篇打完是不是该回头玩其他线召集复仇者了
 
+
+*****
+
+####  mai6696  
+##### 6457#       发表于 2026-10-6 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70329238&amp;ptid=2261859" target="_blank">clyde-wang 发表于 2026-10-6 12:16</a>
+
+你是说迪线？还是蕾达线？
+
+我蕾达线就第四，第七，第九有???</blockquote>
+迪线第五章有第十章的前置
+
+雷达线第四章有第七章的前置。（第四章和商人对话的话第七章主线的时候商人会乱入）
+

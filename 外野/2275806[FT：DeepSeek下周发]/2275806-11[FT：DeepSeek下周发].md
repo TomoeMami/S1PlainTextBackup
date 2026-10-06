@@ -10097,3 +10097,15 @@ archify我之前试用过，感觉太重了
 
 —— 来自 samsung SM-W9026, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cyberalogo  
+##### 15689#       发表于 2026-10-6 12:31
+
+WorkBuddy今天沙璧了，给它一个纪录片让它转录，事先给它说了是多语言的，结果一上手非要咬死“这特么不就是全德语对白，用户说什么胡话呢”？
+
+操作了20分钟才发现不对，哎呀确实有英语和法语对白，卧槽，原来说胡话的是我？接着又开始重头做。
+
+切身感受到了面对人工智障的体验<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
