@@ -6412,3 +6412,15 @@ L难度快点来吧，想再跑一轮了。最好能直接再次降临改难度�
 
 我自己是刷过头了，最后打霸罗尔，嫌它刷门太慢，直接硬拆次数盾给他做掉了，古圣和a少都是没盾直接暴击a它一管血的，太没感觉了
 
+
+*****
+
+####  kalavinka  
+##### 6492#       发表于 2026-10-6 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70330497&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-6 17:06</a>
+我的建议是特技带判读风向和危险察觉，雷电剑可以不带多带个克制护符看情况更换，银枪投枪换偃月刀和标枪 ...</blockquote>
+有道理 罐头还是留给其他人解决<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
