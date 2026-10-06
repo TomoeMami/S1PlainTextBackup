@@ -10190,3 +10190,13 @@ google pay 不是说可以用国内信用卡吗
 
 不同区的价格可以看这里：[https://appstoreprice.org/zh/apps/6448311069](https://appstoreprice.org/zh/apps/6448311069)
 
+
+*****
+
+####  专用  
+##### 15696#       发表于 2026-10-6 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70330295&amp;ptid=2275806" target="_blank">icedew 发表于 2026-10-6 16:25</a>
+没有，这个要付苹果税吗，国内的苹果行吗？找到的代冲要180，还是个人不知道是否骗子，而且按汇率算才150 ...</blockquote>
+我是国内信用卡走的GooglePlay日区，支付折腾了几个小时，第二天自动好了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
