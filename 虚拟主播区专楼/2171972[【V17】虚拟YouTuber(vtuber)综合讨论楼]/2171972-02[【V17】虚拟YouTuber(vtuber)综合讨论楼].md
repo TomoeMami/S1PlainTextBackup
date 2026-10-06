@@ -32,3 +32,11 @@
 
 话说回来，当时cwj爆料号预告的时候，甚至有推文在那说是不是葛尊还好几个赞，给我乐麻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 2135#       发表于 2026-10-6 22:32
+
+我胡说一个，要是传出世一二箱顶流联姻菲猴❤菲猴，能炸多大烟花啊
+
