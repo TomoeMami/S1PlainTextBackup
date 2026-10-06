@@ -10358,3 +10358,14 @@ gemini4 看来也快了
 对，空恢复现在挺严重的，我发现不一定是因为上下文，是他自己思维链太长卡的，压缩一下上下文他就正常点 ...</blockquote>
 现在这个日常循环的状态导致4.1f几乎没有可用性了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">经常干活到一半自己死了，不知道国庆后官方会不会修
 
+
+*****
+
+####  squallx  
+##### 15710#       发表于 2026-10-7 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332641&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-6 23:44</a>
+
+对，空恢复现在挺严重的，我发现不一定是因为上下文，是他自己思维链太长卡的，压缩一下上下文他就正常点 ...</blockquote>
+不是MAX的**病吗 high还好吧
+

@@ -7104,3 +7104,17 @@ image.png
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Humpy  
+##### 6554#       发表于 2026-10-7 01:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332618&amp;ptid=2261859" target="_blank">前田利家 发表于 2026-10-6 23:38</a>
+女王第一章12话最后的几个外传怎么规划才能打全，我感觉时间不够，而且还有其他支线。
+
+—— 来自 S1Fun ...</blockquote>
+我自己的打法是：先在城里耗时间到能接猫神官的外传，然后立刻出城，先最短路径去做迪特里希的任务，然后做猫神官的，如果没浪费路程应该能在21号12时前抵达猫神官外传所在地，做完再做凯伊外传。
+
+但这个做法有个问题是支线没时间去做了
+
