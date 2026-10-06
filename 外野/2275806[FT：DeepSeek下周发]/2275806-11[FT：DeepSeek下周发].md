@@ -10200,3 +10200,39 @@ google pay 不是说可以用国内信用卡吗
 没有，这个要付苹果税吗，国内的苹果行吗？找到的代冲要180，还是个人不知道是否骗子，而且按汇率算才150 ...</blockquote>
 我是国内信用卡走的GooglePlay日区，支付折腾了几个小时，第二天自动好了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BarricadeMKXX  
+##### 15697#       发表于 2026-10-6 17:54
+
+ 本帖最后由 BarricadeMKXX 于 2026-10-6 17:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70330295&amp;ptid=2275806" target="_blank">icedew 发表于 2026-10-6 16:25</a>
+没有，这个要付苹果税吗，国内的苹果行吗？找到的代冲要180，还是个人不知道是否骗子，而且按汇率算才150 ...</blockquote>
+有苹果：走苹果商店，搞个外区账号，我没苹果设备不太熟所以问其他坛友
+
+安卓机：google play下个chatgpt客户端，在里面开plus，付费我是绑了张国内visa卡，账号在日区。
+不要走网页付款，哪怕是网页上走googleplay也会卡你地区（看起来是查信用卡发卡行之类的，国内visa就寄），但是在app里过一道play商店就没事。
+想开pro的话先开个plus就能在app里面看到升级通道了。
+
+<img src="https://img.stage1st.com/forum/202610/06/175337hmwamjwa00ygamal.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1791280416613_1.webp</strong> (38.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-6 17:53 上传
+
+<img src="https://img.stage1st.com/forum/202610/06/175337duo4j4hu3hr28t3q.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1791280416721_2.webp</strong> (66.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-6 17:53 上传
+
+还有个点比较重要，如果你没开订阅直接登录codex客户端大概率弹手机号验证，但是，但是，你开个订阅再登录大概率直接就上去了，至少我是这样<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+如果还弹的话想办法搞外国手机号/接码平台/成品号月抛吧
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
