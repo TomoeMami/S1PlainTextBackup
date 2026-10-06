@@ -1751,7 +1751,7 @@
     "newtitle": "[《黑暗集会》这漫画有点化物语的感觉，好看(被B漫买了)]",
     "lastedit": 1791011886,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1527698": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 47879,
+    "totalreply": 47880,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》9.30 问心无愧]",
-    "lastedit": 1791269045,
+    "lastedit": 1791271566,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12663,12 +12663,12 @@
     "update": false
   },
   "2272409": {
-    "totalreply": 1456,
+    "totalreply": 1457,
     "title": "[2026中国火箭发射专楼]",
     "newtitle": "[2026中国航天专楼]",
-    "lastedit": 1790345165,
+    "lastedit": 1791271566,
     "category": "外野",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2272652": {
@@ -13149,10 +13149,10 @@
     "update": false
   },
   "2210366": {
-    "totalreply": 1958,
+    "totalreply": 1959,
     "title": "[Capcom 鬼武者新作『鬼武者 WAY OF THE SWORD』公开，2026年发售]",
     "newtitle": "[Capcom 鬼武者新作『鬼武者 WAY OF THE SWORD』公开，2026年9月4日发售]",
-    "lastedit": 1791269887,
+    "lastedit": 1791271686,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13751,15 +13751,6 @@
     "active": false,
     "update": false
   },
-  "2288593": {
-    "totalreply": 110,
-    "title": "[ps2掌机现在怎么买合适]",
-    "newtitle": "[ps2掌机现在怎么买合适]",
-    "lastedit": 1790061849,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
   "2288668": {
     "totalreply": 764,
     "title": "[孙哥居然被坑了]",
@@ -13842,10 +13833,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 26711,
+    "totalreply": 26719,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1791270965,
+    "lastedit": 1791271567,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -15341,7 +15332,7 @@
     "newtitle": "[余承东：问界是什么？不认识]",
     "lastedit": 1791012366,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2290413": {
@@ -16650,10 +16641,10 @@
     "update": false
   },
   "2290806": {
-    "totalreply": 169,
+    "totalreply": 170,
     "title": "[空前绝后的性转马尔福热潮]",
     "newtitle": "[空前绝后的性转马尔福热潮]",
-    "lastedit": 1791271085,
+    "lastedit": 1791271686,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17136,10 +17127,10 @@
     "update": false
   },
   "2257973": {
-    "totalreply": 157,
+    "totalreply": 158,
     "title": "[SE HD2D ARPG《冒险家艾略特的千年物语》2026年6月18日发售]",
     "newtitle": "[SE HD2D ARPG《冒险家艾略特的千年物语》2026年6月18日发售]",
-    "lastedit": 1791116165,
+    "lastedit": 1791271686,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17208,10 +17199,10 @@
     "update": false
   },
   "2291022": {
-    "totalreply": 76,
+    "totalreply": 79,
     "title": "[小孩子从小用Ai会变成什么样呢]",
     "newtitle": "[小孩子从小用Ai会变成什么样呢]",
-    "lastedit": 1791270725,
+    "lastedit": 1791271567,
     "category": "外野",
     "active": true,
     "update": false

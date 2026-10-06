@@ -188,3 +188,14 @@
 
 貌似有增加小怪攻击欲望的MOD，看了下视频还不错，在想要不要打，不过弹幕和评论又说攻击欲望加强的话应该把鬼杀难度小怪的血量下调。在想要不要先玩原版，本来就是因为不想二周目才打了mod直接开鬼杀难度，想要一个最极致的一周目体验<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanoysq  
+##### 1959#       发表于 2026-10-6 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70329954&amp;ptid=2210366" target="_blank">千千千千鸟 发表于 2026-10-6 14:53</a>
+
+国庆节还是买了，直接上DLSS5，打上了一周目解锁鬼杀难度的mod，玩了个开头，现在玩到阿国和大只佬老头后的 ...</blockquote>
+激进AI加了之后节奏快不少，但是后期精英+小怪同场我有点吃不消还是给下了。
+
