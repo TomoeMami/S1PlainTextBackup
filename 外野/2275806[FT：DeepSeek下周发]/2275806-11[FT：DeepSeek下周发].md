@@ -10109,3 +10109,17 @@ WorkBuddy今天沙璧了，给它一个纪录片让它转录，事先给它说�
 
 切身感受到了面对人工智障的体验<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  omnitoken  
+##### 15690#       发表于 2026-10-6 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70325509&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-10-5 19:03</a>
+做ppt我经常会被大肥鱼搞得血压上升，今天下午一个动效花了快2亿token还没搞定，以下是大肥鱼语录：
+
+没 ...</blockquote>
+你这不是强人所难吗，微软自己没公开过PPT动画相关的信息，各种开源库的实现不都是自己推测逆向的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
