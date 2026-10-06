@@ -7092,3 +7092,15 @@ image.png
 
 第三部第五章右上那个门给个忠告：应该派大量重甲，这关地形效果回避率奇低，敌人没啥魔法兵，重甲就是爹
 
+
+*****
+
+####  南宫月汐  
+##### 6553#       发表于 2026-10-7 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332637&amp;ptid=2261859" target="_blank">诡计 发表于 2026-10-6 23:43</a>
+在打第三条线-迪哥线了，这条线刃鸣有啥讲究吗，散步路上顺手打打就行？</blockquote>
+第五章切记去触发隐藏事件
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
