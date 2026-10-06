@@ -10379,3 +10379,14 @@ gemini4 看来也快了
 不是MAX的**病吗 high还好吧</blockquote>
 high也有这个问题，现在一直用的是high，已经连续三个对话被死循环卡死了
 
+
+*****
+
+####  阿刚  
+##### 15712#       发表于 2026-10-7 02:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332839&amp;ptid=2275806" target="_blank">serj005 发表于 2026-10-7 00:48</a>
+
+现在这个日常循环的状态导致4.1f几乎没有可用性了经常干活到一半自己死了，不知道国庆后官方会不会修 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">我拿来写文还好，根源上最大的问题是他那个雷霆左右脑互搏会直接让思维链翻倍，这个才要命，空恢复也是他自己把自己的思维链拉太长了。那个等等，但是太可怕了，会平白无故让思维链翻倍
+
