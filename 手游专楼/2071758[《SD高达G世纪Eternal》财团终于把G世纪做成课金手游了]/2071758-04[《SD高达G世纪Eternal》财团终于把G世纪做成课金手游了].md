@@ -1435,3 +1435,16 @@ v2ab有一个伪装成地图炮的狙击plus，4发map配合胡索能打完
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  gpx234mqx  
+##### 4841#       发表于 2026-10-6 07:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70327437&amp;ptid=2071758" target="_blank">冰风血羽 发表于 2026-10-6 00:18</a>
+
+我服了v2碎片已经好几天没出了，现在还卡着我v2a的图鉴没解
+
+—— 来自 realme RMX6699, Android 16, 鹅球  ...</blockquote>
+48个而已，周回啊
+
