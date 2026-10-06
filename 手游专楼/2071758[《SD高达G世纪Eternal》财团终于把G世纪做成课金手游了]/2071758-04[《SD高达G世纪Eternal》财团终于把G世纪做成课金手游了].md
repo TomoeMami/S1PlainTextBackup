@@ -1448,3 +1448,15 @@ v2ab有一个伪装成地图炮的狙击plus，4发map配合胡索能打完
 —— 来自 realme RMX6699, Android 16, 鹅球  ...</blockquote>
 48个而已，周回啊
 
+
+*****
+
+####  冰风血羽  
+##### 4842#       发表于 2026-10-6 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70328167&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-10-6 07:58</a>
+48个而已，周回啊</blockquote>
+我前天中午电脑挂着没事点一下自动刷花了半管体力没见到一块就懒得再去刷了，全靠每天三次
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
