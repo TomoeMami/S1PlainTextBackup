@@ -7187,3 +7187,14 @@ image.png
 
 这关得带一堆法师，带闪避T就傻眼了
 
+
+*****
+
+####  新HGCG  
+##### 6561#       发表于 2026-10-7 07:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70333092&amp;ptid=2261859" target="_blank">空气先生 发表于 2026-10-7 02:56</a>
+
+右上是啥（</blockquote>
+打错了 是左上
+
