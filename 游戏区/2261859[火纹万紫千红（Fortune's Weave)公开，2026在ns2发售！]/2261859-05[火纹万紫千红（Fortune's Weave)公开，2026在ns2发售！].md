@@ -7061,3 +7061,26 @@ image.png
 —— 来自 S1Fun ...</blockquote>
 最后一个外传我没记错的话，正常你清完其他外传就剩个6天还是多少了，但是女王有船，走水路过去刚好够时间
 
+
+*****
+
+####  纯夏  
+##### 6550#       发表于 2026-10-7 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332723&amp;ptid=2261859" target="_blank">风祭果凛 发表于 2026-10-7 00:06</a>
+
+还真没有，没怎么去研究这方面的攻略，就随缘用了（（</blockquote>
+主要是沉船第1部4条主角线都可以去刷  
+
+找个闲的章节 带上恶棍 使劲刷大金块 钱就刷刷的来了 
+
+到了第3部一合并 那就是土豪 <img src="https://static.stage1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  索非亚  
+##### 6551#       发表于 2026-10-7 00:32
+
+刷那么多钱也没用，奸商都不进货的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
