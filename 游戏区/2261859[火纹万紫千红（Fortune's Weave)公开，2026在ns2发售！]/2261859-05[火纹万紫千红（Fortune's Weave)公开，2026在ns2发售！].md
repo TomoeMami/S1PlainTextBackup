@@ -7157,3 +7157,15 @@ image.png
 第三部第五章右上那个门给个忠告：应该派大量重甲，这关地形效果回避率奇低，敌人没啥魔法兵，重甲就是爹 ...</blockquote>
 右上是啥（
 
+
+*****
+
+####  yangchunsiyue  
+##### 6558#       发表于 2026-10-7 03:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70327971&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-10-6 03:09</a>
+事后复盘，神殿里接的任务可能是第一次第一章的任务，我第二次第一章才发现，所以完成了这个任务后第二次 ...</blockquote>
+我重新玩了第11章，发现这个后续任务做完，12章还有一个后续任务…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
