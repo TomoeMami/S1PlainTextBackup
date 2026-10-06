@@ -6824,3 +6824,30 @@ Leda 线就是一个完全的局外（状况外）视角，总之我觉得是最
 
 草，看到个鞑古席翁是鞑古扎各民族的大熔炉的旅游宣传词没绷住
 
+
+*****
+
+####  lilod  
+##### 6528#       发表于 2026-10-6 22:59
+
+开始女王线，然后开始升3级加了3点魔力，我真遭不住
+
+
+*****
+
+####  Humpy  
+##### 6529#       发表于 2026-10-6 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332403&amp;ptid=2261859" target="_blank">lilod 发表于 2026-10-6 22:59</a>
+开始女王线，然后开始升3级加了3点魔力，我真遭不住</blockquote>
+也没啥，塞奥多拉能学会天使<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+转卫士边抗边奶边打也行的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 6530#       发表于 2026-10-6 23:07
+
+女王卫士这条线挺好的，后面转枪神将，反正主角本质神焰发射器，没必要抢神将位置<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
