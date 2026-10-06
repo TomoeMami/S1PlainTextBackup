@@ -10369,3 +10369,13 @@ gemini4 看来也快了
 对，空恢复现在挺严重的，我发现不一定是因为上下文，是他自己思维链太长卡的，压缩一下上下文他就正常点 ...</blockquote>
 不是MAX的**病吗 high还好吧
 
+
+*****
+
+####  serj005  
+##### 15711#       发表于 2026-10-7 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332906&amp;ptid=2275806" target="_blank">squallx 发表于 2026-10-7 01:10</a>
+不是MAX的**病吗 high还好吧</blockquote>
+high也有这个问题，现在一直用的是high，已经连续三个对话被死循环卡死了
+
