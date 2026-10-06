@@ -10056,3 +10056,15 @@ jio本来就是不续费就无了的
 大概率是某上游号商自己刷的号统一停止续费了而已 ...</blockquote>
 我的号估计也差不多了，不过10块钱三个月够本就是了。要是Gemini 4在聊天、文本创作上真有吹的那么牛逼，那时看看找个车队吧，正价还是偏贵了。<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真红之闪电  
+##### 15686#       发表于 2026-10-6 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70326084&amp;ptid=2275806" target="_blank">wlhlz 发表于 2026-10-5 20:19</a>
+没这回事，我用了一年多的破甲提示词现在还照用不误</blockquote>
+求个私信<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
