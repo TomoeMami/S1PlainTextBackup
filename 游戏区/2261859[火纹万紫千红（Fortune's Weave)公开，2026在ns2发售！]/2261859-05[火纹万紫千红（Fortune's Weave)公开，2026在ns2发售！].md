@@ -5477,3 +5477,14 @@ engage支援虽然是图一乐，但支援是真的能让人乐的
 幸好专门练她了，这作的配置就刚需这种双抗高的，练好了伤害也 ...</blockquote>
 刚招入队，这玩意要怎么练，凯伊线玩的特别坐牢
 
+
+*****
+
+####  a3a4sc  
+##### 6416#       发表于 2026-10-6 08:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70328220&amp;ptid=2261859" target="_blank">lost_恩恩 发表于 2026-10-6 08:24</a>
+刚招入队，这玩意要怎么练，凯伊线玩的特别坐牢</blockquote>
+第一章招入队后我是转马车，拿弓开冲。
+只要有冲锋伤害还可以，输出比不过马车第一梯队的本质弓箭手，比其他马车要肉一点。
+
