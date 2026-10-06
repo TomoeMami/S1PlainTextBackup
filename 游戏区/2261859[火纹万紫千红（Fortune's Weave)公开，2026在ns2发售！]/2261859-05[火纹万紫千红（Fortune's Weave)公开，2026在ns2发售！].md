@@ -6364,3 +6364,41 @@ a少前面也聊过，说是杀人犯，来了鞑古扎就只写他想挑战强�
 有些洞窟深处的门打不开，有的是有咒语有的是史前文明，这些分别是支线任务才能开的吗？ ...</blockquote>
 第三章自动开，反正你还得全跑一遍
 
+
+*****
+
+####  reficul  
+##### 6487#       发表于 2026-10-6 17:05
+
+<blockquote>duraa 发表于 2026-10-6 17:03
+第三章自动开，反正你还得全跑一遍</blockquote>
+谢谢，我还以为是另外两个角色才能开启的特殊机关
+
+*****
+
+####  索非亚  
+##### 6488#       发表于 2026-10-6 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70329681&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-10-6 13:46</a>
+
+可惜凯伊线看金毛属性烂就没喂坐骑好感不然能更强，拿个神殿试炼的防弓盾就横着走了</blockquote>
+我的建议是特技带判读风向和危险察觉，雷电剑可以不带多带个克制护符看情况更换，银枪投枪换偃月刀和标枪进一步抬回避。
+
+*****
+
+####  索非亚  
+##### 6489#       发表于 2026-10-6 17:07
+
+L难度快点来吧，想再跑一轮了。最好能直接再次降临改难度保留马桶全通的状态。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纯夏  
+##### 6490#       发表于 2026-10-6 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70330462&amp;ptid=2261859" target="_blank">reficul 发表于 2026-10-6 17:01</a>
+
+有些洞窟深处的门打不开，有的是有咒语有的是史前文明，这些分别是支线任务才能开的吗？ ...</blockquote>
+第3部这些地方的门就能进去了 有一些世界观介绍和开传送点
+
