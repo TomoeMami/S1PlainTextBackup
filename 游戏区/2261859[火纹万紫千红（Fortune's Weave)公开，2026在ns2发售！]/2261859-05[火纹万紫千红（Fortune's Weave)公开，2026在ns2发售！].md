@@ -5619,3 +5619,40 @@ engage支援虽然是图一乐，但支援是真的能让人乐的
 
 主要培养用剑 枪 弓系的输出职业就行  当然 奶妈是必不可少的
 
+
+*****
+
+####  mai6696  
+##### 6426#       发表于 2026-10-6 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70328486&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-6 09:53</a>
+
+第2部敌人多带银系武器  攻击很高 别被多个敌人围住打
+
+有些章节敌人每回合刷的增援以空中和陆上的骑兵系 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 别黑我们斧子，万一敌人有重甲呢？我们战锤也不比净化剑差。
+
+*****
+
+####  纯夏  
+##### 6427#       发表于 2026-10-6 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70328520&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-6 10:01</a>
+
+别黑我们斧子，万一敌人有重甲呢？我们战锤也不比净化剑差。</blockquote>
+用斧头的除了白发鬼以外 其他人用就突出一个打不中 
+
+白发鬼入队又晚 导致数值上被下毒<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a3a4sc  
+##### 6428#       发表于 2026-10-6 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70328486&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-6 09:53</a>
+第2部敌人多带银系武器  攻击很高 别被多个敌人围住打
+
+有些章节敌人每回合刷的增援以空中和陆上的骑兵系 ...</blockquote>
+非常感谢，马克了。
+那我把斧头和法师Pass了吧。留点奶妈
+
