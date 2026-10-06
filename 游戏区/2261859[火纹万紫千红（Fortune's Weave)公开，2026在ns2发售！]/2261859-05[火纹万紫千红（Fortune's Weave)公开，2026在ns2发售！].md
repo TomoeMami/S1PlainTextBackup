@@ -6629,3 +6629,16 @@ Leda 线就是一个完全的局外（状况外）视角，总之我觉得是最
 第二条线玩凯伊还是a少合适</blockquote>
 玩A少 凯伊放最后
 
+
+*****
+
+####  风祭果凛  
+##### 6511#       发表于 2026-10-6 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70331422&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-10-6 20:03</a>
+
+主要我看了贴吧刷级后最终战102物攻勇士96物防重甲之类的杂兵数据图有点担心长歪了后不太好打而且影响剧情 ...</blockquote>
+我最后主力80左右（算板凳的话，平均大概也就70出头），最终战敌人75左右，如果是弹性的话那也依然算简单的（
+
+至于长歪我觉得担心也没用<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
