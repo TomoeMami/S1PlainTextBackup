@@ -5656,3 +5656,69 @@ engage支援虽然是图一乐，但支援是真的能让人乐的
 非常感谢，马克了。
 那我把斧头和法师Pass了吧。留点奶妈
 
+
+*****
+
+####  南宫月汐  
+##### 6429#       发表于 2026-10-6 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70327799&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-6 01:48</a>
+你即使打通第5章再跳第10章也无法触发 这个问题我看有不少玩家反馈
+
+即使打通第5章接着一路速推到第10章也 ...</blockquote>
+草了，这要是重打我练了十几个35的人全得覆盖了。算了，等dlc开超难再说吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  duraa  
+##### 6430#       发表于 2026-10-6 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70328541&amp;ptid=2261859" target="_blank">a3a4sc 发表于 2026-10-6 10:03</a>
+
+非常感谢，马克了。
+
+那我把斧头和法师Pass了吧。留点奶妈</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最后一关不想繁文缛节可以练个会雷暴的法师，加上送的花嫁就有两个超长距离攻击手段用来处理机制
+
+*****
+
+####  mai6696  
+##### 6431#       发表于 2026-10-6 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70328540&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-6 10:03</a>
+
+用斧头的除了白发鬼以外 其他人用就突出一个打不中 
+
+白发鬼入队又晚 导致数值上被下毒 ...</blockquote>
+打重甲的时候也不担心命中，所以能用斧子的可以带个战锤备着。
+
+其实穆妈也算个玩斧子的？
+
+擅长斧弓，但是个人特性是相邻攻击命中+10.
+
+
+*****
+
+####  空气先生  
+##### 6432#       发表于 2026-10-6 10:10
+
+ 本帖最后由 空气先生 于 2026-10-6 10:13 编辑 
+
+大力玩重甲枪一发入魂骑兵和玩弓一发入魂飞兵其实都比玩斧头爽。第三部更是不缺敌人的骑兵飞兵。
+
+黑魔弱不代表手枪姐弱，拔出沙罗曼蛇和特典武器开始射就完事了。（但我还是推荐除了红花的手枪玩白魔系，这一部白魔确实是群英荟萃，红花其实白魔也不错，但是转职慢了，神将的位置竞争太激烈，除非三人速降或者对老中红秋裤有热爱，轮不到她占这个位置）
+
+*****
+
+####  mai6696  
+##### 6433#       发表于 2026-10-6 10:14
+
+三房的时候以为每个纹章都是个体独占的。
+
+到四房突然搞个什么21份力量。
+
+布雷达德遗产枪都有两把，看来同纹章也是有多个个体。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说有点像诡秘之主的超凡序列。
+

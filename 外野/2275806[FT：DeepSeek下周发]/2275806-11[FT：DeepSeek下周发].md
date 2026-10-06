@@ -10068,3 +10068,18 @@ jio本来就是不续费就无了的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hugosol  
+##### 15687#       发表于 2026-10-6 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70327803&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-6 01:48</a>
+
+这个？ https://github.com/tt-a1i/archify</blockquote>
+archify我之前试用过，感觉太重了
+
+轻量一点的可以试试这个：[https://github.com/humanlayer/sk ... w-me/skills/show-me](https://github.com/humanlayer/skills/tree/main/plugins/show-me/skills/show-me)
+
+其实整各种花里胡哨的图还不如直接向agent提问，所以我觉得这些玩具价值不如代码索引类工具
+
