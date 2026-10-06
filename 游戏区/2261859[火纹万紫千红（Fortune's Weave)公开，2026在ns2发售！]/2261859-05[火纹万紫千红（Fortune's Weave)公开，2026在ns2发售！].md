@@ -6652,3 +6652,24 @@ Leda 线就是一个完全的局外（状况外）视角，总之我觉得是最
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  风祭果凛  
+##### 6513#       发表于 2026-10-6 21:21
+
+黑魔老实说在菜刀的魔法攻击手段多了后确实基本有点没用了，我凯伊用雷剑用多了黑魔技能都没多少，实在没有使用场景，感觉也就某些发了雷暴的角色当黑魔有价值。
+
+话说不知为何这代的罐头也不多，开罐器都没啥价值了，全是飞马飞龙和双防比较高的枪兵之类的，我前面还会捎把战锤细剑，后面都懒得带了
+
+*****
+
+####  mull132  
+##### 6514#       发表于 2026-10-6 21:25
+
+第三部黑魔确实还是有几个魔法比沙拉曼达强的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但说实话没必要，毕竟打骑兵能让圣枪手或者飞兵用骑杀，打鸟弓箭手和奶奶倍率更好一击秒杀，风魔法和玻璃车轮还得对射
+要玩先知也不是不行，我选择贤士拿手枪<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
