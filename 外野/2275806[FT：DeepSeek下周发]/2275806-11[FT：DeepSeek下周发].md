@@ -10316,3 +10316,22 @@ Arthur Mensch 发言称：
 
 ds4.1f现在是不是日常犯病？思维链总是循环单行的“好”“读”“写”，上下文才10%左右就进死循环了
 
+
+*****
+
+####  绯色日照  
+##### 15706#       发表于 2026-10-6 23:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿刚  
+##### 15707#       发表于 2026-10-6 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332182&amp;ptid=2275806" target="_blank">serj005 发表于 2026-10-6 22:12</a>
+
+ds4.1f现在是不是日常犯病？思维链总是循环单行的“好”“读”“写”，上下文才10%左右就进死循环了 ...</blockquote>
+对，空恢复现在挺严重的，我发现不一定是因为上下文，是他自己思维链太长卡的，压缩一下上下文他就正常点
+

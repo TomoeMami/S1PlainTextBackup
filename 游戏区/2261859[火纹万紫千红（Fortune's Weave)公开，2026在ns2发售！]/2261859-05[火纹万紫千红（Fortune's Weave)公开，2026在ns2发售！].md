@@ -6904,3 +6904,72 @@ Leda 线就是一个完全的局外（状况外）视角，总之我觉得是最
 
 第一章女王通完了，这最后一战怎么回事敌人全是杂鱼等级，场面挺大打起来全是秒，打完第一章这边居然没几个混到 35 级，这关难度设置是不是有点问题<img src="https://static.stage1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前田利家  
+##### 6536#       发表于 2026-10-6 23:38
+
+女王第一章12话最后的几个外传怎么规划才能打全，我感觉时间不够，而且还有其他支线。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hl氏  
+##### 6537#       发表于 2026-10-6 23:41
+
+在玩第三次第一部的女王线，遇到了这个第三次才会出现的任务
+
+取得一封密信然后选择交给哪个NPC，选择完成“未送达的密信”的话后续有两个衍生任务，最终能得到戒指道具；选择“为了帝国的安全”的话名声值非常高，后续只有一个衍生任务，最终得到两个乌兹钢
+
+麻烦的是凯伊接不到这个任务，凯伊最后玩的话无法在第四次第一部选择另一条路线，没想到凯伊放最后会出现奇怪的坏处
+
+image.png
+(44.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-6 23:32 上传
+
+<img src="https://img.stage1st.com/forum/202610/06/233222mfj11d5u55m8ujku.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 6538#       发表于 2026-10-6 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332600&amp;ptid=2261859" target="_blank">-マユ‐ 发表于 2026-10-6 23:35</a>
+
+第一章女王通完了，这最后一战怎么回事敌人全是杂鱼等级，场面挺大打起来全是秒，打完第一章这边居然没几个 ...</blockquote>
+这场本质在场外已经打完了，战斗就是告诉你弟弟有多菜
+
+当然也确实很无聊就是<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  诡计  
+##### 6539#       发表于 2026-10-6 23:43
+
+在打第三条线-迪哥线了，这条线刃鸣有啥讲究吗，散步路上顺手打打就行？
+
+
+*****
+
+####  milky658  
+##### 6540#       发表于 2026-10-6 23:45
+
+看了凯伊妈妈的行为，他爹被判刑大概是因为鞑古扎草傻子犯法吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风祭果凛  
+##### 6541#       发表于 2026-10-6 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332618&amp;ptid=2261859" target="_blank">前田利家 发表于 2026-10-6 23:38</a>
+
+女王第一章12话最后的几个外传怎么规划才能打全，我感觉时间不够，而且还有其他支线。
+
+—— 来自 S1Fun ...</blockquote>
+外传我印象里就白发鬼和凯伊的要到了那个时间才能打（有可能还有别的但应该不多），其他人，比如商人的都是接了任务直接去对应地方就能打的，直接趁没啥事过去打了就是了
+
