@@ -10398,3 +10398,15 @@ high也有这个问题，现在一直用的是high，已经连续三个对话被
 
 ds下个版本怎么还不来
 
+
+*****
+
+####  neptunehs  
+##### 15714#       发表于 2026-10-7 06:39
+
+ 本帖最后由 neptunehs 于 2026-10-7 06:41 编辑 
+
+opencode又一个exo free 又不知道是啥了 虽然目前还不可用
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
