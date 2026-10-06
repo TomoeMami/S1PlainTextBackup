@@ -6618,3 +6618,14 @@ Leda 线就是一个完全的局外（状况外）视角，总之我觉得是最
 
 第二条线玩凯伊还是a少合适
 
+
+*****
+
+####  纯夏  
+##### 6510#       发表于 2026-10-6 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70331512&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-10-6 20:19</a>
+
+第二条线玩凯伊还是a少合适</blockquote>
+玩A少 凯伊放最后
+
