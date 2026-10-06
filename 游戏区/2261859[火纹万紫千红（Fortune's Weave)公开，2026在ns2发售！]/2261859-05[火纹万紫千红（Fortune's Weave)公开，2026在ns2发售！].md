@@ -6109,3 +6109,16 @@ OK，明白了，感谢解答，迪线需要多多留意一下是吧，我记得
 四线都快打完了也不知道一开始竞技场打败贝特兰的是谁，在第二部第三部有说这个人是谁吗 ...</blockquote>
 没有，连冥兵都没变
 
+
+*****
+
+####  索非亚  
+##### 6463#       发表于 2026-10-6 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70329333&amp;ptid=2261859" target="_blank">达达葱2 发表于 2026-10-6 12:37</a>
+
+雷达是C.
+
+你这雷达是打外传收的吗</blockquote>
+没理解你的意思。。。你是指蕾达只配在C？
+
