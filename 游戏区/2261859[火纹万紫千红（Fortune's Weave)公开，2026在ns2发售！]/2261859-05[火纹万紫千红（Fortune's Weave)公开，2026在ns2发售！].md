@@ -7761,3 +7761,14 @@ A少线最后玩感觉真的好，最后几章外传打得爽死，凯伊外传A
 
 比如你第1部凯伊线没打的话 第3部就无法触发解锁武僧这个职业的任务
 
+
+*****
+
+####  HazukiShion  
+##### 6610#       发表于 2026-10-7 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70335218&amp;ptid=2261859" target="_blank">JOJOROY 发表于 2026-10-7 17:29</a>
+
+打完迪少的战争篇了，其他路线是不是开场白嫖5张上级资格证转多几个角色就可以跳过了 ...</blockquote>
+我记得没跳过救世篇会每个角色多一段剧情。
+
