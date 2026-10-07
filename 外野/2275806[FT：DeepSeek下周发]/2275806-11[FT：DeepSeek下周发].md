@@ -10610,3 +10610,27 @@ codebase-memory-mcp是真的好用
 这里有个对比的文章
 [https://zhuanlan.zhihu.com/p/2067412078261018809](https://zhuanlan.zhihu.com/p/2067412078261018809)
 
+
+*****
+
+####  dangoron  
+##### 15732#       发表于 2026-10-7 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334296&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-7 13:09</a>
+我也没用过codegraph，当时一大堆同类产品做了一下调研就一直在用这个了
+
+这里有个对比的文章
+
+https://zhu ...</blockquote>
+谢谢，我试试你这个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  RookieTnT  
+##### 15733#       发表于 2026-10-7 13:25
+
+tibo这重置真无语了. 我5号用了重置. 然后用了20% 剩余时间4天. 结果现在来个重置 让我重置时间推迟3天 补了20%的额度
+
