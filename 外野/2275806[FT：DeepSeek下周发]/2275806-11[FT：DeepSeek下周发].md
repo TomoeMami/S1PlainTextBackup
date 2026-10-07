@@ -10707,3 +10707,29 @@ openai放战略核轰炸了，有人讨论吗？</blockquote>
 又看不懂讨论个啥，只会变成一边是“国模要完”一边是“美模炒作闹麻了” ...</blockquote>
 国模有啥好完的，不如说对国模来说非常鼓舞吧，再追3-6个月就能达到能够大量证明数学问题的水平，如果还能维持低价，画美不看
 
+
+*****
+
+####  zy450  
+##### 15741#       发表于 2026-10-7 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334296&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-7 13:09</a>
+
+我也没用过codegraph，当时一大堆同类产品做了一下调研就一直在用这个了
+
+这里有个对比的文章
+
+https://zhu ...</blockquote>
+之前用过codegraph，老是担心会不会索引更新不及时，导致检索信息不全……
+
+*****
+
+####  lactone  
+##### 15742#       发表于 2026-10-7 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334616&amp;ptid=2275806" target="_blank">WindDragon 发表于 2026-10-7 15:01</a>
+openai放战略核轰炸了，有人讨论吗？</blockquote>
+这个不如说数字吓人，但是之前炒作的hodge，bsd都没搞出来，人们的阈值已经被抬高了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
