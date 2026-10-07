@@ -11075,3 +11075,26 @@ haiku好歹还够便宜，你这啥UI是什么鬼
 
 codemode有点强啊，GPT系好像有专门训练过这方面的能力，上下文一下子变得极其耐用了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奈落的孤火花  
+##### 15775#       发表于 2026-10-8 03:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70337415&amp;ptid=2275806" target="_blank">Quelaan 发表于 2026-10-8 02:13</a>
+
+我也差不多，感想就是astra不如opus5.5一根毛</blockquote>
+不太同意，gpt系列的优势和劣势是双刃剑，一体两面的。
+
+就是因为GPT系列如此的严谨、谨慎、胆小、周全、防御，所以才搞出来那么多数学定理，它就是非常死板严谨，没办法。
+
+opus5.5看着沟通起来很自然流畅，审美也挺不错，写代码也不错。但是沟通的时候，时不时就有口误、想当然，为了把话说的好听、说的好看，擅自改变一些事实，说话不从事实去核查，直接随口给一个结论当做猜测之类的。
+
+<img src="https://img.stage1st.com/forum/202610/08/034356of33aga33rw85u34.png" referrerpolicy="no-referrer">
+
+<strong>87429.png</strong> (53.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 03:43 上传
+
