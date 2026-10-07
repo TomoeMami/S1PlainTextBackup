@@ -7414,3 +7414,17 @@ image.png
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  燃烧的石头  
+##### 6579#       发表于 2026-10-7 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334033&amp;ptid=2261859" target="_blank">黑上シグマ 发表于 2026-10-7 11:48</a>
+几个特定地方种也能种出来啊，只不过要施肥出稀有
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+是的，但还是有随机性，不如第一部的时候采集直接搞定
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
