@@ -10744,3 +10744,14 @@ openai放战略核轰炸了，有人讨论吗？</blockquote>
 之前用过codegraph，老是担心会不会索引更新不及时，导致检索信息不全…… ...</blockquote>
 这个倒是应该问题不大，这类产品应该都有实时更新索引的功能，codegraph好像是跟OS文件事件有关，codebase-memory-mcp是用git watcher，反正把源码拉下来用agent问一下就知道了
 
+
+*****
+
+####  zhanglei1943  
+##### 15744#       发表于 2026-10-7 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70333768&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-10-7 10:41</a>
+
+一个奇特的想法：大肥鱼的余额是不是可以叫“鱼饿”</blockquote>
+余粮 or 鱼粮
+
