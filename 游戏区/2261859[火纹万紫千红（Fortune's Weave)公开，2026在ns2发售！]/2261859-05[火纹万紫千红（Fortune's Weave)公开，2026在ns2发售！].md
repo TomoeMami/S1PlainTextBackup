@@ -7833,3 +7833,22 @@ A少线最后玩感觉真的好，最后几章外传打得爽死，凯伊外传A
 
 之前做了外传系统第三章发的凯伊给我看笑了，全属性没一项过30的说是，自己练的力魔技速30+，双防20+，感觉真要玩应该是净化剑闪电剑砍的飞起<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 6617#       发表于 2026-10-7 20:57
+
+鞑古扎最后一条血真的有点变态吧基本我谁打他都要被反死，也就对诺克裘拉是30%的命中，打其他人不管五十还是六十都能打中，加护前面也用完了强行送几个头过了并不想重打
+
+
+*****
+
+####  黑上シグマ  
+##### 6618#       发表于 2026-10-7 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70335218&amp;ptid=2261859" target="_blank">JOJOROY 发表于 2026-10-7 17:29</a>
+
+打完迪少的战争篇了，其他路线是不是开场白嫖5张上级资格证转多几个角色就可以跳过了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看攻略网站写了，第三部有好几个剧情分别对应你手打了哪几条线的战争篇，要看全就要全部手打
+

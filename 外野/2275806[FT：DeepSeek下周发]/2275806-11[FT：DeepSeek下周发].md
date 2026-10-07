@@ -10871,3 +10871,35 @@ OpenAI 依旧小花招：API 中提供的 GPT 模型远胜于 Codex 订阅中提
 
 API利润高，不只思考，速度都快几倍的
 
+
+*****
+
+####  qwased  
+##### 15755#       发表于 2026-10-7 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70335923&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-7 19:52</a>
+
+OpenAI 依旧小花招：API 中提供的 GPT 模型远胜于 Codex 订阅中提供的模型，和我实际体验也相符。
+
+ ...</blockquote>
+6luna因为订阅的思考预算太少经常截断，非常不好用<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heemoon  
+##### 15756#       发表于 2026-10-7 20:57
+
+最近看到opus5.5制作的那些视频有点心痒，用astra甚至v41f有可能复刻类似的效果么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">该从哪里入手
+
+*****
+
+####  malisa  
+##### 15757#       发表于 2026-10-7 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70336245&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-10-7 20:57</a>
+
+最近看到opus5.5制作的那些视频有点心痒，用astra甚至v41f有可能复刻类似的效果么该从哪里入手 ...</blockquote>
+Opus 5.5 审美挺难取代的,而且视频如果涉及到文案的话，GPT 那 AI 味道太重了
+
+不过现在有一些 skill，它会路由到几个模版，按着模版走呢，不会偏离太多，可能实际效果还可以
+
