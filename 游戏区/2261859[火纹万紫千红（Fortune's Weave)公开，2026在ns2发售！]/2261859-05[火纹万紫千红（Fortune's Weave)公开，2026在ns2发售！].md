@@ -7673,3 +7673,21 @@ image.png
 
 可能意思是玩西提斯就走凯伊玩飞龙
 
+
+*****
+
+####  JOJOROY  
+##### 6601#       发表于 2026-10-7 17:29
+
+打完迪少的战争篇了，其他路线是不是开场白嫖5张上级资格证转多几个角色就可以跳过了
+
+*****
+
+####  duraa  
+##### 6602#       发表于 2026-10-7 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70335218&amp;ptid=2261859" target="_blank">JOJOROY 发表于 2026-10-7 17:29</a>
+
+打完迪少的战争篇了，其他路线是不是开场白嫖5张上级资格证转多几个角色就可以跳过了 ...</blockquote>
+存档角色边上的金框听说要手打第二部才有，看有没有强迫症了，反正我没有<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
