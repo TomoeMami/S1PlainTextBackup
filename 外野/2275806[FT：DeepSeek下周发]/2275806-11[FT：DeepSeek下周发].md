@@ -10678,3 +10678,13 @@ openai放战略核轰炸了，有人讨论吗？
 
 2026-10-7 15:01 上传
 
+
+*****
+
+####  很久就在那边l  
+##### 15738#       发表于 2026-10-7 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334616&amp;ptid=2275806" target="_blank">WindDragon 发表于 2026-10-7 15:01</a>
+openai放战略核轰炸了，有人讨论吗？</blockquote>
+又看不懂讨论个啥，只会变成一边是“国模要完”一边是“美模炒作闹麻了”
+
