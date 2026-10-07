@@ -7894,3 +7894,28 @@ A少线最后玩感觉真的好，最后几章外传打得爽死，凯伊外传A
 
 boss是用哪吒一拳超人，站在丹提旁特技流星一次砍boss一管血。
 
+
+*****
+
+####  milky658  
+##### 6624#       发表于 2026-10-7 21:40
+
+雷达姐面对大人还挺小女生的，一到逗小孩环节像是要把他（她）们碾过去<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bad_alloc  
+##### 6625#       发表于 2026-10-7 21:42
+
+女王线通了，最后两章才把妮涅练起来用，出乎意料的还不错，双防很高没人打得动她
+
+<img src="https://img.stage1st.com/forum/202610/07/214239qdbjij9zzb33sci4.jpg" referrerpolicy="no-referrer">
+
+<strong>img_2613.jpg</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-7 21:42 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
