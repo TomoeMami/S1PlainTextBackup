@@ -10567,3 +10567,30 @@ O/的新模型让 A/打得像个小丑，又端不出来新菜，只能尬住了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  dangoron  
+##### 15729#       发表于 2026-10-7 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334216&amp;ptid=2275806" target="_blank">umamusume 发表于 2026-10-7 12:46</a>
+早上起床一定要看一眼重置监控站啊，我6点就看到要重置了
+
+—— 来自 samsung SM-S9480, Android 16, 鹅 ...</blockquote>
+我看了下codex-resets，最近的重置消息一小时前才有啊，怎么做到6点看到的<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  dangoron  
+##### 15730#       发表于 2026-10-7 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70309831&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-1 17:04</a>
+codebase-memory-mcp是真的好用
+
+我现在搓了个extension，打开后每轮回复前注入一句，用grep或者read 100行 ...</blockquote>
+和codegraph比呢？一直在用codegraph
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
