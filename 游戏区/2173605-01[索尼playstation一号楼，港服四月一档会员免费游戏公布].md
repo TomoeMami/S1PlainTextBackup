@@ -93,3 +93,15 @@ VGC 证实了关于《Ape Escape》复活版正在由 Evening Star（《Penny’
 
 说起来当年拿多罗猫当表情包的还挺多的，西野考虑拉出来不?最后一作应该是在PSV吧
 
+
+*****
+
+####  哎哟卧槽了  
+##### 854#       发表于 2026-10-8 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70337015&amp;ptid=2173605" target="_blank">ナルバレック 发表于 2026-10-7 23:46</a>
+说起来当年拿多罗猫当表情包的还挺多的，西野考虑拉出来不?最后一作应该是在PSV吧 ...</blockquote>
+PSV那個真的挺過癮的，當年跟3DS擦肩小遊戲對台，可惜後者現在還有部分服務，多羅貓那個直接沒了……恨索尼的原因加一個<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
