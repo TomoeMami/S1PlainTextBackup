@@ -11047,3 +11047,13 @@ Bro从一个月前穿越过来的吗
 国庆七天从早到晚一直在AI</blockquote>
 我也差不多，感想就是astra不如opus5.5一根毛<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 15772#       发表于 2026-10-8 02:22
+
+haiku 5.5发布
+
+不过感觉sonnet 5.5 max就已经开始雷霆起来了，haiku真的能用好用吗
+
