@@ -10634,3 +10634,13 @@ https://zhu ...</blockquote>
 
 tibo这重置真无语了. 我5号用了重置. 然后用了20% 剩余时间4天. 结果现在来个重置 让我重置时间推迟3天 补了20%的额度
 
+
+*****
+
+####  malisa  
+##### 15734#       发表于 2026-10-7 14:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">我是 Pro 20x的老用户
+送了不少点数，所以我基本上就随便用了
+重置我是不用的，反正额度用完就让它扣点数呗
+
