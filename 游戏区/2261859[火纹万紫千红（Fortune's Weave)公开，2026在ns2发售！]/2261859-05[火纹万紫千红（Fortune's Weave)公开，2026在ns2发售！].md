@@ -7483,3 +7483,26 @@ image.png
 
 战争篇后面三关的支援是无限的么，飞龙这种是无所谓，给你一次出两个大象是真的有点难绷，只能说还好没有武器消耗设定，打这些关最吃紧的还是奶
 
+
+*****
+
+####  月华刹那  
+##### 6584#       发表于 2026-10-7 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334288&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-10-7 13:05</a>
+
+战争篇后面三关的支援是无限的么，飞龙这种是无所谓，给你一次出两个大象是真的有点难绷，只能说还好没有武 ...</blockquote>
+这作应该没有无限增援的关卡吧
+
+都是多出几次就没了，可以多等几个回合全部清完再前进
+
+
+*****
+
+####  skyfall_tr  
+##### 6585#       发表于 2026-10-7 13:16
+
+蕾达线第二部和白发鬼的交互比第一部还糟糕，看了第二部我是真不知道你两在演什么了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

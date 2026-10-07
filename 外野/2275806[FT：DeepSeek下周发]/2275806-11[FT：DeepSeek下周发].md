@@ -10594,3 +10594,19 @@ codebase-memory-mcp是真的好用
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hugosol  
+##### 15731#       发表于 2026-10-7 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334267&amp;ptid=2275806" target="_blank">dangoron 发表于 2026-10-7 12:59</a>
+
+和codegraph比呢？一直在用codegraph
+
+—— 来自 S1Fun</blockquote>
+我也没用过codegraph，当时一大堆同类产品做了一下调研就一直在用这个了
+
+这里有个对比的文章
+[https://zhuanlan.zhihu.com/p/2067412078261018809](https://zhuanlan.zhihu.com/p/2067412078261018809)
+
