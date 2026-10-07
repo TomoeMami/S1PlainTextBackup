@@ -10837,3 +10837,13 @@ Opencode又出来了个代号Exo</blockquote>
 
 OAI现在基本固定周二和周六重置，按着这个时间规划使用一般不会错
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 15752#       发表于 2026-10-7 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70335427&amp;ptid=2275806" target="_blank">squallx 发表于 2026-10-7 18:09</a>
+求个监控站地址</blockquote>
+搜codex reset能搜出一堆，我常看的是[这个](https://codex-reset.com/zh/)。有dot可以让它监控tibo的X，提到重置就给自己发邮件(好像普通的定时任务也能做到)
+

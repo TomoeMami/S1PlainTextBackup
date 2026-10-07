@@ -7740,3 +7740,24 @@ A少线最后玩感觉真的好，最后几章外传打得爽死，凯伊外传A
 
 而且人人都能学到5格射程的战技，能隔着各种障碍处理高威胁的敌方单位
 
+
+*****
+
+####  廖化  
+##### 6608#       发表于 2026-10-7 19:10
+
+主线打吐了，最多打3条线就去打第三部，留一条线给二周目<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纯夏  
+##### 6609#       发表于 2026-10-7 19:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70335720&amp;ptid=2261859" target="_blank">廖化 发表于 2026-10-7 19:10</a>
+
+主线打吐了，最多打3条线就去打第三部，留一条线给二周目</blockquote>
+第2部重复度高 打一条线就行 第1部最好是4线全打 
+
+比如你第1部凯伊线没打的话 第3部就无法触发解锁武僧这个职业的任务
+
