@@ -10954,3 +10954,24 @@ GPT自己没品味，让它照着学，狠狠鞭策它。 盘点opus5.5做视频
 
 十来天前的风向还是，奥特曼被 Astra 吓怕了，拿不出有真东西的模型了，A 处要完蛋了。这两天楼里突然风向就变成了O 处打不过 A 处，tibo 急了没招了。虽然我理解大家都喜欢斗兽，但是好歹也有一点耐心嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 15763#       发表于 2026-10-7 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70336638&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-10-7 22:19</a>
+大肥鱼不是没有多模态吗，还能复刻视频？</blockquote>
+Bro从一个月前穿越过来的吗
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  bartholo4  
+##### 15764#       发表于 2026-10-7 22:45
+
+本来现在就是，能保持 SOTA 两周就不错了
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
