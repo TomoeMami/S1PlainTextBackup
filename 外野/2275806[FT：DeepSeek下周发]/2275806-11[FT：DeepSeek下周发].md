@@ -10733,3 +10733,14 @@ openai放战略核轰炸了，有人讨论吗？</blockquote>
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  hugosol  
+##### 15743#       发表于 2026-10-7 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334845&amp;ptid=2275806" target="_blank">zy450 发表于 2026-10-7 16:05</a>
+
+之前用过codegraph，老是担心会不会索引更新不及时，导致检索信息不全…… ...</blockquote>
+这个倒是应该问题不大，这类产品应该都有实时更新索引的功能，codegraph好像是跟OS文件事件有关，codebase-memory-mcp是用git watcher，反正把源码拉下来用agent问一下就知道了
+
