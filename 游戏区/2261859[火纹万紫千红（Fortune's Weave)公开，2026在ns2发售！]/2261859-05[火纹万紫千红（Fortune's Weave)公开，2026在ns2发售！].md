@@ -7809,3 +7809,27 @@ A少线最后玩感觉真的好，最后几章外传打得爽死，凯伊外传A
 
 是不是只有喂鸟的角色才有这待遇，玩了三部了都只用过焰将去喂
 
+
+*****
+
+####  hl氏  
+##### 6615#       发表于 2026-10-7 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70336158&amp;ptid=2261859" target="_blank">bwsusaga 发表于 2026-10-7 20:40</a>
+
+原来战旗模式下突然不受伤害是因为主角，我一直以为是某个保底机制
+
+是不是只有喂鸟的角色才有这待遇，玩 ...</blockquote>
+有支援才会护你，我男人都没喂过
+
+几次越级打迷宫打不过的时候就用女角色来打，很好触发
+
+*****
+
+####  duraa  
+##### 6616#       发表于 2026-10-7 20:49
+
+最后一天假期把之前剩着没打的第一章凯伊线补完了，不追求全员上马倒是没想象中繁琐<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+之前做了外传系统第三章发的凯伊给我看笑了，全属性没一项过30的说是，自己练的力魔技速30+，双防20+，感觉真要玩应该是净化剑闪电剑砍的飞起<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
