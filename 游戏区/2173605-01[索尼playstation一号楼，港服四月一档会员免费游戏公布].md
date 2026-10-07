@@ -67,3 +67,13 @@ QSSR羊蹄山上表现还可以，基础分辨率比较高所以清晰度提升�
 
 鲲哥∶地平线6ps版 2027.1.26
 
+
+*****
+
+####  医生狼多  
+##### 851#       发表于 2026-10-7 21:54
+
+VGC 证实了关于《Ape Escape》复活版正在由 Evening Star（《Penny’s Big Breakaway》/《Sonic Mania》）开发的报道
+
+“VGC 从多个消息来源获悉，《Ape Escape》并非索尼计划通过授权给小型第三方工作室来复活的唯一 PlayStation 系列”
+
