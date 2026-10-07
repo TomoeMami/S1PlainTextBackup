@@ -8241,3 +8241,13 @@ A少:未能实现夙愿，为了 ...</blockquote>
 
 重新打凯伊线这次很早挖了哪吒发现还带了把沙拉曼达，以前只知道后面挖有人会带好东西没想到前面也有
 
+
+*****
+
+####  duraa  
+##### 6653#       发表于 2026-10-8 07:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70337010&amp;ptid=2261859" target="_blank">jockeyjoestar 发表于 2026-10-7 23:45</a>
+凯伊要走魔法怎么培养？  看了下只有后期神鸵鸟能加魔</blockquote>
+凯伊指导任务会发闪电剑（甚至后面主线还会发一把），然后再一看鸵鸟系列到墓志铭神将都能用剑，一下子就看懂了is意图<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
