@@ -7659,3 +7659,17 @@ image.png
 
 九头龙在a少面前纯纯萝莉，我觉得a少线不会有人选择不去尝试拆了九头龙的（
 
+
+*****
+
+####  duraa  
+##### 6600#       发表于 2026-10-7 17:23
+
+ 本帖最后由 duraa 于 2026-10-7 17:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70335026&amp;ptid=2261859" target="_blank">最浅的语言 发表于 2026-10-7 16:48</a>
+
+挖角西提斯的野外遭遇战是不是固定是35级？我凯伊线挖的晚倒没感觉，女王线挖的早20级过去也是35级，打是能 ...</blockquote>
+凯伊线的等级很低，印象中18级左右，招进来的西迪斯17级<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">任务位置也和女王线的不一样，就在最下面的驿站边上
+
+可能意思是玩西提斯就走凯伊玩飞龙
+

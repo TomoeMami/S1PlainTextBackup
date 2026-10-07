@@ -10763,3 +10763,13 @@ openai放战略核轰炸了，有人讨论吗？</blockquote>
 
 Opencode又出来了个代号Exo
 
+
+*****
+
+####  Milarvoz  
+##### 15746#       发表于 2026-10-7 17:13
+
+用ds修电脑，看了一天的Wait Hmm Let me，享受。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
