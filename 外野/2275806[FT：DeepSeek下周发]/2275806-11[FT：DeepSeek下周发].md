@@ -10847,3 +10847,19 @@ OAI现在基本固定周二和周六重置，按着这个时间规划使用一�
 求个监控站地址</blockquote>
 搜codex reset能搜出一堆，我常看的是[这个](https://codex-reset.com/zh/)。有dot可以让它监控tibo的X，提到重置就给自己发邮件(好像普通的定时任务也能做到)
 
+
+*****
+
+####  RookieTnT  
+##### 15753#       发表于 2026-10-7 19:52
+
+<img src="https://img.stage1st.com/forum/202610/07/195221gqq7h7v79q52qxxp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (169.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-7 19:52 上传
+
+OpenAI 依旧小花招：API 中提供的 GPT 模型远胜于 Codex 订阅中提供的模型，和我实际体验也相符。
+
