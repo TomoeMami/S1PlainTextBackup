@@ -7788,3 +7788,24 @@ A少线最后玩感觉真的好，最后几章外传打得爽死，凯伊外传A
 
 怎么会有BOSS角色脚底抹油的……？
 
+
+*****
+
+####  hl氏  
+##### 6613#       发表于 2026-10-7 20:37
+
+主角护犊子触发的概率不是一般的高，迷宫打不过从天而降秒了对方，战旗模式会绝对防御，喂鸟还是不能省，每人支援2级就很好触发
+
+
+*****
+
+####  bwsusaga  
+##### 6614#       发表于 2026-10-7 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70336139&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-10-7 20:37</a>
+
+主角护犊子触发的概率不是一般的高，迷宫打不过从天而降秒了对方，战旗模式会绝对防御，喂鸟还是不能省，每 ...</blockquote>
+原来战旗模式下突然不受伤害是因为主角，我一直以为是某个保底机制<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+是不是只有喂鸟的角色才有这待遇，玩了三部了都只用过焰将去喂
+
