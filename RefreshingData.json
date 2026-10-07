@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 21473,
+    "totalreply": 21475,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼10月]",
-    "lastedit": 1791415325,
+    "lastedit": 1791416525,
     "category": "外野",
     "active": true,
     "update": false
@@ -13824,10 +13824,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 29457,
+    "totalreply": 29459,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1791416165,
+    "lastedit": 1791416525,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16866,10 +16866,10 @@
     "update": false
   },
   "2291012": {
-    "totalreply": 49,
+    "totalreply": 50,
     "title": "[感觉粉轨迹的有一种老登味]",
     "newtitle": "[感觉粉轨迹的有一种老登味]",
-    "lastedit": 1791406326,
+    "lastedit": 1791416765,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17339,6 +17339,15 @@
     "newtitle": "[是枝裕和监督  蓦然回首 真人电影 2026年上映]",
     "lastedit": 1791414125,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2291172": {
+    "totalreply": 42,
+    "title": "[《欢迎来龙餐馆》宣布代表中国内地角逐第 99 届奥斯卡最佳国际影片]",
+    "newtitle": "[《欢迎来龙餐馆》宣布代表中国内地角逐第 99 届奥斯卡最佳国际影片]",
+    "lastedit": 1791416885,
+    "category": "外野",
     "active": true,
     "update": false
   }
