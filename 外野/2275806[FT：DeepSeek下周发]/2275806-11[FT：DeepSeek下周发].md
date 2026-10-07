@@ -10486,3 +10486,17 @@ AI出来后 rust嘉豪是越来越多了. 什么都要用rust重写一遍.
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lowezack  
+##### 15722#       发表于 2026-10-7 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=70333858&amp;amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-7 11:06</a>
+Kimi k3 &amp;gt; Astra + Codex(此时此刻）🤮
+
+OpenAI 最近已经疯了，再看 Tibo 的 28 天改进计划我感到十分可笑 ...</blockquote>
+非常同意，现在gpt我已经完全不敢放手了，必须死死的盯着，要不然转头就给你过度设计，疯狂拉屎。我现在每个prompt都要带上不要过度测试，过度设计。
+
+一个大需求必须拆成很多小需求，一个一个做
+
