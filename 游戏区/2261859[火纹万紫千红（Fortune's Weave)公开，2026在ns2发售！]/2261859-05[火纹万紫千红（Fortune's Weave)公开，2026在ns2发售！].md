@@ -7780,3 +7780,11 @@ A少线最后玩感觉真的好，最后几章外传打得爽死，凯伊外传A
 
 本来说国庆直接通关，结果一条线都没打完<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉时之笛发售时都打不完
 
+
+*****
+
+####  新HGCG  
+##### 6612#       发表于 2026-10-7 20:10
+
+怎么会有BOSS角色脚底抹油的……？
+
