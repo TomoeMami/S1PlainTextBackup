@@ -10829,3 +10829,11 @@ Opencode又出来了个代号Exo</blockquote>
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  andychen  
+##### 15751#       发表于 2026-10-7 18:17
+
+OAI现在基本固定周二和周六重置，按着这个时间规划使用一般不会错
+

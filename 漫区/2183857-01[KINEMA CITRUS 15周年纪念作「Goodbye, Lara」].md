@@ -70,3 +70,12 @@
 皆さんお疲れ様でした、見てくれた方もありがとう。
 <img src="https://p.sda1.dev/35/a862b727bc165a5015f95fd6321c8703/1000174913.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑猫桑  
+##### 631#       发表于 2026-10-7 18:18
+
+被初设秒杀，脚本别从日剧找了全都是垃圾，东写一点西写一点的，写到不对劲了就把事情弄得一团糟然后去看海或者新开始一段生活结束，这有一点创作者真正想要表达的吗
+<img src="https://p.sda1.dev/35/997896595c2c57441577ffce3ab999db/image.jpg" referrerpolicy="no-referrer">
+
