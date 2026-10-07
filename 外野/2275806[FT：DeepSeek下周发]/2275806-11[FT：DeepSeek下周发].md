@@ -10789,3 +10789,43 @@ Opencode又出来了个代号Exo</blockquote>
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  startraveller  
+##### 15748#       发表于 2026-10-7 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70335390&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-10-7 18:00</a>
+虽然可能是因为看不见think的错觉
+但我觉得这东西相当牛逼啊
+不会真的是sol或sonnet的路由吧（</blockquote>
+有人说看指纹像是个路由，好像测出了GPT和Opus的指纹
+
+*****
+
+####  squallx  
+##### 15749#       发表于 2026-10-7 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334216&amp;ptid=2275806" target="_blank">umamusume 发表于 2026-10-7 12:46</a>
+
+早上起床一定要看一眼重置监控站啊，我6点就看到要重置了
+
+—— 来自 samsung SM-S9480, Android 16, 鹅 ...</blockquote>
+求个监控站地址
+
+
+*****
+
+####  neptunehs  
+##### 15750#       发表于 2026-10-7 18:10
+
+ 本帖最后由 neptunehs 于 2026-10-7 18:13 编辑 
+
+事实上exo free现在还在炸着 不排除是o\跟a\发现了斩杀了
+
+反正就我使用过程我真觉得这东西很可能是o\的路由 有几个迹象都很像（a\的东西我没用过不敢说
+
+同样应该是路由的fledge我就能一眼看到主力是4.1f 混着可能是k3的强者 但也混了一个会自我死循环的垃圾模型导致我现在都不敢用了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
