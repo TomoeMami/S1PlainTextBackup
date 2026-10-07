@@ -7274,3 +7274,31 @@ image.png
 
 那开局第一个主角是不是用迪托利希比较好？
 
+
+*****
+
+####  空气先生  
+##### 6569#       发表于 2026-10-7 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70333545&amp;ptid=2261859" target="_blank">captoon 发表于 2026-10-7 09:31</a>
+
+感谢，我再研究研究
+
+那开局第一个主角是不是用迪托利希比较好？</blockquote>
+蕾达大于迪大于女王大于丁真
+
+具体可以看在线数据表的推荐：[https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?nlc=1&amp;tab=twr89r](https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?nlc=1&amp;tab=twr89r)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ captoon + 2好评加鹅
+
+查看全部评分
+
