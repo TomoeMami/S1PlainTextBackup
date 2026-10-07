@@ -11057,3 +11057,13 @@ haiku 5.5发布
 
 不过感觉sonnet 5.5 max就已经开始雷霆起来了，haiku真的能用好用吗
 
+
+*****
+
+####  jojog  
+##### 15773#       发表于 2026-10-8 02:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">openai感觉没活硬整了啊
+
+haiku好歹还够便宜，你这啥UI是什么鬼
+

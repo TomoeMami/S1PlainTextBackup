@@ -8181,3 +8181,39 @@ A少:未能实现夙愿，为了 ...</blockquote>
 雕像内容上进8强的都被封为焰将，而剧情上除了女王都是夺冠后封的。
 从时间看决赛日后法王都自身难保了，不觉得有心情和时间出来追加焰将。而且刚封完冠军焰将又突然追加显得很廉价啊。
 
+
+*****
+
+####  索非亚  
+##### 6650#       发表于 2026-10-8 02:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70337363&amp;ptid=2261859" target="_blank">julia黑 发表于 2026-10-8 01:37</a>
+感觉这作练不出完美的闪避T 了，结合花月找个草丛一钻就能清一路的日子真怀念 ...</blockquote>
+如果只是堆到100回避还是有几个能做到，配合克制护符和草丛也接近150了。(然而决战场没草丛)
+拳神将给的奶奶速低了点，换穆的话也过线了。
+本作几个清线高手应该是那几位拿剑的暴击哥，配合必圣戒指，回避意思意思就好了。
+
+<img src="https://img.stage1st.com/forum/202610/08/023642a551actk1f0hbk1j.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1791398201927_3.webp</strong> (182.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 02:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/08/023642xnd5icwwbq7qbnq1.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1791398201733_2.webp</strong> (187.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 02:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/08/023642ymenem2mdcmn532a.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1791398201516_1.webp</strong> (187.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 02:36 上传
+
