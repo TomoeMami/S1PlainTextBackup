@@ -11118,3 +11118,14 @@ opus5.5看着沟通起来很自然流畅，审美也挺不错，写代码也不�
 就是因为GPT系列如此的严谨、谨慎、胆小、周全、 ...</blockquote>
 因为我国庆这几天折腾的就是强审美相关的项目，不管是UI还是分镜设计，astra的表现甚至比不上gemini<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saikou  
+##### 15778#       发表于 2026-10-8 03:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70337498&amp;ptid=2275806" target="_blank">Quelaan 发表于 2026-10-7 13:53</a>
+
+因为我国庆这几天折腾的就是强审美相关的项目，不管是UI还是分镜设计，astra的表现甚至比不上gemini ...</blockquote>
+gpt可以调用google那个ui生成工具，不过效果也就那样
+
