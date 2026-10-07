@@ -7691,3 +7691,26 @@ image.png
 打完迪少的战争篇了，其他路线是不是开场白嫖5张上级资格证转多几个角色就可以跳过了 ...</blockquote>
 存档角色边上的金框听说要手打第二部才有，看有没有强迫症了，反正我没有<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  最浅的语言  
+##### 6603#       发表于 2026-10-7 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70335199&amp;ptid=2261859" target="_blank">duraa 发表于 2026-10-7 17:23</a>
+
+凯伊线的等级很低，印象中18级左右，招进来的西迪斯17级任务位置也和女王线的不一样，就在最下面的驿站边 ...</blockquote>
+好吧，看来是推荐凯伊线练西提斯，我还想凯伊线错过了没练想来女王线练一下。
+
+*****
+
+####  纯夏  
+##### 6604#       发表于 2026-10-7 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70335218&amp;ptid=2261859" target="_blank">JOJOROY 发表于 2026-10-7 17:29</a>
+
+打完迪少的战争篇了，其他路线是不是开场白嫖5张上级资格证转多几个角色就可以跳过了 ...</blockquote>
+是的 战争篇重复度太高 如果不是非要回收差分的完美主义者 
+
+其他线跳过即可
+
