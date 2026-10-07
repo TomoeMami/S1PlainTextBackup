@@ -10773,3 +10773,19 @@ Opencode又出来了个代号Exo
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  neptunehs  
+##### 15747#       发表于 2026-10-7 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334982&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-7 16:37</a>
+Opencode又出来了个代号Exo</blockquote>
+虽然可能是因为看不见think的错觉
+但我觉得这东西相当牛逼啊
+不会真的是sol或sonnet的路由吧（
+
+虽然刚刚炸了 不知道现在怎么样了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
