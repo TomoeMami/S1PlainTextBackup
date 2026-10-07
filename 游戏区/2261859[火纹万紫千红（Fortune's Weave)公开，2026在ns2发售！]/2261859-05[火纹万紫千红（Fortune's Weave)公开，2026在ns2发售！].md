@@ -7527,3 +7527,16 @@ image.png
 
 我觉得是没问题的
 
+
+*****
+
+####  u2deack  
+##### 6587#       发表于 2026-10-7 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334297&amp;ptid=2261859" target="_blank">月华刹那 发表于 2026-10-7 13:09</a>
+这作应该没有无限增援的关卡吧
+
+都是多出几次就没了，可以多等几个回合全部清完再前进 ...</blockquote>
+那就只能慢慢杀完再推了，我这队打大象还是要费点力气
+风花雪月的时候就最烦那些魔像，这次给你整个大象
+
