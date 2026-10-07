@@ -7219,3 +7219,27 @@ image.png
 
 刚玩，之前看到说是有第一部就能无限刷？？
 
+
+*****
+
+####  纯夏  
+##### 6564#       发表于 2026-10-7 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70333407&amp;ptid=2261859" target="_blank">captoon 发表于 2026-10-7 08:43</a>
+
+刚玩，之前看到说是有第一部就能无限刷？？</blockquote>
+第1部可以任意章节重开 但是第1部重开也是覆盖关系 不过支援可以无限刷 
+
+要刷能力值你要打通第1部+第2部
+
+*****
+
+####  lost_恩恩  
+##### 6565#       发表于 2026-10-7 09:02
+
+ 本帖最后由 lost_恩恩 于 2026-10-7 09:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70333407&amp;ptid=2261859" target="_blank">captoon 发表于 2026-10-7 08:43</a>
+
+刚玩，之前看到说是有第一部就能无限刷？？</blockquote>
+凯伊线，白发鬼的那个特殊训练任务，应该是知名度6那个特殊培训，分三波兵，打到第三波剩最后一个兵，重开，不占回合数，无限刷等级武器熟练      还有个地图忘了具体是哪了，进入迷宫遇敌，放魔法秒了后出迷宫，旁边就有可以聚餐的地方，吃一个回复魔法的食物，来回反复刷羁绊   但是我个人不建议从凯伊线开始玩，给我感觉凯伊线玩的非常坐牢-_-
+
