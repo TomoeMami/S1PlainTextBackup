@@ -7594,3 +7594,14 @@ image.png
 
 以及比较好笑的是第三部没有大象全变大鸟了（珍惜战争篇吧，全鞑古扎的大象到了第三部都成你的了
 
+
+*****
+
+####  噗呸破屁诚  
+##### 6593#       发表于 2026-10-7 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70333510&amp;ptid=2261859" target="_blank">月夜的风 发表于 2026-10-7 09:19</a>
+
+第一部除了支线跑外面外，直接蹲城里打工，7天一刷吃饭和支援。速通4条后，开满盘外要素再回来认真养。这时 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只有第一次打通的第一部的装备物品能继承的到第三部，再次打通的只有属性继承的过去
+
