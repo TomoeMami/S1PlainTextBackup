@@ -11098,3 +11098,23 @@ opus5.5看着沟通起来很自然流畅，审美也挺不错，写代码也不�
 
 2026-10-8 03:43 上传
 
+
+*****
+
+####  Saikou  
+##### 15776#       发表于 2026-10-8 03:51
+
+我现在有一个项目负责人，一个前端一个后端，一个QA，一个设计师。跑ai像是看一堆ai社畜在打工，救命<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Quelaan  
+##### 15777#       发表于 2026-10-8 03:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70337492&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-10-8 03:43</a>
+
+不太同意，gpt系列的优势和劣势是双刃剑，一体两面的。
+
+就是因为GPT系列如此的严谨、谨慎、胆小、周全、 ...</blockquote>
+因为我国庆这几天折腾的就是强审美相关的项目，不管是UI还是分镜设计，astra的表现甚至比不上gemini<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
