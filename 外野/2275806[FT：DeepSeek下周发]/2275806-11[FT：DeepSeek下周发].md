@@ -10934,3 +10934,23 @@ GPT自己没品味，让它照着学，狠狠鞭策它。 盘点opus5.5做视频
 
 前端开发和设计师还是用opus5.5 好. 那种灵性确实是第一的ai..
 
+
+*****
+
+####  飞剪号  
+##### 15761#       发表于 2026-10-7 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70336585&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-10-7 22:04</a>
+
+多谢，我去学习学习。
+
+刚才让大肥鱼试着复刻一个视频，换个主题和内容，结果不出所料是一坨，不过没想象 ...</blockquote>
+大肥鱼不是没有多模态吗，还能复刻视频？
+
+*****
+
+####  来都来了  
+##### 15762#       发表于 2026-10-7 22:20
+
+十来天前的风向还是，奥特曼被 Astra 吓怕了，拿不出有真东西的模型了，A 处要完蛋了。这两天楼里突然风向就变成了O 处打不过 A 处，tibo 急了没招了。虽然我理解大家都喜欢斗兽，但是好歹也有一点耐心嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

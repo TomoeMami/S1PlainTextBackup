@@ -7978,3 +7978,25 @@ boss是用哪吒一拳超人，站在丹提旁特技流星一次砍boss一管血
 原来内森入队是要小绿去打最后一下才行么还是怎样，我开始以为是要上去talk结果看到没选项就以为是打完后或 ...</blockquote>
 要收尾刀才行。
 
+
+*****
+
+####  duraa  
+##### 6633#       发表于 2026-10-7 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70336531&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-10-7 21:51</a>
+
+第三章选出门决战以后是不是就不能随时回来选第一章的故事继续了，像大概看看第三章是啥样的
+
+ ...</blockquote>
+能回大厅的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">甚至刚出门的第一关看到boss不想打了也能直接选回大厅
+
+*****
+
+####  chiziru  
+##### 6634#       发表于 2026-10-7 22:25
+
+凯伊线打到第七章末尾才发现坐骑有成长补正，打算重开了
+
+—— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
