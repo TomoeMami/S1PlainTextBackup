@@ -77,3 +77,48 @@
 
 2026-10-7 17:07 上传
 
+
+*****
+
+####  qixinno1  
+##### 21632#       发表于 2026-10-7 17:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也太没活了吧
+
+*****
+
+####  Jamaisvu  
+##### 21633#       发表于 2026-10-7 17:21
+
+醉了，62个池子，别说单抽了，拖着看了一半手指就累到不行...
+
+不过这算不上最多的，25年11月那个Lancer+Extra的池子有77种...
+
+*****
+
+####  qixinno1  
+##### 21634#       发表于 2026-10-7 17:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">梭哈白花 三个雨神 狗屎
+
+*****
+
+####  angelooo  
+##### 21635#       发表于 2026-10-7 17:41
+
+这啥玩意啊，不就纯长草……
+
+*****
+
+####  壳壳牛  
+##### 21636#       发表于 2026-10-7 19:56
+
+没活了是这样的<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21637#       发表于 2026-10-7 20:02
+
+意义不明的东西 10月就准备这样混过去了。<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
