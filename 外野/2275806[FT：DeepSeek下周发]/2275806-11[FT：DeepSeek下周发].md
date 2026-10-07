@@ -10975,3 +10975,38 @@ Bro从一个月前穿越过来的吗
 
 —— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  赤星ビスコ  
+##### 15765#       发表于 2026-10-7 22:49
+
+讲道理，个人开发可以先根据产品形态让ai出design tokens
+这也是某种分层，交互设计与功能实现分离后，对大模型本身能力要求就降低了
+
+*****
+
+####  lactone  
+##### 15766#       发表于 2026-10-7 22:50
+
+ 本帖最后由 lactone 于 2026-10-7 22:52 编辑 
+
+明天会有国模发布吗？
+
+现在美国欧洲的开源模型算是追到glm5.2了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  hugosol  
+##### 15767#       发表于 2026-10-7 22:56
+
+讲道理，现在模型的前端审美已经没有太大意义了，因为有很多开源仓库连审美都打包到文档里了，让agent直接套上来用就是了
+
+比如这个：
+[https://github.com/chaos-xxl/zelda-hyrule-ui](https://github.com/chaos-xxl/zelda-hyrule-ui)
+
+想微调就让它读项目文档，然后跟它说“我要五彩斑斓的黑”之类的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
