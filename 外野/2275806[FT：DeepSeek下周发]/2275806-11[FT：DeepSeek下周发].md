@@ -11035,3 +11035,15 @@ Bro从一个月前穿越过来的吗
 
 国庆七天从早到晚一直在AI<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Quelaan  
+##### 15771#       发表于 2026-10-8 02:13
+
+ 本帖最后由 Quelaan 于 2026-10-8 02:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70336972&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-10-7 23:35</a>
+
+国庆七天从早到晚一直在AI</blockquote>
+我也差不多，感想就是astra不如opus5.5一根毛<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
