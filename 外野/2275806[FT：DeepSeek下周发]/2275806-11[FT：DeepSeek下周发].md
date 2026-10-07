@@ -10500,3 +10500,49 @@ OpenAI 最近已经疯了，再看 Tibo 的 28 天改进计划我感到十分可
 
 一个大需求必须拆成很多小需求，一个一个做
 
+
+*****
+
+####  malisa  
+##### 15723#       发表于 2026-10-7 12:39
+
+28 天改造计划本身就是拖时间
+因为他们打不过隔壁5.5
+短期内也没什么办法，因为模型也不是想发就发
+还要走审核
+那么只能靠营销来拖，一天是一天
+
+
+*****
+
+####  jinuzuktII  
+##### 15724#       发表于 2026-10-7 12:42
+
+O/的新模型让 A/打得像个小丑，又端不出来新菜，只能尬住了
+
+*****
+
+####  dangoron  
+##### 15725#       发表于 2026-10-7 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334080&amp;ptid=2275806" target="_blank">umamusume 发表于 2026-10-7 12:03</a>
+怎么今天11点就重置了，太可惜了
+
+—— 来自 samsung SM-S9480, Android 16, 鹅球 v4.0 ...</blockquote>
+我tm无语了，早晨9点用了reset，才没用几下就重置了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  umamusume  
+##### 15726#       发表于 2026-10-7 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334213&amp;ptid=2275806" target="_blank">dangoron 发表于 2026-10-7 12:44</a>
+我tm无语了，早晨9点用了reset，才没用几下就重置了
+
+—— 来自 S1Fun</blockquote>
+早上起床一定要看一眼重置监控站啊，我6点就看到要重置了
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
