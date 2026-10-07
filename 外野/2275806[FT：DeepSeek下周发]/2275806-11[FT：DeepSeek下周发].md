@@ -10913,3 +10913,16 @@ Opus 5.5 审美挺难取代的,而且视频如果涉及到文案的话，GPT 那
 最近看到opus5.5制作的那些视频有点心痒，用astra甚至v41f有可能复刻类似的效果么该从哪里入手 ...</blockquote>
 GPT自己没品味，让它照着学，狠狠鞭策它。 [盘点opus5.5做视频达到商业水准的15种风格](https://b23.tv/Ll17g97)
 
+
+*****
+
+####  heemoon  
+##### 15759#       发表于 2026-10-7 22:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70336395&amp;ptid=2275806" target="_blank">unrealMeeSeeks 发表于 2026-10-7 21:27</a>
+GPT自己没品味，让它照着学，狠狠鞭策它。 盘点opus5.5做视频达到商业水准的15种风格 ...</blockquote>
+多谢，我去学习学习。
+
+刚才让大肥鱼试着复刻一个视频，换个主题和内容，结果不出所料是一坨，不过没想象中那么糟糕。
+6.1sol强不少，但是怎么说呢，缺少灵性<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
