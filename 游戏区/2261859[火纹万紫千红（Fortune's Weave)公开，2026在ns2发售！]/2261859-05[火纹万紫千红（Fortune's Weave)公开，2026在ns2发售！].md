@@ -7557,3 +7557,14 @@ image.png
 战争篇后面三关的支援是无限的么，飞龙这种是无所谓，给你一次出两个大象是真的有点难绷，只能说还好没有武 ...</blockquote>
 不是无限的
 
+
+*****
+
+####  HazukiShion  
+##### 6590#       发表于 2026-10-7 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334488&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-10-7 14:17</a>
+
+我破防了，救世篇一旦重开就吃掉你因果合成和因果生成的所有东西以及使用过的因果碎片，这是重大恶性设计bu ...</blockquote>
+其实还有个问题，就是开二周目的话有些一周目支援对话的观看状态会保留不会重置，只能开新档。。。<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
