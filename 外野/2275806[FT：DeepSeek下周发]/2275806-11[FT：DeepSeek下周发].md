@@ -10420,3 +10420,16 @@ opencode又一个exo free 又不知道是啥了 虽然目前还不可用
 作为自费上班的，我最近在尝试用AI做一整套分析流程（从源数据到指标表再到AI写分析），目前是用workbuddy ...</blockquote>
 自费上班说明你们领导认为你们的工作用人工来完成就行了，在这种情况下，你应该用最便宜的。
 
+
+*****
+
+####  宅男的爱  
+##### 15716#       发表于 2026-10-7 08:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70332625&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-10-6 23:41</a>
+
+作为自费上班的，我最近在尝试用AI做一整套分析流程（从源数据到指标表再到AI写分析），目前是用workbuddy ...</blockquote>
+避免AI焦虑，你可以把这个工作流搭起来试试，反正Workbuddy账号里的模型按Token收费
+
+——搭完很大可能你会发现引入更强模型对你的工作没啥提升
+

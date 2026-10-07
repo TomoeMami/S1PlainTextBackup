@@ -7198,3 +7198,16 @@ image.png
 右上是啥（</blockquote>
 打错了 是左上
 
+
+*****
+
+####  月华刹那  
+##### 6562#       发表于 2026-10-7 08:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70333158&amp;ptid=2261859" target="_blank">无知的小鼠人 发表于 2026-10-7 05:04</a>
+
+这游戏第三章开始先建就开始胡扯了，有一个门，它说容易闪避让我上拳套，我一进去是发现等级比对面高，我的 ...</blockquote>
+这关法师也不好使吧，两边刷一堆飞马
+
+沙漠地形还减回避的，移动力还受限，法师跑不了
+
