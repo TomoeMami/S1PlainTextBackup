@@ -8121,3 +8121,13 @@ A少:未能实现夙愿，为了 ...</blockquote>
 凯伊线反正没有理由下坐骑，神驼转职要B黑魔得吃不少训练资源，或者章节开始的时候凹。
 鸵鸟以第三部的需求回看应该最普通的野生驼2速3技最好了。
 
+
+*****
+
+####  枫雨  
+##### 6645#       发表于 2026-10-8 00:41
+
+救世篇里对面的飞骑兵，大鸟和飞龙批发，不能用剑的职业蛆完了，拿着斧头点上去大鸟上，十几的命中率，然后打中了减半伤害<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+脆皮黑魔法更是被反击一下就得当场交待<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
