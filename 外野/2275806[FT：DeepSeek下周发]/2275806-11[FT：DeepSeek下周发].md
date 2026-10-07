@@ -11129,3 +11129,14 @@ opus5.5看着沟通起来很自然流畅，审美也挺不错，写代码也不�
 因为我国庆这几天折腾的就是强审美相关的项目，不管是UI还是分镜设计，astra的表现甚至比不上gemini ...</blockquote>
 gpt可以调用google那个ui生成工具，不过效果也就那样
 
+
+*****
+
+####  奈落的孤火花  
+##### 15779#       发表于 2026-10-8 04:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70337498&amp;ptid=2275806" target="_blank">Quelaan 发表于 2026-10-8 03:53</a>
+
+因为我国庆这几天折腾的就是强审美相关的项目，不管是UI还是分镜设计，astra的表现甚至比不上gemini ...</blockquote>
+这方面astra一坨。确实
+
