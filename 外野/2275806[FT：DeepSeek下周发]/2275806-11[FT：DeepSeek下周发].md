@@ -11067,3 +11067,11 @@ haiku 5.5发布
 
 haiku好歹还够便宜，你这啥UI是什么鬼
 
+
+*****
+
+####  hugosol  
+##### 15774#       发表于 2026-10-8 03:20
+
+codemode有点强啊，GPT系好像有专门训练过这方面的能力，上下文一下子变得极其耐用了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
