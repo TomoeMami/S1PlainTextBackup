@@ -10926,3 +10926,11 @@ GPT自己没品味，让它照着学，狠狠鞭策它。 盘点opus5.5做视频
 刚才让大肥鱼试着复刻一个视频，换个主题和内容，结果不出所料是一坨，不过没想象中那么糟糕。
 6.1sol强不少，但是怎么说呢，缺少灵性<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RookieTnT  
+##### 15760#       发表于 2026-10-7 22:12
+
+前端开发和设计师还是用opus5.5 好. 那种灵性确实是第一的ai..
+
