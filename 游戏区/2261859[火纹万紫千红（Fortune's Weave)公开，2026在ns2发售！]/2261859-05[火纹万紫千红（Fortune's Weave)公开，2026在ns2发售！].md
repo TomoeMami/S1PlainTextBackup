@@ -7568,3 +7568,14 @@ image.png
 我破防了，救世篇一旦重开就吃掉你因果合成和因果生成的所有东西以及使用过的因果碎片，这是重大恶性设计bu ...</blockquote>
 其实还有个问题，就是开二周目的话有些一周目支援对话的观看状态会保留不会重置，只能开新档。。。<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风祭果凛  
+##### 6591#       发表于 2026-10-7 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70333887&amp;ptid=2261859" target="_blank">milky658 发表于 2026-10-7 11:13</a>
+
+迪托线怎么养初音?重装走到底吗？</blockquote>
+初音就是投枪人柱力，自己也是重装成长，基本上也就这么一条路子给她走了
+
