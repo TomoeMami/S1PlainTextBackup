@@ -10546,3 +10546,24 @@ O/的新模型让 A/打得像个小丑，又端不出来新菜，只能尬住了
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  heemoon  
+##### 15727#       发表于 2026-10-7 12:46
+
+周限只有6%，对我算及时雨了
+
+*****
+
+####  dangoron  
+##### 15728#       发表于 2026-10-7 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334216&amp;ptid=2275806" target="_blank">umamusume 发表于 2026-10-7 12:46</a>
+早上起床一定要看一眼重置监控站啊，我6点就看到要重置了
+
+—— 来自 samsung SM-S9480, Android 16, 鹅 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 主要是有时候懒得看，刚好这次把监控站预测时间也加到我自己的pi扩展里面好了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
