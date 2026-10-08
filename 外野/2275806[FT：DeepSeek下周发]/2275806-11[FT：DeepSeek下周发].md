@@ -11443,3 +11443,17 @@ hy4 preview初期体验一言难尽，改内容把编译头文件都丢了。
 
 小道消息这一两周会有三个模型上，看目前情况估计就是K3.1，V4.1Pro和Qwen4了
 
+
+*****
+
+####  umamusume  
+##### 15806#       发表于 2026-10-8 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70339243&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-10-8 12:15</a>
+解决办法参考：https://github.com/openai/codex/issues/51590
+
+解决方法的提出者提示这个方法按照官方说 ...</blockquote>
+有没有可能是今天更新更新坏了，经常动不动就把沙箱更炸，习惯了
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

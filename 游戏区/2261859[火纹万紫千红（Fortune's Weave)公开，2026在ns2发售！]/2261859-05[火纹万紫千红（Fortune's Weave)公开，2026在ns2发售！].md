@@ -8573,3 +8573,20 @@ A少:未能实现夙愿，为了 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  fireadol  
+##### 6684#       发表于 2026-10-8 13:27
+
+打完雷达线才发现雷达前期就该走法师涨魔力，又不耽误速度成长，然后转舞女拿雷剑乱杀了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+这索雷尔相关剧情也太幽默了，一句话就死了，连个CG都没有，当了几百年法王手下信得过的只有个外来人，听说其他线还有看到猫猫头脸没什么反应的剧情，也太幽默了吧
+
+*****
+
+####  -マユ‐  
+##### 6685#       发表于 2026-10-8 13:31
+
+等超难和里主角出来肯定得再通一遍，要把自助餐吃到撑了，到时能做出差异化的路线吗，感觉很难指望了<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
