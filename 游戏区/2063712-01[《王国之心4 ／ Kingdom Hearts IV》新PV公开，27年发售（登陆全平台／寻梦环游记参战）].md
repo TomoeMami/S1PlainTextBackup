@@ -2314,3 +2314,12 @@ Nintendo Switch™ 2 、PlayStation®5、Xbox Series X|S、XBOX on PC版现已�
 
 想起来这游戏首发就是带中文的
 
+
+*****
+
+####  Piano-Forest  
+##### 193#         楼主| 发表于 2026-10-8 11:02
+
+[https://www.square-enix.com/asia ... lection/post01.html](https://www.square-enix.com/asia/newsportal/zh-CHT/topics/KH-Collection/post01.html)
+<img src="https://p.sda1.dev/35/2ec35f4d842ef6d419c306b42e51e454/1000175039.jpg" referrerpolicy="no-referrer">
+
