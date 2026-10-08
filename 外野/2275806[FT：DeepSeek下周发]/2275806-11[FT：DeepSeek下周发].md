@@ -11821,3 +11821,20 @@ Claude封号没法避免那只能彻底排除了，到时先开个GPT试试水
 有不少喷GPT6的视频，下面一堆受害者现身说法 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">astra后端依然是最强的  不碰A\要做前端的话可以试试KIMI
 
+
+*****
+
+####  andychen  
+##### 15839#       发表于 2026-10-9 04:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343596&amp;ptid=2275806" target="_blank">我也很绝望啊 发表于 2026-10-9 02:42</a>
+
+Claude封号没法避免那只能彻底排除了，到时先开个GPT试试水
+
+有不少喷GPT6的视频，下面一堆受害者现身说法 ...</blockquote>
+首先模型的泛化能力和通用能力直接和规模挂钩，所以能和Astra对比的只有Fable，K3勉强可以算。其他规模差一档的没有对比的必要
+
+在这个范围内单说创意性规划，我觉得Fable的主动性更强，更擅长自己去发散。而Astra相对更需要引导，用户去指明一个方向让它去探索，在过程中不容易擅自偏离方向
+
+我觉得只要掌握了特点，按自己的需求去使用模型，Fable和Astra都能交付令人满意的成果。个人认为Astra的世界知识和泛化能力比Fable还要强一些。另外Anthropic的安全政策限制真的很蛋疼，和生物学与网络安全扯上一点边就没法用Fable了
+
