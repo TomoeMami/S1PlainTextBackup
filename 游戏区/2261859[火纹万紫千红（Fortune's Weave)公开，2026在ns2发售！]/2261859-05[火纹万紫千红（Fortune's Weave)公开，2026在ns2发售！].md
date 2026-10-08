@@ -8549,3 +8549,27 @@ A少:未能实现夙愿，为了 ...</blockquote>
 
 突然意识到除了第三章有个+必杀瘴气，其他时候好像还没吃过对面的必杀，必避的存在何意味，不过也可能也是自动存档的福报吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jabeck  
+##### 6682#       发表于 2026-10-8 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70339593&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-10-8 13:09</a>
+
+突然意识到除了第三章有个+必杀瘴气，其他时候好像还没吃过对面的必杀，必避的存在何意味，不过也可能也是 ...</blockquote>
+你没吃过我吃过，敌人必杀低归低真使出来玩家就要哭了。
+
+*****
+
+####  skyfall_tr  
+##### 6683#       发表于 2026-10-8 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70336995&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-7 23:41</a>
+但看主线剧情，自捏第一部不介入的话凯伊和蕾达已经交代了。
+
+凯伊某人牺牲一下应该还能跑，毕竟到出口了 ...</blockquote>
+其实不影响，你打其他线会发现其实主角不介入也无伤过了，包括迪线开头的那次救场。完全就是给主角强加一段剧情
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
