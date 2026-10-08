@@ -30,3 +30,17 @@
 
 联动一下另外一贴，血源已经有PC转译了，效果据说比模拟器好多了，真是未曾想过的另一条路径啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风夏  
+##### 51#         楼主| 发表于 2026-10-8 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70336846&amp;ptid=2289851" target="_blank">bacons 发表于 2026-10-7 23:07</a>
+机战64发了功能预览版，文本尚早
+
+https://www.bilibili.com/video/BV16uH16JEri/</blockquote>
+大佬单独发布一贴吧，这个帖子后面很多坛友大概看不到<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
