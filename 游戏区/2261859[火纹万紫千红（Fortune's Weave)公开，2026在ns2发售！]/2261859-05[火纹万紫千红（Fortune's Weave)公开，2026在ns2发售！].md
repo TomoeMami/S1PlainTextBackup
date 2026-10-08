@@ -8974,3 +8974,54 @@ DLC补其他4人线是可以的，也没说需要每个人12章啊，每个人�
 
 乾坤的奏者或许逼格很高，但玛利亚天天吃瘪。
 
+
+*****
+
+####  夜留歌  
+##### 6723#       发表于 2026-10-8 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70338542&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-8 10:39</a>
+
+每个月对话本身就很累了，四条线还有大量重复的。
+
+所以我基本上只会和路线固定成员聊聊，那也是路过的时候 ...</blockquote>
+确实看固定队友就够了，非固定队友角色在所有线不同章节的对话内容都是一样的，一条线看过其他线就不用看了
+
+*****
+
+####  Jabeck  
+##### 6724#       发表于 2026-10-8 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70340035&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-8 14:29</a>
+
+都宇宙文明了还要玩神风特攻，小日子想象力这么匮乏的吗？
+
+话说飞船难道没有逃生舱和自动驾驶？
+
+要爆了也 ...</blockquote>
+星球大战：我没意见。
+
+*****
+
+####  DARK_HGCG  
+##### 6725#       发表于 2026-10-8 15:41
+
+<blockquote>lelouchwang 发表于 2026-10-8 14:56
+我现在第三部第一关还没过关，如果再回头去打完其他人的第二部回来的话，相应人员等级装备职业数据也会跟着 ...</blockquote>
+一开始收人的时候会让你选收哪条线的版本，你已经收了的人就只能融合了
+
+
+*****
+
+####  无知的小鼠人  
+##### 6726#       发表于 2026-10-8 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70340035&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-8 14:29</a>
+
+都宇宙文明了还要玩神风特攻，小日子想象力这么匮乏的吗？
+
+话说飞船难道没有逃生舱和自动驾驶？
+
+要爆了也 ...</blockquote>
+一百万人，撤到猴年马月
+
