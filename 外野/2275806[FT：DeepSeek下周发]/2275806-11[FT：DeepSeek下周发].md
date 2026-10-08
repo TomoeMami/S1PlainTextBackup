@@ -11311,3 +11311,16 @@ dsh的ptc模式是和pi的codemode类似的东西，都是用js/ts组装命令�
 甚至dsh有段时间PTC模式一直有一个随机触发的，工具调用没接收到description参数的bug，好久才修复，感觉现在他们对PTC模式还是不够上心
 也因此需要这个插件补全    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  serj005  
+##### 15794#       发表于 2026-10-8 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70338813&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-8 11:14</a>
+所以还是得模型本身有往那个方向训练才行
+
+现在Astra和Sol-6.1用codemode非常丝滑，不知道DeepSeek自己的 ...</blockquote>
+用ds4.1f试过dsh的ptc和pi的codemode。
+很搞的是ds自己用自家专武的ptc老是出毛病，用新出还没专训过的codemode反而用的挺好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
