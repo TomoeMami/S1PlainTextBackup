@@ -29,3 +29,11 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Mayochu爱好者  
+##### 2055#       发表于 2026-10-9 07:09
+
+<img src="https://static.stage1st.com/image/smiley/bundam2017/025.png" referrerpolicy="no-referrer">我超还有老虎特装型，露娜专用勇士狙击型什么时候端上来。
+

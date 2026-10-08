@@ -932,3 +932,27 @@ kkwdkkwdkkwd
 
 看看我的
 
+
+*****
+
+####  zeruitle  
+##### 87#       发表于 2026-10-9 07:08
+
+笑死，我也挺好奇的。。。
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  DFantasy  
+##### 88#       发表于 2026-10-9 07:11
+
+有点好奇(ノ_＜)
+
+*****
+
+####  恶意之刃  
+##### 89#       发表于 2026-10-9 07:12
+
+原来就是你们爬到前段时间大伙都上不了s1呀<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">答应我，有能力去爬github的帖子备份页面好不好
+
