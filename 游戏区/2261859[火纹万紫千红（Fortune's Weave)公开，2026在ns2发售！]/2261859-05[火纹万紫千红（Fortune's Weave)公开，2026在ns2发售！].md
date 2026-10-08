@@ -9679,3 +9679,16 @@ Fmai通第三周销量：
 
 engage   12920
 
+
+*****
+
+####  纯夏  
+##### 6791#       发表于 2026-10-8 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70341882&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-10-8 19:22</a>
+
+新娘的占卜到底有什么用？</blockquote>
+一般时间没啥用 是个火纹经典占卜小游戏 
+
+女王线第10章到她这里对话会有个‌隐藏剧情事件
+
