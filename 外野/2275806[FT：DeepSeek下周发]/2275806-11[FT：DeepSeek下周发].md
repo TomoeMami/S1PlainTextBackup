@@ -11777,3 +11777,18 @@ https://www.luocha ...</blockquote>
 
 反正现在这些前沿模型能力差距也没那么大，要关心的问题是 能有多少token让你挥霍<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 15836#       发表于 2026-10-9 02:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343313&amp;ptid=2275806" target="_blank">我也很绝望啊 发表于 2026-10-9 00:13</a>
+
+近期有个开发项目要做，想开个能力比较强的模型的plan
+
+本来想开个GPT pro的，但是看到很多用户喷过度保守没 ...</blockquote>
+harness要正常工作必须授予本机的各种权限，然后Claude Code会从你系统里各种蛛丝马迹里寻找你是中国人的线索，例如系统时区，常用工作语言等……光开**没有用，只要你人在国内用官方套餐就不可能逃过封号，被封只是早晚问题。剩下的个人途径只有中转站，不过我个人是觉得中转站服务没有任何办法保证模型质量，要不要用看你个人定夺吧
+
+至于GPT，我不太懂你说的过度保守没法决策是啥意思。我现在的审核和计划模型就是Astra，个人觉得能力是很强的
+
