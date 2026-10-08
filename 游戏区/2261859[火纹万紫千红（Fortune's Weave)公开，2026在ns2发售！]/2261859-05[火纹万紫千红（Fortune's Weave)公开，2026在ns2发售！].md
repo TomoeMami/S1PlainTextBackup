@@ -9025,3 +9025,23 @@ DLC补其他4人线是可以的，也没说需要每个人12章啊，每个人�
 要爆了也 ...</blockquote>
 一百万人，撤到猴年马月
 
+
+*****
+
+####  Jabeck  
+##### 6727#       发表于 2026-10-8 15:56
+
+雷达篇玩到一半，全篇唯一靠谱的就是希罗克但是因为沾花惹草被人附上了天飘星的称号。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hl氏  
+##### 6728#       发表于 2026-10-8 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70340455&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-10-8 15:33</a>
+
+这作把故事舞台放在众神尚在的时候真是相当惊喜，一般来说在rpg里都是背景板，这作不仅让众神生活在人类之 ...</blockquote>
+我也说过这个，难得玩到神和半身普遍存在的神话时代
+
+希腊风和地中海/热带也是我喜欢的点，比中世纪带感
+

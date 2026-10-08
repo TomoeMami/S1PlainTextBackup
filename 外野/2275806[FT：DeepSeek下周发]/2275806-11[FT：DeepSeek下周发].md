@@ -11531,3 +11531,13 @@ K的api价格太离谱了，还是捏着鼻子用plan吧
 
 6.1 这个防御性还是挺 naocan 的，对工程的负面影响大到我需要翻出我的号用 5.5 去验收对冲掉这些永远做不出的东西    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  startraveller  
+##### 15815#       发表于 2026-10-8 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70340191&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-8 14:54</a>
+反正Qwen4就之前测试的看是区了，K3.1延期也不怎么妙可能和Grok一样倒吸，只能看V4.1Pro了 ...</blockquote>
+感觉K3.1是刚准备发然后被A社三连吓回去了，毕竟也是要IPO的
+
