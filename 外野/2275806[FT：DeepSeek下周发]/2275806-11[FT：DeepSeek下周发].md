@@ -11792,3 +11792,19 @@ harness要正常工作必须授予本机的各种权限，然后Claude Code会�
 
 至于GPT，我不太懂你说的过度保守没法决策是啥意思。我现在的审核和计划模型就是Astra，个人觉得能力是很强的
 
+
+*****
+
+####  我也很绝望啊  
+##### 15837#       发表于 2026-10-9 02:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343577&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-9 02:26</a>
+
+harness要正常工作必须授予本机的各种权限，然后Claude Code会从你系统里各种蛛丝马迹里寻找你是中国人的 ...</blockquote>
+Claude封号没法避免那只能彻底排除了，到时先开个GPT试试水<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+有不少喷GPT6的视频，下面一堆受害者现身说法给我看怕了，比如这个
+
+GPT 6 Astra：一个平庸、沉闷、没有品味的模型
+[https://www.bilibili.com/video/BV1ReaJ6YEZA/](https://www.bilibili.com/video/BV1ReaJ6YEZA/)
+
