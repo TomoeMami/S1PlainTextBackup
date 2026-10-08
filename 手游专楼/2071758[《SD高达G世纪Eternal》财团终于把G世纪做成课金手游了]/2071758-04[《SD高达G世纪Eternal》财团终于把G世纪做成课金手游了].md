@@ -1526,3 +1526,14 @@ EXA和EXVS分成了两个标签，以后拿极限高达填内容的时候就没�
 
 怎么体力减半就结束了，v的碎片都没怎么刷
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 4848#       发表于 2026-10-9 02:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70342346&amp;ptid=2071758" target="_blank">Sleipnirω 发表于 2026-10-8 21:01</a>
+
+怎么体力减半就结束了，v的碎片都没怎么刷</blockquote>
+现在有武装材料加倍
+
