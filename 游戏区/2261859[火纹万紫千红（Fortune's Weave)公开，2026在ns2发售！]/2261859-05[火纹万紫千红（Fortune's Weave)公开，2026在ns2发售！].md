@@ -8590,3 +8590,44 @@ A少:未能实现夙愿，为了 ...</blockquote>
 
 等超难和里主角出来肯定得再通一遍，要把自助餐吃到撑了，到时能做出差异化的路线吗，感觉很难指望了<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 6686#       发表于 2026-10-8 13:39
+
+苏蒂斯这么喜欢搅动时间线。
+
+为什么她自己被炸的时候没时光倒流一下。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 难道女娲怂了其实就是她干扰的结果？
+
+
+*****
+
+####  白昼梦DD  
+##### 6687#       发表于 2026-10-8 13:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">法王塑造的弱智的一批吧 看到猫猫头露脸就问了句旁边的这人怎么长的跟你一样，再有消息就已经是死讯了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kalavinka  
+##### 6688#       发表于 2026-10-8 13:46
+
+力魔稍微残一点也能用，第三章锻造武器数值很高，命中真的很重要，大鸟才是本作最强敌人有没有懂的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 6689#       发表于 2026-10-8 13:48
+
+<blockquote>mai6696 发表于 2026-10-8 13:39
+苏蒂斯这么喜欢搅动时间线。
+
+为什么她自己被炸的时候没时光倒流一下。
+
+ 难道女娲怂了其实就是她干扰的结果 ...</blockquote>
+更可能是被当减速带了。
+
