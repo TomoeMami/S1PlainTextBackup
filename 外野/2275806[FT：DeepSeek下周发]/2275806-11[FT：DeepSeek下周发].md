@@ -11541,3 +11541,23 @@ K的api价格太离谱了，还是捏着鼻子用plan吧
 反正Qwen4就之前测试的看是区了，K3.1延期也不怎么妙可能和Grok一样倒吸，只能看V4.1Pro了 ...</blockquote>
 感觉K3.1是刚准备发然后被A社三连吓回去了，毕竟也是要IPO的
 
+
+*****
+
+####  nxmonitor  
+##### 15816#       发表于 2026-10-8 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70340650&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-8 16:05</a>
+
+感觉K3.1是刚准备发然后被A社三连吓回去了，毕竟也是要IPO的</blockquote>
+反正Qwen4这个是可以确定的，之前看测试后端算法题做得不如4.1F，token消耗还特别大
+
+*****
+
+####  nxmonitor  
+##### 15817#       发表于 2026-10-8 16:14
+
+ 本帖最后由 nxmonitor 于 2026-10-8 16:16 编辑 
+
+按照今天字节的一个文章说DS会发生能力漂移，采用了类似架构的Qwen4可能真踩到这个坑里面也说不定，毕竟V4Pro就很确定是踩中的，4.1就改得七七八八了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

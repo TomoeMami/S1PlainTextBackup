@@ -9045,3 +9045,54 @@ DLC补其他4人线是可以的，也没说需要每个人12章啊，每个人�
 
 希腊风和地中海/热带也是我喜欢的点，比中世纪带感
 
+
+*****
+
+####  lypylf  
+##### 6729#       发表于 2026-10-8 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70340463&amp;ptid=2261859" target="_blank">caps洛奇 发表于 2026-10-8 15:34</a>
+
+第三部这个门的确认机制谁给讲讲，踩上去也不打勾，可以和第一部一样踩完就不管吗？提前进去了还能出来么？ ...</blockquote>
+门攻略完打勾，编队可以自由活动
+
+*****
+
+####  SEGA  
+##### 6730#       发表于 2026-10-8 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70340457&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-8 15:33</a>
+
+主线提前踩点就行了，教程里不是有吗？
+
+我9月17日打完白法鬼，转身出门把商人的也打了。
+
+主线自动传送过去 ...</blockquote>
+这个倒不清楚，印象中之前应该是踩过，但不能进。
+
+如果是可以直接进主线，就方便了。非常感谢，受教了。
+
+
+*****
+
+####  wilkyway  
+##### 6731#       发表于 2026-10-8 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70339770&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-8 13:39</a>
+苏蒂斯这么喜欢搅动时间线。
+
+为什么她自己被炸的时候没时光倒流一下。
+
+ 难道女娲怂了其实就是她干扰的结果 ...</blockquote>
+因为亚光速引擎真的能打穿时间防御吧（
+当年女娲要是不程心没准根本就没有后面这几千年的烂事<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  达达葱2  
+##### 6732#       发表于 2026-10-8 16:16
+
+<blockquote>lypylf 发表于 2026-10-8 16:06
+门攻略完打勾，编队可以自由活动</blockquote>
+打完门就直接推是不是损失最大？练级没了
+
