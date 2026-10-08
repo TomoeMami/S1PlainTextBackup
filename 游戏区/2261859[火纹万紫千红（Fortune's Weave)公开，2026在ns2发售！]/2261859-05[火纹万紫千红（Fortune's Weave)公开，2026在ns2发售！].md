@@ -8281,3 +8281,32 @@ A少:未能实现夙愿，为了 ...</blockquote>
 
 后面还能进八强。
 
+
+*****
+
+####  绕指流光  
+##### 6656#       发表于 2026-10-8 08:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70335026&amp;ptid=2261859" target="_blank">最浅的语言 发表于 2026-10-7 16:48</a>
+
+挖角西提斯的野外遭遇战是不是固定是35级？我凯伊线挖的晚倒没感觉，女王线挖的早20级过去也是35级，打是能 ...</blockquote>
+没有，我凯伊线一早就挖了，当时这个任务是15级的怪
+
+*****
+
+####  真田源次郎信繁  
+##### 6657#       发表于 2026-10-8 09:01
+
+凯伊线有战车不是很缺上级证，喂几本书到C熟练然后去赌就能转好几个神鸵了
+
+
+*****
+
+####  mai6696  
+##### 6658#       发表于 2026-10-8 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70337873&amp;ptid=2261859" target="_blank">绕指流光 发表于 2026-10-8 08:58</a>
+
+没有，我凯伊线一早就挖了，当时这个任务是15级的怪</blockquote>
+那是因为凯伊去不了西边，其他三条线西南角35级区。
+
