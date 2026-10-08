@@ -57,3 +57,42 @@
 
 这可赚大了。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 853#       发表于 2026-10-8 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70342793&amp;ptid=2085684" target="_blank">蕾丝控 发表于 2026-10-8 22:21</a>
+
+一眼丽奈。
+
+不会是拿洛克和吉斯过去换丽奈和州光回来吧？</blockquote>
+今年铁拳早就公布完了，看明年了，铁拳这季最后是范马勇次郎
+
+
+*****
+
+####  玉之龙  
+##### 854#       发表于 2026-10-8 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70342793&amp;ptid=2085684" target="_blank">蕾丝控 发表于 2026-10-8 22:21</a>
+一眼丽奈。
+
+不会是拿洛克和吉斯过去换丽奈和州光回来吧？</blockquote>
+吉斯够呛了吧，要不然就是二进宫了
+
+我看好特瑞和洛克<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小李子大脸猫  
+##### 855#       发表于 2026-10-8 22:57
+
+<blockquote>蕾丝控 发表于 2026-10-8 22:21
+一眼丽奈。
+
+不会是拿洛克和吉斯过去换丽奈和州光回来吧？
+</blockquote>
+上次也没换，所以不存在换不换
+

@@ -831,3 +831,31 @@ lz你也要爬s1？
 
 这个攻击力不错啊，看看我的，谢谢楼主    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  雪地白狼  
+##### 75#       发表于 2026-10-8 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70342878&amp;ptid=2291241" target="_blank">瑕疵 发表于 2026-10-8 22:38</a>
+
+有没有人做过 b 站版本的？我记得可以根据 uid 查历史弹幕，评论不知道可不可以查 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">aicu.cc 
+
+这种功能大量现成的网站，B站扒底裤最爱
+
+*****
+
+####  元首是死程  
+##### 76#       发表于 2026-10-8 22:51
+
+爬你妈了个臭嗨，论坛好不容易不卡了又是你们这些傻批在这里机肉DOSS
+
+
+*****
+
+####  一座恐怖屋  
+##### 77#       发表于 2026-10-8 22:53
+
+看看我滴，感谢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
