@@ -11475,3 +11475,20 @@ hy4 preview初期体验一言难尽，改内容把编译头文件都丢了。
 小道消息这一两周会有三个模型上，看目前情况估计就是K3.1，V4.1Pro和Qwen4了</blockquote>
 k3.1已经是延期过了，评测up签的保密协议过期了都<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过也没谁大嘴巴往外说给自己惹麻烦
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 15809#       发表于 2026-10-8 14:29
+
+请教一下，现在如果想偶尔用用 k3 的话，除了官方 plan 还有啥合适的方案吗
+
+
+*****
+
+####  星汐引力  
+##### 15810#       发表于 2026-10-8 14:32
+
+ai审美确实没那么重要了，蒸一下skill，效果就蛮好的，主流模型不至于蠢到连抄都抄不明白
+[https://www.luochang.ink/adr-kit/](https://www.luochang.ink/adr-kit/)
+
