@@ -754,3 +754,64 @@ lz你也要爬s1？
 比如鬼武者3的P90（游戏里叫M90），这个怎么可能是黑历 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">可能是AI又闹幻觉了。
 
+
+*****
+
+####  华山小书童  
+##### 68#       发表于 2026-10-8 22:29
+
+我都开始好奇我自己了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JAD-AL80, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  王不动  
+##### 69#       发表于 2026-10-8 22:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70342748&amp;ptid=2291241" target="_blank">闪雷可达鸭 发表于 2026-10-8 22:14</a>
+
+这尊老古董的皮套和尾巴直接被抓了个现行——“顶着《现视研》男主‘脱宅伪装现充’名场面当头像，把‘不 ...</blockquote>
+哈哈哈果然错了，我的头像是上山道郞的漫画妻沼田格斗街的主角八重㭴，原型是野比大雄。
+
+<img src="https://img.stage1st.com/forum/202610/08/223038f9jjvgag94wobisj.jpg" referrerpolicy="no-referrer">
+
+<strong>212987.jpg</strong> (29.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 22:30 上传
+
+王不动这个名字来自古龙的王动。AI不仅搜索的不够远，还不能阅读旧贴，收集资料能力还不够，识图不行。其实全部集齐我的发言是有机会猜出来的
+
+*****
+
+####  JuMuShan  
+##### 70#       发表于 2026-10-8 22:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70342573&amp;ptid=2291241" target="_blank">活久见 发表于 2026-10-8 21:46</a>
+
+要说多少次，你们这种级别的爬虫有个吊用
+
+你先1小时能掏出几万个IP再来吹</blockquote>
+真爬了你又不高兴
+
+*****
+
+####  edlose  
+##### 71#       发表于 2026-10-8 22:37
+
+爬爬我的<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2003J15SC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  雪地白狼  
+##### 72#       发表于 2026-10-8 22:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这东西不知道有多少人做过了。
+
+另外有一说一，直接把个人资料回贴发帖链接扔给任意桌面Agnet，调用内置浏览器登录一下让AI自己去看就得了。没有批量使用的场景根本不用写成插件，插件的作用可能就是爬虫，爬完了再给AI看
+
