@@ -11708,3 +11708,16 @@ dots我用下来，就算是抱着对初期产品最大的善意，我也觉得�
 
 隔壁老马准备上opus5.5 suno和Midjourney了
 
+
+*****
+
+####  UncleDracula  
+##### 15831#       发表于 2026-10-8 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70340045&amp;ptid=2275806" target="_blank">星汐引力 发表于 2026-10-8 14:32</a>
+
+ai审美确实没那么重要了，我用skill写效果就蛮好的，主流模型不至于蠢到连抄都抄不明白
+
+https://www.luocha ...</blockquote>
+是说DS4.1F用skill做的这个网页？
+
