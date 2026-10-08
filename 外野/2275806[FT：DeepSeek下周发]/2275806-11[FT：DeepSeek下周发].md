@@ -11324,3 +11324,36 @@ dsh的ptc模式是和pi的codemode类似的东西，都是用js/ts组装命令�
 用ds4.1f试过dsh的ptc和pi的codemode。
 很搞的是ds自己用自家专武的ptc老是出毛病，用新出还没专训过的codemode反而用的挺好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mitzvah  
+##### 15795#       发表于 2026-10-8 11:51
+
+现阶段模型，至少glm与deepseek对于静态工具，迁移状态分析与动态dap的训练内化水平还不够，必须依赖注入让其读清单。否则索引表过期，dap调试测试时总是会有遗漏
+
+但反过来说如果注入及时，跨文件的项目能力是可以显著提升的
+
+*****
+
+####  mitzvah  
+##### 15796#       发表于 2026-10-8 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70338690&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-10-8 11:00</a>
+
+如果用dsh的PTC模式，类似codemode的那个
+
+可以装一个插件，dsh-ptc-plus
+
+能宽容模型的很多错误调用，比方说 ...</blockquote>
+对于deepseek，和glm这种的对抗性的禁止prompt效果一般，不如写个插件让其在必要时读清单
+
+*****
+
+####  Gmlazy  
+##### 15797#       发表于 2026-10-8 11:53
+
+codex启动报错，说明node_repl.exe 在沙箱检查访问权限时触发 Windows 错误 32。
+
+这咋办啊...Codex自己还解决不了。
+

@@ -8456,3 +8456,16 @@ A少:未能实现夙愿，为了 ...</blockquote>
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  caps洛奇  
+##### 6674#       发表于 2026-10-8 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70339032&amp;ptid=2261859" target="_blank">狩野すみれ 发表于 2026-10-8 11:42</a>
+
+挖人会导致原本作为敌人出场时，改用大众脸填坑吗？就和风花雪月三年后一样
+
+我快把猫猫头的队伍挖空了</blockquote>
+会的 三部都会 
+
