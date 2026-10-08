@@ -35,3 +35,11 @@
 草，900多石满宝公主？还说你不是欧皇</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">就欧了这么一次而已
 
+
+*****
+
+####  khxooo  
+##### 48252#       发表于 2026-10-8 19:32
+
+杀树点满，弓树卡炉心，我是没想到会差这东西的。术的树也点了大半，星沙也用完了。
+
