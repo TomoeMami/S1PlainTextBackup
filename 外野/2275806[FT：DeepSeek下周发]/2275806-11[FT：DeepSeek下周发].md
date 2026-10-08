@@ -11278,3 +11278,20 @@ dsh的ptc模式是和pi的codemode类似的东西，都是用js/ts组装命令�
 
 反正做数学，做推理，gpt还是独一档，前端审美和工程实现，claude确实很强，但是我又用不到，所有还是只能用gpt。
 
+
+*****
+
+####  hugosol  
+##### 15792#       发表于 2026-10-8 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70338690&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-10-8 11:00</a>
+
+如果用dsh的PTC模式，类似codemode的那个
+
+可以装一个插件，dsh-ptc-plus
+
+能宽容模型的很多错误调用，比方说 ...</blockquote>
+所以还是得模型本身有往那个方向训练才行
+
+现在Astra和Sol-6.1用codemode非常丝滑，不知道DeepSeek自己的模型用PTC有没有这么好的效果，不过我想大概用提示词约束一下也能改善
+
