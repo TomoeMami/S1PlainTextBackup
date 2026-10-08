@@ -19,3 +19,13 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 <img src="https://p.sda1.dev/35/9e6e20fa76cd8c1794bdc62eb9008d04/HUHSD76bUAA7n_9.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/35/73d0652e1057b7aa8d72321c429dd266/HUHQ5xKbYAApN9s.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 2054#       发表于 2026-10-9 04:49
+
+好多同模换色
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
