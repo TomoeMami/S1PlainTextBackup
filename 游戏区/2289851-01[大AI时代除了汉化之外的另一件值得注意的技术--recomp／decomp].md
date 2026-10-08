@@ -68,3 +68,14 @@ ico的反编译貌似有了，可惜只支持pal版<img src="https://static.stag
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  qwjhb  
+##### 54#       发表于 2026-10-8 15:08
+
+pt了
+<img src="https://p.sda1.dev/35/fb917a729f896a894ad1d69afd071cdf/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
