@@ -8251,3 +8251,14 @@ A少:未能实现夙愿，为了 ...</blockquote>
 凯伊要走魔法怎么培养？  看了下只有后期神鸵鸟能加魔</blockquote>
 凯伊指导任务会发闪电剑（甚至后面主线还会发一把），然后再一看鸵鸟系列到墓志铭神将都能用剑，一下子就看懂了is意图<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 6654#       发表于 2026-10-8 08:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70337067&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-8 00:02</a>
+神驼，3部最上级可转墓志铭。
+凯伊线反正没有理由下坐骑，神驼转职要B黑魔得吃不少训练资源，或者章节开始 ...</blockquote>
+黑羽也还可以<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就是那条路经常一堆35级怪堵路，得碰运气看哪天地图上没怪抓紧去抓
+
