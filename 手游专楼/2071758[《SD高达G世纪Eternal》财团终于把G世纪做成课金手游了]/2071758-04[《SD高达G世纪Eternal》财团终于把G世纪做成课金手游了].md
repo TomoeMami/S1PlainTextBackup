@@ -1476,3 +1476,29 @@ v2ab有一个伪装成地图炮的狙击plus，4发map配合胡索能打完
 
 2026-10-6 14:14 上传
 
+
+*****
+
+####  gpx234mqx  
+##### 4844#       发表于 2026-10-8 17:44
+
+<img src="https://img.stage1st.com/forum/202610/08/174150e0zimreo31ti449z.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9258.png</strong> (545.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 17:41 上传
+
+观赏用，一击必杀和重击
+
+<img src="https://img.stage1st.com/forum/202610/08/174433n26ibbdfugnbg6sd.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9259.png</strong> (488.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-8 17:44 上传
+
+人还行
+

@@ -11638,3 +11638,24 @@ oai的臭毛病就是稍微领先一点就觉得赢了，不务正业了。以�
 算力不够就砍老用户
 结果A/反手一刀，被干傻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 15825#       发表于 2026-10-8 17:50
+
+<blockquote>lactone 发表于 2026-10-8 17:36
+qwen4的评价两极分化，有人说前端能打opus5.5，但是跑分还不如4.1f
+
+—— 来自 vivo V2520A, Android 16,  ...</blockquote>
+测前端都是oneshot，后端做两个算法题就鬼打墙了，那么前端能力也不可信了，毕竟还是需要编程能力的…
+
+*****
+
+####  qz66618  
+##### 15826#       发表于 2026-10-8 17:51
+
+千问4已经有测试了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
