@@ -303,3 +303,13 @@
 
 反正二周目能力强化继承 差的不多下周目算了
 
+
+*****
+
+####  otakun  
+##### 1968#       发表于 2026-10-8 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70341200&amp;ptid=2210366" target="_blank">Kyo.C 发表于 2026-10-8 17:26</a>
+一周目鬼石是不够点满所有相关技能吗</blockquote>
+够的，但是我最后两点鬼石是在最后boss 前存档点的宝箱才拿到，点了掰石头速度加快<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。这技能就不应该吃鬼石，我就到最后才点
+
