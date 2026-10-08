@@ -11582,3 +11582,26 @@ K的api价格太离谱了，还是捏着鼻子用plan吧
 
 space-bunny我用workbuddy试了下，帮我改错别字，感觉还可以
 
+
+*****
+
+####  bixinhaner  
+##### 15820#       发表于 2026-10-8 17:20
+
+感觉现在有点DeepSeek R1出来前的黑暗感觉。
+
+a/的5.5全系把o/的6系打的找不到北，国模整体梯队的能力和性价比又连o/的astra/6.1 sol的尾气还跟不上。算力荒和涨价潮还越演越烈，整体差距有点绝望了。
+
+
+*****
+
+####  飞剪号  
+##### 15821#       发表于 2026-10-8 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70341161&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-10-8 17:20</a>
+
+感觉现在有点DeepSeek R1出来前的黑暗感觉。
+
+a/的5.5全系把o/的6系打的找不到北，国模整体梯队的能力和性价 ...</blockquote>
+就这点差距，最多几个月的距离，也叫绝望吗，很多行业曾经动不动是10年20年30年的差距，现在看来也不过如此
+
