@@ -11500,3 +11500,14 @@ ai审美确实没那么重要了，蒸一下skill，效果就蛮好的，主流�
 
 周末DS应该不上班，看看明天会不会有大的了，不行就得下周了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 15812#       发表于 2026-10-8 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70339912&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-8 14:09</a>
+
+k3.1已经是延期过了，评测up签的保密协议过期了都不过也没谁大嘴巴往外说给自己惹麻烦 ...</blockquote>
+反正Qwen4就之前测试的看是区了，K3.1延期也不怎么妙可能和Grok一样倒吸，只能看V4.1Pro了
+
