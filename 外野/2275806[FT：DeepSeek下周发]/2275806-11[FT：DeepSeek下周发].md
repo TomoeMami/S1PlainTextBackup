@@ -11140,3 +11140,21 @@ gpt可以调用google那个ui生成工具，不过效果也就那样
 因为我国庆这几天折腾的就是强审美相关的项目，不管是UI还是分镜设计，astra的表现甚至比不上gemini ...</blockquote>
 这方面astra一坨。确实
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 15780#       发表于 2026-10-8 08:27
+
+一觉醒来，又是重置。还好是重置卡，应该能留给下代模型。
+<img src="https://p.sda1.dev/35/3ab25fb961c1ebef08b27ae6185ed758/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  umamusume  
+##### 15781#       发表于 2026-10-8 08:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">最好每天都重置，这样我就能开fast了
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
