@@ -9825,3 +9825,13 @@ engage   12920
 
 第二部是不是都先按跳过一次，然后再手动打比较好？
 
+
+*****
+
+####  duraa  
+##### 6803#       发表于 2026-10-9 07:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343243&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-10-8 23:54</a>
+感觉蓝毛黑皮假小子其实不算好用啊，拳斗士成长补正确实不错，但是上级职业勇士无论成长还是补正都太区了， ...</blockquote>
+这位其他线玩的时候就感觉这个成长率配个回避被动有点神秘，凯伊线算是最能救的了，走鸵鸟天马这条线，我最后养到35级差不多是25力35速这样<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

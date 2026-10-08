@@ -37,3 +37,11 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 
 <img src="https://static.stage1st.com/image/smiley/bundam2017/025.png" referrerpolicy="no-referrer">我超还有老虎特装型，露娜专用勇士狙击型什么时候端上来。
 
+
+*****
+
+####  oscarma  
+##### 2056#       发表于 2026-10-9 07:27
+
+路人当主角，这次不会再被抢戏份了吧
+
