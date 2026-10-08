@@ -11492,3 +11492,11 @@ k3.1已经是延期过了，评测up签的保密协议过期了都<img src="http
 ai审美确实没那么重要了，蒸一下skill，效果就蛮好的，主流模型不至于蠢到连抄都抄不明白
 [https://www.luochang.ink/adr-kit/](https://www.luochang.ink/adr-kit/)
 
+
+*****
+
+####  cscbzcbz  
+##### 15811#       发表于 2026-10-8 14:48
+
+周末DS应该不上班，看看明天会不会有大的了，不行就得下周了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

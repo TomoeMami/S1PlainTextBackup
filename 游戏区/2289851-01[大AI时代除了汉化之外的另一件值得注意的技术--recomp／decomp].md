@@ -58,3 +58,13 @@ https://www.bilibili.com/video/BV16uH16JEri/</blockquote>
 
 要有人感兴趣我就把东西收拾收拾扔到github上
 
+
+*****
+
+####  彩虹肥宅  
+##### 53#       发表于 2026-10-8 14:50
+
+ico的反编译貌似有了，可惜只支持pal版<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
