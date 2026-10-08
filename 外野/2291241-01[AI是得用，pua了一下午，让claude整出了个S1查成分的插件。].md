@@ -438,3 +438,16 @@ lz你也要爬s1？
 
 就是你们这些拿ai重复造轮子的害得大家买不起新显卡！
 
+
+*****
+
+####  山鬼  
+##### 42#       发表于 2026-10-8 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70342145&amp;ptid=2291241" target="_blank">tk553521 发表于 2026-10-8 20:15</a>
+
+都说了个人用户小水管根本无所谓的，之前是被上万ipddos了，ban都ban不过来
+
+—— 来自 nubia NX809J, Andr ...</blockquote>
+你手搓当然不行，有ai不用，搞防御智能化自动化啊
+
