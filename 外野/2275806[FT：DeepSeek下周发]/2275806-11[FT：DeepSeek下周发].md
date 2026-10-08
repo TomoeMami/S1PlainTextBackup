@@ -11228,3 +11228,15 @@ grep的时候会用search_graph/trace_path之类的，read的时候则是用get_
 
 不过这玩意好像需要模型针对训练才好使，如果以后DeepSeek的pro模型能往这个方向走那就无敌了
 
+
+*****
+
+####  RookieTnT  
+##### 15787#       发表于 2026-10-8 09:49
+
+独立研究机构 New Constructs 认为，Anthropic 拟以约 2 万亿美元估值上市，但公司持续亏损，并承担约 5180 亿美元云计算、算力和基础设施合同义务，IPO 更像为早期投资者提供退出流动性，而非筹资扩张。称其为“2026 年最荒唐的 IPO”，并认为公司没有可行的商业模式。
+
+文章援引泄露招股书称，Anthropic 2025 年收入约 46 亿美元、经营亏损约 80 亿美元；其模型测算，若增长放缓，股票下行空间可能超过 40%，极端情形超过 90%。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
