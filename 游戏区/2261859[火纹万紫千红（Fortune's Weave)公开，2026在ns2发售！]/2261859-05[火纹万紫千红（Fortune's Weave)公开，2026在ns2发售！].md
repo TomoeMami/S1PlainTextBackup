@@ -9719,3 +9719,18 @@ engage   12920
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  PigMourne  
+##### 6794#       发表于 2026-10-8 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70342085&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-10-8 20:02</a>
+
+开始玩凯伊线了
+
+不太喜欢战车，可能不会玩全员战车的玩法，减速度感觉有点陷阱？可能只会转一两个弓手骑汗 ...</blockquote>
+实操全队骑兵连之后第二部有点折磨了，最后还是转回了常规的游侠+重装。成长率确实很好看，但实际补的属性不如观星+转职。然后骑甲鸵没有升级，神鸵拿给物理职业纯池沼。等于我喂了十几个人的红羽鸟好感度，最后只能用到35级，花的时间完全不值<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+最坑爹的是技能熟练度加太少，全员鸵鸟手操打完第二部，甚至连A熟练都没有几个，对转神将来说是致命的。只有变态的汗血战车可以一直用，啥也不亏<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

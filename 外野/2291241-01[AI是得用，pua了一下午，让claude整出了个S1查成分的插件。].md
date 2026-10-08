@@ -859,3 +859,28 @@ lz你也要爬s1？
 
 看看我滴，感谢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aimbot  
+##### 78#       发表于 2026-10-8 23:40
+
+这我好像之前做过，都差球不多
+
+*****
+
+####  神圣天使书记官  
+##### 79#       发表于 2026-10-8 23:41
+
+拜托，都是你们害的啦，论坛动不动就拉闸<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  棍机凹升龙  
+##### 80#       发表于 2026-10-8 23:42
+
+你该做个站点，让他们自己钻进来
+
+—— 来自 samsung SM-F9460, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
