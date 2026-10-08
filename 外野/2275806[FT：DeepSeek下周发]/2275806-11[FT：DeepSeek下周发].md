@@ -11849,3 +11849,16 @@ Claude封号没法避免那只能彻底排除了，到时先开个GPT试试水
 BV16VHm6sEYB
 其实是混元员工的业余爱好，正儿八经的后训练<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">个人用下来比swift强多了，是真能用的
 
+
+*****
+
+####  neptunehs  
+##### 15841#       发表于 2026-10-9 06:52
+
+exo free半天就消失了 真可惜
+
+倒是step 5 preview free了
+这东西可以当主力吗 space bunny快结束了毕竟
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
