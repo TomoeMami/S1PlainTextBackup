@@ -9800,3 +9800,18 @@ engage   12920
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  真田源次郎信繁  
+##### 6801#       发表于 2026-10-9 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343243&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-10-8 23:54</a>
+
+感觉蓝毛黑皮假小子其实不算好用啊，拳斗士成长补正确实不错，但是上级职业勇士无论成长还是补正都太区了， ...</blockquote>
+诺克裘拉和露露缇雅一样，这个总和成长率就是故意下毒用来衬托两个飞兵的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+特技不说，魔防都是故意设计的最低档，和巨人重装一样，这作这个环境，这种魔防肯定是没法抗线
+
+但是低端局还是能用用
+
