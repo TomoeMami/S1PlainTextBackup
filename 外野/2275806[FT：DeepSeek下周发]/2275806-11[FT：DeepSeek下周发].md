@@ -11808,3 +11808,16 @@ Claude封号没法避免那只能彻底排除了，到时先开个GPT试试水<i
 GPT 6 Astra：一个平庸、沉闷、没有品味的模型
 [https://www.bilibili.com/video/BV1ReaJ6YEZA/](https://www.bilibili.com/video/BV1ReaJ6YEZA/)
 
+
+*****
+
+####  squallx  
+##### 15838#       发表于 2026-10-9 03:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343596&amp;ptid=2275806" target="_blank">我也很绝望啊 发表于 2026-10-9 02:42</a>
+
+Claude封号没法避免那只能彻底排除了，到时先开个GPT试试水
+
+有不少喷GPT6的视频，下面一堆受害者现身说法 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">astra后端依然是最强的  不碰A\要做前端的话可以试试KIMI
+
