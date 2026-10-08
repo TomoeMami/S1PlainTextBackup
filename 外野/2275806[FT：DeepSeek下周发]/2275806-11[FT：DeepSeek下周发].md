@@ -11413,3 +11413,33 @@ codex启动报错，说明node_repl.exe 在沙箱检查访问权限时触发 Win
 
 等浑元4王者归来！
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 15803#       发表于 2026-10-8 13:04
+
+hy4 preview初期体验一言难尽，改内容把编译头文件都丢了。
+
+*****
+
+####  phorcys02  
+##### 15804#       发表于 2026-10-8 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70338813&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-8 11:14</a>
+
+所以还是得模型本身有往那个方向训练才行
+
+现在Astra和Sol-6.1用codemode非常丝滑，不知道DeepSeek自己的 ...</blockquote>
+你们用dsh都 不用PTC模式的么？非常好用，用了好几周了
+
+配合 500-600k自动压缩+PTC,效率非常好
+
+
+*****
+
+####  nxmonitor  
+##### 15805#       发表于 2026-10-8 13:10
+
+小道消息这一两周会有三个模型上，看目前情况估计就是K3.1，V4.1Pro和Qwen4了
+
