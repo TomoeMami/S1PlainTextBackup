@@ -11838,3 +11838,14 @@ Claude封号没法避免那只能彻底排除了，到时先开个GPT试试水
 
 我觉得只要掌握了特点，按自己的需求去使用模型，Fable和Astra都能交付令人满意的成果。个人认为Astra的世界知识和泛化能力比Fable还要强一些。另外Anthropic的安全政策限制真的很蛋疼，和生物学与网络安全扯上一点边就没法用Fable了
 
+
+*****
+
+####  qwased  
+##### 15840#       发表于 2026-10-9 05:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343406&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-9 00:49</a>
+这个有人要试吗，无敌奇美拉</blockquote>
+BV16VHm6sEYB
+其实是混元员工的业余爱好，正儿八经的后训练<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">个人用下来比swift强多了，是真能用的
+
