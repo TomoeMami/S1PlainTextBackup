@@ -9770,3 +9770,23 @@ engage   12920
 
 这代物理角色如果不擅长剑的感觉都可以抬走了（
 
+
+*****
+
+####  bad_alloc  
+##### 6798#       发表于 2026-10-9 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343219&amp;ptid=2261859" target="_blank">PigMourne 发表于 2026-10-8 23:45</a>
+
+实操全队骑兵连之后第二部有点折磨了，最后还是转回了常规的游侠+重装。成长率确实很好看，但实际补的属性 ...</blockquote>
+观星那确实，但我想着骑了鸵鸟也要观星的（
+
+神鸵感觉给双刀补补魔应该还挺好的？看看凯伊线能不能救下粉毛的属性，女王线土匪游侠走下来感觉属性还是一般
+
+*****
+
+####  廖化  
+##### 6799#       发表于 2026-10-9 00:06
+
+在蕾达线里摸鱼太严重了，打女王的时候平均23、4级，被暴打……再想要不要重开……<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
