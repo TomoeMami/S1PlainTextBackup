@@ -35,3 +35,11 @@
 
 看背影，应该是那个女人。
 
+
+*****
+
+####  玉之龙  
+##### 851#       发表于 2026-10-8 22:13
+
+今年季票算全公布了，所以拳皇联动还有希望吗<img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+

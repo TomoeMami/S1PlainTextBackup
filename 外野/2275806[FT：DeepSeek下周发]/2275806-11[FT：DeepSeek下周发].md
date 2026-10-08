@@ -11721,3 +11721,16 @@ ai审美确实没那么重要了，我用skill写效果就蛮好的，主流模�
 https://www.luocha ...</blockquote>
 是说DS4.1F用skill做的这个网页？
 
+
+*****
+
+####  星汐引力  
+##### 15832#       发表于 2026-10-8 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70342357&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-8 21:03</a>
+
+是说DS4.1F用skill做的这个网页？</blockquote>
+做这个网页的时候，DS 4.1 flash 还没发，应该是用 glm 5.3 做的
+
+主要还是skill强，这个skill是烧了不少token做的，我没舍得开源
+
