@@ -11762,3 +11762,18 @@ https://www.luocha ...</blockquote>
 
 2026-10-9 00:48 上传
 
+
+*****
+
+####  hugosol  
+##### 15835#       发表于 2026-10-9 01:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343313&amp;ptid=2275806" target="_blank">我也很绝望啊 发表于 2026-10-9 00:13</a>
+
+近期有个开发项目要做，想开个能力比较强的模型的plan
+
+本来想开个GPT pro的，但是看到很多用户喷过度保守没 ...</blockquote>
+哪有那么讲究的，模型只能是锦上添花的部分，最核心的能力还是人类本身（还有合适的工作流以及开发工具）
+
+反正现在这些前沿模型能力差距也没那么大，要关心的问题是 能有多少token让你挥霍<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
