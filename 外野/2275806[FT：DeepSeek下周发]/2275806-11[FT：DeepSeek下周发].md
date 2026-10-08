@@ -11158,3 +11158,36 @@ gpt可以调用google那个ui生成工具，不过效果也就那样
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  qwased  
+##### 15782#       发表于 2026-10-8 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70334296&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-7 13:09</a>
+
+我也没用过codegraph，当时一大堆同类产品做了一下调研就一直在用这个了
+
+这里有个对比的文章
+
+https://zhu ...</blockquote>
+codebase memory mcp感觉大肥鱼根本不会主动使用啊
+
+每次看他在那疯狂grep我就让他用mcp试试，他会主动用一下然后说确实不错有帮助，然后让他总结经验改skill和agents.md,下次还是不主动用<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 15783#       发表于 2026-10-8 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70337763&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-8 08:35</a>
+codebase memory mcp感觉大肥鱼根本不会主动使用啊
+
+每次看他在那疯狂grep我就让他用mcp试试，他会主动用 ...</blockquote>
+昨天exo free会主动用 这也是我觉得这是o\模型的主因
+
+国产模型没见过自主调用
+还要占用大量硬盘 有点想删掉了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

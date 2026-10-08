@@ -8262,3 +8262,22 @@ A少:未能实现夙愿，为了 ...</blockquote>
 凯伊线反正没有理由下坐骑，神驼转职要B黑魔得吃不少训练资源，或者章节开始 ...</blockquote>
 黑羽也还可以<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就是那条路经常一堆35级怪堵路，得碰运气看哪天地图上没怪抓紧去抓
 
+
+*****
+
+####  mai6696  
+##### 6655#       发表于 2026-10-8 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70337436&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-8 02:32</a>
+
+雕像bug太多了感觉都不能作为参照。
+
+雕像内容上进8强的都被封为焰将，而剧情上除了女王都是夺冠后封的。
+
+ ...</blockquote>
+迪哥和新娘在洞窟打一架都需要白鸦来救，就很怪。
+
+不干涉的话，这两组要怎么收场？
+
+后面还能进八强。
+
