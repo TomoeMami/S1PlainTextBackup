@@ -11373,3 +11373,20 @@ codebase memory mcp感觉大肥鱼根本不会主动使用啊
 
 用列清单式的方法尽量把这个流程固化，不敢说一定能按照程序执行，但是总能大幅度提高能力的
 
+
+*****
+
+####  Gmlazy  
+##### 15799#       发表于 2026-10-8 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70339110&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-10-8 11:53</a>
+
+codex启动报错，说明node_repl.exe 在沙箱检查访问权限时触发 Windows 错误 32。
+
+这咋办啊...Codex自己还解 ...</blockquote>
+解决办法参考：[https://github.com/openai/codex/issues/51590](https://github.com/openai/codex/issues/51590)
+
+解决方法的提出者提示这个方法按照官方说明隔离性会比较弱，尚且不知会发生什么问题。
+
+这个问题我看提交了好几次，大家伙没有遇到的吗？看来是我把什么设置搞砸了。
+
