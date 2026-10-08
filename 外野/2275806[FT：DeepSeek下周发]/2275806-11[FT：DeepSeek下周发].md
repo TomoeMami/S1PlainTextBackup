@@ -11295,3 +11295,19 @@ dsh的ptc模式是和pi的codemode类似的东西，都是用js/ts组装命令�
 
 现在Astra和Sol-6.1用codemode非常丝滑，不知道DeepSeek自己的模型用PTC有没有这么好的效果，不过我想大概用提示词约束一下也能改善
 
+
+*****
+
+####  SmterC  
+##### 15793#       发表于 2026-10-8 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70338813&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-8 11:14</a>
+所以还是得模型本身有往那个方向训练才行
+
+现在Astra和Sol-6.1用codemode非常丝滑，不知道DeepSeek自己的 ...</blockquote>
+如果不装这个插件，执行效果是比较一般的
+模型经常会因为幻觉觉得自己有read edit工具，调用了又被harness拒绝，要求必须run_code里面运行
+模型变笨后，run_code经常报错，模型就又磨磨蹭蹭小修小补执行一遍，经常这么来回好几次，节省的上下文又被这样浪费了
+甚至dsh有段时间PTC模式一直有一个随机触发的，工具调用没接收到description参数的bug，好久才修复，感觉现在他们对PTC模式还是不够上心
+也因此需要这个插件补全    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
