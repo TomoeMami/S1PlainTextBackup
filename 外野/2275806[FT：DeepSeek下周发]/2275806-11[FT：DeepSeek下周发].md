@@ -11511,3 +11511,15 @@ ai审美确实没那么重要了，蒸一下skill，效果就蛮好的，主流�
 k3.1已经是延期过了，评测up签的保密协议过期了都不过也没谁大嘴巴往外说给自己惹麻烦 ...</blockquote>
 反正Qwen4就之前测试的看是区了，K3.1延期也不怎么妙可能和Grok一样倒吸，只能看V4.1Pro了
 
+
+*****
+
+####  静哮苍穹  
+##### 15813#       发表于 2026-10-8 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70340030&amp;ptid=2275806" target="_blank">平昭·南宫司卿 发表于 2026-10-8 14:29</a>
+请教一下，现在如果想偶尔用用 k3 的话，除了官方 plan 还有啥合适的方案吗</blockquote>
+K的api价格太离谱了，还是捏着鼻子用plan吧
+
+—— 来自 OnePlus PLZ110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
