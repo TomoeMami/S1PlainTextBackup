@@ -9709,3 +9709,13 @@ engage   12920
 
 第一部只有普通飞龙
 
+
+*****
+
+####  lelouchwang  
+##### 6793#       发表于 2026-10-8 23:32
+
+第三部编辑部队后不能修改吗？有队伍放错人了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
