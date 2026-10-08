@@ -11457,3 +11457,11 @@ hy4 preview初期体验一言难尽，改内容把编译头文件都丢了。
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  山鬼  
+##### 15807#       发表于 2026-10-8 13:58
+
+按照中国traditonal来说宁可参数放码错杀一切，也别过拟合<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
