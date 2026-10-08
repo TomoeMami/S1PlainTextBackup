@@ -11561,3 +11561,16 @@ K的api价格太离谱了，还是捏着鼻子用plan吧
 
 按照今天字节的一个文章说DS会发生能力漂移，采用了类似架构的Qwen4可能真踩到这个坑里面也说不定，毕竟V4Pro就很确定是踩中的，4.1就改得七七八八了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Risa  
+##### 15818#       发表于 2026-10-8 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70340711&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-8 16:14</a>
+
+按照今天字节的一个文章说DS会发生能力漂移，采用了类似架构的Qwen4可能真踩到这个坑里面也说不定，毕竟V4P ...</blockquote>
+其实人话就是压缩tokens 4个一包可能“断错句”，4.1改成了2个一包缓解了出错概率，但是无法根除。
+
+本质就是这个世界没有免费的午餐，没有无损的压缩。
+
