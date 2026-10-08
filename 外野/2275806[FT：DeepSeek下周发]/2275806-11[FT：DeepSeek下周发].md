@@ -11523,3 +11523,11 @@ K的api价格太离谱了，还是捏着鼻子用plan吧
 
 —— 来自 OnePlus PLZ110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Awanano  
+##### 15814#       发表于 2026-10-8 15:53
+
+6.1 这个防御性还是挺 naocan 的，对工程的负面影响大到我需要翻出我的号用 5.5 去验收对冲掉这些永远做不出的东西    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
