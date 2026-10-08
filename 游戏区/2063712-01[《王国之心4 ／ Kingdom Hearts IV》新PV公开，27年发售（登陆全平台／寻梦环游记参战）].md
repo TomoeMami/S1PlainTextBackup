@@ -2304,3 +2304,13 @@ Nintendo Switch™ 2 、PlayStation®5、Xbox Series X|S、XBOX on PC版现已�
 
 ※1：截至2026年3月底
 
+
+*****
+
+####  qiyu1234  
+##### 192#       发表于 2026-10-8 10:19
+
+刚想说没上STEAM的记忆旋律怎么办
+
+想起来这游戏首发就是带中文的
+

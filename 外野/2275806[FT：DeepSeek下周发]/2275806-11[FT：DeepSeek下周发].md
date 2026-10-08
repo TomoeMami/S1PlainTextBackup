@@ -11240,3 +11240,13 @@ grep的时候会用search_graph/trace_path之类的，read的时候则是用get_
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 15788#       发表于 2026-10-8 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70338117&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-8 09:34</a>
+说起来codemode这个东西才真的是核弹爆炸，能把上下文省下来之后用Sol-6.1和Astra这个级别的模型在极短的上 ...</blockquote>
+dsh的ptc模式是和pi的codemode类似的东西，都是用js/ts组装命令调用工具然后统一输出结果
+
