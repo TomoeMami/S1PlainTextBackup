@@ -11671,3 +11671,24 @@ qwen4的评价两极分化，有人说前端能打opus5.5，但是跑分还不�
 
 现在这种能来回打滚的情况就说明只是算力差而已。
 
+
+*****
+
+####  startraveller  
+##### 15828#       发表于 2026-10-8 20:26
+
+有啥好绝望的，A家不好说，下一波追个O家还是有希望的
+
+
+*****
+
+####  squallx  
+##### 15829#       发表于 2026-10-8 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70341321&amp;ptid=2275806" target="_blank">malisa 发表于 2026-10-8 17:43</a>
+
+o畜纯属自作自受
+
+oai的臭毛病就是稍微领先一点就觉得赢了，不务正业了。以前去搞什么sora，购物，pluse</blockquote>
+dots体验还不如grokbot 尼妹产品经理纯菜的 还不如阿三
+

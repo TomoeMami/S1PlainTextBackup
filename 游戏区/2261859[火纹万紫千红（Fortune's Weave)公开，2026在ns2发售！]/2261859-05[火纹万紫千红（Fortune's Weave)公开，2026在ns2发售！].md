@@ -9622,3 +9622,11 @@ DLC补其他4人线是可以的，也没说需要每个人12章啊，每个人�
 
 红鸵鸟最大的用处 应该是喂满好感放生换3力量的饰品
 
+
+*****
+
+####  索非亚  
+##### 6785#       发表于 2026-10-8 20:31
+
+小姨子平时应该没少灌奶龙弗拉玛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
