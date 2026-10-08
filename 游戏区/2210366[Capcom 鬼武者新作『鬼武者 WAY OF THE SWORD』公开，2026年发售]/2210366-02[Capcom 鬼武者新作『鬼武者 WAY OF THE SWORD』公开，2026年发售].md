@@ -289,3 +289,17 @@
 
 一周目鬼石是不够点满所有相关技能吗
 
+
+*****
+
+####  白河响剑  
+##### 1967#       发表于 2026-10-8 17:30
+
+ 本帖最后由 白河响剑 于 2026-10-8 17:32 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70341200&amp;ptid=2210366" target="_blank">Kyo.C 发表于 2026-10-8 17:26</a>
+
+一周目鬼石是不够点满所有相关技能吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">能 但得舔的够干净
+
+反正二周目能力强化继承 差的不多下周目算了
+

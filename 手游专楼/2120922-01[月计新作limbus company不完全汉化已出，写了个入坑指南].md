@@ -110,3 +110,13 @@ BOSS方面打得最难受的是黑神，翻车两次后，带齐回血ego才拿�
 
 红神砍的真是大快人心，昨天晚上2点打到3点，最后五记忆的时候操作失误了，没用1血五良夜的EGO拼到大招，当我看到默尔索的反击和红神大招拼点的时候，差点一周不想开这游戏..
 
+
+*****
+
+####  长谷川红叶  
+##### 1442#       发表于 2026-10-8 17:25
+
+这红神都被砍成伞夫了呀<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+经典之早打早吃矢，还是汉化补丁出来之后打有益于身心健康，也有顶着高压打两遍过的，不过那就是另一种趣味了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
