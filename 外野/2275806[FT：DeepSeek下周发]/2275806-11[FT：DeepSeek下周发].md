@@ -11615,3 +11615,26 @@ qwen4的评价两极分化，有人说前端能打opus5.5，但是跑分还不�
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  lly778  
+##### 15823#       发表于 2026-10-8 17:42
+
+ 本帖最后由 lly778 于 2026-10-8 17:44 编辑 
+
+你楼日常绝望。而且5.5也打不过不降智的astra，o/主要是额度太低了。
+
+*****
+
+####  malisa  
+##### 15824#       发表于 2026-10-8 17:43
+
+o畜纯属自作自受
+oai的臭毛病就是稍微领先一点就觉得赢了，不务正业了。以前去搞什么sora，购物，pluse
+
+这次去搞dot
+模型能力够了， 我们搞personal agent 
+算力不够就砍老用户
+结果A/反手一刀，被干傻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
