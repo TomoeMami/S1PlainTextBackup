@@ -11191,3 +11191,21 @@ codebase memory mcp感觉大肥鱼根本不会主动使用啊
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  hugosol  
+##### 15784#       发表于 2026-10-8 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70337763&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-8 08:35</a>
+
+codebase memory mcp感觉大肥鱼根本不会主动使用啊
+
+每次看他在那疯狂grep我就让他用mcp试试，他会主动用 ...</blockquote>
+我搓了个extension，打开之后每轮对话都注入这两句话，模型就会自己判断要不要用了 调用grep或search搜索代码前，考虑是否使用codebase-memory-mcp中的工具更合适。 调用read阅读超过100行的源代码前，请先用 codebase-memory-mcp 查看声明大纲或符号片段。复制代码
+思路是用工具调用这种具体行为作为条件触发，基本涵盖了我想它自动用codebase-memory-mcp的所有场景了
+
+grep的时候会用search_graph/trace_path之类的，read的时候则是用get_code_snippet等代替
+
+而且根本不需要提到mcp具体工具名，让模型自己考虑用什么工具，它自己就会根据tool description组合这些工具做多轮查询达到自己的目的，注入的提示词也非常精简
+
