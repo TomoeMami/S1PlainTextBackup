@@ -8377,3 +8377,37 @@ A少:未能实现夙愿，为了 ...</blockquote>
 
 我就是每个月都全对话的
 
+
+*****
+
+####  mai6696  
+##### 6667#       发表于 2026-10-8 10:39
+
+ 本帖最后由 mai6696 于 2026-10-8 10:41 编辑 
+
+每个月对话本身就很累了，四条线还有大量重复的。
+
+所以我基本上只会和路线固定成员聊聊，那也是路过的时候看到了才会聊。
+
+其他人就直接路过了。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你游会不会有人每章还要逛遍全城捡光点的？
+
+当年贝老师捡遗失物我基本没落下。这次都是些可有可无的菜啊礼物啥的。
+
+我最多是去马厩找找马粪。engage马粪我要骂，但四房的马粪可是肥料啊。
+
+*****
+
+####  yangchunsiyue  
+##### 6668#       发表于 2026-10-8 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70338513&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-10-8 10:34</a>
+
+我就是每个月都全对话的
+
+柯雷尔神殿会有个取火活动
+
+女王线有个显眼的额外故事，白衣来借船用</blockquote>
+迪线有个迷妹时不时还会给迪送药。
+
