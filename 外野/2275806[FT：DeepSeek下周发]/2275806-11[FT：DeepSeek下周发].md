@@ -11465,3 +11465,13 @@ hy4 preview初期体验一言难尽，改内容把编译头文件都丢了。
 
 按照中国traditonal来说宁可参数放码错杀一切，也别过拟合<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 15808#       发表于 2026-10-8 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70339604&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-8 13:10</a>
+小道消息这一两周会有三个模型上，看目前情况估计就是K3.1，V4.1Pro和Qwen4了</blockquote>
+k3.1已经是延期过了，评测up签的保密协议过期了都<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过也没谁大嘴巴往外说给自己惹麻烦
+
