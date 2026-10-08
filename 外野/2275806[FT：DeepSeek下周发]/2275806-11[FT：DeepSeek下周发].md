@@ -11746,3 +11746,19 @@ https://www.luocha ...</blockquote>
 
 目前工作能力最强最稳定的模型还是Claude？但是A/封号太多了，问用过的网友九成都被封过，目前有办法稳定使用Claude吗？比如增加点成本再开个美国服务器跑这种
 
+
+*****
+
+####  moekyo  
+##### 15834#       发表于 2026-10-9 00:49
+
+这个有人要试吗，无敌奇美拉<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/09/004818e53lr5x1igxlrzr3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (388.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 00:48 上传
+
