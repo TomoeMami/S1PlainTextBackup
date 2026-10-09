@@ -1881,12 +1881,12 @@
     "update": false
   },
   "1487714": {
-    "totalreply": 1713,
+    "totalreply": 1714,
     "title": "[过气vtuber：Kizuna AI专楼]",
     "newtitle": "[过气vtuber：Kizuna AI专楼]",
-    "lastedit": 1782827889,
+    "lastedit": 1791570005,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2097649": {
@@ -12096,10 +12096,10 @@
     "update": false
   },
   "2262701": {
-    "totalreply": 1050,
+    "totalreply": 1051,
     "title": "[立一座赛博打卡碑]",
     "newtitle": "[立一座赛博打卡碑]",
-    "lastedit": 1791566766,
+    "lastedit": 1791570005,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13806,10 +13806,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 31596,
+    "totalreply": 31598,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1791569285,
+    "lastedit": 1791570366,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14319,10 +14319,10 @@
     "update": false
   },
   "2290176": {
-    "totalreply": 169,
+    "totalreply": 170,
     "title": "[2026汉化爆发总结楼]",
     "newtitle": "[2026汉化爆发总结楼]",
-    "lastedit": 1791553684,
+    "lastedit": 1791570125,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17482,6 +17482,15 @@
     "title": "[2026年诺贝尔奖开始揭晓]",
     "newtitle": "[2026年诺贝尔奖开始揭晓]",
     "lastedit": 1791562085,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2291281": {
+    "totalreply": 41,
+    "title": "[渤海遗址关韩国什么事……？]",
+    "newtitle": "[渤海遗址关韩国什么事……？]",
+    "lastedit": 1791570006,
     "category": "外野",
     "active": true,
     "update": false
