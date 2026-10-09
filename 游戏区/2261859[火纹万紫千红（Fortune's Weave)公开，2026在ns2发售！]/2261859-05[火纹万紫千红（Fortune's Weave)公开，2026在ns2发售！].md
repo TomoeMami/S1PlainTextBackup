@@ -10546,3 +10546,31 @@ https://cn.fire-emblem-fw.site/index.html
 
 迪哥第九章在主线那格踩一下就不怕超时了吗
 
+
+*****
+
+####  jockeyjoestar  
+##### 6871#       发表于 2026-10-9 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348553&amp;ptid=2261859" target="_blank">milky658 发表于 2026-10-9 21:27</a>
+
+迪哥第九章在主线那格踩一下就不怕超时了吗</blockquote>
+细节是你要从神殿里传送 不要从地图传送 能省下一回合  刷一个怪也来得及
+
+*****
+
+####  lypylf  
+##### 6872#       发表于 2026-10-9 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348553&amp;ptid=2261859" target="_blank">milky658 发表于 2026-10-9 21:27</a>
+迪哥第九章在主线那格踩一下就不怕超时了吗</blockquote>
+左下打勾了主线时间到就可以自动传送
+
+
+*****
+
+####  hl氏  
+##### 6873#       发表于 2026-10-9 21:35
+
+先踩了好，可以最后一回合赶上打商人支线
+
