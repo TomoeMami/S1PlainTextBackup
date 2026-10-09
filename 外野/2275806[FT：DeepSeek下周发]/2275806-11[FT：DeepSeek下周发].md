@@ -12155,3 +12155,15 @@ Astra到目前为止使用体验，给我的印象很像疯狂动物城里的牦
 这个有人要试吗，无敌奇美拉</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了试qwen38-27b-coder390:q3，翻译了本2w字的英语小说，效果不错
 
+
+*****
+
+####  BarricadeMKXX  
+##### 15869#       发表于 2026-10-9 15:32
+
+现在小规模的（大概8G以下显存占用）只FIM补全模型有没有相对好一点的选择？
+
+另外deepseek原厂应该是少数还提供FIM的API了吧，ocg ccg这些不管是自部署还是转发都没给
+
+简单算了一下大约1000次1块钱上下，毕竟吃不到多少缓存命中
+
