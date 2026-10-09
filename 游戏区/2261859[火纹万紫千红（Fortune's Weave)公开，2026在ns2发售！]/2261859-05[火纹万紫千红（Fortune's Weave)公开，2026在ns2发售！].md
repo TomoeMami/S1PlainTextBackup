@@ -10636,3 +10636,13 @@ https://cn.fire-emblem-fw.site/index.html
 
 草，刚进女王线，小时候的女王不是高山南配的，笑了
 
+
+*****
+
+####  索非亚  
+##### 6880#       发表于 2026-10-9 23:09
+
+迪哥的秘传战技全是些幽默玩意，唯一感觉有点用的破邪铁拳第一下也还是减半的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+相比之下蕾达的饮料有用多了，就是买多了占箱子翻页麻烦，到现在也不加个道具堆叠。
+
