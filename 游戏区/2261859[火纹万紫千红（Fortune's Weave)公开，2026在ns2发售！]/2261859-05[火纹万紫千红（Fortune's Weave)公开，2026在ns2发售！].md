@@ -10336,3 +10336,24 @@ Gladius吗，这不是罗马短剑吗
 
 乾坤圈比较特殊，打2格是命中·必杀·回避都+10
 
+
+*****
+
+####  fireadol  
+##### 6851#       发表于 2026-10-9 19:09
+
+开了迪托线发现迪托没法采集？那商会的东西没法买啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  没取名啊  
+##### 6852#       发表于 2026-10-9 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70347950&amp;ptid=2261859" target="_blank">fireadol 发表于 2026-10-9 19:09</a>
+开了迪托线发现迪托没法采集？那商会的东西没法买啊
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+前几章没解锁功能吧，大伙都能采集的
+

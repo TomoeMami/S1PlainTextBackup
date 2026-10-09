@@ -12299,3 +12299,24 @@ gpt pro 5x用量和 Claude pro (20$)差不多.. 你一个月也造不了5个号�
 这种ai文字都快给我看出ptsd了</blockquote>
 我感觉还行吧，除了gpt的可读性很差，别的都是通俗易懂的，当然写小说什么的我不懂，日常沟通交流这个风格我觉得没啥
 
+
+*****
+
+####  lly778  
+##### 15880#       发表于 2026-10-9 19:04
+
+o/的问题是太慢了，6.1sol平均20不到的tps太难受了，
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  奈落的孤火花  
+##### 15881#       发表于 2026-10-9 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70344892&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-10-9 10:48</a>
+
+kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻倍。不过只要命中缓存了就会自动续时间，所以一 ...</blockquote>
+我问了kimi，他说那是api，订阅没有这回事儿也改不了配置
+
