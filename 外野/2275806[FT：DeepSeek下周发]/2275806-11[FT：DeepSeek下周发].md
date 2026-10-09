@@ -12193,3 +12193,16 @@ Astra到目前为止使用体验，给我的印象很像疯狂动物城里的牦
 想问下WorkBuddy70/月划算还是把70充到dsh划算？预 ...</blockquote>
 glm5.3flash API更便宜，非程序员70买API划算，因为不会过期
 
+
+*****
+
+####  RookieTnT  
+##### 15872#       发表于 2026-10-9 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343313&amp;ptid=2275806" target="_blank">我也很绝望啊 发表于 2026-10-9 00:13</a>
+
+近期有个开发项目要做，想开个能力比较强的模型的plan
+
+本来想开个GPT pro的，但是看到很多用户喷过度保守没 ...</blockquote>
+gpt pro 5x用量和 Claude pro (20$)差不多.. 你一个月也造不了5个号吧. Claude 开过一个月就是纯赚的
+
