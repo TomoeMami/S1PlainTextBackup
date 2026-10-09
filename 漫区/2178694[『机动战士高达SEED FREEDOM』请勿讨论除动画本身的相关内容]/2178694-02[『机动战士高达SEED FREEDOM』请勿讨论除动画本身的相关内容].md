@@ -228,3 +228,14 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 
 种自零的cp周边是鸡狼鸟三对男女加白毛x黄毛两男人，越来越怀疑种命安排分手是方便卖腐
 
+
+*****
+
+####  ナルバレック  
+##### 2076#       发表于 2026-10-9 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70345148&amp;ptid=2178694" target="_blank">aptx8285144 发表于 2026-10-9 11:16</a>
+
+卡嘉莉右侧那位是赛依吗？</blockquote>
+是的，基神机油那两位现在是奥布高层
+
