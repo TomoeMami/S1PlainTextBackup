@@ -473,3 +473,14 @@ ALL YOUR BASE ARE BELONG TO US
 
 不要小看我和这些机柜里西皮油、hardo dssk 的羁绊啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ROT  
+##### 44#       发表于 2026-10-9 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70345915&amp;ptid=2291257" target="_blank">-Vanitas- 发表于 2026-10-9 13:08</a>
+
+外包给印度吧</blockquote>
+不是的，是日本人用美国公司提供的服务这种，现在美国公司就已经占据大部分了，每年大量网络服贸的钱被美国赚走，日本汇率无法维持的原因之一就是这个。
+

@@ -209,3 +209,14 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 无证本来就有大飞机和回旋镖一扔就行了 而且没记错无 ...</blockquote>
 把做日本刀的奥布限定“振金”改成做圆盾就没人觉得飞盾sb了
 
+
+*****
+
+####  aptx8285144  
+##### 2074#       发表于 2026-10-9 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70346240&amp;ptid=2178694" target="_blank">suzakushi 发表于 2026-10-9 14:08</a>
+
+为什么烈焰红唇到这部还有，真没人觉得这玩意有问题吗。</blockquote>
+卡嘉莉张嘴都快有一种里番人物的幻觉了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
