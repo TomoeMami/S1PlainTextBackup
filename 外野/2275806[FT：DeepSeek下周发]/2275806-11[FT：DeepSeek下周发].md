@@ -12456,3 +12456,15 @@ dsh：给思 ...</blockquote>
 
 2026-10-10 07:10 上传
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 15892#       发表于 2026-10-10 07:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349497&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-10-10 07:11</a>
+一个开源模型隐藏思维链这是不是有病？！我说我怎么这两天在cc里用着感觉思考短了这么多，就寥寥几句话， ...</blockquote>
+K3偶尔会把思维链吐进正文，有时吐完整段内部推理以后就结束了，可能是月之暗面没功夫解决这个问题干脆一刀切了。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
