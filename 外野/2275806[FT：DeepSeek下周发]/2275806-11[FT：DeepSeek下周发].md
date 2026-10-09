@@ -11995,3 +11995,16 @@ kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻�
 
 我怎么感觉QQ这个页面是AI做的  那股光晕跟着鼠标跑的AI味太大了im.qq.com/index/#/
 
+
+*****
+
+####  空想瓶子  
+##### 15854#       发表于 2026-10-9 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70344892&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-10-8 21:48</a>
+
+kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻倍。不过只要命中缓存了就会自动续时间，所以一 ...</blockquote>
+2倍好黑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看了一下claude的1小时缓存输出是输入的2倍，5分钟的是1.25倍，算下来1小时是5分钟的1.6倍也挺黑的就是了
+
