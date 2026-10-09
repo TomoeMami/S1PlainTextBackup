@@ -9914,3 +9914,23 @@ engage   12920
 
 啊啊啊啊啊 第三部第二分区人物融完后不满意点了重开本章节，结果人物退回来了，因果碎片不退啊<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 6812#       发表于 2026-10-9 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70344410&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-10-9 09:57</a>
+
+啊啊啊啊啊 第三部第二分区人物融完后不满意点了重开本章节，结果人物退回来了，因果碎片不退啊我的2000多 ...</blockquote>
+云存档救一下
+
+*****
+
+####  索非亚  
+##### 6813#       发表于 2026-10-9 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70344150&amp;ptid=2261859" target="_blank">逆旅行客 发表于 2026-10-9 09:18</a>
+但是序章自捏没介入的时间线能看到几个人的雕像，所以没有自捏干涉这几个人起码也是都进了八强的，八强之 ...</blockquote>
+是没法解释，没自捏干涉法王在8强出来时就开始焰将大派送了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

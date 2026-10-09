@@ -11918,3 +11918,24 @@ https://www.luocha ...</blockquote>
 
 注意到这个事是因为我手搓了一个帮我读pdf的app，设定每次问话都汇报当次操作的token开销，结果发现隔夜再用第一次会贵，因为要重新把pdf读一遍<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zy450  
+##### 15847#       发表于 2026-10-9 09:54
+
+GPT生图制作UI贴图太强了，国内有模型能做到吗？GPT免费版一天好像只能生图5次
+
+
+*****
+
+####  洛拉斯  
+##### 15848#       发表于 2026-10-9 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70344391&amp;ptid=2275806" target="_blank">zy450 发表于 2026-10-9 09:54</a>
+
+GPT生图制作UI贴图太强了，国内有模型能做到吗？GPT免费版一天好像只能生图5次 ...</blockquote>
+千问也能生图
+
+我现在本地运行了一个文生图模型，显卡是12g的4070，日常没事生成一些mod的图标或者立绘啥的挺好用的
+

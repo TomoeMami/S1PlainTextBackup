@@ -376,3 +376,15 @@
 
 确实打得很畅快 出招有章法 没有恶心的苍蝇拍刀
 
+
+*****
+
+####  otakun  
+##### 1975#       发表于 2026-10-9 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70344038&amp;ptid=2210366" target="_blank">彩虹肥宅 发表于 2026-10-9 09:00</a>
+二条城这一章，主角团真的不是加速雏菊被害吗
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, 鹅球 v3.5.99-al ...</blockquote>
+你这一提就发现没说特意捉个跳舞是干什么的，单纯个义经做缝合怪练手也看不出有什么特殊之处…
+
