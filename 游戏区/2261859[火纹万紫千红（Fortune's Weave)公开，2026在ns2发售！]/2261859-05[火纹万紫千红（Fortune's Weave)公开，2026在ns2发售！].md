@@ -10153,3 +10153,19 @@ Gladius吗，这不是罗马短剑吗
 
 感觉我如果二周目再次玩迪少线第一部，可以玩100～120小时。。。战斗是真的多
 
+
+*****
+
+####  DARK_HGCG  
+##### 6836#       发表于 2026-10-9 13:57
+
+最新一期《任天堂梦》杂志会附赠万紫千红日程表
+
+<img src="https://img.stage1st.com/forum/202610/09/135724afxfb1clcr73cnmz.jpg" referrerpolicy="no-referrer">
+
+<strong>30656.jpg</strong> (160.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 13:57 上传
+
