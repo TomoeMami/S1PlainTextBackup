@@ -10455,3 +10455,49 @@ https://cn.fire-emblem-fw.site/index.html
 感觉自己之前好像有 ...</blockquote>
 是的，第三部才能汇合，做了4真焰将的外传（女王除外）能让那些真焰将不在第二部中作为敌人出场，做了4副焰将的外传，他们4个能在第三部合流
 
+
+*****
+
+####  嘲风  
+##### 6861#       发表于 2026-10-9 19:58
+
+发现妮捏带了魔装加强的技能以后再带封魔盾，封魔盾的魔防就不给加了，也不知道是不是bug
+
+*****
+
+####  han110022  
+##### 6862#       发表于 2026-10-9 20:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348157&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-10-9 19:58</a>
+
+发现妮捏带了魔装加强的技能以后再带封魔盾，封魔盾的魔防就不给加了，也不知道是不是bug ...</blockquote>
+单个属性增加的上限的10点，尼涅那个被动升上来就直接加10了，所以没法再加了
+
+
+*****
+
+####  hl氏  
+##### 6863#       发表于 2026-10-9 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348143&amp;ptid=2261859" target="_blank">1wq1 发表于 2026-10-9 19:53</a>
+
+是的，第三部才能汇合，做了4真焰将的外传（女王除外）能让那些真焰将不在第二部中作为敌人出场，做了4副 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">女王线最后一章很离谱，时间不够做完事情，最后我放弃了迪托利希的外传，这下玩女王线第二部要打他了
+
+*****
+
+####  julia黑  
+##### 6864#       发表于 2026-10-9 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348117&amp;ptid=2261859" target="_blank">Acatv 发表于 2026-10-9 19:48</a>
+
+问下现在万紫千红有wiki之类的资料站吗？想查地图、角色的成长、特技什么的，视频太散了好不方便 ...</blockquote>
+[https://fire-emblem-fw.site/map.html](https://fire-emblem-fw.site/map.html)
+
+*****
+
+####  julia黑  
+##### 6865#       发表于 2026-10-9 20:07
+
+今天才知道想收小红的话需要让小绿过去把他打死...
+

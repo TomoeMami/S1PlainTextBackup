@@ -12380,3 +12380,25 @@ deepseek这产品思路真神了吧
 dsh：给思 ...</blockquote>
 用Flash翻译Flash的思维链这种行为真的太抽象了 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 15886#       发表于 2026-10-9 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70346000&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-9 13:28</a>
+说到Step 5 Preview，之前刷到不少营销号说它达到K3水平的
+
+不知道有没有坛友实际用过？对比K3怎么样？ ...</blockquote>
+实际使用的时候会用穷举法干活的模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 15887#       发表于 2026-10-9 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348140&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-9 19:53</a>
+用Flash翻译Flash的思维链这种行为真的太抽象了</blockquote>
+本地挂个7b的翻译模型就够了吧
+不过其实思维链大部分也是废话，懒得看了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
