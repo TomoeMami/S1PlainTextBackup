@@ -12417,3 +12417,18 @@ deepseek这产品思路真神了吧
 dsh：给思 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">牢崔:看我国庆七天攒出来的惊世智慧
 
+
+*****
+
+####  serj005  
+##### 15889#       发表于 2026-10-9 22:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348173&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-9 20:01</a>
+
+本地挂个7b的翻译模型就够了吧
+
+不过其实思维链大部分也是废话，懒得看了 ...</blockquote>
+主要还是看着思维链能在模型思考走弯路的时候及时终止对话止损<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+不过现在这个机翻插件只能翻译完整输出后的思维链，没法实时翻译流式思维链，导致基本没有用。
+
