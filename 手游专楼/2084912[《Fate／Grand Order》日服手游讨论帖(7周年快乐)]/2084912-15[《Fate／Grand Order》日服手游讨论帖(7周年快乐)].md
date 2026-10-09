@@ -122,3 +122,55 @@
 
 意义不明的东西 10月就准备这样混过去了。<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 21638#       发表于 2026-10-8 08:27
+
+其实我觉得青子就算上场能直接用红色形态也是比较菜的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  壳壳牛  
+##### 21639#       发表于 2026-10-8 23:01
+
+怎么有维护的...刚啃的苹果...
+
+*****
+
+####  khxooo  
+##### 21640#       发表于 2026-10-9 17:23
+
+ 本帖最后由 khxooo 于 2026-10-9 17:42 编辑 
+
+Fsr 复刻，武藏该给充能了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+唉，倾尽所有还是没黑花，看来她是真不愿意到我这<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 21641#       发表于 2026-10-9 17:53
+
+唐突复刻，会加新人吗23333
+
+*****
+
+####  khxooo  
+##### 21642#       发表于 2026-10-9 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70347619&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-10-9 17:53</a>
+唐突复刻，会加新人吗23333</blockquote>
+估计没有机会了，武藏能有充能本那已经是可以了。
+
+*****
+
+####  qixinno1  
+##### 21643#       发表于 2026-10-9 18:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时给个某人同款的技能强化变三次三回合就幽默了
+

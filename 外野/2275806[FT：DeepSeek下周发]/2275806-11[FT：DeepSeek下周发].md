@@ -12260,3 +12260,15 @@ opus5.5的表现。
 要 ...</blockquote>
 这种ai文字都快给我看出ptsd了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  静哮苍穹  
+##### 15877#       发表于 2026-10-9 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70347739&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-9 18:16</a>
+这种ai文字都快给我看出ptsd了</blockquote>
+别说了，我让grok写皇叔，现在看到这种句式就养胃了
+
+—— 来自 OnePlus PLZ110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
