@@ -12365,3 +12365,18 @@ dsh：给思维链加个面向用户显示的机翻
 
 以前我还在想多开的都是什么新人类，原来是模型太慢了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一般市民  
+##### 15885#       发表于 2026-10-9 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348080&amp;ptid=2275806" target="_blank">serj005 发表于 2026-10-9 19:38</a>
+
+deepseek这产品思路真神了吧
+
+用户：如何解决思维链老是默认用英文而我想要看中文思维链的问题？
+
+dsh：给思 ...</blockquote>
+用Flash翻译Flash的思维链这种行为真的太抽象了 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
