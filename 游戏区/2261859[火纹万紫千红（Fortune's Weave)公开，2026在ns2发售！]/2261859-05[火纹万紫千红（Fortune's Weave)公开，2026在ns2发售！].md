@@ -10784,3 +10784,15 @@ https://cn.fire-emblem-fw.site/index.html
 
 想重玩凯伊线，支线任务可以自动完成吗？是不是必须从第一章开始才能自动完成？
 
+
+*****
+
+####  jockeyjoestar  
+##### 6893#       发表于 2026-10-10 01:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">  凯伊线极限挖角是真的烦 需要的素材问题很大
+
+首先是哪吒的三个沙虫肉 开局每一章都要去异教洞窟刷  就是开局迪线去的那个洞窟 
+
+其次是椰枣  你流程中会得到 但想早挖  得回里贝拉村子SL蔬菜箱 后面种地
+
