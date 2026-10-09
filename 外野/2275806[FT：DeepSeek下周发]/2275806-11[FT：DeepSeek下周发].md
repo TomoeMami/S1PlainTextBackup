@@ -12134,3 +12134,24 @@ kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻�
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Mirathel  
+##### 15867#       发表于 2026-10-9 14:54
+
+Astra到目前为止使用体验，给我的印象很像疯狂动物城里的牦牛亚克斯，记忆力贼好但是没有自觉的那个，对于问题和目标定义非常敏感，纯许愿和全约束这两个极端大部分日常工作都能达成令人满意的产出，但对于中间态探索工作，我感觉在和一个不说人话版大肥鱼对话，吃白饭方面<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">；现在知道怎么用之后体验好了一些。
+
+之前Astra玩MC受挫后种了几个小时土豆，现在看来倒是符合这模型的行为特征。
+
+*****
+
+####  黄泉川此方  
+##### 15868#       发表于 2026-10-9 14:56
+
+ 本帖最后由 黄泉川此方 于 2026-10-9 14:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343406&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-9 00:49</a>
+
+这个有人要试吗，无敌奇美拉</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了试qwen38-27b-coder390:q3，翻译了本2w字的英语小说，效果不错
+
