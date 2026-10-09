@@ -11908,3 +11908,13 @@ https://www.luocha ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  空想瓶子  
+##### 15846#       发表于 2026-10-9 09:10
+
+今天才知道claude的token缓存只有1小时有效时间，如果是subagent的话甚至只有5分钟。空闲一旦超过这个时间缓存就没了，还要重新算。
+
+注意到这个事是因为我手搓了一个帮我读pdf的app，设定每次问话都汇报当次操作的token开销，结果发现隔夜再用第一次会贵，因为要重新把pdf读一遍<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
