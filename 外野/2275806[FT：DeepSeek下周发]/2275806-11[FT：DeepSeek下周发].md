@@ -12288,3 +12288,14 @@ gpt pro 5x用量和 Claude pro (20$)差不多.. 你一个月也造不了5个号�
 
 那一个月要开十几个号才够吧
 
+
+*****
+
+####  奈落的孤火花  
+##### 15879#       发表于 2026-10-9 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70347739&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-9 18:16</a>
+
+这种ai文字都快给我看出ptsd了</blockquote>
+我感觉还行吧，除了gpt的可读性很差，别的都是通俗易懂的，当然写小说什么的我不懂，日常沟通交流这个风格我觉得没啥
+
