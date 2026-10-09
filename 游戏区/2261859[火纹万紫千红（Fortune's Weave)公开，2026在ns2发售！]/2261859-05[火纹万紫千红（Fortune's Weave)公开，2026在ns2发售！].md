@@ -10761,3 +10761,18 @@ https://cn.fire-emblem-fw.site/index.html
 
 第11章这个剧情，怎么反派一上来就掏心窝子讲真话了，好唐突
 
+
+*****
+
+####  纯夏  
+##### 6891#       发表于 2026-10-10 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349078&amp;ptid=2261859" target="_blank">dddyghr 发表于 2026-10-9 23:45</a>
+
+目前在女王线第一部第十一章，现在外转开了根本没时间做支线，十二章还有机会收漏的人和做支线吗
+
+—— 来 ...</blockquote>
+错过的相同外传可以在其他主角篇的章节里补打 外传只要完成一次就算数
+
+11章这3个外传去凯伊篇和迪哥线补就行了 不用担心 
+

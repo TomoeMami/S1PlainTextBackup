@@ -12432,3 +12432,11 @@ dsh：给思 ...</blockquote>
 
 不过现在这个机翻插件只能翻译完整输出后的思维链，没法实时翻译流式思维链，导致基本没有用。
 
+
+*****
+
+####  nxmonitor  
+##### 15890#       发表于 2026-10-10 00:07
+
+现在的问题其实是4.1F太快导致看不清，出现复读就有问题了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
