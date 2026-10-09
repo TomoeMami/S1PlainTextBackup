@@ -12039,3 +12039,11 @@ kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻�
 
 什么叫做上了Crowdstrike博客, 和国际新闻?<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沙发沙发  
+##### 15858#       发表于 2026-10-9 12:16
+
+这个space bunny是哪家的啊，我让他给我的轻薄本改个点开游戏自动降分辨率的脚本，一个多小时了都理不清头绪，最后换ds 4.1f十几分钟搞定<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
