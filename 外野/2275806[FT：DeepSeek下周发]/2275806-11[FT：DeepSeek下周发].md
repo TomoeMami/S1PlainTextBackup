@@ -11894,3 +11894,17 @@ Claude封号没法避免那只能彻底排除了，到时先开个GPT试试水
 有不少喷GPT6的视频，下面一堆受害者现身说法 ...</blockquote>
 视频里这种ai 嘉豪特别多，不用特别当回事
 
+
+*****
+
+####  dangoron  
+##### 15845#       发表于 2026-10-9 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70340045&amp;ptid=2275806" target="_blank">星汐引力 发表于 2026-10-8 14:32</a>
+ai审美确实没那么重要了，我用skill写效果就蛮好的，主流模型不至于蠢到连抄都抄不明白
+
+https://www.luocha ...</blockquote>
+看起来不错啊，用的是什么skill<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

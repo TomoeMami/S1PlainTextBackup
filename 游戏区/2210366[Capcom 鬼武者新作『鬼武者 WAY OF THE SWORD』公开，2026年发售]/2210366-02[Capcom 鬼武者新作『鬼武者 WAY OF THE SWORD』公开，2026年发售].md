@@ -348,3 +348,13 @@
 鬼杀再战强敌义经打完了终于
 练的前两阶段都无伤了 然而二阶段开始蓝光还是不会抓囧
 
+
+*****
+
+####  彩虹肥宅  
+##### 1972#       发表于 2026-10-9 09:00
+
+二条城这一章，主角团真的不是加速雏菊被害吗<img src="https://static.stage1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
