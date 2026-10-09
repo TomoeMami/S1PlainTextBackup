@@ -10717,3 +10717,39 @@ https://cn.fire-emblem-fw.site/index.html
 
 狙击毕竟绑定了长弓，远雷可以用达米纳和屠马弓等特殊武器，还是有优势的
 
+
+*****
+
+####  dddyghr  
+##### 6887#       发表于 2026-10-9 23:45
+
+目前在女王线第一部第十一章，现在外转开了根本没时间做支线，十二章还有机会收漏的人和做支线吗
+
+—— 来自 OnePlus PLK110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  Humpy  
+##### 6888#       发表于 2026-10-9 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349078&amp;ptid=2261859" target="_blank">dddyghr 发表于 2026-10-9 23:45</a>
+目前在女王线第一部第十一章，现在外转开了根本没时间做支线，十二章还有机会收漏的人和做支线吗
+
+—— 来 ...</blockquote>
+女王线12章32回合，开三个新外传，基本上这三个外传全做其他的事就做不了什么了。
+
+放弃一些吧
+
+
+*****
+
+####  索非亚  
+##### 6889#       发表于 2026-10-9 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349064&amp;ptid=2261859" target="_blank">meltingwhite 发表于 2026-10-9 23:42</a>
+
+大象不能闪避，所以绝刃打上去是必中的
+
+狙击毕竟绑定了长弓，远雷可以用达米纳和屠马弓等特殊武器，还是 ...</blockquote>
+大象我的，没想到这个，2.2变3倍还是可以的。
+
