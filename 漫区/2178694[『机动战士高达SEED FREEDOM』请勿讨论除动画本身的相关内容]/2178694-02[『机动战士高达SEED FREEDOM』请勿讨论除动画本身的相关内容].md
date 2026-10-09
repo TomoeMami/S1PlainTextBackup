@@ -45,3 +45,13 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 
 路人当主角，这次不会再被抢戏份了吧
 
+
+*****
+
+####  望江南  
+##### 2057#       发表于 2026-10-9 08:34
+
+没有全新机吗，感觉有点遗憾啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+新规度最高的不会是这个特虎吧，别的机子好像都是左凑凑右换换（色）就上来了
+
