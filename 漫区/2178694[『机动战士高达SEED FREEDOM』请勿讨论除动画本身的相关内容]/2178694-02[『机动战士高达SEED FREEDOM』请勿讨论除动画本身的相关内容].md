@@ -220,3 +220,11 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 为什么烈焰红唇到这部还有，真没人觉得这玩意有问题吗。</blockquote>
 卡嘉莉张嘴都快有一种里番人物的幻觉了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ironman_mk5  
+##### 2075#       发表于 2026-10-9 20:11
+
+种自零的cp周边是鸡狼鸟三对男女加白毛x黄毛两男人，越来越怀疑种命安排分手是方便卖腐
+
