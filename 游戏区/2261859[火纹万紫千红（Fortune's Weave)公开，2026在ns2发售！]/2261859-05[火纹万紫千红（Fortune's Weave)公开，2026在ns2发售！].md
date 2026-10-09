@@ -9869,3 +9869,48 @@ engage   12920
 
 顺便她和蕾达一起是不是就是**天使了
 
+
+*****
+
+####  neokirin  
+##### 6807#       发表于 2026-10-9 09:51
+
+ 本帖最后由 neokirin 于 2026-10-9 09:52 编辑 
+
+有没有好心人拆扫了限定版的设定集？
+
+*****
+
+####  lagarto  
+##### 6808#       发表于 2026-10-9 09:51
+
+诺克裘拉 小丑 莱桑达 蕾达 这4个都能学到铠甲跳跃(重装回避+10)
+那理论上能做到的就是 主线打架的时候转重装 打的中的打不疼 打的疼的打不中
+
+—— 来自 OnePlus PLZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  lbj5454  
+##### 6809#       发表于 2026-10-9 09:54
+
+第二部如果只玩一次的话用谁打比较好
+
+*****
+
+####  jockeyjoestar  
+##### 6810#       发表于 2026-10-9 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70344389&amp;ptid=2261859" target="_blank">lbj5454 发表于 2026-10-9 09:54</a>
+
+第二部如果只玩一次的话用谁打比较好</blockquote>
+只有蕾达和迪哥能收小红小绿
+
+*****
+
+####  lelouchwang  
+##### 6811#       发表于 2026-10-9 09:57
+
+啊啊啊啊啊 第三部第二分区人物融完后不满意点了重开本章节，结果人物退回来了，因果碎片不退啊<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
