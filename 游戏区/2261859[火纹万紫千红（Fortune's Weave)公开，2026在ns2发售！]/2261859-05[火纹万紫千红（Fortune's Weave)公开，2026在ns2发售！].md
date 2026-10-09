@@ -9973,3 +9973,23 @@ engage   12920
 贝特兰的剧情应该就 ...</blockquote>
 古拉迪乌斯吗，火纹系的圣枪好像经常叫这个名字
 
+
+*****
+
+####  诡计  
+##### 6817#       发表于 2026-10-9 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70344859&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-10-9 10:45</a>
+
+古拉迪乌斯吗，火纹系的圣枪好像经常叫这个名字</blockquote>
+Gladius吗，这不是罗马短剑吗
+
+*****
+
+####  lazycat233  
+##### 6818#       发表于 2026-10-9 10:53
+
+第三部要塞被动配雷达副官10减伤加大象被动50减伤不知道有没有说法<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">可惜我已经快通了，没基本练了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

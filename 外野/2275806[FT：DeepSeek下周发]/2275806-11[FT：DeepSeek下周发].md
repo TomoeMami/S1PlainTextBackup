@@ -11975,3 +11975,23 @@ gpt你让他不要过度审查不要过度哈希不要反复xx也还好吧，最
 
 最依赖智能的是根据日志来debug，这是目前我感觉最能体现出差异的场景。不过即使如此，也可以靠多打日志来锁定范围
 
+
+*****
+
+####  Milarvoz  
+##### 15852#       发表于 2026-10-9 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70344090&amp;ptid=2275806" target="_blank">空想瓶子 发表于 2026-10-9 09:10</a>
+今天才知道claude的token缓存只有1小时有效时间，如果是subagent的话甚至只有5分钟。空闲一旦超过这个时间 ...</blockquote>
+kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻倍。不过只要命中缓存了就会自动续时间，所以一个工作最好连续完成，一旦间隔超过5分钟了就越想越亏。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  唠叨  
+##### 15853#       发表于 2026-10-9 10:51
+
+我怎么感觉QQ这个页面是AI做的  那股光晕跟着鼠标跑的AI味太大了im.qq.com/index/#/
+
