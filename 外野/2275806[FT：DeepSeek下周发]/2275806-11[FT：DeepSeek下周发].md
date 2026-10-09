@@ -12272,3 +12272,19 @@ opus5.5的表现。
 
 —— 来自 OnePlus PLZ110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pure_liquid  
+##### 15878#       发表于 2026-10-9 18:37
+
+<blockquote>RookieTnT 发表于 2026-10-9 17:19
+gpt pro 5x用量和 Claude pro (20$)差不多.. 你一个月也造不了5个号吧. Claude 开过一个月就是纯赚的 ...</blockquote>
+真的“一个月造不了5个号”吗？
+
+那相当于一个号至少要撑一周
+
+我看过不少人说，充值以后第二天就被封了
+
+那一个月要开十几个号才够吧
+

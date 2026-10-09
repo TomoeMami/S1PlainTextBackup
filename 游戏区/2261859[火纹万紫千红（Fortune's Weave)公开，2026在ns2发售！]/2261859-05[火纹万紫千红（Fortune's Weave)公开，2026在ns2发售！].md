@@ -10299,3 +10299,40 @@ Gladius吗，这不是罗马短剑吗
 
 在贴吧看到贝特兰在第三部中路边对话中会说他是继承"热剑"之人，那看来古鲁金是马兹的几率提高了， 白发鬼贝特兰线的最终boss应该也是马兹了。
 
+
+*****
+
+####  mai6696  
+##### 6849#       发表于 2026-10-9 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70347590&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-10-9 17:46</a>
+
+每种武器强化到最高有什么加成有总结么，看到说是木质武器+9能加回避</blockquote>
+[《火焰之纹章 万紫千红》在线数据表](https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?tab=twr89r)
+
+不知道全不全，我还在打第一部。
+
+<img src="https://img.stage1st.com/forum/202610/09/184205r9gv4aa8g569fl6y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (533.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 18:42 上传
+
+*****
+
+####  meltingwhite  
+##### 6850#       发表于 2026-10-9 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70347590&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-10-9 17:46</a>
+
+每种武器强化到最高有什么加成有总结么，看到说是木质武器+9能加回避</blockquote>
+木武器+5速，青铜+3防，铁+6技巧，银没有加成，基本无脑木武器就行
+
+达米纳使用战技时命中·必杀+10，比必杀武器还好用
+
+2格武器是在打2格时有特效，标枪+10回避，短枪+10命中，投枪+3物攻，斧头加成是一样的
+
+乾坤圈比较特殊，打2格是命中·必杀·回避都+10
+
