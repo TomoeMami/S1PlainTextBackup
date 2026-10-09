@@ -12016,3 +12016,26 @@ kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻�
 
 韩国那破事我都无语了，ai嘉豪怎么什么都敢干，不要影响国模API审核啊
 
+
+*****
+
+####  hugosol  
+##### 15856#       发表于 2026-10-9 12:07
+
+ 本帖最后由 hugosol 于 2026-10-9 12:10 编辑 
+
+用了codemode之后6.1-sol的5小时额度已经用不满了，简单的开发我也直接让它在grilling的同一个会话里做了，体验非常好
+
+现在问题又回到了周额度能让我爽多久
+
+我还是很看好这种harness结合模型带来的体验升级的，这种进步不亚于当初发明agent带来的冲击，不过没法像模型堆参数一样给一个确切的方向就能大力出奇迹而已<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  泰坦失足  
+##### 15857#       发表于 2026-10-9 12:10
+
+相关事件里还有个中转站被动的参与其中. 中转站无非就是卖卖Token, 掺点水, 搞些bug账号进货, 某些不道德的还会把回话记录卖掉.
+
+什么叫做上了Crowdstrike博客, 和国际新闻?<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
