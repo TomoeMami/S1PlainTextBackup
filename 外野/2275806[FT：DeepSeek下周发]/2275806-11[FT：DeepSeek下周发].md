@@ -12333,3 +12333,35 @@ kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻�
 那相当于一个号至少要撑一周</blockquote>
 我一个号能撑3个月左右. 还行
 
+
+*****
+
+####  serj005  
+##### 15883#       发表于 2026-10-9 19:38
+
+deepseek这产品思路真神了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+用户：如何解决思维链老是默认用英文而我想要看中文思维链的问题？
+
+dsh：给思维链加个面向用户显示的机翻
+
+<img src="https://img.stage1st.com/forum/202610/09/193509q1mkpomkzwkyd4ge.png" referrerpolicy="no-referrer">
+
+<strong>e8e589f175fcea3592bc035e618e8d38.png</strong> (33.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 19:35 上传
+
+认真讲这做法确实没错，用提示词强行改中文思维链可能会引发各种奇怪问题，比如智力飘忽不定、指令循环之类，主要是这个解法过于本地化了（只有非英语母语用户有这个需求），以前没见有人搞过。
+
+
+*****
+
+####  hugosol  
+##### 15884#       发表于 2026-10-9 19:43
+
+6.1-sol这速度已经逼着我用herdr多开了，用DeepSeek根本做不到这一点
+
+以前我还在想多开的都是什么新人类，原来是模型太慢了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
