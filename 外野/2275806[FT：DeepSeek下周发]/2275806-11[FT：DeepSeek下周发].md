@@ -12246,3 +12246,17 @@ kimik3比opus这个病还厉害；fable用得不多，感觉上要好不少，�
 
 2026-10-9 18:03 上传
 
+
+*****
+
+####  Promeus  
+##### 15876#       发表于 2026-10-9 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70347675&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-10-9 18:05</a>
+opus5.5的表现。
+
+感觉现在阶段的模型顾不了两头，要不就是跟gpt那样非常非常严谨，然后就死板、胆小。
+
+要 ...</blockquote>
+这种ai文字都快给我看出ptsd了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
