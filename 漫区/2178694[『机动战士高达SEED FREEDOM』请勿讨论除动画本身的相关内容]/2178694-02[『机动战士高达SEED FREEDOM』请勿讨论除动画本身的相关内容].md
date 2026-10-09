@@ -122,3 +122,11 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鸟又没命运开了，怪不得海报上怨气十足
 
+
+*****
+
+####  hkguty  
+##### 2066#       发表于 2026-10-9 10:08
+
+阿格妮斯这个头发怎么感觉是亲女儿，这部真是主角的话，还有机会出阿斯兰主角的新作吗
+

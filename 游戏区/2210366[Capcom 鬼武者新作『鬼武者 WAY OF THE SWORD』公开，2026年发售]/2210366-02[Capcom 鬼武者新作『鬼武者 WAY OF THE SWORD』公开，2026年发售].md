@@ -388,3 +388,16 @@
 —— 来自 Xiaomi 23127PN0CC, Android 16, 鹅球 v3.5.99-al ...</blockquote>
 你这一提就发现没说特意捉个跳舞是干什么的，单纯个义经做缝合怪练手也看不出有什么特殊之处…
 
+
+*****
+
+####  临界点  
+##### 1976#       发表于 2026-10-9 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70339004&amp;ptid=2210366" target="_blank">shpdw 发表于 2026-10-8 11:38</a>
+
+越打越感觉杂兵战其实做得挺好，但就是不好玩。
+
+难以想象在游戏里复刻了传统剑戟片的杀阵，还能有静动静的 ...</blockquote>
+就那么几个怪，太单调了  我真是第一次见动作游戏里面小兵类型还没boss多的
+
