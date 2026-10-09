@@ -10646,3 +10646,36 @@ https://cn.fire-emblem-fw.site/index.html
 
 相比之下蕾达的饮料有用多了，就是买多了占箱子翻页麻烦，到现在也不加个道具堆叠。
 
+
+*****
+
+####  纯夏  
+##### 6881#       发表于 2026-10-9 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348959&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-9 23:09</a>
+
+迪哥的秘传战技全是些幽默玩意，唯一感觉有点用的破邪铁拳第一下也还是减半的
+
+相比之下蕾达的饮料有用多了 ...</blockquote>
+第3部合并道具之后好几页的伤药X3是不是异常的壮观<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  索非亚  
+##### 6882#       发表于 2026-10-9 23:17
+
+什么伤药解毒药那是卖了半天<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  meltingwhite  
+##### 6883#       发表于 2026-10-9 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348959&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-9 23:09</a>
+迪哥的秘传战技全是些幽默玩意，唯一感觉有点用的破邪铁拳第一下也还是减半的
+
+相比之下蕾达的饮料有用多了 ...</blockquote>
+绝刃是打大象和战车这种不能闪避的单位用的，在第二部大象成堆的环境很有用
+
+远雷是高贵的5格射程，给那几个能从道具箱拿东西的角色用，达米纳弓正好能加命中，第二部和第三部鸟多的环境很好用
+
