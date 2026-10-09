@@ -166,3 +166,14 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 
 卡嘉莉右侧那位是赛依吗？
 
+
+*****
+
+####  俾斯麥  
+##### 2070#       发表于 2026-10-9 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343754&amp;ptid=2178694" target="_blank">oscarma 发表于 2026-10-9 07:27</a>
+
+路人当主角，这次不会再被抢戏份了吧</blockquote>
+种自已经把路人的人气和好感度拉回来了，这部是补完他本该在TV里就实现的转变过程，这么看当年说种会有第三部应该不是空穴来风，剧本都是两泽活着的时候的点子，说明他俩也知道种命拍成了那个鸟样是有问题的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

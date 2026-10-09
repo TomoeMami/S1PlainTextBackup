@@ -285,3 +285,63 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
        [https://x.com/bang_dream_info/status/2107402986234274243](https://x.com/bang_dream_info/status/2107402986234274243)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42075#       发表于 2026-10-9 13:43
+
+ 本帖最后由 堀内爱里衣 于 2026-10-9 13:44 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/09/134336d55dybmts5woyeyo.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-09_13-40-38.png</strong> (1.34 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 13:43 上传
+
+       [https://x.com/bang_dream_info/status/2108392010734313697](https://x.com/bang_dream_info/status/2108392010734313697)
+
+       [https://avemujica-movie.bang-dream.com/news/post-8](https://avemujica-movie.bang-dream.com/news/post-8)
+
+*****
+
+####  堀内爱里衣  
+##### 42076#       发表于 2026-10-9 13:44
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/09/134423ns48sbjll18cjj5r.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-09_13-43-44.png</strong> (870.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 13:44 上传
+
+       [https://x.com/bang_dream_info/status/2108392255283429420](https://x.com/bang_dream_info/status/2108392255283429420)
+
+       [https://airport-anifes.jp/programs/ev-bang-dream/](https://airport-anifes.jp/programs/ev-bang-dream/)
+
+*****
+
+####  堀内爱里衣  
+##### 42077#       发表于 2026-10-9 13:45
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/09/134546j7lbt7pj5778dllp.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-09_13-45-08.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 13:45 上传
+
+       [https://x.com/bang_dream_info/status/2108392758687756611](https://x.com/bang_dream_info/status/2108392758687756611)
+
+       [https://avemujica-movie.bang-dream.com/event/](https://avemujica-movie.bang-dream.com/event/)
+
