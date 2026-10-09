@@ -10703,3 +10703,17 @@ https://cn.fire-emblem-fw.site/index.html
 
 远雷更是惊人30耗，射程还和狙击一样，狙击才5耗。远雷要能打10格我觉得才对得起这消耗。
 
+
+*****
+
+####  meltingwhite  
+##### 6886#       发表于 2026-10-9 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349038&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-9 23:29</a>
+绝刃是百爆10命中fun技，巨击破才是打巨型的，伤害减半属于互相刮痧类，不是特别实用。
+
+远雷更是惊人30耗 ...</blockquote>
+大象不能闪避，所以绝刃打上去是必中的
+
+狙击毕竟绑定了长弓，远雷可以用达米纳和屠马弓等特殊武器，还是有优势的
+
