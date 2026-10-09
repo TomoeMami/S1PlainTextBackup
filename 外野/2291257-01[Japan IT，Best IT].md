@@ -451,3 +451,25 @@ ALL YOUR BASE ARE BELONG TO US
 <img src="https://static.stage1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">system down !
 <img src="https://static.stage1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">再起動します！
 
+
+*****
+
+####  -Vanitas-  
+##### 42#       发表于 2026-10-9 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343173&amp;ptid=2291257" target="_blank">ROT 发表于 2026-10-8 23:36</a>
+
+未来日本估计进一步把互联网外包给美国，美国爽吸。</blockquote>
+外包给印度吧
+
+*****
+
+####  问题修士  
+##### 43#       发表于 2026-10-9 13:10
+
+诶，电视里面不是随便敲几下键盘，一个合成女声 西斯腾姆 ong 就好了吗
+
+没on起来，那一定是我输入sudo reboot的姿势不够帅，回车敲的不够响<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+不要小看我和这些机柜里西皮油、hardo dssk 的羁绊啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

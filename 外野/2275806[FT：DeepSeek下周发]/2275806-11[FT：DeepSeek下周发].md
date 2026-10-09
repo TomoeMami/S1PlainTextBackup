@@ -12077,3 +12077,14 @@ kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻�
 这个space bunny是哪家的啊，我让他给我的轻薄本改个点开游戏自动降分辨率的脚本，一个多小时了都理不清头 ...</blockquote>
 大概率是minimax的，小概率开源后训练的
 
+
+*****
+
+####  startraveller  
+##### 15862#       发表于 2026-10-9 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70345777&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-10-9 12:41</a>
+现在 20 美元一个月的 grok 就有 Opus5.5 用了
+和 100 美元的 ChatGPT 比起来，够用么</blockquote>
+20美元的grok bot额度很少的，60美元cursor的grok bot用起来和20美元的claude差不多，可能还少一点。不过这种bot也很少拿来写代码就是了。
+
