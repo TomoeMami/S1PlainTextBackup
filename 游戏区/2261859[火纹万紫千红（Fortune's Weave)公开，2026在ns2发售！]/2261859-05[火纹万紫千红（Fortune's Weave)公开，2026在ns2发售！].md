@@ -10357,3 +10357,39 @@ Gladius吗，这不是罗马短剑吗
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 前几章没解锁功能吧，大伙都能采集的
 
+
+*****
+
+####  新HGCG  
+##### 6853#       发表于 2026-10-9 19:17
+
+柯南这里略出戏
+
+<img src="https://img.stage1st.com/forum/202610/09/191722dv3uz3bv7kmmbmhb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (250.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 19:17 上传
+
+
+*****
+
+####  jockeyjoestar  
+##### 6854#       发表于 2026-10-9 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70347845&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-9 18:42</a>
+
+《火焰之纹章 万紫千红》在线数据表
+
+不知道全不全，我还在打第一部。</blockquote>
+这数字感觉是用脚填的  2和3之间也差太多了
+
+*****
+
+####  u2deack  
+##### 6855#       发表于 2026-10-9 19:25
+
+那木武器确实有点无敌了，之前都不知道打完两条线了都，主要是强满了威力也没差多少
+
