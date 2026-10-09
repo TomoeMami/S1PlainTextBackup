@@ -11953,3 +11953,13 @@ GPT生图制作UI贴图太强了，国内有模型能做到吗？GPT免费版一
 —— 来自 S1Fun</blockquote>
 借鉴的case够厉害就可以吧
 
+
+*****
+
+####  umamusume  
+##### 15850#       发表于 2026-10-9 10:31
+
+gpt你让他不要过度审查不要过度哈希不要反复xx也还好吧，最大的问题是黑奴luna太慢了
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
