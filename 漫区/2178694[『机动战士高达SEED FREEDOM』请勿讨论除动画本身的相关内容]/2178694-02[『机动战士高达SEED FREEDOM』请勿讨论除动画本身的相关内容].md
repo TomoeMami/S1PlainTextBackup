@@ -63,3 +63,19 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 
 有无正“1.5”大概也会出强自和命运的种自零版本骗钱
 
+
+*****
+
+####  1096beam  
+##### 2059#       发表于 2026-10-9 09:27
+
+他还能搞个新命运出来？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pokemon最爱  
+##### 2060#       发表于 2026-10-9 09:33
+
+种自0很明显是鸟开无正1.5打被抢走的强自，哪儿需要新命运新强自<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
