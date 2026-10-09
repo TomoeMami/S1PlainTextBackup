@@ -10824,3 +10824,13 @@ https://cn.fire-emblem-fw.site/index.html
 大象我的，没想到这个，2.2变3倍还是可以的。</blockquote>
 女王的壮壮副官斧系的-50命中三连斩也是类似的斩象神技
 
+
+*****
+
+####  ShitOverflow  
+##### 6897#       发表于 2026-10-10 04:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">二周目无规划三人行通关了，人少也没啥任务，一路战斗爽
+
+尾关更是感受到了设计，酸爽
+
