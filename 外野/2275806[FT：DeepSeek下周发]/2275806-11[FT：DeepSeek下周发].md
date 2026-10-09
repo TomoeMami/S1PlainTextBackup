@@ -12088,3 +12088,37 @@ kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻�
 和 100 美元的 ChatGPT 比起来，够用么</blockquote>
 20美元的grok bot额度很少的，60美元cursor的grok bot用起来和20美元的claude差不多，可能还少一点。不过这种bot也很少拿来写代码就是了。
 
+
+*****
+
+####  pure_liquid  
+##### 15863#       发表于 2026-10-9 13:28
+
+说到Step 5 Preview，之前刷到不少营销号说它达到K3水平的
+
+不知道有没有坛友实际用过？对比K3怎么样？
+
+*****
+
+####  Promeus  
+##### 15864#       发表于 2026-10-9 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70346000&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-9 13:28</a>
+说到Step 5 Preview，之前刷到不少营销号说它达到K3水平的
+
+不知道有没有坛友实际用过？对比K3怎么样？ ...</blockquote>
+如果到达k3水平这楼里不会基本不提的
+
+
+*****
+
+####  nxmonitor  
+##### 15865#       发表于 2026-10-9 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70346000&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-9 13:28</a>
+
+说到Step 5 Preview，之前刷到不少营销号说它达到K3水平的
+
+不知道有没有坛友实际用过？对比K3怎么样？ ...</blockquote>
+刷分的，实际还不到4.1F
+
