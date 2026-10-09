@@ -12122,3 +12122,15 @@ kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻�
 不知道有没有坛友实际用过？对比K3怎么样？ ...</blockquote>
 刷分的，实际还不到4.1F
 
+
+*****
+
+####  tonyunreal  
+##### 15866#       发表于 2026-10-9 14:14
+
+美国豆包发布了办公客户端Gemini Agent
+被人各种嘲讽，tibo说今天我们发布了chatgpt
+<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

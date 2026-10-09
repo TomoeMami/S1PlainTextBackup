@@ -177,3 +177,23 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 路人当主角，这次不会再被抢戏份了吧</blockquote>
 种自已经把路人的人气和好感度拉回来了，这部是补完他本该在TV里就实现的转变过程，这么看当年说种会有第三部应该不是空穴来风，剧本都是两泽活着的时候的点子，说明他俩也知道种命拍成了那个鸟样是有问题的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  suzakushi  
+##### 2071#       发表于 2026-10-9 14:08
+
+为什么烈焰红唇到这部还有，真没人觉得这玩意有问题吗。
+
+*****
+
+####  pokemon最爱  
+##### 2072#       发表于 2026-10-9 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70346081&amp;ptid=2178694" target="_blank">俾斯麥 发表于 2026-10-9 13:44</a>
+
+种自已经把路人的人气和好感度拉回来了，这部是补完他本该在TV里就实现的转变过程，这么看当年说种会有第 ...</blockquote>
+种命当年毕竟是因为商业原因硬从一个剧场版的分量被加码到年番分量的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果不是两泽的身体真的支持不住我怀疑可能当年出重置版时会基于剧场版的设定把种和种命的剧情修改一遍<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（毕竟当年确实出了个两泽协力的新漫画版，有剧情修改和新机体，但中途就休载了）
+
