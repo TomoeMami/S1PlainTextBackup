@@ -345,3 +345,59 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
        [https://avemujica-movie.bang-dream.com/event/](https://avemujica-movie.bang-dream.com/event/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42078#       发表于 2026-10-9 22:48
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/09/224833qg399r5vw85xj3ip.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-10-09_22-47-32.jpg</strong> (184.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 22:48 上传
+
+       [https://x.com/bang_dream_info/status/2108482613518438443](https://x.com/bang_dream_info/status/2108482613518438443)
+
+*****
+
+####  堀内爱里衣  
+##### 42079#       发表于 2026-10-9 22:50
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/09/225042vcc2ich6ctz6h6zi.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-10-09_22-49-29.jpg</strong> (276.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 22:50 上传
+
+       [https://x.com/bang_dream_info/status/2108527904368005314](https://x.com/bang_dream_info/status/2108527904368005314)
+
+       [https://www.youtube.com/watch?v=lkS9XIzWObc](https://www.youtube.com/watch?v=lkS9XIzWObc)
+
+       [https://t.co/mQsD1RAZZc](https://t.co/mQsD1RAZZc)
+
+*****
+
+####  堀内爱里衣  
+##### 42080#       发表于 2026-10-9 22:51
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/09/225123h8ufw3mo8fc9o28i.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-10-09_22-48-57.jpg</strong> (201.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 22:51 上传
+
+       [https://x.com/bang_dream_info/status/2108539238484746418](https://x.com/bang_dream_info/status/2108539238484746418)
+
