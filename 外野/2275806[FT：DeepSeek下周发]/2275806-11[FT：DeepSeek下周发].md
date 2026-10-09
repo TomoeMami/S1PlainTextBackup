@@ -11862,3 +11862,35 @@ exo free半天就消失了 真可惜
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  紧那罗  
+##### 15842#       发表于 2026-10-9 08:39
+
+先别想那么多，上gpt就行了。碰到实在解决不了的再考虑是不是模型不行。
+
+*****
+
+####  绕指流光  
+##### 15843#         楼主| 发表于 2026-10-9 08:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343406&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-9 00:49</a>
+
+这个有人要试吗，无敌奇美拉</blockquote>
+--怪说是
+
+正经工具可能都支持不了这么长字符串的端点<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jinuzuktII  
+##### 15844#       发表于 2026-10-9 08:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70343596&amp;ptid=2275806" target="_blank">我也很绝望啊 发表于 2026-10-9 02:42</a>
+Claude封号没法避免那只能彻底排除了，到时先开个GPT试试水
+
+有不少喷GPT6的视频，下面一堆受害者现身说法 ...</blockquote>
+视频里这种ai 嘉豪特别多，不用特别当回事
+
