@@ -13806,10 +13806,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 31603,
+    "totalreply": 31604,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1791572285,
+    "lastedit": 1791574925,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17492,6 +17492,15 @@
     "newtitle": "[渤海遗址关韩国什么事……？]",
     "lastedit": 1791571326,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2291290": {
+    "totalreply": 41,
+    "title": "[丝之歌的热度没想象的高]",
+    "newtitle": "[丝之歌的热度没想象的高]",
+    "lastedit": 1791575165,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
