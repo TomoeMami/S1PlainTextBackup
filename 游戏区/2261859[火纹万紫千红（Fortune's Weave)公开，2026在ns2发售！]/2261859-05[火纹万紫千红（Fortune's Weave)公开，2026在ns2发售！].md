@@ -10607,3 +10607,13 @@ https://cn.fire-emblem-fw.site/index.html
 
 4位主角都通给20000
 
+
+*****
+
+####  嘲风  
+##### 6877#       发表于 2026-10-9 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348187&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-10-9 20:04</a>
+女王线最后一章很离谱，时间不够做完事情，最后我放弃了迪托利希的外传，这下玩女王线第二部要打他了 ...</blockquote>
+其他线打过了就不会打吧？
+
