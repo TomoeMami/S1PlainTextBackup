@@ -12440,3 +12440,19 @@ dsh：给思 ...</blockquote>
 
 现在的问题其实是4.1F太快导致看不清，出现复读就有问题了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奈落的孤火花  
+##### 15891#       发表于 2026-10-10 07:11
+
+一个开源模型隐藏思维链这是不是有病？！我说我怎么这两天在cc里用着感觉思考短了这么多，就寥寥几句话，合着你还隐藏思维链呢？
+
+<img src="https://img.stage1st.com/forum/202610/10/071045brbzh4twbowx9e0x.png" referrerpolicy="no-referrer">
+
+<strong>94067.png</strong> (128.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-10 07:10 上传
+
