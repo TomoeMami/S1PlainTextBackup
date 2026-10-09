@@ -11939,3 +11939,17 @@ GPT生图制作UI贴图太强了，国内有模型能做到吗？GPT免费版一
 
 我现在本地运行了一个文生图模型，显卡是12g的4070，日常没事生成一些mod的图标或者立绘啥的挺好用的
 
+
+*****
+
+####  断舍离  
+##### 15849#       发表于 2026-10-9 10:21
+
+ 本帖最后由 断舍离 于 2026-10-9 10:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70344061&amp;ptid=2275806" target="_blank">dangoron 发表于 2026-10-9 09:06</a>
+
+看起来不错啊，用的是什么skill
+
+—— 来自 S1Fun</blockquote>
+借鉴的case够厉害就可以吧
+

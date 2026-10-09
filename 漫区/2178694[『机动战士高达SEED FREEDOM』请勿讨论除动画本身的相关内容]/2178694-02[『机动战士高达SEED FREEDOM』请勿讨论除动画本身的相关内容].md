@@ -130,3 +130,11 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 
 阿格妮斯这个头发怎么感觉是亲女儿，这部真是主角的话，还有机会出阿斯兰主角的新作吗
 
+
+*****
+
+####  西人  
+##### 2067#       发表于 2026-10-9 10:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">CEB3还不错
+
