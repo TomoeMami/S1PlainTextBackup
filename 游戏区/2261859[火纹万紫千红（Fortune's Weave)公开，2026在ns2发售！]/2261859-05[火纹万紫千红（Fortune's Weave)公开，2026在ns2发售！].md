@@ -10252,3 +10252,14 @@ Gladius吗，这不是罗马短剑吗
 
 如果同一个主角通两次第一部，第二次可以跳过第二部直接去第三部合成大西瓜吗？
 
+
+*****
+
+####  ミズタ  
+##### 6844#       发表于 2026-10-9 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70347084&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-10-9 16:21</a>
+
+这作的达米纳武器是不是类似系列的钢系武器生态位？</blockquote>
+是，木 青铜 铁 达米纳 银
+
