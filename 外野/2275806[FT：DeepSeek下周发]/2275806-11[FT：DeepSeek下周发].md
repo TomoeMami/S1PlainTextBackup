@@ -12167,3 +12167,29 @@ Astra到目前为止使用体验，给我的印象很像疯狂动物城里的牦
 
 简单算了一下大约1000次1块钱上下，毕竟吃不到多少缓存命中
 
+
+*****
+
+####  Xkarl  
+##### 15870#       发表于 2026-10-9 17:05
+
+ 本帖最后由 Xkarl 于 2026-10-9 17:09 编辑 
+
+因为WorkBuddy大范围推广所以也是在工作中用上大模型了
+
+想问下WorkBuddy70/月划算还是把70充到dsh划算？预估了一下WorkBuddy70/月的额度是够用的，换算成token大概1.2亿
+
+还有就是dsh有没有solidworks之类的skill
+
+
+*****
+
+####  绝地潜兵  
+##### 15871#       发表于 2026-10-9 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70347360&amp;ptid=2275806" target="_blank">Xkarl 发表于 2026-10-9 17:05</a>
+因为WorkBuddy大范围推广所以也是在工作中用上大模型了
+
+想问下WorkBuddy70/月划算还是把70充到dsh划算？预 ...</blockquote>
+glm5.3flash API更便宜，非程序员70买API划算，因为不会过期
+
