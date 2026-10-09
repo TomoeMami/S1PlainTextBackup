@@ -10393,3 +10393,19 @@ Gladius吗，这不是罗马短剑吗
 
 那木武器确实有点无敌了，之前都不知道打完两条线了都，主要是强满了威力也没差多少
 
+
+*****
+
+####  milky658  
+##### 6856#       发表于 2026-10-9 19:29
+
+大概这种感觉
+
+<img src="https://img.stage1st.com/forum/202610/09/192936av4z0ua3g3bbau73.png" referrerpolicy="no-referrer">
+
+<strong>504565b1864a662c442d85ce27d36fb7.png</strong> (86.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 19:29 上传
+

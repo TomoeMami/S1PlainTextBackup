@@ -12320,3 +12320,16 @@ o/的问题是太慢了，6.1sol平均20不到的tps太难受了，
 kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻倍。不过只要命中缓存了就会自动续时间，所以一 ...</blockquote>
 我问了kimi，他说那是api，订阅没有这回事儿也改不了配置
 
+
+*****
+
+####  RookieTnT  
+##### 15882#       发表于 2026-10-9 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70347825&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-9 18:37</a>
+
+真的“一个月造不了5个号”吗？
+
+那相当于一个号至少要撑一周</blockquote>
+我一个号能撑3个月左右. 还行
+
