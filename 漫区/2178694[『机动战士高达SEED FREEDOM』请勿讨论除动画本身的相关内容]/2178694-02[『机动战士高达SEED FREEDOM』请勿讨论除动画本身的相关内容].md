@@ -150,3 +150,19 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 感觉是不会再出新作了，肥田特地提了一下这是两晶女士遗作，估计是因为这一层才想出的。
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">当然阿B拿枪指着肥田头要他出就当我没说
 
+
+*****
+
+####  aptx8285144  
+##### 2069#       发表于 2026-10-9 11:16
+
+<img src="https://img.stage1st.com/forum/202610/09/111538f329d2d92ea9a369.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20261009_111504.jpg</strong> (340.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-9 11:15 上传
+
+卡嘉莉右侧那位是赛依吗？
+
