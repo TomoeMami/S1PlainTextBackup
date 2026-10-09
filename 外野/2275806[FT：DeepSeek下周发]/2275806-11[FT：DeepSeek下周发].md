@@ -12402,3 +12402,18 @@ dsh：给思 ...</blockquote>
 本地挂个7b的翻译模型就够了吧
 不过其实思维链大部分也是废话，懒得看了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空き地卯木  
+##### 15888#       发表于 2026-10-9 21:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348080&amp;ptid=2275806" target="_blank">serj005 发表于 2026-10-9 19:38</a>
+
+deepseek这产品思路真神了吧
+
+用户：如何解决思维链老是默认用英文而我想要看中文思维链的问题？
+
+dsh：给思 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">牢崔:看我国庆七天攒出来的惊世智慧
+
