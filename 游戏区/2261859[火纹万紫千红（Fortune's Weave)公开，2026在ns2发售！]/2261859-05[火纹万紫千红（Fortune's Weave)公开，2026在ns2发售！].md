@@ -10511,3 +10511,22 @@ https://cn.fire-emblem-fw.site/index.html
 女王线最后一章很离谱，时间不够做完事情，最后我放弃了迪托利希的外传，这下玩女王线第二部要打他了 ...</blockquote>
 你挖了巴西初音的话，可以让巴西初音打有特殊对话
 
+
+*****
+
+####  土卫七  
+##### 6867#       发表于 2026-10-9 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70347590&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-10-9 17:46</a>
+每种武器强化到最高有什么加成有总结么，看到说是木质武器+9能加回避</blockquote>
+木质武器是最好的，通用加速度，其他的我忘了但效果都不太好。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  alexmax1  
+##### 6868#       发表于 2026-10-9 20:41
+
+女王最后一章算好时间能刚刚好打完三个外传外加做一个支线，我是按迪托、猫猫头、凯伊这个顺序打的
+
