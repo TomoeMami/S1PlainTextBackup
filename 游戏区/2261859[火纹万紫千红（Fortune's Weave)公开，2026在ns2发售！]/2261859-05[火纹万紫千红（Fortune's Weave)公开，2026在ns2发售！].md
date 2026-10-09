@@ -9945,3 +9945,31 @@ engage   12920
 
 这个因果融合是什么机制？在打其他线路的时候还有必要把人收齐吗？
 
+
+*****
+
+####  anyasora  
+##### 6815#       发表于 2026-10-9 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70341369&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-10-8 17:52</a>
+
+贝特兰、猫猫头应该原定都是重要主角，结果cg做好了，线都删了
+
+反正炫酷就是了，古鲁金是谁，你认识吗？ ...</blockquote>
+古鲁金应该就是马兹那个国家的前国王，马兹的某个子孙 和马兹吹逼他会提到一些这个
+
+贝特兰的剧情应该就是出狱再找古鲁金打一架就继承国王了，就补一下到第二部的开头 估计不会像商人猫猫头一样能补什么主线剧情
+
+
+*****
+
+####  yangchunsiyue  
+##### 6816#       发表于 2026-10-9 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70344808&amp;ptid=2261859" target="_blank">anyasora 发表于 2026-10-9 10:39</a>
+
+古鲁金应该就是马兹那个国家的前国王，马兹的某个子孙 和马兹吹逼他会提到一些这个
+
+贝特兰的剧情应该就 ...</blockquote>
+古拉迪乌斯吗，火纹系的圣枪好像经常叫这个名字
+
