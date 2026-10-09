@@ -10582,3 +10582,28 @@ https://cn.fire-emblem-fw.site/index.html
 
 鞑古扎的野蛮就像“古代人在现代苏醒”的古代版，“远古人在古典时代苏醒” ​​​
 
+
+*****
+
+####  lelouchwang  
+##### 6875#       发表于 2026-10-9 22:08
+
+通关给多少因果碎片啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  纯夏  
+##### 6876#       发表于 2026-10-9 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348712&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-10-9 22:08</a>
+
+通关给多少因果碎片啊
+
+论坛助手,iPhone</blockquote>
+每通一条第1部的主角线给5000碎片 
+
+4位主角都通给20000
+
