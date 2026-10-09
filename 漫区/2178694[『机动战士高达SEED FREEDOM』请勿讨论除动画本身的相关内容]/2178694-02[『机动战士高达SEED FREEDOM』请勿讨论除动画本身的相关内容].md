@@ -138,3 +138,15 @@ METAL ROBOT魂 ＜SIDE MS＞ インフィニットジャスティスガンダム
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">CEB3还不错
 
+
+*****
+
+####  二阶堂真琉  
+##### 2068#       发表于 2026-10-9 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70344518&amp;ptid=2178694" target="_blank">hkguty 发表于 2026-10-9 10:08</a>
+
+阿格妮斯这个头发怎么感觉是亲女儿，这部真是主角的话，还有机会出阿斯兰主角的新作吗 ...</blockquote>
+感觉是不会再出新作了，肥田特地提了一下这是两晶女士遗作，估计是因为这一层才想出的。
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">当然阿B拿枪指着肥田头要他出就当我没说
+
