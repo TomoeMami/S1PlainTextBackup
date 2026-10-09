@@ -12067,3 +12067,13 @@ kimi也是默认缓存只有5分钟，可以设置成1小时但是价格会翻�
 今天才知道claude的token缓存只有1小时有效时间，如果是subagent的话甚至只有5分钟。空闲一旦超过这个时间 ...</blockquote>
 读完存成向量知识库啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 15861#       发表于 2026-10-9 12:53
+
+<blockquote>沙发沙发 发表于 2026-10-9 12:16
+这个space bunny是哪家的啊，我让他给我的轻薄本改个点开游戏自动降分辨率的脚本，一个多小时了都理不清头 ...</blockquote>
+大概率是minimax的，小概率开源后训练的
+
