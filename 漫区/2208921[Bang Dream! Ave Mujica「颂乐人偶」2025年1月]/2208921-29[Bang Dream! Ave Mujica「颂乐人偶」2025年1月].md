@@ -401,3 +401,22 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
        [https://x.com/bang_dream_info/status/2108539238484746418](https://x.com/bang_dream_info/status/2108539238484746418)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42081#       发表于 2026-10-10 14:31
+
+       <strong>佐佐木李子/高尾奏音上电视_2026/10/10播出（大模型字幕）</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/10/143124qri6iii7qudlak4r.jpg" referrerpolicy="no-referrer">
+
+<strong>b839de904e587770d36c78316031b7413fa91b65.jpg</strong> (314.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-10 14:31 上传
+
+-</blockquote>
+       [https://www.bilibili.com/video/BV18Qp86bEt8](https://www.bilibili.com/video/BV18Qp86bEt8)
+

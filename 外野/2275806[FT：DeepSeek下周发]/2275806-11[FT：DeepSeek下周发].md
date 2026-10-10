@@ -12628,3 +12628,14 @@ MiMo v2.6 的代码任务中有三分之二泄露了答案
 折腾半天开了个gpt pro 100，跑了两个任务就用掉20%额度（用的Astra high），是我思考强度开太高了还是本来 ...</blockquote>
 没有规律.. Astra high就是消耗大.. 切 6.1 sol 吧. 性能少一点 但是消耗低很多. 就是慢..
 
+
+*****
+
+####  moekyo  
+##### 15907#       发表于 2026-10-10 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70351416&amp;ptid=2275806" target="_blank">我也很绝望啊 发表于 2026-10-10 13:58</a>
+
+折腾半天开了个gpt pro 100，跑了两个任务就用掉20%额度（用的Astra high），是我思考强度开太高了还是本来 ...</blockquote>
+我刚刚停了，换成 plus，你确定现在 gpt 的输出速度真的能用吗，而且还有过度工程化、过度防卫的毛病，改完了之后，愣是一个完整的 flow 都不完，各个硬门槛把你卡得死死。至于额度来说先不说各种暗砍，现在就被踢爆说 API 和 codex 的基本不是一个东西，速度和质量都是 API 的更好，所以现在还充 Pro，感觉是冤大头了。。
+
