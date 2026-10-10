@@ -11187,3 +11187,21 @@ IO基础速太低了，出场20级只有9+1速，基础值比一些重甲哥到2
 
 什么时候把迪特里希的妹召唤出来 好像也就露了个名字
 
+
+*****
+
+####  黛冬優子  
+##### 6931#       发表于 2026-10-10 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70350796&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-10-10 11:49</a>
+什么时候把迪特里希的妹召唤出来 好像也就露了个名字</blockquote>
+手游里和奔驰互相认错，长得估计差不多
+
+
+*****
+
+####  bwsusaga  
+##### 6932#       发表于 2026-10-10 12:05
+
+法比欧这个皮下甚至不知道性别，根据剧情看女性的可能性还挺高的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
