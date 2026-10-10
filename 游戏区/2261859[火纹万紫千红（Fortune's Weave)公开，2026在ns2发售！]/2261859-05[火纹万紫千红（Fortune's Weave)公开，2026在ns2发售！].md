@@ -11635,3 +11635,16 @@ https://gamewith.jp/fefw/573109
 
 如果重开是否要从序章开始，中间开会有马桶没清的问题吗？
 
+
+*****
+
+####  索非亚  
+##### 6974#       发表于 2026-10-11 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354010&amp;ptid=2261859" target="_blank">oniwarud 发表于 2026-10-10 23:10</a>
+
+金毛这重装s+的体格10有什么效率高的刷法吗</blockquote>
+最有效就第一部右下角转个重甲和各种冥兵互刮痧吧。
+
+感觉刷这个不如直接喝个饮料+4体格，第三章也打不了几场战斗。
+
