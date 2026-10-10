@@ -13232,3 +13232,23 @@ k3.1应该就是15号前后了
 
 真实的 DS 玩着狗尾巴草黑掉了韩国银行
 
+
+*****
+
+####  zhanglei1943  
+##### 15961#       发表于 2026-10-11 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354089&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-10-10 23:35</a>
+
+国内几家怎么还没出 jev/decision api
+
+—— 来自 Xiaomi 2608BPX34C, Android 17, 鹅球 v4.0 ...</blockquote>
+jev概念好像已经凉了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzxzz1019  
+##### 15962#       发表于 2026-10-11 01:05
+
+不行啊，我还是觉得自己手动复制挺好，agent给我反复测试一下子烧了我好多token<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
