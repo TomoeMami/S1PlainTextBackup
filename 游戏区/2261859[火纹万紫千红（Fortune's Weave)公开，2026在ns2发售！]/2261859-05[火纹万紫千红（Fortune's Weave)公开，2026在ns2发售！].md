@@ -11484,3 +11484,26 @@ https://tieba.baidu.com/p/11088144485?see_lz=0
 
 有地方看全角色技能表吗，女王线打第二部，瘦副官和丹提都没有远程奶真难受，听别人说的练是没错，奶神官奶大声甜魔高真是第一奶
 
+
+*****
+
+####  ShitOverflow  
+##### 6959#       发表于 2026-10-10 17:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一周目玩4人因果线，二周目玩三人组，通了以后才发现之前贴吧那些说法
+
+不说90%也有80%是在异化游戏体验，搞的人400买个游戏完全可以自由自在玩的，搞的束手束脚
+
+
+*****
+
+####  caps洛奇  
+##### 6960#       发表于 2026-10-10 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352571&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-10-10 17:37</a>
+
+有地方看全角色技能表吗，女王线打第二部，瘦副官和丹提都没有远程奶真难受，听别人说的练是没错，奶神官奶 ...</blockquote>
+[https://gamewith.jp/fefw/573109](https://gamewith.jp/fefw/573109)
+
+法表比较全 
+

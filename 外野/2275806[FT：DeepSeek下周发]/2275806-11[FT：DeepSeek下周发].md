@@ -12858,3 +12858,15 @@ local thread跟cloud thread发消息时，cloud thread的审批模式只能是fu
 
 mcp+自建chatgpt plugin也是可以的，我也跑通了，但是没有上面的办法直接
 
+
+*****
+
+####  冤枉呐  
+##### 15928#       发表于 2026-10-10 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352060&amp;ptid=2275806" target="_blank">zzxzz1019 发表于 2026-10-10 16:10</a>
+问个很ai小白的问题，用chatbox翻译小说，但老是给我漏翻东西，提示词加了约束但经常只有第一轮有效，我只 ...</blockquote>
+写个脚本，轮循
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -420,3 +420,23 @@ BanGDream! bilibili官方：@BanGDream_CN   
 -</blockquote>
        [https://www.bilibili.com/video/BV18Qp86bEt8](https://www.bilibili.com/video/BV18Qp86bEt8)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42082#       发表于 2026-10-10 17:49
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/10/174947iby6al3lcs5z6ze6.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-10-10_17-48-34.jpg</strong> (299.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-10 17:49 上传
+
+       [https://x.com/bang_dream_info/status/2108795600590496125](https://x.com/bang_dream_info/status/2108795600590496125)
+
+       [https://bcr10th.bushiroad-creative.com/](https://bcr10th.bushiroad-creative.com/)
+
