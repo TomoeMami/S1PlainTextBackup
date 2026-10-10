@@ -12590,3 +12590,41 @@ MiMo v2.6 的代码任务中有三分之二泄露了答案
 
 这个搬运过吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gmlazy  
+##### 15905#       发表于 2026-10-10 14:19
+
+ 本帖最后由 Gmlazy 于 2026-10-10 14:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70351416&amp;ptid=2275806" target="_blank">我也很绝望啊 发表于 2026-10-10 13:58</a>
+
+折腾半天开了个gpt pro 100，跑了两个任务就用掉20%额度（用的Astra high），是我思考强度开太高了还是本来 ...</blockquote>
+[https://aihot.news/codex-reset](https://aihot.news/codex-reset)
+
+用这个网站，会告诉你最近有没有重置。重置没有规律，Tibo要营销的时候就有。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 我也很绝望啊 + 1好评加鹅
+
+查看全部评分
+
+
+*****
+
+####  RookieTnT  
+##### 15906#       发表于 2026-10-10 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70351416&amp;ptid=2275806" target="_blank">我也很绝望啊 发表于 2026-10-10 13:58</a>
+
+折腾半天开了个gpt pro 100，跑了两个任务就用掉20%额度（用的Astra high），是我思考强度开太高了还是本来 ...</blockquote>
+没有规律.. Astra high就是消耗大.. 切 6.1 sol 吧. 性能少一点 但是消耗低很多. 就是慢..
+
