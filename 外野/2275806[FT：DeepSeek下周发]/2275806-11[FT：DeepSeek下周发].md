@@ -13184,3 +13184,31 @@ ccswitch重构了界面更丑了，本来就难用为什么还stars这么多</bl
 
 —— 来自 Xiaomi 2608BPX34C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  hugosol  
+##### 15956#       发表于 2026-10-10 23:41
+
+ 本帖最后由 hugosol 于 2026-10-10 23:43 编辑 
+
+6.1-sol改skill会自己写test case用subagent测试，还是挺爽的
+
+发现我还缺一个针对skill或者说prompt的开发流程，如果自己的程序里有大模型调用还得想想怎么融入进去开发流程里面，这种针对llm的测试在AI时代还是挺重要的
+
+*****
+
+####  moekyo  
+##### 15957#       发表于 2026-10-10 23:43
+
+[https://github.com/yetone/magpie](https://github.com/yetone/magpie) 现在火的的不是这个
+
+*****
+
+####  jinuzuktII  
+##### 15958#       发表于 2026-10-10 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353394&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-10 20:37</a>
+写作我真的绝望了，完全转工程化了，感觉4pr也好4.1flash也好他们已经看不懂所谓的文风和文风参考了，只能 ...</blockquote>
+等 gemini4 吧，如果谷歌能按时发布的话
+
