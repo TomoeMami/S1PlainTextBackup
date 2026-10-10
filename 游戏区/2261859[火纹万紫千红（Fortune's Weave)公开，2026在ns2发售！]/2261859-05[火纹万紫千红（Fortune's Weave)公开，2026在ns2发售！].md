@@ -10857,3 +10857,47 @@ https://cn.fire-emblem-fw.site/index.html
 打完一次战争篇（手动 跳过都行） 他会记录一次你的通关数据   后续单线融合都会在这个记录上叠加
 只有打完战争篇才会融合 前面你重来打完章节都是直接覆盖掉旧存档
 
+
+*****
+
+####  Jabeck  
+##### 6900#       发表于 2026-10-10 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349608&amp;ptid=2261859" target="_blank">fxc731 发表于 2026-10-10 08:23</a>
+
+这存档合并的问题真的是头大。网上的消息说，通关一条线第一第二部后，在不开启第三部的情况下，重打这条线 ...</blockquote>
+要打第二部才融合，只打第一部后面打得那次会覆盖前面打得那次。
+
+没手动存档估计就是为了防止反复读档第一部末尾反复融合刷人物。
+
+
+*****
+
+####  fxc731  
+##### 6901#       发表于 2026-10-10 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349737&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-10-10 08:51</a>
+要打第二部才融合，只打第一部后面打得那次会覆盖前面打得那次。
+
+没手动存档估计就是为了防止反复读档第 ...</blockquote>
+感谢，可以覆盖的话就好办了。我把蕾达和迪线的再打一次覆盖一下。
+
+*****
+
+####  纯夏  
+##### 6902#       发表于 2026-10-10 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349608&amp;ptid=2261859" target="_blank">fxc731 发表于 2026-10-10 08:23</a>
+
+这存档合并的问题真的是头大。网上的消息说，通关一条线第一第二部后，在不开启第三部的情况下，重打这条线 ...</blockquote>
+
+因果融合存档关系如图
+
+<img src="https://img.stage1st.com/forum/202610/10/085624ouquue04qm0j6m60.jpg" referrerpolicy="no-referrer">
+
+<strong>因果融合继承关系.jpg</strong> (59.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-10 08:56 上传
+
