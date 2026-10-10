@@ -12996,3 +12996,16 @@ pro我记得是网页chat可以用更好的模型，plus只有5.6sol吧</blockqu
 这几天为了不让大肥鱼思考链死循环，折腾了半天让他写了一个插件，总算是可以放心大胆的让他后台跑了
 坏处是他现在偶尔会思考到一半停了然后啥也不输出<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zy450  
+##### 15939#       发表于 2026-10-10 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353125&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-10-10 19:19</a>
+
+这几天为了不让大肥鱼思考链死循环，折腾了半天让他写了一个插件，总算是可以放心大胆的让他后台跑了
+
+坏处 ...</blockquote>
+是用官方的吗？这么久好像没见到过死循环
+
