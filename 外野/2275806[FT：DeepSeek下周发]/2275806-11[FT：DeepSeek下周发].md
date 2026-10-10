@@ -12723,3 +12723,22 @@ Astra消耗是大，这两天倒是变快了。Pro 100正确使用方式是用as
 
 大肥鱼什么时候发pro啊，迫切需要一个大参数模型指导flash干活
 
+
+*****
+
+####  zzxzz1019  
+##### 15917#       发表于 2026-10-10 16:10
+
+问个很ai小白的问题，用chatbox翻译小说，但老是给我漏翻东西，提示词加了约束但经常只有第一轮有效，我只好每次都重开对话，这样是不是用的很浪费啊，有什么好方法解决吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Milarvoz  
+##### 15918#       发表于 2026-10-10 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352060&amp;ptid=2275806" target="_blank">zzxzz1019 发表于 2026-10-10 16:10</a>
+问个很ai小白的问题，用chatbox翻译小说，但老是给我漏翻东西，提示词加了约束但经常只有第一轮有效，我只 ...</blockquote>
+控制上下文长度，不要一次性喂给llm太多文本。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

@@ -11463,3 +11463,16 @@ https://tieba.baidu.com/p/11088144485?see_lz=0
 乌尔坦德大家有什么思路吗，白魔法表稀烂，天使次数有点少，速度35过于丑陋，一时间想不 ...</blockquote>
 4条线，3条线都练了，感觉救不回来，纯纯的菜鸡，奶人技能不行，走卫士速度力量要从开始就转职练
 
+
+*****
+
+####  lagarto  
+##### 6957#       发表于 2026-10-10 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70350390&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-10 10:52</a>
+
+第2部的内容重复度极高 没有强迫收集症的话 选一个主角打第2部就行
+
+打4位主角的第1部&gt;选一个主角打第2部&gt; ...</blockquote>
+只有迪线和蕾达线能收小红小绿 这2条二选一吧
+
