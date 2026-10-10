@@ -13079,3 +13079,14 @@ glm也是代码特化训练的但是文爱写作也还行啊
 
 模型已在 Microsoft Foundry 提供，并支持 OpenRouter；输入价格为每百万 tokens 0.042 美元，输出免费。相关性能数据尚未有独立第三方验证。
 
+
+*****
+
+####  绝地潜兵  
+##### 15947#       发表于 2026-10-10 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353463&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-10-10 20:55</a>
+
+glm也是代码特化训练的但是文爱写作也还行啊</blockquote>
+glm后训练仙人，大肥鱼主要是架构迭代
+
