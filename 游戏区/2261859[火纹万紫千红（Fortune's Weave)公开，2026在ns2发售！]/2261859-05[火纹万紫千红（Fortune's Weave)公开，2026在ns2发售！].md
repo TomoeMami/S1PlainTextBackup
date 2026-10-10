@@ -10909,3 +10909,11 @@ https://cn.fire-emblem-fw.site/index.html
 
 其他线的外传做过了，另一条线的外传还要做吗？如果不在乎钱和奖励的话。
 
+
+*****
+
+####  duraa  
+##### 6904#       发表于 2026-10-10 09:20
+
+新档算了下迪托出门打商人外传回主城要7个回合，白发鬼外传打完只剩5回合，要最速收乌修拉就不能打白发鬼外传，盖茨你滚吧<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
