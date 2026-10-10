@@ -11556,3 +11556,14 @@ https://gamewith.jp/fefw/573109
 
 —— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  狩野すみれ  
+##### 6966#       发表于 2026-10-10 19:51
+
+粉天马也是这次坐骑，最低20级的
+原因和io应该是一样的，带的坐骑的职业最低20级
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.48)
+
