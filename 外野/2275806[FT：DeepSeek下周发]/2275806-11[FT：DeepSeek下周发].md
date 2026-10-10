@@ -12870,3 +12870,32 @@ mcp+自建chatgpt plugin也是可以的，我也跑通了，但是没有上面�
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  冤枉呐  
+##### 15929#       发表于 2026-10-10 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352536&amp;ptid=2275806" target="_blank">zzxzz1019 发表于 2026-10-10 17:30</a>
+实不相瞒用的很小白，是在移动端复制网页原文这样翻的……该怎么控制上下文呢，手动复制总是控制不好度 ...</blockquote>
+先安装一个anaconda（官网最新），用户第一步选只给你安装，后面全部全选
+然后检查你的原始文本，有没有类似“第一章，第二章”这种规律性分段。
+然后打开网页版DeepSeek，告诉他你要一个脚本，切分文档，就根据你发现的规律性分段的标志写，要求他把输入输出路径写成配置化的，而且告诉他你是在spyder里运行。
+复制脚本，打开spyder（anaconda的附带程序），粘贴，改路径，运行。测试分段结果。
+再打开网页版DeepSeek，告诉他你要一个脚本，配置文件路径，配置apikey之类的，轮循一个文件夹，调用模型翻译。
+然后你再配置好在spyder里运行
+
+上述建议都测试一下效果。
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  tillnight  
+##### 15930#       发表于 2026-10-10 18:00
+
+<blockquote>zzxzz1019 发表于 2026-10-10 17:30
+实不相瞒用的很小白，是在移动端复制网页原文这样翻的……该怎么控制上下文呢，手动复制总是控制不好度 ...</blockquote>
+结论是换个agent工具。chatbox已经脱离时代了。
+
