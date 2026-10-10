@@ -106,3 +106,19 @@
 
 实机建模看着也还不赖。
 
+
+*****
+
+####  蕾丝控  
+##### 857#       发表于 2026-10-10 08:14
+
+<blockquote>人生オワタ 发表于 2026-10-10 08:03
+【《饿狼传说：群狼之城》×《铁拳》联动角色先行预告片 | 丽奈-哔哩哔哩】 https://b23.tv/GLd9oPO
+
+实机 ...</blockquote>
+用心程度有天壤之别。
+
+这什么狗逼东京复仇者应该是王爷的喜好吧？
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
