@@ -13163,3 +13163,24 @@ GLM5.5没任何消息，V4.1Pro本身一直是没宣传的，K3.1其实已经放
 
 ccswitch重构了界面更丑了，本来就难用为什么还stars这么多
 
+
+*****
+
+####  御坂MKII  
+##### 15954#       发表于 2026-10-10 23:35
+
+国内几家怎么还没出 jev/decision api
+
+—— 来自 Xiaomi 2608BPX34C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  御坂MKII  
+##### 15955#       发表于 2026-10-10 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353992&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-10-10 23:06</a>
+ccswitch重构了界面更丑了，本来就难用为什么还stars这么多</blockquote>
+因为有 gui 吧，这玩意儿没法 terminal 环境用就离谱
+
+—— 来自 Xiaomi 2608BPX34C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
