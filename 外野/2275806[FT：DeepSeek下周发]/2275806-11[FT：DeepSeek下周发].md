@@ -12517,3 +12517,26 @@ K3偶尔会把思维链吐进正文，有时吐完整段内部推理以后就结
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  moekyo  
+##### 15898#       发表于 2026-10-10 12:52
+
+土炮第一次用上 Paseo，感觉好爽，一个 codex 做 review，一个 claude 做实现，然后两边自动同步，除非必要清空，基本不需要我的介入<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UncleDracula  
+##### 15899#       发表于 2026-10-10 12:54
+
+<img src="https://img.stage1st.com/forum/202610/10/125408bnn1clqjyetlligq.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (112.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-10 12:54 上传
+
+这价格认真的？有啥猫腻吧？
+
