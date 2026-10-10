@@ -11698,3 +11698,32 @@ https://gamewith.jp/fefw/573109
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  无知的小鼠人  
+##### 6979#       发表于 2026-10-11 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354394&amp;ptid=2261859" target="_blank">acg_gyanc 发表于 2026-10-11 01:22</a>
+
+想请问下坛里赛奥朵拉开始的，第一章12节时的凯伊外传和欧露赫露外传是不是不能同时完成？凯伊外传跳时间10 ...</blockquote>
+先打欧露赫露，直接回来，来得及，反正我是这样的
+
+*****
+
+####  acg_gyanc  
+##### 6980#       发表于 2026-10-11 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354427&amp;ptid=2261859" target="_blank">无知的小鼠人 发表于 2026-10-11 01:38</a>
+先打欧露赫露，直接回来，来得及，反正我是这样的</blockquote>
+难道有什么快速回城方法？22日1200打完欧露赫露外传，从水路回主城要三回合，赶不上呀……主要这打法我已经试过一次了，真没招了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Adrenaline!!!  
+##### 6981#       发表于 2026-10-11 01:41
+
+先和凯伊对话把任务接了晾在那试试，我最短距离往返跑还多一回合自由行动时间才到外传开始。
+
