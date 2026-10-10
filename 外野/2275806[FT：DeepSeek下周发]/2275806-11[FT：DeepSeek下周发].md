@@ -12704,3 +12704,14 @@ Astra现在快则快矣，就是不禁用，15分钟就能把我额度跑光
 
 我为什么觉得官订 6.1 sol 挺快的，一抬头干完了我都怀疑它偷懒，也可能是以前单位买的中转站 5.6 sol 太慢了
 
+
+*****
+
+####  moekyo  
+##### 15915#       发表于 2026-10-10 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70351750&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-10 15:08</a>
+
+Astra消耗是大，这两天倒是变快了。Pro 100正确使用方式是用astra开好issue然后让sol执行 ...</blockquote>
+我上午用的是也是这个，体感确实快，但是不知道到底是快还是额度少导致的，也没用什么插件看输出速度，反正之前是有刷到有人看到个位数的速度。。我觉得最好的是 ChatGPT 这边做 review，换其他执行最好，并且一定要强调不要过度工程化这些，不然会想死的
+
