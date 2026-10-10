@@ -12927,3 +12927,19 @@ mcp+自建chatgpt plugin也是可以的，我也跑通了，但是没有上面�
 
 Qwen Max和27B，说是Very soon了
 
+
+*****
+
+####  剑影若兰  
+##### 15933#       发表于 2026-10-10 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352457&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-10-10 17:13</a>
+官方没有明面上说有区别。
+
+Ultra一般不需要，消耗的额度非常多，而且调度大量子Agent施工时间会拉长。
+
+不 ...</blockquote>
+也就是说pro也没有明面上更强的推理强度可用了？DS又坑我<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

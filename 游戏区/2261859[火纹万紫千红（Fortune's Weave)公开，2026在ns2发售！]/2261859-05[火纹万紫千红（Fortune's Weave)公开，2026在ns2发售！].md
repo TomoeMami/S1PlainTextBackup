@@ -11520,3 +11520,21 @@ https://gamewith.jp/fefw/573109
 法表比较全</blockquote>
 谢谢         
 
+
+*****
+
+####  milky658  
+##### 6962#       发表于 2026-10-10 18:50
+
+伊欧这个绑定骑马的角色凯伊线要10级名声才能招，招的早的迪托线也20级，铁定带点小巧思的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 6963#       发表于 2026-10-10 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353024&amp;ptid=2261859" target="_blank">milky658 发表于 2026-10-10 18:50</a>
+
+伊欧这个绑定骑马的角色凯伊线要10级名声才能招，招的早的迪托线也20级，铁定带点小巧思的 ...</blockquote>
+我猜是因为他一上来就自带马，所以一上来就必须是轻骑兵，而轻骑兵要20级才能转
+
