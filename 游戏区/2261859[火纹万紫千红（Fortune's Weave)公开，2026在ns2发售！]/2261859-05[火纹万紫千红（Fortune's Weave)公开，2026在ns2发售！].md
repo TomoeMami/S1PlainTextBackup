@@ -11595,3 +11595,16 @@ https://gamewith.jp/fefw/573109
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  han110022  
+##### 6970#       发表于 2026-10-10 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353490&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-10-10 21:02</a>
+
+转了贤士后攻击魔法就只有圣吸了？
+
+论坛助手,iPhone</blockquote>
+最好用的攻击魔法——沙拉曼达
+
