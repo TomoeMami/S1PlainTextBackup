@@ -12977,3 +12977,13 @@ pro我记得是网页chat可以用更好的模型，plus只有5.6sol吧</blockqu
 
 —— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  蜇灵  
+##### 15937#       发表于 2026-10-10 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349142&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-10 00:07</a>
+现在的问题其实是4.1F太快导致看不清，出现复读就有问题了……</blockquote>
+装一个防复读的插件试试看
+
