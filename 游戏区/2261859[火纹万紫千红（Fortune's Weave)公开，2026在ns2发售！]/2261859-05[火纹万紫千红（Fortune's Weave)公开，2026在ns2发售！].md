@@ -11567,3 +11567,21 @@ https://gamewith.jp/fefw/573109
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  苍蓝之枪  
+##### 6967#       发表于 2026-10-10 19:57
+
+因为担心迪特里希队伍偏科太严重手打过不了第二部，甚至重打了一遍第一部
+
+结果怎么到了第二部还是那两个人在C，各种肌无力打不中闪不掉
+
+
+*****
+
+####  Jabeck  
+##### 6968#       发表于 2026-10-10 20:02
+
+然而雷达线开场没多久入队的金毛天马在摸鸟时会提到自己的天马。<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

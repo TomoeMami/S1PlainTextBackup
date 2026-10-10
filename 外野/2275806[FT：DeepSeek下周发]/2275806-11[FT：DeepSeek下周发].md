@@ -13009,3 +13009,33 @@ pro我记得是网页chat可以用更好的模型，plus只有5.6sol吧</blockqu
 坏处 ...</blockquote>
 是用官方的吗？这么久好像没见到过死循环
 
+
+*****
+
+####  唠叨  
+##### 15940#       发表于 2026-10-10 19:56
+
+我一天蹬3亿 从来没见过死循环
+
+
+*****
+
+####  蜇灵  
+##### 15941#       发表于 2026-10-10 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353186&amp;ptid=2275806" target="_blank">zy450 发表于 2026-10-10 19:39</a>
+是用官方的吗？这么久好像没见到过死循环</blockquote>
+不是官方的，企鹅带善人的，估计是有量化还是啥，反正比较容易复读死循环
+
+*****
+
+####  phorcys02  
+##### 15942#       发表于 2026-10-10 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353265&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-10-10 20:03</a>
+
+不是官方的，企鹅带善人的，估计是有量化还是啥，反正比较容易复读死循环 ...</blockquote>
+那是企鹅的问题，
+
+我蹬 commandcode goat的 4.1f 总计超过30B了，没有碰到过问题。
+
