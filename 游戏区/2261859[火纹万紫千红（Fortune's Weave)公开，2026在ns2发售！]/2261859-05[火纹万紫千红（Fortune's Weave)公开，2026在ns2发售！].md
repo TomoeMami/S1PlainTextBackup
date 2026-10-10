@@ -11750,3 +11750,14 @@ https://gamewith.jp/fefw/573109
 
 第三部哪个大象任务怎么搞？说三块岩石地方我去了什么都没有
 
+
+*****
+
+####  纯夏  
+##### 6984#       发表于 2026-10-11 02:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354464&amp;ptid=2261859" target="_blank">小猪猪 发表于 2026-10-11 02:00</a>
+
+第三部哪个大象任务怎么搞？说三块岩石地方我去了什么都没有</blockquote>
+哈克莲去三块岩石其中那个叫环绕岩的地方探索就行了
+
