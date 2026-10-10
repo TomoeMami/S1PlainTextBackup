@@ -11648,3 +11648,43 @@ https://gamewith.jp/fefw/573109
 
 感觉刷这个不如直接喝个饮料+4体格，第三章也打不了几场战斗。
 
+
+*****
+
+####  纯夏  
+##### 6975#       发表于 2026-10-11 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354198&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-11 00:13</a>
+
+开了下蕾达第二部，不愧是第一次打的线，什么武器配置都不全，净化剑2把，长戟1把，银盾0。重开个第一部算 ...</blockquote>
+重开第1部会覆盖你之前打的这条线的第1部存档 特色马桶任务不会继承
+
+继承的只有通关了其他主角线的继承要素 
+
+地图 车站 外传任务 神之加护等级 兵种 救世祝福和支援值这些其他主角线的继承
+
+重开第1部 如果之前挖的角色 这次重开没挖会消失
+
+
+*****
+
+####  纯夏  
+##### 6976#       发表于 2026-10-11 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353202&amp;ptid=2261859" target="_blank">chiziru 发表于 2026-10-10 19:44</a>
+
+凯伊线坐骑好感度独立，支线蔬菜需求量巨多，还得回来喂食收菜，前几章还卡马车，玩起来太累了。。。 肉菜 ...</blockquote>
+菜和鱼到第3部修复神殿任务还要用的 
+
+*****
+
+####  索非亚  
+##### 6977#       发表于 2026-10-11 00:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354269&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-11 00:35</a>
+
+重开第1部会覆盖你之前打的这条线的第1部存档 特色马桶任务不会继承
+
+继承的只有通关了其他主角线的继承要 ...</blockquote>
+序章重开了，试试1级舞娘，打一次有啥坑也踩了也印象深刻点。
+
