@@ -12742,3 +12742,14 @@ Astra消耗是大，这两天倒是变快了。Pro 100正确使用方式是用as
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  neptunehs  
+##### 15919#       发表于 2026-10-10 16:28
+
+step5错误率好高 各种搞砸
+不免费可以多次check真的有人用吗
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
