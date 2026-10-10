@@ -10917,3 +10917,48 @@ https://cn.fire-emblem-fw.site/index.html
 
 新档算了下迪托出门打商人外传回主城要7个回合，白发鬼外传打完只剩5回合，要最速收乌修拉就不能打白发鬼外传，盖茨你滚吧<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangchunsiyue  
+##### 6905#       发表于 2026-10-10 09:36
+
+女王线第6章声望6了，能招西提斯，结果一上来丢个35的任务让我打是怎么回事，我女王才刚20级转职。
+
+凯伊线的时候他不是这样的啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lypylf  
+##### 6906#       发表于 2026-10-10 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349879&amp;ptid=2261859" target="_blank">duraa 发表于 2026-10-10 09:20</a>
+新档算了下迪托出门打商人外传回主城要7个回合，白发鬼外传打完只剩5回合，要最速收乌修拉就不能打白发鬼外 ...</blockquote>
+在章节初主线目的地踩点左下打勾后主线时间到了可以直接传送，压根不用管什么回合数
+
+*****
+
+####  reficul  
+##### 6907#       发表于 2026-10-10 09:41
+
+请问一下，我听说第三部的道具库以第一次通关第一章的为准是真的吗？
+
+我第一次通用的是凯伊穷小伙，第二次是蕾达身上16w钱还有各种书和证，不会蕾达身上的道具反而要用碎片赎吧？
+
+
+*****
+
+####  reficul  
+##### 6908#       发表于 2026-10-10 09:42
+
+<blockquote>mggr 发表于 2026-10-10 09:11
+其他线的外传做过了，另一条线的外传还要做吗？如果不在乎钱和奖励的话。 ...</blockquote>
+不在乎钱的话不用，奖励反正都是地摊货
+
+*****
+
+####  fireadol  
+##### 6909#       发表于 2026-10-10 09:43
+
+迪托线最早能招的人都什么臭鱼烂虾啊，感觉都是我女王雷达线一场都上不了的
+
