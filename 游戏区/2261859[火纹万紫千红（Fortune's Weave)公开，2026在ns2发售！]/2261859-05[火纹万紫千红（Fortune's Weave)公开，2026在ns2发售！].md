@@ -11585,3 +11585,13 @@ https://gamewith.jp/fefw/573109
 
 然而雷达线开场没多久入队的金毛天马在摸鸟时会提到自己的天马。<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lelouchwang  
+##### 6969#       发表于 2026-10-10 21:02
+
+转了贤士后攻击魔法就只有圣吸了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
