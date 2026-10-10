@@ -13304,3 +13304,11 @@ jev概念好像已经凉了<img src="https://static.stage1st.com/image/smiley/fa
 
 明后年估计是芯片短缺的最高峰
 
+
+*****
+
+####  Gmlazy  
+##### 15967#       发表于 2026-10-11 07:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">GPT今天内重置，朋友们赶紧上号。
+

@@ -11793,3 +11793,13 @@ IMG_7942.jpeg
 
 <img src="https://img.stage1st.com/forum/202610/11/041614o1ibt71u77qqtbgu.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 6986#       发表于 2026-10-11 07:06
+
+<blockquote>小猪猪 发表于 2026-10-11 02:00
+第三部哪个大象任务怎么搞？说三块岩石地方我去了什么都没有</blockquote>
+就是那片三个田地的地方，种菜有概率出。
+
