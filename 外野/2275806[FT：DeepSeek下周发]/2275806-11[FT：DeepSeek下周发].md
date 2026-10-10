@@ -12814,3 +12814,47 @@ A÷绞尽脑汁不如大肥鱼灵机一动
 
 用工具控制下上下文
 
+
+*****
+
+####  zzxzz1019  
+##### 15925#       发表于 2026-10-10 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352502&amp;ptid=2275806" target="_blank">艾诺琳 发表于 2026-10-10 17:21</a>
+
+一看就是上下文超了
+
+用工具控制下上下文</blockquote>
+实不相瞒用的很小白，是在移动端复制网页原文这样翻的……该怎么控制上下文呢，手动复制总是控制不好度<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  艾诺琳  
+##### 15926#       发表于 2026-10-10 17:32
+
+ 本帖最后由 艾诺琳 于 2026-10-10 17:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352536&amp;ptid=2275806" target="_blank">zzxzz1019 发表于 2026-10-10 17:30</a>
+实不相瞒用的很小白，是在移动端复制网页原文这样翻的……该怎么控制上下文呢，手动复制总是控制不好度 ...</blockquote>
+随便下载一个harness，比如腾讯的WorkBuddy，然后许愿就行了，你这些需求都是最简答的，ai几分钟就能搞定
+
+我今天中午让dsh重构了几本书（切分为ai方便阅读大小和格式），只花了5毛钱
+
+举个例子，你安装好以后，把网页贴给ai，说清楚你的诉求，是单纯翻译还是需要整理，甚至可以指定翻译模型
+
+*****
+
+####  chaoswing  
+##### 15927#       发表于 2026-10-10 17:32
+
+对了，分享一下我测试过的，dot跟本地codex消息传递的一些要点：
+
+dot不能创建local thread，只能创建cloud thread（可以运行在本地，显示为runs on this cumputer when available）
+
+dot可以跟cloud thread单向通信，即dot可以跟cloud thread发消息；反向不行，但是dot会收到它创建的cloud thread收到的信息
+
+local thread跟cloud thread发消息时，cloud thread的审批模式只能是full access
+
+基于上述事实，可以用dot创建cloud thread，打开full access作为消息转发路由，但是要跟这个协调thread定好规矩，比如消息要带好发送者和接收者的id等必要信息，避免它收到消息以为是发给自己的
+
+mcp+自建chatgpt plugin也是可以的，我也跑通了，但是没有上面的办法直接
+
