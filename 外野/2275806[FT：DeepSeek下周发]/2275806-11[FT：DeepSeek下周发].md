@@ -12776,3 +12776,41 @@ Ultra没有必要，消耗的额度非常多，而且调度大量子Agent施工�
 
 不过要是高贵的500刀用户，当前可以用8倍速模式。
 
+
+*****
+
+####  moekyo  
+##### 15922#       发表于 2026-10-10 17:18
+
+又整活
+
+<img src="https://img.stage1st.com/forum/202610/10/171757ysppzitx4c5pp8iz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (315.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-10 17:17 上传
+
+
+*****
+
+####  飞剪号  
+##### 15923#       发表于 2026-10-10 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352486&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-10 17:18</a>
+
+又整活</blockquote>
+A÷绞尽脑汁不如大肥鱼灵机一动
+
+*****
+
+####  艾诺琳  
+##### 15924#       发表于 2026-10-10 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352060&amp;ptid=2275806" target="_blank">zzxzz1019 发表于 2026-10-10 16:10</a>
+问个很ai小白的问题，用chatbox翻译小说，但老是给我漏翻东西，提示词加了约束但经常只有第一轮有效，我只 ...</blockquote>
+一看就是上下文超了
+
+用工具控制下上下文
+
