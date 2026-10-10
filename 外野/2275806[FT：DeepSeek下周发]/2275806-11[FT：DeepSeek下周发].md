@@ -12665,3 +12665,34 @@ MiMo v2.6 的代码任务中有三分之二泄露了答案
 
 老20x，astra和6.1 sol混着用，3天用了60%。两个项目并发，同时还用dots干了一些工作。这么一看，我本来计划降到5x的，可能不够用。
 
+
+*****
+
+####  startraveller  
+##### 15911#       发表于 2026-10-10 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70351601&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-10 14:36</a>
+我刚刚停了，换成 plus，你确定现在 gpt 的输出速度真的能用吗，而且还有过度工程化、过度防卫的毛病，改 ...</blockquote>
+Astra消耗是大，这两天倒是变快了。Pro 100正确使用方式是用astra开好issue然后让sol执行
+
+*****
+
+####  紧那罗  
+##### 15912#       发表于 2026-10-10 15:11
+
+放假回来继续写材料，感觉之前写的怎么看都别扭，洋洋洒洒写了20条整改意见。
+
+提交任务前看了一眼选用模型，6.1sol<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+恍然大悟，赶紧改成astra。
+
+o要不是上个月出了astra 真是又要捏着鼻子去用claude
+
+
+*****
+
+####  奥柏伦亲王  
+##### 15913#       发表于 2026-10-10 15:14
+
+Astra现在快则快矣，就是不禁用，15分钟就能把我额度跑光
+
