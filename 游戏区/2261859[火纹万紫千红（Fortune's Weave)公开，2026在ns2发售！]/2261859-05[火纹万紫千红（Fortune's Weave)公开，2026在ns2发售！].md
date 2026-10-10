@@ -11360,3 +11360,16 @@ IO基础速太低了，出场20级只有9+1速，基础值比一些重甲哥到2
 
 碎片是不是要留着后面融合人用啊，我这边打了第一章的前两个人碎片全拿去升级祝福升完了，现在是不是要存一点<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空气先生  
+##### 6948#       发表于 2026-10-10 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70351605&amp;ptid=2261859" target="_blank">虚无缥缈的分身 发表于 2026-10-10 14:37</a>
+
+碎片是不是要留着后面融合人用啊，我这边打了第一章的前两个人碎片全拿去升级祝福升完了，现在是不是要存一 ...</blockquote>
+现在碎片应该是不可无限刷的，升级祝福肯定是可以升的，如果你一条线打2-3遍，那可能就要思考一下碎片够不够用了。（一条线打2遍以上就要考虑柜子里拿回装备了）
+
+都打1遍应该还是够因果融合玩的
+
