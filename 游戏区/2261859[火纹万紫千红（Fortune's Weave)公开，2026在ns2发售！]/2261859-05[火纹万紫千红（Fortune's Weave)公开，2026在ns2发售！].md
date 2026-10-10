@@ -11625,3 +11625,13 @@ https://gamewith.jp/fefw/573109
 故意的吧，草<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/35/34a998d83314f725c56002296c499869/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  索非亚  
+##### 6973#       发表于 2026-10-11 00:13
+
+开了下蕾达第二部，不愧是第一次打的线，什么武器配置都不全，净化剑2把，长戟1把，银盾0。重开个第一部算了。。。
+
+如果重开是否要从序章开始，中间开会有马桶没清的问题吗？
+
