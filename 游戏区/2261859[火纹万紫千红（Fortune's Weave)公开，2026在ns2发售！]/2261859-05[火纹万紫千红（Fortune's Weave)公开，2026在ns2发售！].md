@@ -11761,3 +11761,35 @@ https://gamewith.jp/fefw/573109
 第三部哪个大象任务怎么搞？说三块岩石地方我去了什么都没有</blockquote>
 哈克莲去三块岩石其中那个叫环绕岩的地方探索就行了
 
+
+*****
+
+####  Tilocal  
+##### 6985#       发表于 2026-10-11 04:22
+
+ 本帖最后由 Tilocal 于 2026-10-11 04:24 编辑 
+<blockquote>bad_alloc 发表于 2026-10-10 12:16
+还在做凯伊线规划
+
+乌尔坦德大家有什么思路吗，白魔法表稀烂，天使次数有点少，速度35过于丑陋，一时间想不 ...</blockquote>
+就合了一次轮唱诗人（独角兽）加重甲，速度想救原本可以凯伊线黑天马，但是黑天马雷电剑数量有限不如让给其他优先的法师（反正最后圣枪也不需要太高速或者白魔熟练）
+
+<img src="https://img.stage1st.com/forum/202610/11/041614un2vq8nnrz4li6dl.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7941.jpeg</strong> (419.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 04:16 上传
+
+同样只合了一次感觉还是牢杨比较水桶
+
+IMG_7942.jpeg
+(416.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 04:16 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/041614o1ibt71u77qqtbgu.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
