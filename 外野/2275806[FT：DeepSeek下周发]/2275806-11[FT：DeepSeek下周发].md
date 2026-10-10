@@ -13107,3 +13107,19 @@ glm后训练仙人，大肥鱼主要是架构迭代
 
 前面几页我看也有坛友反馈这种情况
 
+
+*****
+
+####  moekyo  
+##### 15949#       发表于 2026-10-10 22:49
+
+要是 Qwen 不开源了，这可怎么办哟<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/10/224916q5v9oe9t9t0omfsa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (45.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-10 22:49 上传
+
