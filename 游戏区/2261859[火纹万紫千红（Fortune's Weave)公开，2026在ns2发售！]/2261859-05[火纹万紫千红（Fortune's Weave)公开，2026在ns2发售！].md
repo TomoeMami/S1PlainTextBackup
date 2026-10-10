@@ -11007,3 +11007,17 @@ https://cn.fire-emblem-fw.site/index.html
 我第一次通用的是凯伊穷小伙，第二次 ...</blockquote>
 每条路线第一次通关，不同路线不影响，会合并的
 
+
+*****
+
+####  燃烧的石头  
+##### 6914#       发表于 2026-10-10 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349986&amp;ptid=2261859" target="_blank">reficul 发表于 2026-10-10 09:41</a>
+请问一下，我听说第三部的道具库以第一次通关第一章的为准是真的吗？
+
+我第一次通用的是凯伊穷小伙，第二次 ...</blockquote>
+第三部的物品是各线通第一次的合并，如果你反复刷第一第二部融合人物，之后的东西要用碎片赎
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
