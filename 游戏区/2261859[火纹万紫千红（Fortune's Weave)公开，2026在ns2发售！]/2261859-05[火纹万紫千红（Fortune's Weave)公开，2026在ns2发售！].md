@@ -11120,3 +11120,62 @@ https://cn.fire-emblem-fw.site/index.html
 女王线最后一章很离谱，时间不够做完事情，最后我放弃了迪托利希的外传，这下玩女王线第二部要打他了 ...</blockquote>
 我放弃购买本章的上级证，掐着点做完了，结果发现右下角的洞窟也忘记去了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  索非亚  
+##### 6925#       发表于 2026-10-10 11:36
+
+IO基础速太低了，出场20级只有9+1速，基础值比一些重甲哥到20的速还低。
+
+转战车第一二部用用还行，第三部属性开始跟不上。猛冲次数也少，实战完全比不上战象。
+
+我自己玩下来这种中低速中等防御的都不好用，第三部武器加成大敌人攻击都很高，自己这非剑系的又打不动人。
+
+西提司也是类似情况，正常加入也差不多7章17级，属性都点魅力上了，力技速防都是个中低水平，和这作的龙骑系职业一样拉跨。
+
+一个冥护，一个20+攻的银系武器，把原本就不太平衡的职业系统搞得更极端。
+
+*****
+
+####  lbj5454  
+##### 6926#       发表于 2026-10-10 11:39
+
+真在玩雷达线，雷达的官方CP是白发鬼? 也好，总比西布克好
+
+凯伊的官方CP是女王（都见过家长了）
+
+那迪哥的官方CP真是初音？
+
+
+*****
+
+####  bwsusaga  
+##### 6927#       发表于 2026-10-10 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70350714&amp;ptid=2261859" target="_blank">lbj5454 发表于 2026-10-10 11:39</a>
+
+真在玩雷达线，雷达的官方CP是白发鬼? 也好，总比西布克好
+
+凯伊的官方CP是女王（都见过家长了）</blockquote>
+迪哥CP是法比欧<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  索非亚  
+##### 6928#       发表于 2026-10-10 11:44
+
+只能是法比欧，和初音的双人结局一般般，甚至不能算好结局。
+
+*****
+
+####  纯夏  
+##### 6929#       发表于 2026-10-10 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70350714&amp;ptid=2261859" target="_blank">lbj5454 发表于 2026-10-10 11:39</a>
+
+真在玩雷达线，雷达的官方CP是白发鬼? 也好，总比西布克好
+
+凯伊的官方CP是女王（都见过家长了）</blockquote>
+官方CP要等漫画连载完了才能揭晓 
+
