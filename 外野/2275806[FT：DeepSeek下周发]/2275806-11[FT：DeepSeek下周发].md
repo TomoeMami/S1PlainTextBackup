@@ -12911,3 +12911,19 @@ mcp+自建chatgpt plugin也是可以的，我也跑通了，但是没有上面�
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  startraveller  
+##### 15932#       发表于 2026-10-10 18:37
+
+<img src="https://img.stage1st.com/forum/202610/10/183703m5886r4d5vxr9bi8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-10 18:37 上传
+
+Qwen Max和27B，说是Very soon了
+
