@@ -13047,3 +13047,13 @@ pro我记得是网页chat可以用更好的模型，plus只有5.6sol吧</blockqu
 
 <img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">写作我真的绝望了，完全转工程化了，感觉4pr也好4.1flash也好他们已经看不懂所谓的文风和文风参考了，只能用工程化解析文本让他强行模仿，从文句长度到选词到标点符号分析好之后让他做完形填空才能压住他的ai味儿……
 
+
+*****
+
+####  lactone  
+##### 15944#       发表于 2026-10-10 20:53
+
+好像这波新国模就qwen4是比较积极宣传的？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
