@@ -13123,3 +13123,35 @@ glm后训练仙人，大肥鱼主要是架构迭代
 
 2026-10-10 22:49 上传
 
+
+*****
+
+####  moekyo  
+##### 15950#       发表于 2026-10-10 22:58
+
+两天实测下来，20 刀 的 claude 确实比同样 20刀（虽然是土区半价） plus 额度多多了，claude 有 5 小时限额，目前为止用了一半，一开始用的 opus 5.5 max 写重构方案额度掉得比较多，如果用 medium 的话，应该还没到一半的感觉，后面基本都是用 medium 来实现。然后 plus 这边，算下来用了两张重置卡了，Astra medium，基本都是 review 而已。O/ 这边如果没有重置的话，真的完全不可用了
+
+*****
+
+####  nxmonitor  
+##### 15951#       发表于 2026-10-10 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353452&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-10 20:53</a>
+
+好像这波新国模就qwen4是比较积极宣传的？
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+GLM5.5没任何消息，V4.1Pro本身一直是没宣传的，K3.1其实已经放风了，而且内测都结束了，但是疑似出问题了，所以就Qwen4了，当然Qwen4之前测试有点区的
+
+*****
+
+####  zzxzz1019  
+##### 15952#       发表于 2026-10-10 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352890&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-10-10 18:29</a>
+
+不要用chatbox了，下载个agent直接许愿就行，这个需求对现在的agent来说太简单了
+
+—— 来自 HUAWEI SGU- ...</blockquote>
+主要是我平时只在移动端看小说，但agent不都是pc端吗，所以我就只好躺着的时候手动复制了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
