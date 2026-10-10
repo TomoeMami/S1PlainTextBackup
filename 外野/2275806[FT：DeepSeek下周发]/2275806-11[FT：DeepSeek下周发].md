@@ -13294,3 +13294,13 @@ jev概念好像已经凉了<img src="https://static.stage1st.com/image/smiley/fa
 
 400页了，mark一下
 
+
+*****
+
+####  andychen  
+##### 15966#       发表于 2026-10-11 05:13
+
+英伟达把5090出货停了
+
+明后年估计是芯片短缺的最高峰
+
