@@ -10962,3 +10962,48 @@ https://cn.fire-emblem-fw.site/index.html
 
 迪托线最早能招的人都什么臭鱼烂虾啊，感觉都是我女王雷达线一场都上不了的
 
+
+*****
+
+####  milky658  
+##### 6910#       发表于 2026-10-10 09:47
+
+迪托线4级声望那个黑皮海贼蛮好用的，射箭又快又准
+
+*****
+
+####  yangchunsiyue  
+##### 6911#       发表于 2026-10-10 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349986&amp;ptid=2261859" target="_blank">reficul 发表于 2026-10-10 09:41</a>
+
+请问一下，我听说第三部的道具库以第一次通关第一章的为准是真的吗？
+
+我第一次通用的是凯伊穷小伙，第二次 ...</blockquote>
+[https://bbs.nga.cn/read.php?tid=47672620&amp;rand=926](https://bbs.nga.cn/read.php?tid=47672620&amp;rand=926)
+
+前面有人贴过了，nga专门有说这个问题的帖子。
+
+我看下来感觉是第一章的数据，你不开第二章是可以反复覆盖，开了第二章打完到第三章以后，这个仓库就成型了。你后面再重新打第一章第二章新增的东西就要用碎片换了。
+
+*****
+
+####  duraa  
+##### 6912#       发表于 2026-10-10 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349985&amp;ptid=2261859" target="_blank">lypylf 发表于 2026-10-10 09:41</a>
+在章节初主线目的地踩点左下打勾后主线时间到了可以直接传送，压根不用管什么回合数 ...</blockquote>
+你没看懂，收人要回主城啊
+
+*****
+
+####  anyasora  
+##### 6913#       发表于 2026-10-10 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349986&amp;ptid=2261859" target="_blank">reficul 发表于 2026-10-10 09:41</a>
+
+请问一下，我听说第三部的道具库以第一次通关第一章的为准是真的吗？
+
+我第一次通用的是凯伊穷小伙，第二次 ...</blockquote>
+每条路线第一次通关，不同路线不影响，会合并的
+
