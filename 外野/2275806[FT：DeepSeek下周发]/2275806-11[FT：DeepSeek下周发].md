@@ -12899,3 +12899,15 @@ mcp+自建chatgpt plugin也是可以的，我也跑通了，但是没有上面�
 实不相瞒用的很小白，是在移动端复制网页原文这样翻的……该怎么控制上下文呢，手动复制总是控制不好度 ...</blockquote>
 结论是换个agent工具。chatbox已经脱离时代了。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 15931#       发表于 2026-10-10 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352536&amp;ptid=2275806" target="_blank">zzxzz1019 发表于 2026-10-10 17:30</a>
+实不相瞒用的很小白，是在移动端复制网页原文这样翻的……该怎么控制上下文呢，手动复制总是控制不好度 ...</blockquote>
+不要用chatbox了，下载个agent直接许愿就行，这个需求对现在的agent来说太简单了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
