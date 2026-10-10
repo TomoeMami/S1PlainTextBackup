@@ -12753,3 +12753,11 @@ step5错误率好高 各种搞砸
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  剑影若兰  
+##### 15920#       发表于 2026-10-10 16:37
+
+chatgpt astra的pro与plus版，推理强度选ultra-high，这两个版本背后用的是同一个模型吗？还是说pro本身还有一个比ultra-high推理强度还高的挡位？没用过pro，不知道是什么情况<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
