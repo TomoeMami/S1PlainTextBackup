@@ -11507,3 +11507,16 @@ https://tieba.baidu.com/p/11088144485?see_lz=0
 
 法表比较全 
 
+
+*****
+
+####  hl氏  
+##### 6961#       发表于 2026-10-10 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352661&amp;ptid=2261859" target="_blank">caps洛奇 发表于 2026-10-10 17:51</a>
+
+https://gamewith.jp/fefw/573109
+
+法表比较全</blockquote>
+谢谢         
+
