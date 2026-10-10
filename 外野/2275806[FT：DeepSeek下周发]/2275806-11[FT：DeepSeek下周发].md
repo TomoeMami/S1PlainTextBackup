@@ -12647,3 +12647,13 @@ MiMo v2.6 的代码任务中有三分之二泄露了答案
 
 这不就找出了Mimo是个刷分模型的直接证据吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  umamusume  
+##### 15909#       发表于 2026-10-10 14:52
+
+额度明显减少，6.1sol都哗哗掉，bug一堆天天沙箱有bug，没办法也得用，非要犯贱用另一个畜牲的东西？
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
