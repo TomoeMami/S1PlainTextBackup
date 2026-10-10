@@ -13212,3 +13212,13 @@ ccswitch重构了界面更丑了，本来就难用为什么还stars这么多</bl
 写作我真的绝望了，完全转工程化了，感觉4pr也好4.1flash也好他们已经看不懂所谓的文风和文风参考了，只能 ...</blockquote>
 等 gemini4 吧，如果谷歌能按时发布的话
 
+
+*****
+
+####  startraveller  
+##### 15959#       发表于 2026-10-10 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353968&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-10 22:59</a>
+GLM5.5没任何消息，V4.1Pro本身一直是没宣传的，K3.1其实已经放风了，而且内测都结束了，但是疑似出问题了 ...</blockquote>
+k3.1应该就是15号前后了
+
