@@ -13155,3 +13155,11 @@ GLM5.5没任何消息，V4.1Pro本身一直是没宣传的，K3.1其实已经放
 —— 来自 HUAWEI SGU- ...</blockquote>
 主要是我平时只在移动端看小说，但agent不都是pc端吗，所以我就只好躺着的时候手动复制了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  很久就在那边l  
+##### 15953#       发表于 2026-10-10 23:06
+
+ccswitch重构了界面更丑了，本来就难用为什么还stars这么多
+
