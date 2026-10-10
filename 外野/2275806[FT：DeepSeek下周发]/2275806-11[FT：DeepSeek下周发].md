@@ -12761,3 +12761,18 @@ step5错误率好高 各种搞砸
 
 chatgpt astra的pro与plus版，推理强度选ultra-high，这两个版本背后用的是同一个模型吗？还是说pro本身还有一个比ultra-high推理强度还高的挡位？没用过pro，不知道是什么情况<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gmlazy  
+##### 15921#       发表于 2026-10-10 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352241&amp;ptid=2275806" target="_blank">剑影若兰 发表于 2026-10-10 16:37</a>
+
+chatgpt astra的pro与plus版，推理强度选ultra-high，这两个版本背后用的是同一个模型吗？还是说pro本身还 ...</blockquote>
+官方没有明面上说有区别。
+
+Ultra没有必要，消耗的额度非常多，而且调度大量子Agent施工时间会拉长。
+
+不过要是高贵的500刀用户，当前可以用8倍速模式。
+
