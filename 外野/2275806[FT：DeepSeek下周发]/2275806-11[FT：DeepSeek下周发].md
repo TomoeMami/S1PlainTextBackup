@@ -12540,3 +12540,14 @@ K3偶尔会把思维链吐进正文，有时吐完整段内部推理以后就结
 
 这价格认真的？有啥猫腻吧？
 
+
+*****
+
+####  夜鹿  
+##### 15900#       发表于 2026-10-10 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70351175&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-10 12:54</a>
+
+这价格认真的？有啥猫腻吧？</blockquote>
+稍微过两天会发布集成ccs来源识别的版本，有不少是注水，也有不少是黑灰产，，，灰产大哥还是都挺实在
+
