@@ -122,3 +122,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 858#       发表于 2026-10-10 08:45
+
+丽奈这建模像是找铁拳那边要得模型，不像snk自己捏的，和snk自己的马脸大妈不在是一个路数。东万那两个倒应该是snk自己捏的。
+
