@@ -13039,3 +13039,11 @@ pro我记得是网页chat可以用更好的模型，plus只有5.6sol吧</blockqu
 
 我蹬 commandcode goat的 4.1f 总计超过30B了，没有碰到过问题。
 
+
+*****
+
+####  阿刚  
+##### 15943#       发表于 2026-10-10 20:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">写作我真的绝望了，完全转工程化了，感觉4pr也好4.1flash也好他们已经看不懂所谓的文风和文风参考了，只能用工程化解析文本让他强行模仿，从文句长度到选词到标点符号分析好之后让他做完形填空才能压住他的ai味儿……
+
