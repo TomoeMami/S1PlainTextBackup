@@ -265,3 +265,16 @@ IJ给废鸟开
 
 都当卡咖喱背后的男人了，搞搞谍报文书也就开开手游那台村雨飞行验证型吧
 
+
+*****
+
+####  shinnluna  
+##### 2080#       发表于 2026-10-10 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348944&amp;ptid=2178694" target="_blank">KUMA 发表于 2026-10-9 23:04</a>
+
+什么原因倒着出？先出福利蛋在出前传0？怕观众等不及？</blockquote>
+精彩度问题呗，很明显0这个事件比较小，场面肯定没有freedom规模大，而且还得着笔小鸟的转型，就SD小鸟那风评，先上0肯定暴死啊
+
+现在先把freedom这个合家欢大场面上了，里面直接跳过0的剧情，直接是完全形态的小鸟，又有高光表现，完全洗白加上吸粉，有freedom的小鸟形象做背书，再上0，观众肯定买账啊
+
