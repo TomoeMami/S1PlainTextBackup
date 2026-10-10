@@ -13090,3 +13090,20 @@ glm也是代码特化训练的但是文爱写作也还行啊
 glm也是代码特化训练的但是文爱写作也还行啊</blockquote>
 glm后训练仙人，大肥鱼主要是架构迭代
 
+
+*****
+
+####  蜇灵  
+##### 15948#       发表于 2026-10-10 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353269&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-10-10 20:05</a>
+
+那是企鹅的问题，
+
+我蹬 commandcode goat的 4.1f 总计超过30B了，没有碰到过问题。
+
+ ...</blockquote>
+我看GitHub也有几个相关的插件了，估计还是有不少人碰到了，只不过企鹅的更严重一点
+
+前面几页我看也有坛友反馈这种情况
+
