@@ -11080,3 +11080,43 @@ https://cn.fire-emblem-fw.site/index.html
 怪鸟大叔很强，反而是带爱马的那个帅哥是真扶不起来，哪条线都一样。</blockquote>
 萌萌哒太少了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 6921#       发表于 2026-10-10 10:47
+
+带马帅哥理论上迪托线刷刷弓熟练转战车能玩吧，毕竟自带马，虽然马好感很难刷满但也能吃到战车两倍<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  reficul  
+##### 6922#       发表于 2026-10-10 10:50
+
+带马的IO我还挖了，然后发现蕾达线人才济济，他走什么职业都顶不上一线
+
+另外大刀这属性真变态，刚挖来的时候还嫌弃他斧头怎么也砍不中，后来等级高了加上鹰爪斧也有90%命中率伤害防御都高
+
+
+*****
+
+####  纯夏  
+##### 6923#       发表于 2026-10-10 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70350232&amp;ptid=2261859" target="_blank">椎名mahuyo 发表于 2026-10-10 10:23</a>
+
+才开始打，我按每个角色1.2部这么打，打完换角色打最后打第三部有没有啥问题。每个角色第二部剧情差别很多 ...</blockquote>
+第2部的内容重复度极高 没有强迫收集症的话 选一个主角打第2部就行
+
+打4位主角的第1部&gt;选一个主角打第2部&gt;打第3部
+
+*****
+
+####  莱希拉姆  
+##### 6924#       发表于 2026-10-10 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70348187&amp;ptid=2261859" target="_blank">hl氏 发表于 2026-10-9 20:04</a>
+
+女王线最后一章很离谱，时间不够做完事情，最后我放弃了迪托利希的外传，这下玩女王线第二部要打他了 ...</blockquote>
+我放弃购买本章的上级证，掐着点做完了，结果发现右下角的洞窟也忘记去了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
