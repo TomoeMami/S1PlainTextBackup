@@ -13252,3 +13252,19 @@ jev概念好像已经凉了<img src="https://static.stage1st.com/image/smiley/fa
 
 不行啊，我还是觉得自己手动复制挺好，agent给我反复测试一下子烧了我好多token<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 15963#       发表于 2026-10-11 01:10
+
+<img src="https://img.stage1st.com/forum/202610/11/010943h1l8a1oa1ygltm6o.jpg" referrerpolicy="no-referrer">
+
+<strong>6DEB7796CA640D3F39DD951FA2C2D439.jpg</strong> (137.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 01:09 上传
+
+看大家都说反重力开始灰测了，兴冲冲试了一下，感觉我这账号好像3.8flash被路由到flash lite了……甚至都没有上周的流口水3.8flash强
+
