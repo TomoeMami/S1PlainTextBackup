@@ -11040,3 +11040,24 @@ https://cn.fire-emblem-fw.site/index.html
 
 —— 来自 realme RMX3708, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  bwsusaga  
+##### 6917#       发表于 2026-10-10 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70350000&amp;ptid=2261859" target="_blank">fireadol 发表于 2026-10-10 09:43</a>
+
+迪托线最早能招的人都什么臭鱼烂虾啊，感觉都是我女王雷达线一场都上不了的 ...</blockquote>
+怪鸟大叔很强，反而是带爱马的那个帅哥是真扶不起来，哪条线都一样。
+
+*****
+
+####  火红之眼  
+##### 6918#       发表于 2026-10-10 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70350232&amp;ptid=2261859" target="_blank">椎名mahuyo 发表于 2026-10-10 10:23</a>
+
+才开始打，我按每个角色1.2部这么打，打完换角色打最后打第三部有没有啥问题。每个角色第二部剧情差别很多 ...</blockquote>
+差别不大，不以角色视点推进剧情，挑个喜欢的玩其他跳过就行，不过打完第二部的角色最后通关存档会点亮角色图标，在意的可以四个都打
+
