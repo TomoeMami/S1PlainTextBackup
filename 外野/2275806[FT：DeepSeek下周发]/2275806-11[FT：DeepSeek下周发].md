@@ -12505,3 +12505,15 @@ K3偶尔会把思维链吐进正文，有时吐完整段内部推理以后就结
 
 [https://grandet.ai/zh-CN/](https://grandet.ai/zh-CN/) 自己搓的中转站比价小工具，楼友真得点个收藏吧，有问题喊我
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 15897#       发表于 2026-10-10 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70349672&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-10 08:40</a>
+不想被第三方harness白嫖蒸馏语料才是主因。任何一家的agent工具都相当于把所有对话数据默认上传了，你别管 ...</blockquote>
+因为Kimi Code对K3兼容性更好
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

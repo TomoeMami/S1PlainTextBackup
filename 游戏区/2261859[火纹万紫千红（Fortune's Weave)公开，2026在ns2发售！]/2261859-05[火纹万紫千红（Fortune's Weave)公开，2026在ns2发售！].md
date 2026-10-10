@@ -11061,3 +11061,22 @@ https://cn.fire-emblem-fw.site/index.html
 才开始打，我按每个角色1.2部这么打，打完换角色打最后打第三部有没有啥问题。每个角色第二部剧情差别很多 ...</blockquote>
 差别不大，不以角色视点推进剧情，挑个喜欢的玩其他跳过就行，不过打完第二部的角色最后通关存档会点亮角色图标，在意的可以四个都打
 
+
+*****
+
+####  巴尔干炮  
+##### 6919#       发表于 2026-10-10 10:35
+
+西提司是本作最令人失望的角色了吧，你那枪真不是蜡枪吗？
+
+
+*****
+
+####  fireadol  
+##### 6920#       发表于 2026-10-10 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70350258&amp;ptid=2261859" target="_blank">bwsusaga 发表于 2026-10-10 10:28</a>
+
+怪鸟大叔很强，反而是带爱马的那个帅哥是真扶不起来，哪条线都一样。</blockquote>
+萌萌哒太少了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
