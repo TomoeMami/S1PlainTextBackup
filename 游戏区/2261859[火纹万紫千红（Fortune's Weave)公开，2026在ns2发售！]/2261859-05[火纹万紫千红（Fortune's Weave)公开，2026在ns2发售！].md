@@ -11243,3 +11243,38 @@ IO基础速太低了，出场20级只有9+1速，基础值比一些重甲哥到2
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  北条早苗  
+##### 6937#       发表于 2026-10-10 12:27
+
+乌尔坦德感觉救不回来，单线硬要练的话就诅咒转汗血马战车再转卫士
+
+
+*****
+
+####  hl氏  
+##### 6938#       发表于 2026-10-10 12:32
+
+字面上的怯战蜥蜴不出来，那我用轰土轰死你<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+20261010123033-01M4J16F94N7JPJ943DNP901P1.jpg
+(453.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-10 12:32 上传
+
+<img src="https://img.stage1st.com/forum/202610/10/123208dask9dptjldqep3a.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 6939#       发表于 2026-10-10 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70350966&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-10-10 12:16</a>
+还在做凯伊线规划
+乌尔坦德大家有什么思路吗，白魔法表稀烂，天使次数有点少，速度35过于丑陋，一时间想不 ...</blockquote>
+不知道all in暴击端有不有搞头，这人最大卖点就是40技55运吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">走黑魔学卷轴高必杀法术（只是提个思路供参考，我没认真培养过这人
+
