@@ -12943,3 +12943,37 @@ Ultra一般不需要，消耗的额度非常多，而且调度大量子Agent施�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  qwased  
+##### 15934#       发表于 2026-10-10 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70352995&amp;ptid=2275806" target="_blank">剑影若兰 发表于 2026-10-10 18:45</a>
+
+也就是说pro也没有明面上更强的推理强度可用了？DS又坑我大肥鱼这不是给友商免费做虚假广告吗
+
+—— 来自 ...</blockquote>
+pro我记得是网页chat可以用更好的模型，plus只有5.6sol吧
+
+*****
+
+####  半江瑟瑟半江红  
+##### 15935#       发表于 2026-10-10 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353039&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-10 18:55</a>
+pro我记得是网页chat可以用更好的模型，plus只有5.6sol吧</blockquote>
+现在更新了6.0sol
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  lly778  
+##### 15936#       发表于 2026-10-10 19:03
+
+6.1sol实质上就是降速的Astra，o/6.0sol练烂的就改了改推出救急的。但又怕你薅太多就强行降速到恶心的地步，你开个8倍才有正常体验
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
