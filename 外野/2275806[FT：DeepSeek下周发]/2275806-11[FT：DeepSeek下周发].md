@@ -12578,3 +12578,15 @@ K3偶尔会把思维链吐进正文，有时吐完整段内部推理以后就结
 
 这给我搞额度焦虑了，送重置是啥规律，有自动能监测提醒的工具吗？
 
+
+*****
+
+####  小野賢章  
+##### 15904#       发表于 2026-10-10 14:16
+
+[https://www.vals.ai/blogs/mimo-reward-hacking](https://www.vals.ai/blogs/mimo-reward-hacking)
+
+MiMo v2.6 的代码任务中有三分之二泄露了答案
+
+这个搬运过吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
