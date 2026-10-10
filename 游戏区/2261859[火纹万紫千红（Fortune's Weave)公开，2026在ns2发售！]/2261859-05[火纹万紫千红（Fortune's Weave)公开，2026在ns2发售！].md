@@ -11205,3 +11205,41 @@ IO基础速太低了，出场20级只有9+1速，基础值比一些重甲哥到2
 
 法比欧这个皮下甚至不知道性别，根据剧情看女性的可能性还挺高的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 6933#       发表于 2026-10-10 12:07
+
+火纹cp基本只有大乱炖，很少定死的
+
+—— 来自 realme RMX5062, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  UltramanPain  
+##### 6934#       发表于 2026-10-10 12:11
+
+按我的理解是不是第二部，先直接跳过一次，然后再重新打第二章，这样最后是不是属性能最简单的合成一次
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  duraa  
+##### 6935#       发表于 2026-10-10 12:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我一周目迪哥被穆妈拐跑了，法比欧和初音还有败犬羁绊结局
+
+*****
+
+####  bad_alloc  
+##### 6936#       发表于 2026-10-10 12:16
+
+还在做凯伊线规划
+乌尔坦德大家有什么思路吗，白魔法表稀烂，天使次数有点少，速度35过于丑陋，一时间想不到怎么练好
+普通鸵鸟拉技速？ 还是直接allin防御端，我看有两只鸵鸟分别是15物防跟15魔防的，直接拉满魔防后期转天马去切法师不知道有没搞头
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
