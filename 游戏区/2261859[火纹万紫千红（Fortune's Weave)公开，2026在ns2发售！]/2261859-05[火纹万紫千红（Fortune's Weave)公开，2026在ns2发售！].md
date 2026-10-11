@@ -12175,3 +12175,31 @@ IMG_7942.jpeg
 欧若拉那缺乏常识的丁真感，现在想来是他爹妈的奶龙基因过于强大了</blockquote>
 根据欧若拉自己的脑补、和芙托娜称呼欧若拉为妹妹来看，欧诺拉其实是和奶龙一辈的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aresu  
+##### 7021#       发表于 2026-10-11 18:25
+
+<img src="https://img.stage1st.com/forum/202610/11/182439dggzogo7yn7z7n79.jpg" referrerpolicy="no-referrer">
+
+<strong>2026101118095600_c.jpg</strong> (329.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 18:24 上传
+
+台词完全一致 所以拜奥沃夫到底认不认识艾尔特夏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mai6696  
+##### 7022#       发表于 2026-10-11 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70356156&amp;ptid=2261859" target="_blank">星花 发表于 2026-10-11 16:29</a>
+
+总归是要有飞马的，否则第二章有苦头吃。</blockquote>
+飞马没有上级实在是难受，我第一步凯伊篇都在给她们练魔法了，看有没有机会骑神鸵。
+
+西提斯和非洲琳的龙倒是已经喂到满好感了。然而凯伊篇后面几章巨短，都没机会去35洞窟练级。
+
