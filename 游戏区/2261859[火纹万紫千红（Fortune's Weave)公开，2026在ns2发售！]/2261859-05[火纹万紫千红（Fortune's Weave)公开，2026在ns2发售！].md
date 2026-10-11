@@ -12228,3 +12228,13 @@ IMG_7942.jpeg
 
 第二部恢复了老火纹的战场大小，走起来有点累，增援和远程有点恼人，不过稳步推进不是问题，关键就是清好支援再向前不要触发敌人的多股冲锋
 
+
+*****
+
+####  lelouchwang  
+##### 7025#       发表于 2026-10-11 19:50
+
+蕾达和白发鬼一起用餐直接会无语<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
