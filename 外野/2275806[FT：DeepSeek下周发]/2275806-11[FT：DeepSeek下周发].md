@@ -13420,3 +13420,25 @@ Tibo整这些乱七八糟的烂活只是来回倒腾token用量的文字游戏�
 
 codex的codemode好像还是实验性功能？Pi的含金量还在持续增加，Mario Zechner才是唯一真神<img src="https://static.stage1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发呆的龙虾  
+##### 15978#       发表于 2026-10-11 16:58
+
+香蕉2.1拉完了。就没有能和gptimage2媲美的无限制绘图AI么。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  唠叨  
+##### 15979#       发表于 2026-10-11 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70356203&amp;ptid=2275806" target="_blank">发呆的龙虾 发表于 2026-10-11 16:58</a>
+香蕉2.1拉完了。就没有能和gptimage2媲美的无限制绘图AI么。
+
+—— 来自 HUAWEI TET-AN00, Android 12, 鹅 ...</blockquote>
+gptimage不是出2.5了吗  怎么样 不如2？
+
