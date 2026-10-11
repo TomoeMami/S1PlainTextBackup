@@ -11918,3 +11918,14 @@ IMG_7942.jpeg
 
 而且你考虑到第二章进去出来的相当于上级转职证是无限的，就算是吃低保也很方便
 
+
+*****
+
+####  Tilocal  
+##### 6997#       发表于 2026-10-11 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70355199&amp;ptid=2261859" target="_blank">zwqcm 发表于 2026-10-11 11:12</a>
+
+乌尔坦德重甲精通c和b的技能给的是什么？感觉没尼涅那么豪华的话就只能做丐版重甲尼涅了。 ...</blockquote>
+临时防御，防弓术防枪术，A是体格5，再往上不知道了
+
