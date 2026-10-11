@@ -12485,3 +12485,111 @@ IMG_7942.jpeg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tilocal  
+##### 7038#       发表于 2026-10-11 23:35
+
+<blockquote>bad_alloc 发表于 2026-10-11 13:18
+草啊，希望有人整理全死亡结局，太便宜了有点搞笑的感觉
+
+论坛助手,iPhone ...</blockquote>
+太君总结的第一部死亡结局
+
+<img src="https://img.stage1st.com/forum/202610/11/233447xgqpcpqvggzwxtgq.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EF67F7E8-93A1-49BD-9EC1-216CB21C746B.jpeg</strong> (192.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/233448ue9dvhyrvzhphpqq.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>94C922B3-9162-42EA-AB17-975C4BBC2959.jpeg</strong> (177.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/233448ech3pv5zztyuj5pa.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B73BADBE-F39B-492D-A039-DC830CE41D3C.jpeg</strong> (174.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/233448h8pi0581ub189upy.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F8E1FB31-8B09-4EC9-BE01-9332793DDD64.jpeg</strong> (177.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/233450m44xu4gbhu8jdxrg.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>95A4746D-A32C-447D-A96A-5C1B658527BC.jpeg</strong> (176.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/233450d4kt4kccufe64fku.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CB691D17-6895-4078-A6AC-806C2DF4803C.jpeg</strong> (174.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/233450eqlfakybqhconcoe.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4F9A2BF5-FCF4-4CD1-A4BA-DE45FA4B7E7F.jpeg</strong> (177.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/233454wdhhpvvt85ezx28h.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FBCA4B1C-1E53-4187-AAF1-2659D0066793.jpeg</strong> (177.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/233454yukjp4y3uu3cac35.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6FCCB67A-F95A-457E-834B-43762BA4C1FF.jpeg</strong> (178.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/233454ae31cooof0e9mm0e.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>27E0EF3E-87CF-4420-AFC8-389CED182AC8.jpeg</strong> (176.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/233457dilpkrmgomvoijmn.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1F61B7A4-7D86-4CBC-92AE-5FAEC2094880.jpeg</strong> (132.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/233458wezfepg2eoomt1xt.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B4037293-B2D9-44D2-85E7-5A223991060B.jpeg</strong> (130.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 23:34 上传
+
