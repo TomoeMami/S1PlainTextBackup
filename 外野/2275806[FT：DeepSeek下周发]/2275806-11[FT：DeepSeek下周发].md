@@ -13352,3 +13352,24 @@ jev概念好像已经凉了<img src="https://static.stage1st.com/image/smiley/fa
 
 trae大升级，有没有啥问题啊
 
+
+*****
+
+####  香雨香香  
+##### 15972#       发表于 2026-10-11 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354674&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-10-11 07:15</a>
+
+GPT今天内重置，朋友们赶紧上号。</blockquote>
+吐了 ，没提前看论坛，不知道这回事，在重置前一小时刚用了重置卡，这下好了，血亏一张重置卡<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hugosol  
+##### 15973#       发表于 2026-10-11 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354674&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-10-11 07:15</a>
+
+GPT今天内重置，朋友们赶紧上号。</blockquote>
+谢提醒，看到你的回帖赶紧爬起来用，但是已经来不及了<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+

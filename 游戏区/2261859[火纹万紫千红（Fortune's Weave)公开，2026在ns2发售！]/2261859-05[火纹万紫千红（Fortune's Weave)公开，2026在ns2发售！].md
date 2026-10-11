@@ -11929,3 +11929,26 @@ IMG_7942.jpeg
 乌尔坦德重甲精通c和b的技能给的是什么？感觉没尼涅那么豪华的话就只能做丐版重甲尼涅了。 ...</blockquote>
 临时防御，防弓术防枪术，A是体格5，再往上不知道了
 
+
+*****
+
+####  jockeyjoestar  
+##### 6998#       发表于 2026-10-11 12:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">  所以转战车只要一匹马吗  我刷了n多好感度
+
+*****
+
+####  ShitOverflow  
+##### 6999#       发表于 2026-10-11 12:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">回想白鸭线把其他主角阴兵豆沙了，除了猫猫头，也是个仁慈
+
+
+*****
+
+####  oniwarud  
+##### 7000#       发表于 2026-10-11 12:12
+
+猫猫头怎么倒的都不知道，只能等dlc解惑了，小姨子的下落估计也是那条线了
+
