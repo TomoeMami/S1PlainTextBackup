@@ -11835,3 +11835,15 @@ IMG_7942.jpeg
 就是那片三个田地的地方，种菜有概率出。</blockquote>
 还要种菜，我都种过一轮什么都没出
 
+
+*****
+
+####  superlink  
+##### 6990#       发表于 2026-10-11 08:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354435&amp;ptid=2261859" target="_blank">acg_gyanc 发表于 2026-10-11 01:41</a>
+难道有什么快速回城方法？22日1200打完欧露赫露外传，从水路回主城要三回合，赶不上呀……主要这打法我已 ...</blockquote>
+应该能做的，至少我做完了两个，我印象有一个好像打完自动回城好像
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
