@@ -13334,3 +13334,13 @@ jev概念好像已经凉了<img src="https://static.stage1st.com/image/smiley/fa
 你看的是哪国的小说，日本韩国的网文都有对应的翻译网站不用自己费劲了
 英语大部头建议用lingua gacha之类的工具精翻
 
+
+*****
+
+####  noneoneone  
+##### 15970#       发表于 2026-10-11 10:14
+
+用DSV4.1FLASH做了个弱智滑梯模拟游戏
+[https://www.bilibili.com/video/BV15ep56dEoy](https://www.bilibili.com/video/BV15ep56dEoy)
+[https://deepdemos.top/demo/demo-46e16fa3](https://deepdemos.top/demo/demo-46e16fa3)
+
