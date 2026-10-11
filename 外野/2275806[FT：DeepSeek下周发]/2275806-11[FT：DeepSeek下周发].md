@@ -13613,3 +13613,20 @@ astra真是个好模型，就是额度实在太快了。
 已经做出来一个板子了，但是没经验不知道到底行不行</blockquote>
 硬件迭代慢，看layout有没有仿真环境测试一下
 
+
+*****
+
+####  phorcys02  
+##### 15994#       发表于 2026-10-11 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70357106&amp;ptid=2275806" target="_blank">希望之花 发表于 2026-10-11 21:19</a>
+
+有没有人试过拿AI做电路板的，就那种出图可以直接丢给嘉立创生产的
+
+复杂度不是很高，就是ESP蓝牙音乐播放器 ...</blockquote>
+嘉立创EDA 新版自带 mcp/cli,
+
+我用dsh+v4.1f试了下，可以跑可以画
+
+但4.1f对嘉立创eda不算特别熟悉
+
