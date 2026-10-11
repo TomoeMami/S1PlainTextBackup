@@ -12610,3 +12610,14 @@ IMG_7942.jpeg
 
 因果融合后当前区分不能重置 不然白花的碎片 不给返还
 
+
+*****
+
+####  无知的小鼠人  
+##### 7040#       发表于 2026-10-12 02:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70357714&amp;ptid=2261859" target="_blank">Tilocal 发表于 2026-10-11 23:35</a>
+
+太君总结的第一部死亡结局</blockquote>
+就西提斯是彩色照片，笑系了
+
