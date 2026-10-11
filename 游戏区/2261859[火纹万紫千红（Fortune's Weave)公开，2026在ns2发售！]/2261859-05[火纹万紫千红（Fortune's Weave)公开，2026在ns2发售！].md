@@ -11962,3 +11962,35 @@ IMG_7942.jpeg
 临时防御，防弓术防枪术，A是体格5，再往上不知道了</blockquote>
 那是有点难救了，走地的话当个水桶和重甲贴着给魔法护盾应该是归宿了，顺便给重甲补补刀啥的。
 
+
+*****
+
+####  Jabeck  
+##### 7002#       发表于 2026-10-11 12:26
+
+迪哥开局开局收伊欧后刷低等级怪先把马好感度刷满还有救吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  喵咪咪格勒  
+##### 7003#       发表于 2026-10-11 12:27
+
+女王线玩了四十小时了 在十月
+卡塔尼亚挖来后一直飞兵 快该转上级职业了 怎么搜了一下都不建议飞  有推荐魔法的 有推荐游侠的 查了下还得另一条线才能解锁职业  搞不明白
+
+*****
+
+####  Tilocal  
+##### 7004#       发表于 2026-10-11 12:30
+
+外网说如果一个角色经典模式第一部战败退场后其他三线都没有挖过，最后后日谈就会迎来非常敷衍地死掉的坏结局，什么索菲亚饿到拾荒给自己吃死，卡妹参加上流宴会被奶酪噎死之类的
+
+<img src="https://img.stage1st.com/forum/202610/11/122320l2plzi2oeoiieouv.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ACB0D3D3-A749-44C0-B90E-D5ABA50DA429.jpeg</strong> (287.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-11 12:23 上传
+
