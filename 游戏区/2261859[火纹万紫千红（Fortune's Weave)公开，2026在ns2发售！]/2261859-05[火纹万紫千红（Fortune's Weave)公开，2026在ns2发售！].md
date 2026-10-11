@@ -12017,3 +12017,23 @@ IMG_7942.jpeg
 外网说如果一个角色经典模式第一部战败退场后其他三线都没有挖过，最后后日谈就会迎来非常敷衍地死掉的坏结 ...</blockquote>
 经典世界线收束。
 
+
+*****
+
+####  bad_alloc  
+##### 7007#       发表于 2026-10-11 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70355469&amp;ptid=2261859" target="_blank">Tilocal 发表于 2026-10-11 12:30</a>
+外网说如果一个角色经典模式第一部战败退场后其他三线都没有挖过，最后后日谈就会迎来非常敷衍地死掉的坏结 ...</blockquote>
+草啊，希望有人整理全死亡结局，太便宜了有点搞笑的感觉
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Humpy  
+##### 7008#       发表于 2026-10-11 13:22
+
+开始打迪特里希线，这条线独有的升名声方式是不是太慢了？压级的情况下怎么才能最快提升名声？
+
