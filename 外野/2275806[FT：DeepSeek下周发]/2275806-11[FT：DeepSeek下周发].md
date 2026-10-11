@@ -13395,3 +13395,28 @@ Tibo又开始给PRO用户整烂活了。
 
 然后来个假惺惺的投票。
 
+
+*****
+
+####  moekyo  
+##### 15976#       发表于 2026-10-11 16:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/11/165213q9gws0wexfq50gc5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 16:52 上传
+
+*****
+
+####  hugosol  
+##### 15977#       发表于 2026-10-11 16:54
+
+Tibo整这些乱七八糟的烂活只是来回倒腾token用量的文字游戏，远不如codemode给我解放上下文焦虑带来的飞跃式体验
+
+codex的codemode好像还是实验性功能？Pi的含金量还在持续增加，Mario Zechner才是唯一真神<img src="https://static.stage1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
