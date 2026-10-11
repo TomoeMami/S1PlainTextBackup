@@ -344,3 +344,14 @@ CE系列其实有着庞大的外传吧，也不是不能继续出，就是不要
 
 对此我建议学习GQ一串，直接开平行世界，然后新世代调整者大战鲸鱼外星人
 
+
+*****
+
+####  pokemon最爱  
+##### 2087#       发表于 2026-10-11 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354447&amp;ptid=2178694" target="_blank">QShen 发表于 2026-10-11 01:52</a>
+
+CE系列其实有着庞大的外传吧，也不是不能继续出，就是不要再围绕鸡狼鸟了 ...</blockquote>
+种系外传唯一的价值就是帮财团B出胶，其他的就没了，种系是真的离开鸡狼拉这几个人就没人买账<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
