@@ -12271,3 +12271,14 @@ IMG_7942.jpeg
 
 坏，4条线打完复仇者集结了，但是初音我选的第一次招募的迪托线，然后回头合成完，我凯伊线给初音养的飞马没了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">养了坐骑的是招募必须得凯伊线么
 
+
+*****
+
+####  mai6696  
+##### 7029#       发表于 2026-10-11 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70357075&amp;ptid=2261859" target="_blank">ParukiaMKII 发表于 2026-10-11 21:12</a>
+
+坏，4条线打完复仇者集结了，但是初音我选的第一次招募的迪托线，然后回头合成完，我凯伊线给初音养的飞马 ...</blockquote>
+凯伊线通关前把马卸下来试试？
+
