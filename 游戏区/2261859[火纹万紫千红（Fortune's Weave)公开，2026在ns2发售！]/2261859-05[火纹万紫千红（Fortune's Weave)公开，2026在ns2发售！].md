@@ -12679,3 +12679,14 @@ IMG_7942.jpeg
 
 已经被吐槽烂了的入队越晚属性越差之类的就更不用提了
 
+
+*****
+
+####  火红之眼  
+##### 7045#       发表于 2026-10-12 06:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70357714&amp;ptid=2261859" target="_blank">Tilocal 发表于 2026-10-11 23:35</a>
+
+太君总结的第一部死亡结局</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暴风吸入噎死这个也太草了
+
