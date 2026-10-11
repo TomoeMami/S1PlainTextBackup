@@ -24,3 +24,23 @@
 
 2026-10-9 10:24 上传
 
+
+*****
+
+####  ViyViy  
+##### 1848#       发表于 2026-10-11 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69878149&amp;ptid=2201887" target="_blank">ViyViy 发表于 2026-7-6 12:20</a>
+
+小趣事一则：那身装扮，毋庸置疑！</blockquote>
+
+还有后续，以为就是个商品展示图，结果它是直接印商品包装上的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/11/090339dlcy027ld00fu2ub.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20261011-085226.jpg</strong> (75.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 09:03 上传
+
