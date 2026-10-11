@@ -12263,3 +12263,11 @@ IMG_7942.jpeg
 论坛助手,iPhone</blockquote>
 我还强迫她看过白发鬼的剧，没有特殊台词，就单纯不喜欢
 
+
+*****
+
+####  ParukiaMKII  
+##### 7028#       发表于 2026-10-11 21:12
+
+坏，4条线打完复仇者集结了，但是初音我选的第一次招募的迪托线，然后回头合成完，我凯伊线给初音养的飞马没了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">养了坐骑的是招募必须得凯伊线么
+

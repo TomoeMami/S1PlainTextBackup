@@ -13506,3 +13506,16 @@ gptimage不是出2.5了吗  怎么样 不如2？</blockquote>
 
 折腾了几天重新编译了gitbash的dll，终于可以开着沙盒在Windows下用bash了，不用wsl了，爽
 
+
+*****
+
+####  med  
+##### 15985#       发表于 2026-10-11 21:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354089&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-10-10 23:35</a>
+
+国内几家怎么还没出 jev/decision api
+
+—— 来自 Xiaomi 2608BPX34C, Android 17, 鹅球 v4.0 ...</blockquote>
+能看上jev的，taste都有问题，老年买保健品那种
+
