@@ -12295,3 +12295,28 @@ IMG_7942.jpeg
 西提斯和非洲琳的龙倒 ...</blockquote>
 我也没进第二部，目前还在打第四条凯伊线，而且迪托利希线有点想重打一遍
 
+
+*****
+
+####  绕指流光  
+##### 7031#       发表于 2026-10-11 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70356944&amp;ptid=2261859" target="_blank">诡计 发表于 2026-10-11 20:48</a>
+
+我还强迫她看过白发鬼的剧，没有特殊台词，就单纯不喜欢</blockquote>
+这里就不得不说她跟丹提的支援了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纯夏  
+##### 7032#       发表于 2026-10-11 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70357075&amp;ptid=2261859" target="_blank">ParukiaMKII 发表于 2026-10-11 21:12</a>
+
+坏，4条线打完复仇者集结了，但是初音我选的第一次招募的迪托线，然后回头合成完，我凯伊线给初音养的飞马 ...</blockquote>
+配属了马的角色坐骑是跟着人走的 也就是如果第3部没有选凯伊线的该角色
+
+身上的坐骑是不会进包的 后续只能因果融合 所以第1次战争篇通关之前的时候
+
+把不准备选的人的坐骑提前下掉 (如果重复游玩 坐骑不继承就不用考虑这个了)
+
