@@ -12155,3 +12155,11 @@ IMG_7942.jpeg
 
 再放宽一点波拿给临近跳舞最高可加3速度6技20命中 最好的buff机<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  milky658  
+##### 7019#       发表于 2026-10-11 17:47
+
+欧若拉那缺乏常识的丁真感，现在想来是他爹妈的奶龙基因过于强大了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
