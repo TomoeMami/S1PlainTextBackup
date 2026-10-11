@@ -13462,3 +13462,31 @@ gptimage不是出2.5了吗  怎么样 不如2？</blockquote>
 
 我感觉codex的astra思考预算又被砍了一刀，现在我已经统一调高一档思维强度在用了
 
+
+*****
+
+####  moekyo  
+##### 15982#       发表于 2026-10-11 17:31
+
+安利一个无敌的技能：[https://skills.wheresryan.sh/anatomy](https://skills.wheresryan.sh/anatomy)
+
+我用 dsh 做的，半个小时，效果惊人，就是时间长了点，做一些互动说明、解释无敌了
+
+效果：
+
+<img src="https://img.stage1st.com/forum/202610/11/172925vboytyyzqiiotojp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (193.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 17:29 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/173100k4pb63jbsbjj23y2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (178.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 17:31 上传
+
