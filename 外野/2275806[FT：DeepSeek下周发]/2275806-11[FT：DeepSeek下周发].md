@@ -13373,3 +13373,11 @@ GPT今天内重置，朋友们赶紧上号。</blockquote>
 GPT今天内重置，朋友们赶紧上号。</blockquote>
 谢提醒，看到你的回帖赶紧爬起来用，但是已经来不及了<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 15974#       发表于 2026-10-11 15:04
+
+GPT现在就是固定美国时间周二周六重置，记住这个时间就好了
+
