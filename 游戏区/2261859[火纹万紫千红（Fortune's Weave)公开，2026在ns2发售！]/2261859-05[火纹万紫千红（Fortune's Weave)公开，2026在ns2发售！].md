@@ -11881,3 +11881,40 @@ IMG_7942.jpeg
 
 白嫖1力2物防<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  feizong  
+##### 6994#       发表于 2026-10-11 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70355055&amp;ptid=2261859" target="_blank">duraa 发表于 2026-10-11 10:25</a>
+
+二周目发现不手打第二部能一定程度上白嫖到一些属性
+
+我午休啦第一次游侠跳过第二部
+
+45级属性22力25魔40速38 ...</blockquote>
+不需要跳过第二部，这个好像是转职就有的补正，比如重甲中级职业就能拉到10防，上级好像是14，只要基础属性低于这个数值转职就有。
+
+
+*****
+
+####  zwqcm  
+##### 6995#       发表于 2026-10-11 11:12
+
+<blockquote>Tilocal 发表于 2026-10-11 04:22
+就合了一次轮唱诗人（独角兽）加重甲，速度想救原本可以凯伊线黑天马，但是黑天马雷电剑数量有限不如让给 ...</blockquote>
+乌尔坦德重甲精通c和b的技能给的是什么？感觉没尼涅那么豪华的话就只能做丐版重甲尼涅了。
+
+*****
+
+####  duraa  
+##### 6996#       发表于 2026-10-11 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70355185&amp;ptid=2261859" target="_blank">feizong 发表于 2026-10-11 11:09</a>
+
+不需要跳过第二部，这个好像是转职就有的补正，比如重甲中级职业就能拉到10防，上级好像是14，只要基础属 ...</blockquote>
+但我午休啦的先知是之前就转的，换成先知跳过就是白嫖了2魔，这个肯定不是低保
+
+而且你考虑到第二章进去出来的相当于上级转职证是无限的，就算是吃低保也很方便
+
