@@ -407,3 +407,13 @@ CYBERLEEK还没被抓吗
 
 问题是怎么保证确实能放出下载呢？但时候不放能拿他怎样
 
+
+*****
+
+####  xfry  
+##### 51#       发表于 2026-10-11 22:23
+
+大葱可能没想到现在的AI这么猛，看这趋势，GTA6重编译版上PC也就一两个月的事了
+
+他手上的PC版再过一两个月就价值清零了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
