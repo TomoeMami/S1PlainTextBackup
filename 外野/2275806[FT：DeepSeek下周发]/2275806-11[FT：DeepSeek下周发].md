@@ -13529,3 +13529,62 @@ gptimage不是出2.5了吗  怎么样 不如2？</blockquote>
 
 复杂度不是很高，就是ESP蓝牙音乐播放器带些控制按钮
 
+
+*****
+
+####  jinuzuktII  
+##### 15987#       发表于 2026-10-11 21:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70357106&amp;ptid=2275806" target="_blank">希望之花 发表于 2026-10-11 21:19</a>
+
+有没有人试过拿AI做电路板的，就那种出图可以直接丢给嘉立创生产的
+
+复杂度不是很高，就是ESP蓝牙音乐播放器 ...</blockquote>
+我在推上见人用 claude 做过
+
+*****
+
+####  RookieTnT  
+##### 15988#       发表于 2026-10-11 21:28
+
+<img src="https://img.stage1st.com/forum/202610/11/212802rf2j2pebyffip032.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 21:28 上传
+
+qwen发帖：“big or small?” 难道说，big要来了？
+
+*****
+
+####  RookieTnT  
+##### 15989#       发表于 2026-10-11 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70357106&amp;ptid=2275806" target="_blank">希望之花 发表于 2026-10-11 21:19</a>
+
+有没有人试过拿AI做电路板的，就那种出图可以直接丢给嘉立创生产的
+
+复杂度不是很高，就是ESP蓝牙音乐播放器 ...</blockquote>
+画板子不拿sota模型不大行.
+
+
+*****
+
+####  med  
+##### 15990#       发表于 2026-10-11 21:35
+
+astra真是个好模型，就是额度实在太快了。
+
+*****
+
+####  Baccano  
+##### 15991#       发表于 2026-10-11 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70357106&amp;ptid=2275806" target="_blank">希望之花 发表于 2026-10-11 21:19</a>
+有没有人试过拿AI做电路板的，就那种出图可以直接丢给嘉立创生产的
+
+复杂度不是很高，就是ESP蓝牙音乐播放器 ...</blockquote>
+我没做过，看论坛讨论感觉都是Astra做的比较好，布线水平已经有中级水平了。
+
