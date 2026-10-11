@@ -107,3 +107,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  duo_wolf  
+##### 231#       发表于 2026-10-12 07:12
+
+我还在想男主是不是真的音澄宙
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
