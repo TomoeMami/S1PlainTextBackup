@@ -11813,3 +11813,15 @@ IMG_7942.jpeg
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Humpy  
+##### 6988#       发表于 2026-10-11 08:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354435&amp;ptid=2261859" target="_blank">acg_gyanc 发表于 2026-10-11 01:41</a>
+难道有什么快速回城方法？22日1200打完欧露赫露外传，从水路回主城要三回合，赶不上呀……主要这打法我已 ...</blockquote>
+正常来说应该是能在21号12：00那个节点就做猫神官任务的。
+
+需要你在第一时间（0点）接猫神官任务，然后马不停蹄最短路线做迪哥外传，回来做猫神官，最后凯伊，差不多就是这样
+
