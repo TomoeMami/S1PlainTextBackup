@@ -12336,3 +12336,11 @@ IMG_7942.jpeg
 
 女王线回合数过得好快，你才是摘棉花大王<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 7035#       发表于 2026-10-11 22:49
+
+看了众人死亡结局，西洛克的结局被卡拉说中了，被女人下毒毒死了，蒂亚拉的最无语，被地震倒下来的书砸死了。
+
