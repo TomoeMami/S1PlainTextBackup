@@ -12135,3 +12135,23 @@ IMG_7942.jpeg
 
 终于推完第二部进入第三部，话说这第二部设定真是怪，我是 111123，第二部就通了第一次选的迪线，发现第一部的拜神加护居然在第二部又不是共通的了，不得不赶紧从头拜卡拉<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  caps洛奇  
+##### 7018#       发表于 2026-10-11 16:42
+
+ 本帖最后由 caps洛奇 于 2026-10-11 16:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354698&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-10-11 07:42</a>
+
+舞娘给谁比较好啊？乌修拉？
+
+论坛助手,iPhone</blockquote>
+乌尔坦得有回血
+
+提亚拉有两格跳舞
+
+但丁有群体buff 都不错
+
+再放宽一点波拿给临近跳舞最高可加3速度6技20命中 最好的buff机<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer"> 
+
