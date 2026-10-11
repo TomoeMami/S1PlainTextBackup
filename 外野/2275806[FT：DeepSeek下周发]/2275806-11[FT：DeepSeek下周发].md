@@ -13454,3 +13454,11 @@ gptimage不是出2.5了吗  怎么样 不如2？</blockquote>
 
 —— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  andychen  
+##### 15981#       发表于 2026-10-11 17:23
+
+我感觉codex的astra思考预算又被砍了一刀，现在我已经统一调高一档思维强度在用了
+
