@@ -13312,3 +13312,25 @@ jev概念好像已经凉了<img src="https://static.stage1st.com/image/smiley/fa
 
 <img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">GPT今天内重置，朋友们赶紧上号。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 15968#       发表于 2026-10-11 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353972&amp;ptid=2275806" target="_blank">zzxzz1019 发表于 2026-10-10 23:00</a>
+主要是我平时只在移动端看小说，但agent不都是pc端吗，所以我就只好躺着的时候手动复制了 ...</blockquote>
+现在有好多Agent支持手机直接控制电脑
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 15969#       发表于 2026-10-11 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70353972&amp;ptid=2275806" target="_blank">zzxzz1019 发表于 2026-10-10 23:00</a>
+主要是我平时只在移动端看小说，但agent不都是pc端吗，所以我就只好躺着的时候手动复制了 ...</blockquote>
+你看的是哪国的小说，日本韩国的网文都有对应的翻译网站不用自己费劲了
+英语大部头建议用lingua gacha之类的工具精翻
+
