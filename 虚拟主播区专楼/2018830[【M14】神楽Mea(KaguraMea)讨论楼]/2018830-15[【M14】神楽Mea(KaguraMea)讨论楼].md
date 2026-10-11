@@ -67,3 +67,14 @@
 
 只要是lol比赛，如果不是一路完全碾压总会遇到挫折，但是认真对待咩的话咩也会认真以一种天真烂漫的形式回馈队伍的。。。唉。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 21144#       发表于 2026-10-11 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70357538&amp;ptid=2018830" target="_blank">术士q 发表于 2026-10-11 22:41</a>
+
+好看的游戏内容和好玩的梗就是比硬拱火炒作好看啊我说，一次次意料之外的翻盘，中间还有有意思的梗"abab~ ...</blockquote>
+毕竟训练赛总要留一手啊。
+
