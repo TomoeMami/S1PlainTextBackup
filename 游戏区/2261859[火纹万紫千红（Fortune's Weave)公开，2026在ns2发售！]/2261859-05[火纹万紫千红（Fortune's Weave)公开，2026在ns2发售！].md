@@ -12328,3 +12328,11 @@ IMG_7942.jpeg
 
 故事开头的灵魂会不会是法王+君子兰两人的呢？
 
+
+*****
+
+####  milky658  
+##### 7034#       发表于 2026-10-11 22:33
+
+女王线回合数过得好快，你才是摘棉花大王<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
