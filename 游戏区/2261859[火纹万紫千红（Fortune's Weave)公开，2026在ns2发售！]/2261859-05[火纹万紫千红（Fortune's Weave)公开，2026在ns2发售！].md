@@ -12344,3 +12344,144 @@ IMG_7942.jpeg
 
 看了众人死亡结局，西洛克的结局被卡拉说中了，被女人下毒毒死了，蒂亚拉的最无语，被地震倒下来的书砸死了。
 
+
+*****
+
+####  ChrisSnake  
+##### 7036#       发表于 2026-10-11 23:16
+
+ 本帖最后由 ChrisSnake 于 2026-10-11 23:18 编辑 
+
+<img src="https://img.stage1st.com/forum/202610/11/210713odl9oisd5ismjfx5.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2565.jpeg</strong> (349.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 21:07 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/213033nb6jzat9xbhabrwt.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2569.jpeg</strong> (433.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 21:30 上传
+
+蕾達单线通关了 地图全探索 人大概是漏了些
+
+单线主要是资源紧张 前期没钱 后期没强力角色
+
+加上游戏刚出来不知道情况 走了不少弯路
+
+第二章的转职是免费的 前面我一直没转 以为是用我自己的 打了好几章才发现
+
+一些职业成长很抽象 游戏刚出来没资料查 导致一些人长废了只能放弃掉
+
+还有就是缺武器 就能凑出一队用的武器 也是没法练二队的另一个原因
+
+<img src="https://img.stage1st.com/forum/202610/11/212734hfxfwgfi55jbf3wj.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2568.jpeg</strong> (478.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 21:27 上传
+
+<img src="https://img.stage1st.com/forum/202610/11/210714izqhfhxxxmy3nx3e.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2566.jpeg</strong> (392.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 21:07 上传
+
+不得不说的就是西神 战后回5血根本就死不了 各种无双
+
+成长也好 整个一水桶 输出生存都拉满 第三部的boss几乎都是他单挑的 最后一战刚好升到了99级 
+
+想说看看洛神鲨了几千人 结果只统计到999
+
+<img src="https://img.stage1st.com/forum/202610/11/211213mk09rrrffpffeznu.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2423.jpeg</strong> (967.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 21:12 上传
+
+比较难的就战争篇最后一关 增援太多了 又猛 
+
+没有高级职业我方队伍又十分孱弱
+
+可惜增援是有限的 我还以为能一直刷呢
+
+<img src="https://img.stage1st.com/forum/202610/11/211245uhiurr3hok8rot3u.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2562.jpeg</strong> (579.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-11 21:12 上传
+
+最后一关主要是机制比较恶心 想到法子破解就比较简单了
+
+理论上可以刷级 但这个时候也没有刷的意义了
+
+敌人加命中那关也有点难 is倒是也明白 给弄成了沙漠地形 敌人不至于很容易就冲脸上集火 控制好距离等敌人冲就行了
+
+喷点一大堆 首先就是没有多存档 真是司马设定
+
+到第三部折磨到了极点 一章时间超长 然后不能存档 
+
+像我漏了武僧的转职任务 一点办法都没有
+
+通关了也没法开新档 都不知道怎么继续玩
+
+其次就是角色培养 二队几乎成长不起来 
+
+这代因为限制时间 没法像其他几代那样找点野怪打打练二队 二队没有职业经验 更没有武器熟练
+
+职业经验主要是拿特技 练满一个职业高低是要打几仗的 而且是得作为主力大杀特杀 
+
+现实很难有这个条件 我有的人第三部初期转了堡垒 通关了还没满
+
+武器熟练度就更难搞了 竞技场训练完全是杯水车薪 主力都不够用 别说让二队练了
+
+第三部抽象的蹲城里成长 我只能把其他人都派出去 只留二队在家吃经验 这样也长不出什么
+
+还有旅店那个委任 根本就没人用吧 本来把委任做成在留城里的人就能去干对应的事就好 同时解决练二队和采集资源的问题 is就是不要 气死人
+
+然后就是职业 同样是shit一样的设定
+
+第三部这么短 职业却给了最上级和神将两个级别 结果就是根本练不过来 刚转个神将就通关了
+
+而且上级中级职业大部分成长都是一坨 却要用这些烂职业打完大部分流程 能练出来人真的全靠脸
+
+应该第二部中期就给到最上级职业 整个过度会舒服很多
+
+捡垃圾凑时长这种风花雪月就在喷了 反正是一点好感没有
+
+这次从城里捡垃圾搬到大地图上捡垃圾 又有什么不同呢 我tm还不如去钓鱼
+
+还有那个野外遭遇战 怎么有脸搬出来的 还不如全打rpg得了
+
+瘴气这个玩意 本来是有点意思的 但是弄得太过了 满屏都是瘴气 看似增加难度 实则又是拖游戏时长
+
+一个关卡没多少敌人 就靠瘴气在那拖 应对机制变成了找坑放萝卜 折腾半天又累 又没有收益
+
+瘴气还进一步导致了二队练级困难 配上瘴气敌人强度很高 二队几乎没法战斗 只能捡点边角料 大部分时候就是观光团
+
+总之 不算优秀 is想多整几种体验 从结果来看就是翻车了 三部玩法各不相同 结果都没有打磨好 细节相当粗糙
+
+第二部相当突兀 第一部限制颇多 第三部才算是个正常状态 但没几章就结束了
+
+想爽的没法爽 想种田的没法种田 想看角色的我不懂 不好评
+
+*****
+
+####  ParukiaMKII  
+##### 7037#       发表于 2026-10-11 23:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
