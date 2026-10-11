@@ -95,3 +95,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">狗哥怎么出场第二集保护期就没了
 
+
+*****
+
+####  blue321  
+##### 230#       发表于 2026-10-12 01:35
+
+感觉已经好多年都是冲着制造爆点去写剧情
+
+今年走向这么稳扎稳打反而有点不习惯了，不过现阶段还真好看啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
