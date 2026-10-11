@@ -13442,3 +13442,15 @@ codex的codemode好像还是实验性功能？Pi的含金量还在持续增加�
 —— 来自 HUAWEI TET-AN00, Android 12, 鹅 ...</blockquote>
 gptimage不是出2.5了吗  怎么样 不如2？
 
+
+*****
+
+####  发呆的龙虾  
+##### 15980#       发表于 2026-10-11 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70356212&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-10-11 17:01</a>
+gptimage不是出2.5了吗  怎么样 不如2？</blockquote>
+不拉，只是本质上还是2。2有的毛病还是会有。
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
