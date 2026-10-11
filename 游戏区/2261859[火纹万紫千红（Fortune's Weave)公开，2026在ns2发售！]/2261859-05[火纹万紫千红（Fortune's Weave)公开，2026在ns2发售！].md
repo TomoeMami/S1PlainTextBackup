@@ -12058,3 +12058,25 @@ IMG_7942.jpeg
 开始打迪特里希线，这条线独有的升名声方式是不是太慢了？压级的情况下怎么才能最快提升名声？ ...</blockquote>
 神殿和演戏也有声望
 
+
+*****
+
+####  Humpy  
+##### 7011#       发表于 2026-10-11 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70355690&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-11 13:42</a>
+神殿和演戏也有声望</blockquote>
+这俩都是角色共通内容吧
+
+之前打女王和蕾妲名声提升得太容易了，到迪线有点不适应
+
+*****
+
+####  诡计  
+##### 7012#       发表于 2026-10-11 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70355629&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-10-11 13:22</a>
+
+开始打迪特里希线，这条线独有的升名声方式是不是太慢了？压级的情况下怎么才能最快提升名声？ ...</blockquote>
+我也这么觉得，不过我没压级，到了开外传就不慢了
+
