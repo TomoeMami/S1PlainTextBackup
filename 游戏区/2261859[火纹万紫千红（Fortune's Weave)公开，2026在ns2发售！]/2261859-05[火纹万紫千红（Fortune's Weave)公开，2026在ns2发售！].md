@@ -12163,3 +12163,15 @@ IMG_7942.jpeg
 
 欧若拉那缺乏常识的丁真感，现在想来是他爹妈的奶龙基因过于强大了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无知的小鼠人  
+##### 7020#       发表于 2026-10-11 18:05
+
+ 本帖最后由 无知的小鼠人 于 2026-10-11 18:08 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70356341&amp;ptid=2261859" target="_blank">milky658 发表于 2026-10-11 17:47</a>
+
+欧若拉那缺乏常识的丁真感，现在想来是他爹妈的奶龙基因过于强大了</blockquote>
+根据欧若拉自己的脑补、和芙托娜称呼欧若拉为妹妹来看，欧诺拉其实是和奶龙一辈的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
