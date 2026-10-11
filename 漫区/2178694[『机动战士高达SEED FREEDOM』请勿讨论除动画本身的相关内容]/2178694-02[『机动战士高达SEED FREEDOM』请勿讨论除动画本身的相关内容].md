@@ -355,3 +355,16 @@ CE系列其实有着庞大的外传吧，也不是不能继续出，就是不要
 CE系列其实有着庞大的外传吧，也不是不能继续出，就是不要再围绕鸡狼鸟了 ...</blockquote>
 种系外传唯一的价值就是帮财团B出胶，其他的就没了，种系是真的离开鸡狼拉这几个人就没人买账<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 2088#       发表于 2026-10-11 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70356543&amp;ptid=2178694" target="_blank">saico 发表于 2026-10-11 18:43</a>
+
+其实就是偶像剧本质，卖角色远大于故事世界观，导致故事只能绕着那几个角色转
+
+什么时间线压缩的理由都来源 ...</blockquote>
+CODE GEASS系列其实这几年出的比高达还勤，还一直不绕着鲁鲁修出....因此国内粉意见还蛮大的
+
