@@ -12047,3 +12047,14 @@ IMG_7942.jpeg
 非凯伊线没坐骑加持，飞兵骑兵成长都不如走地。你去转职界面对比中级飞马和恶棍就能看到巨大差异了。 ...</blockquote>
 哦哦 还得忍住飞行的诱惑。 主要不知道不飞卡塔练什么好
 
+
+*****
+
+####  mai6696  
+##### 7010#       发表于 2026-10-11 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70355629&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-10-11 13:22</a>
+
+开始打迪特里希线，这条线独有的升名声方式是不是太慢了？压级的情况下怎么才能最快提升名声？ ...</blockquote>
+神殿和演戏也有声望
+
