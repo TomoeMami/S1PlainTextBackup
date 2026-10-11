@@ -12238,3 +12238,15 @@ IMG_7942.jpeg
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Humpy  
+##### 7026#       发表于 2026-10-11 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70356752&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-10-11 19:50</a>
+蕾达和白发鬼一起用餐直接会无语
+
+论坛助手,iPhone</blockquote>
+如果再来个亚斯旺呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
