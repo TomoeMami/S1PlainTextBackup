@@ -13588,3 +13588,28 @@ astra真是个好模型，就是额度实在太快了。
 复杂度不是很高，就是ESP蓝牙音乐播放器 ...</blockquote>
 我没做过，看论坛讨论感觉都是Astra做的比较好，布线水平已经有中级水平了。
 
+
+*****
+
+####  希望之花  
+##### 15992#       发表于 2026-10-11 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70357151&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-11 21:28</a>
+
+画板子不拿sota模型不大行.</blockquote>
+用的GPT pro
+
+已经做出来一个板子了，但是没经验不知道到底行不行
+
+*****
+
+####  med  
+##### 15993#       发表于 2026-10-11 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70357208&amp;ptid=2275806" target="_blank">希望之花 发表于 2026-10-11 21:37</a>
+
+用的GPT pro
+
+已经做出来一个板子了，但是没经验不知道到底行不行</blockquote>
+硬件迭代慢，看layout有没有仿真环境测试一下
+
