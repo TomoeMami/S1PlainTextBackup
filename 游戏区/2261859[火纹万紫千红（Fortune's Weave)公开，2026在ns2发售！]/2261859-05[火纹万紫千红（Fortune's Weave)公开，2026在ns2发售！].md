@@ -11863,3 +11863,21 @@ IMG_7942.jpeg
 
 坏了，昨天睡前还想着12章拿安萨拉改，清图给忘了
 
+
+*****
+
+####  duraa  
+##### 6993#       发表于 2026-10-11 10:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">二周目发现不手打第二部能一定程度上凹些属性
+
+我午休啦第一次游侠跳过第二部
+
+45级属性22力25魔40速38技14物防20魔防26幸运25魅力
+
+然后再重开第二章，转勇士，出来跳过第二部，再重开第二部，转重装，出来跳过第二部，最后再进去，以游侠的职业跳过第二部
+
+45级属性23力25魔40速38技16物防20魔防26幸运25魅力
+
+白嫖1力2物防<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
