@@ -13950,3 +13950,31 @@ minimax 是算法...不是那个minimax的公司
 
 结果跟我脚本打胜率惨不忍睹, 所以感觉现在许愿机还是许不到这种程度
 
+
+*****
+
+####  hugosol  
+##### 16019#       发表于 2026-10-12 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359954&amp;ptid=2275806" target="_blank">陶矢 发表于 2026-10-12 12:53</a>
+
+我是搞技术的, 只是不会写大模型, 正常工程推的内容都列了, 
+
+用啥论文啥技术, 一步步怎么做, 说的头头是 ...</blockquote>
+有了AI之后程序员的价值就在这里呀
+
+程序员和普通人的差距不是能不能做，而是做出来的东西是不是自己想要的
+
+有软件工程经验的话其实很快就能上手，但如果不知道怎么规划，验收，那就叫抽卡
+
+*****
+
+####  FACS  
+##### 16020#       发表于 2026-10-12 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359772&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-12 12:14</a>
+你说得对，但我将要开始探针、快照、证据、门禁、夹具，还有哈希、冒烟、基线了
+
+我要先建立唯一基线，再 ...</blockquote>
+看笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
