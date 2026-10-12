@@ -13676,3 +13676,41 @@ HUZsjhRaoAA_SmK.jpg
 
 所以砍掉四个的方尖塔音乐会是什么乐器
 
+
+*****
+
+####  纯夏  
+##### 7138#       发表于 2026-10-12 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361524&amp;ptid=2261859" target="_blank">gbjbb 发表于 2026-10-12 18:10</a>
+
+第三部招人时手快老是点到提升等级，重开了好几次。
+
+话说第三部贝特兰这属性还能救吗，我是真想用一用鞑古 ...</blockquote>
+贝特兰从技能上看是这作最强的回避T 
+
+稳定30回避 不错的技速成长 
+
+甚至步兵熟练度能学到半血下回避+20 
+
+可惜的是加入的太晚属性被下毒了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 7139#       发表于 2026-10-12 19:01
+
+唢呐 喇叭  腰鼓 木鱼。
+
+*****
+
+####  freedom12  
+##### 7140#       发表于 2026-10-12 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361662&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-10-12 18:54</a>
+
+所以砍掉四个的方尖塔音乐会是什么乐器</blockquote>
+解放的凯歌/直线前进/月读幻想/昆仑之女
+
+就是四个副主角的战斗曲，去听主配器就行
+
