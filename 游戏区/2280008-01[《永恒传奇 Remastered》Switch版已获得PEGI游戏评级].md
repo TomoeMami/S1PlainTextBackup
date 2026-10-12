@@ -2701,3 +2701,16 @@ TOX也是垃…玩了半小时就觉得不对劲了，怎么会有这么无聊�
 
 TOE PS版本 PSP版都通了两遍，现在这高清马赛克……不知道还能不能玩得下去
 
+
+*****
+
+####  kakashisk  
+##### 254#       发表于 2026-10-12 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359067&amp;ptid=2280008" target="_blank">trow233 发表于 2026-10-12 10:22</a>
+
+感觉TOE的连招按键判定挺严格
+
+我当年是初中的时候玩PS模拟器，基本都是普攻两下+招数，普攻三下就经常接不 ...</blockquote>
+哪来的TOE2
+
