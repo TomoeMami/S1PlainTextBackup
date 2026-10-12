@@ -51,3 +51,11 @@
 
 抽懒贞，60石头，歪大象<img src="https://static.stage1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 48254#       发表于 2026-10-12 17:35
+
+小号也抽到剑心了。不过小号还是给迦摩戴冠吧。
+
