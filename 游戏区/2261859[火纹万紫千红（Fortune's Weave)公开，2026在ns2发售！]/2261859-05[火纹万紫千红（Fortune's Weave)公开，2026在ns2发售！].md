@@ -12795,3 +12795,39 @@ IMG_7942.jpeg
 
 粉毛第三部就应该自带盾才对。
 
+
+*****
+
+####  milky658  
+##### 7055#       发表于 2026-10-12 09:00
+
+冥府加护让唯一带净化武器的剑成人上人，黑魔法沦为路边一条，是打算DLC卖其他武器的净化武器还是强推奶龙转世暂且蒙古<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月夜的风  
+##### 7056#       发表于 2026-10-12 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70358105&amp;ptid=2261859" target="_blank">白昼梦DD 发表于 2026-10-12 04:12</a>
+
+这作精养又一大堆问题，甚至可以说越了解游戏系统就玩着越恶心了
+
+比如凯伊独占的成长率加成 比如其他线沦 ...</blockquote>
+我个人是不太看重这些的，玩游戏不想玩成120分考试一样。
+
+最终目地也就是通个关，坐骑就是养出些极限数值美而已。
+
+这种多周目追求极限的玩法。类似等级取最高一类的坑。我会考虑直接删档或是别的服再开一个号玩。
+
+如果本作还会更新难度，或是更新一个档位的话那当然最好不过了。
+
+*****
+
+####  ParukiaMKII  
+##### 7057#       发表于 2026-10-12 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70358485&amp;ptid=2261859" target="_blank">milky658 发表于 2026-10-12 09:00</a>
+
+冥府加护让唯一带净化武器的剑成人上人，黑魔法沦为路边一条，是打算DLC卖其他武器的净化武器还是强推奶龙 ...</blockquote>
+我凯伊线练神驼就发现了，各种黑魔法，伤害还不如雷电剑+1，除了功能性和射程3的黑魔法，其他真不如直接雷电剑了
+
