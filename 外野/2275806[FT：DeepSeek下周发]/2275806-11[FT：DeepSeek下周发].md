@@ -14272,3 +14272,14 @@ muse逆袭 斩杀fable astra
 muse逆袭 斩杀fable astra</blockquote>
 各种实测表示依然一坨<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小扎别刷了，丢人啊
 
+
+*****
+
+####  squallx  
+##### 16046#       发表于 2026-10-13 04:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70362754&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-10-13 02:31</a>
+
+muse逆袭 斩杀fable astra</blockquote>
+蜥蜴人跑分王差不多得了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">  还是看看不远方的哈基米4吧
+
