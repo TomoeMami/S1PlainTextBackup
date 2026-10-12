@@ -13931,3 +13931,22 @@ minimax 是算法...不是那个minimax的公司
 规定了先做最小实践方案，然后嵌合业务流程的修改，再做工程合规性检查，再去做具体修改计划。每次计划都在增改，很少删减。
 最后施工时发现内容里有多个计划，知识库，事实，规范，review阶段冲突搞崩了来找我<img src="https://static.stage1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陶矢  
+##### 16018#       发表于 2026-10-12 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359882&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-12 12:36</a>
+
+那你先跟他讨论好你要干什么，目标是什么，让他给你列需要什么工具，制定好计划再开工 ...</blockquote>
+我是搞技术的, 只是不会写大模型, 正常工程推的内容都列了, 
+
+用啥论文啥技术, 一步步怎么做, 说的头头是道, 什么LossSpike消融实验, 设计的老好了
+
+说有完整引擎,和几千局对战日志完全可以设计一个有强度的卡牌AI
+
+我才信了, 烧了我一个月token, 我以为等着挨揍就行
+
+结果跟我脚本打胜率惨不忍睹, 所以感觉现在许愿机还是许不到这种程度
+

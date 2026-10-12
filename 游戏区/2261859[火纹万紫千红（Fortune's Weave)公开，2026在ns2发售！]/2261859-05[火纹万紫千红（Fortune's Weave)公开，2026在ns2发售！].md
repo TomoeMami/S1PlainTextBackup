@@ -13245,3 +13245,29 @@ IMG_7942.jpeg
 你直接点目标地点会告诉你用几回合到，就是让你自己算好路程回城够不够时间。 ...</blockquote>
 刷个遭遇战就麻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jabeck  
+##### 7096#       发表于 2026-10-12 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359923&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-10-12 12:46</a>
+
+刷个遭遇战就麻了</blockquote>
+那确实，所以最好留点提前量。
+
+*****
+
+####  纯夏  
+##### 7097#       发表于 2026-10-12 12:51
+
+露露和西提司的B支援还能给把枪
+
+<img src="https://img.stage1st.com/forum/202610/12/125018w0pmsm600cc4mv4d.jpg" referrerpolicy="no-referrer">
+
+<strong>20261012.JPG</strong> (59.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 12:50 上传
+
