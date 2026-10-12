@@ -13777,3 +13777,37 @@ GPT 6.1 SOL 弱智吧，让他校验一个开发计划有没有问题，连开�
 
 有没有真正搞这块的大手子跟我说下思路? 
 
+
+*****
+
+####  妄想中毒  
+##### 16007#       发表于 2026-10-12 12:07
+
+用便宜的gemini会员试了试反重力，我丢个github网址叫哈基米下个skill每一步都要权限叫我点允许，点了十几个允许还没下下来，这玩意也太难用了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  crow_wine  
+##### 16008#       发表于 2026-10-12 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70356293&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-11 17:31</a>
+安利一个无敌的技能：https://skills.wheresryan.sh/anatomy
+
+我用 dsh 做的，半个小时，效果惊人，就是时 ...</blockquote>
+有点牛逼
+
+*****
+
+####  qwased  
+##### 16009#       发表于 2026-10-12 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359678&amp;ptid=2275806" target="_blank">陶矢 发表于 2026-10-12 11:58</a>
+
+有个问题啊, 我想试下AI自我推进的能力
+
+我自己写个卡牌类AI, 用一个minimax遍历再剪枝对抗网络的半脚本AI
+
+ ...</blockquote>
+优质回答：别用minimax<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

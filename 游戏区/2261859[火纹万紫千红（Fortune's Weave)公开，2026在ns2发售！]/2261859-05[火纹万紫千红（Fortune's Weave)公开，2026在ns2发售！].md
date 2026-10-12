@@ -13136,3 +13136,49 @@ IMG_7942.jpeg
 
 核心点还是芙朵拉有遗产武器这种对龙特攻，没这玩意打过来就和没净化剑打第三部一样困难。
 
+
+*****
+
+####  bad_alloc  
+##### 7086#       发表于 2026-10-12 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359549&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-12 11:35</a>
+阳炎勋章，炎阳勋章什么效果？查了下这系列任务得11章在科雷尔神殿接，每条线都错过了 ...</blockquote>
+从来没见过hhh
+还好凯伊线还没通，该狠狠刷起来了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  索非亚  
+##### 7087#       发表于 2026-10-12 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359725&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-10-12 12:06</a>
+
+从来没见过hhh
+
+还好凯伊线还没通，该狠狠刷起来了</blockquote>
+刚好凯伊线接不了这任务<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/12/120949g5z3q4h46cy45fhk.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20261012120845.png</strong> (82.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 12:09 上传
+
+
+*****
+
+####  燃烧的石头  
+##### 7088#       发表于 2026-10-12 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359725&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-10-12 12:06</a>
+从来没见过hhh
+还好凯伊线还没通，该狠狠刷起来了</blockquote>
+凯伊接不了这个任务，但是凯伊有自己无限刷的方法，凯伊有个指导功能，实战类型的指导进去就可以开刷了，只要不完成最后的要求就行，快把对面打死了就退，也是保留经验的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
