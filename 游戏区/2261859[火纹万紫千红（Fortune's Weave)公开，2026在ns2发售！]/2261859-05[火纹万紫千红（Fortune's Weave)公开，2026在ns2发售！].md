@@ -14029,3 +14029,16 @@ HUXAQR4acAAWsWc.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  纯夏  
+##### 7167#       发表于 2026-10-13 02:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70362508&amp;ptid=2261859" target="_blank">ckl80 发表于 2026-10-12 23:36</a>
+
+迪线少拿了几个上级证，好几个已经要35级了但不够证转职，是不是应该尽量不要升级了 ...</blockquote>
+你打到第2部的时候 在据点时上级证每章补充5个 
+
+每章都用掉不浪费 足够你用了
+
