@@ -12690,3 +12690,26 @@ IMG_7942.jpeg
 太君总结的第一部死亡结局</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暴风吸入噎死这个也太草了
 
+
+*****
+
+####  bad_alloc  
+##### 7046#       发表于 2026-10-12 07:57
+
+大帝真是个屑人，对煮人有什么执念吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还没玩第二部，是不是大帝在霸罗尔女儿引导下磕弗拉玛精神错乱了，然后弗拉玛就是大锅煮人煮出来的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Jabeck  
+##### 7047#       发表于 2026-10-12 07:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70358247&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-10-12 07:57</a>
+
+大帝真是个屑人，对煮人有什么执念吗
+
+还没玩第二部，是不是大帝在霸罗尔女儿引导下磕弗拉玛精神错乱了，然 ...</blockquote>
+说对了。
+
