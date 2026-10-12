@@ -12713,3 +12713,13 @@ IMG_7942.jpeg
 还没玩第二部，是不是大帝在霸罗尔女儿引导下磕弗拉玛精神错乱了，然 ...</blockquote>
 说对了。
 
+
+*****
+
+####  绕指流光  
+##### 7048#       发表于 2026-10-12 08:15
+
+第三章打到第三区分才发现神殿有试炼奖励饰品，推荐等级 60<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">有打过的说说啥情况，有必要越级挑战么
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
