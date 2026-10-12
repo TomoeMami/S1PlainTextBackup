@@ -97,3 +97,17 @@
 
 但是如果还是以烬或者卢米的对线强压制甚至追求线杀的视角来看，感觉就会差点意思了，这个体系要练出来确实需要点时间
 
+
+*****
+
+####  术士q  
+##### 21146#       发表于 2026-10-13 00:15
+
+草这ad老哥节目效果神了啊，脾气也很好<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+就rank练习掉段位没法玩了，结果二人同时开还真排到了()
+
+命 运 的 相 遇
+
+合法双排啊合法双排<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
