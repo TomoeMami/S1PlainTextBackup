@@ -13664,3 +13664,13 @@ astra真是个好模型，就是额度实在太快了。
 
 十一假期彻底结束了，d指导会有大的吗？
 
+
+*****
+
+####  pale219  
+##### 15997#       发表于 2026-10-12 09:40
+
+目前公司把所有外网地址全部屏蔽了，我刚买的opencode go啊<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+现在哪家coding plan好点，主要用大肥鱼，纯大肥鱼官方api的话目前按我的用量大概一个月150块左右
+
