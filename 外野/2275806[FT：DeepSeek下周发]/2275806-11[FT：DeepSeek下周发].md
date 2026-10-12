@@ -13811,3 +13811,44 @@ GPT 6.1 SOL 弱智吧，让他校验一个开发计划有没有问题，连开�
  ...</blockquote>
 优质回答：别用minimax<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RookieTnT  
+##### 16010#       发表于 2026-10-12 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359545&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-10-12 11:35</a>
+
+GPT 6.1 SOL 弱智吧，让他校验一个开发计划有没有问题，连开发人天都要核验， ，都是AI干活你校验这个干啥 ...</blockquote>
+你说得对，但我将要开始探针、快照、证据、门禁、夹具，还有哈希、冒烟、基线了
+
+我要先建立唯一基线，再进行可追溯备份，先进行最小改动，我先进行一轮烟测，检查89个门禁是否通过，上线前进行一轮全量dry-run，上线后校验哈希值，最后进行一轮实测的验收矩阵。
+
+*****
+
+####  陶矢  
+##### 16011#       发表于 2026-10-12 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359765&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-12 12:13</a>
+
+优质回答：别用minimax</blockquote>
+minimax 是算法...不是那个minimax的公司<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我是说GPT-Astra自己烧了一个月TOKEN干不过我自己minimax思路写的脚本AI 有点怪,
+
+因为我又不懂搞大模型训练, 只能把对战数据和引擎都给他让他自己推进
+
+结果完全没有那种造出来原子弹瘫坐的效果
+
+
+*****
+
+####  startraveller  
+##### 16012#       发表于 2026-10-12 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359788&amp;ptid=2275806" target="_blank">陶矢 发表于 2026-10-12 12:17</a>
+minimax 是算法...不是那个minimax的公司
+
+我是说GPT-Astra自己烧了一个月TOKEN干不过我自己minimax思路写 ...</blockquote>
+你有给他算力训练吗？比如一张5090
+
