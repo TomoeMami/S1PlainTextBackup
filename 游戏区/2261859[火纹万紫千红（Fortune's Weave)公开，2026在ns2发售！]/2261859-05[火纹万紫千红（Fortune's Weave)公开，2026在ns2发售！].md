@@ -13088,3 +13088,28 @@ IMG_7942.jpeg
 玩剑的配合阳炎勋章还容易练职业和武器熟练度，去迷宫找一组纯重甲敌人，每次5滴血硬刮刷剑的熟练度和职业 ...</blockquote>
 阳炎勋章，炎阳勋章什么效果？查了下这系列任务得11章在科雷尔神殿接，每条线都错过了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  燃烧的石头  
+##### 7083#       发表于 2026-10-12 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359549&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-12 11:35</a>
+阳炎勋章，炎阳勋章什么效果？查了下这系列任务得11章在科雷尔神殿接，每条线都错过了 ...</blockquote>
+剑和弓必定造成5点伤害，有这个饰品之后就可以去找重甲兵开刷了，在迷宫里快打死对面的时候撤退是保留刷的武器熟练度和职业经验的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 索非亚 + 2好评加鹅
+
+查看全部评分
+

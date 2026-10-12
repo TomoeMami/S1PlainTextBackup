@@ -13751,3 +13751,11 @@ gpt老是给我把所有脚本都扫一遍，我真🌿了。🤣🤣🤣
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Hattle  
+##### 16005#       发表于 2026-10-12 11:35
+
+GPT 6.1 SOL 弱智吧，让他校验一个开发计划有没有问题，连开发人天都要核验，<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> ，都是AI干活你校验这个干啥？
+

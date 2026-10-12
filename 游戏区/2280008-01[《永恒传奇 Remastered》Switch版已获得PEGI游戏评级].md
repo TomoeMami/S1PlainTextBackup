@@ -2768,3 +2768,16 @@ toe 这次有啥评测了吗 搞得如何？
 ！ 只上switch吗？</blockquote>
 蒸汽上预购页面已经好久了吧，只不过今天都没更新价格
 
+
+*****
+
+####  alucardcz  
+##### 260#       发表于 2026-10-12 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70358973&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-10-12 10:08</a>
+
+看了下就是全收集+全隐藏要素全打一遍
+
+幸好玩steam不在乎成就了，这东西也就年轻的时候有心情按照攻略去复 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的好像你还有空打toe一样
+
