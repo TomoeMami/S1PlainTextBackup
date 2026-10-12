@@ -532,3 +532,59 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
        [https://x.com/screenonline/status/2109535868419731685](https://x.com/screenonline/status/2109535868419731685)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42088#       发表于 2026-10-13 01:24
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/13/012440l0ld5508l12pei1q.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-13_01-22-10.png</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 01:24 上传
+
+       [https://x.com/Kanon_Takao/status/2109613726051766329](https://x.com/Kanon_Takao/status/2109613726051766329)
+
+       [https://bang-dream.com/events/avemujica_7th/](https://bang-dream.com/events/avemujica_7th/)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/13/012439r41ta3lo3103qjjj.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-13_01-22-39.png</strong> (1.29 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 01:24 上传
+
+       [https://x.com/AkaneY_banu/status/2109623869212647779](https://x.com/AkaneY_banu/status/2109623869212647779)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/13/012439j4ey20yweynn61nn.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-13_01-22-57.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 01:24 上传
+
+       [https://x.com/sasakirico/status/2109625413911871960](https://x.com/sasakirico/status/2109625413911871960)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/13/012438bn4n77xwz449qkg4.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-13_01-23-10.png</strong> (1.49 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 01:24 上传
+
+       [https://x.com/okada_mei0519/status/2109627617053946343](https://x.com/okada_mei0519/status/2109627617053946343)
+
