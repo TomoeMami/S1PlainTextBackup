@@ -13443,3 +13443,29 @@ IMG_7942.jpeg
 【隐藏装备【阳炎的勋章】获得攻略【火焰之纹章 万缕千丝】】
 [https://www.bilibili.com/video/BV1qAHt6hEEn/](https://www.bilibili.com/video/BV1qAHt6hEEn/)
 
+
+*****
+
+####  苍蓝之枪  
+##### 7115#       发表于 2026-10-12 15:15
+
+预赛其实并不是每队和另外6队都组队一次
+
+
+*****
+
+####  Jabeck  
+##### 7116#       发表于 2026-10-12 15:23
+
+三姐妹说猫猫头能控制冥界生物的剧情在哪里？
+
+*****
+
+####  freedom12  
+##### 7117#       发表于 2026-10-12 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360631&amp;ptid=2261859" target="_blank">苍蓝之枪 发表于 2026-10-12 15:15</a>
+
+预赛其实并不是每队和另外6队都组队一次</blockquote>
+预赛就是每队和另外6队都组队一次
+
