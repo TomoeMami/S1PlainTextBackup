@@ -13674,3 +13674,16 @@ astra真是个好模型，就是额度实在太快了。
 
 现在哪家coding plan好点，主要用大肥鱼，纯大肥鱼官方api的话目前按我的用量大概一个月150块左右
 
+
+*****
+
+####  Hattle  
+##### 15998#       发表于 2026-10-12 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70358746&amp;ptid=2275806" target="_blank">pale219 发表于 2026-10-12 09:40</a>
+
+目前公司把所有外网地址全部屏蔽了，我刚买的opencode go啊
+
+现在哪家coding plan好点，主要用大肥鱼，纯大 ...</blockquote>
+火山云试试吧，agent plan 和 token plan 新用户有 2个月 2.5 折优惠，光用 v4.1Flash 有大概20亿
+
