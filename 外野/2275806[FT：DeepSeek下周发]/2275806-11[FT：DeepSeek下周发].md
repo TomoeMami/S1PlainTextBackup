@@ -13687,3 +13687,13 @@ astra真是个好模型，就是额度实在太快了。
 现在哪家coding plan好点，主要用大肥鱼，纯大 ...</blockquote>
 火山云试试吧，agent plan 和 token plan 新用户有 2个月 2.5 折优惠，光用 v4.1Flash 有大概20亿
 
+
+*****
+
+####  mitzvah  
+##### 15999#       发表于 2026-10-12 09:55
+
+ 本帖最后由 mitzvah 于 2026-10-12 09:57 编辑 
+
+用本地部署的deepseekv4flash vison exo同测试了前几天写的那个漫画阅读器，差距惊人，我那个漫画阅读器核心c++甚至是在Windows上用zoocode插件的跑官方ds4.1flash的api，OneShot一遍出的代码，质量代码健壮水平爆了dsv4flash vison十条街，dsfvison甚至连c++都不敢用，只会拿已有的库拼尸块，重要技术决定更是一败涂地
+

@@ -12950,3 +12950,33 @@ IMG_7942.jpeg
 
 原来0%也能被击中的，150小时终于进入第三部，感觉没有远疗的法师可以直接板凳了
 
+
+*****
+
+####  未熟串烧  
+##### 7071#       发表于 2026-10-12 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70358804&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-10-12 09:46</a>
+如果不观星，入队越晚属性越烂这一点其实也要看脸，固定随机成长就是这么任性
+
+我目前打完的两条线的体验 ...</blockquote>
+杨界功能性还不错，有远疗有替换还有雨天打雷（主线打海王应该是必定下雨的）。
+
+*****
+
+####  ParukiaMKII  
+##### 7072#       发表于 2026-10-12 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70358870&amp;ptid=2261859" target="_blank">gbjbb 发表于 2026-10-12 09:53</a>
+
+原来0%也能被击中的，150小时终于进入第三部，感觉没有远疗的法师可以直接板凳了 ...</blockquote>
+触发纹章效果了吧，大古扎就有个纹章，发动了命中率100%，你闪避拉满0%命中都会中招
+
+
+*****
+
+####  黛冬優子  
+##### 7073#       发表于 2026-10-12 10:01
+
+这个伊尼奥尼是不是有点说法，女王线声望9入队，到手28点力量，比起一堆13，14力的，气笑了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
