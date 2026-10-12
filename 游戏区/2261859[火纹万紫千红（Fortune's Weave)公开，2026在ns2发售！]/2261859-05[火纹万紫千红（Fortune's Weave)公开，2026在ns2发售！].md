@@ -13913,3 +13913,16 @@ HUXAQR4acAAWsWc.jpg
 角色服装可以切换吗？转职了感觉服装没有原皮好看</blockquote>
 能切，不过限定个别职业。
 
+
+*****
+
+####  纯夏  
+##### 7159#       发表于 2026-10-12 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70362154&amp;ptid=2261859" target="_blank">巨馍蘸酱 发表于 2026-10-12 21:27</a>
+
+角色服装可以切换吗？转职了感觉服装没有原皮好看</blockquote>
+在更换职业界面 当前职业按+键 可以在通用职业服装和角色专属服装间切换
+
+不过像妮涅这种特殊小裙子转骑兵系的话就不能切回通用服装了 
+
