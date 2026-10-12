@@ -13755,3 +13755,25 @@ HUZsjhRaoAA_SmK.jpg
 大商人是萨克斯/新娘是 ...</blockquote>
 关键是萨克斯已经有了
 
+
+*****
+
+####  nancygreenlife  
+##### 7143#       发表于 2026-10-12 19:19
+
+<blockquote>索非亚 发表于 2026-10-12 19:10
+贝特兰就是IS故意下毒的，第二部的属性多正常，进第三部差不多砍了8级左右的属性。
+
+ ...</blockquote>
+倒扣属性这一块儿
+
+
+*****
+
+####  月华刹那  
+##### 7144#       发表于 2026-10-12 19:22
+
+贴吧看到有人发了第一部如果角色战死后第三部结局的图
+
+不少角色直接被大帝扔进锅里跟城里的人一起煮了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
