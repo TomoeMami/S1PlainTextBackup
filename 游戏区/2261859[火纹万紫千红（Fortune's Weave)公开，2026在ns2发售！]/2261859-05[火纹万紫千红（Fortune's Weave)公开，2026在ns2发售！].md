@@ -13885,3 +13885,13 @@ HUXAQR4acAAWsWc.jpg
 
 这作的系统和设置挺多莫名其妙有古早味的恶意
 
+
+*****
+
+####  kalavinka  
+##### 7156#       发表于 2026-10-12 21:10
+
+看到一个思路 多养几个弓a 然后多复制几个天风 第三章飞兵支援和最后霸罗尔都是脚打<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等开了超难试试
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
