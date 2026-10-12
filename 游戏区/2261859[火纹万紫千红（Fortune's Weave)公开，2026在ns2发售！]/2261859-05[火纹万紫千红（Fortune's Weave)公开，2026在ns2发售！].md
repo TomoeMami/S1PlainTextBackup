@@ -13589,3 +13589,27 @@ HUZsjhRaoAA_SmK.jpg
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  gbjbb  
+##### 7130#       发表于 2026-10-12 18:10
+
+第三部招人时手快老是点到提升等级，重开了好几次<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+
+话说第三部贝特兰这属性还能救吗，我是真想用一用鞑古扎棍棒
+
+
+*****
+
+####  燃烧的石头  
+##### 7131#       发表于 2026-10-12 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361524&amp;ptid=2261859" target="_blank">gbjbb 发表于 2026-10-12 18:10</a>
+第三部招人时手快老是点到提升等级，重开了好几次。
+
+话说第三部贝特兰这属性还能救吗，我是真想用一用鞑古 ...</blockquote>
+贝特兰第一时间先转成游侠系或者剑圣把技巧和速度拉一下就行，别死守着勇士
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

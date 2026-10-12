@@ -12024,10 +12024,10 @@
     "update": false
   },
   "2261859": {
-    "totalreply": 7129,
+    "totalreply": 7131,
     "title": "[火纹万紫千红（Fortune's Weave)公开，2026在ns2发售！]",
     "newtitle": "[火纹万紫千红（Fortune's Weave)公开，2026.9.17在ns2发售！／8.4晚22点专场nd]",
-    "lastedit": 1791799565,
+    "lastedit": 1791800168,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12474,10 +12474,10 @@
     "update": false
   },
   "2267035": {
-    "totalreply": 1937,
+    "totalreply": 1938,
     "title": "[空之轨迹 the 2nd确认下财年发售！]",
     "newtitle": "[空之轨迹 the 2nd确认9.17发售！]",
-    "lastedit": 1791799564,
+    "lastedit": 1791799926,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13779,10 +13779,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 33104,
+    "totalreply": 33113,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1791799686,
+    "lastedit": 1791800286,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14597,15 +14597,6 @@
     "active": true,
     "update": false
   },
-  "2290608": {
-    "totalreply": 57,
-    "title": "[刘欢老师经典歌曲12首]",
-    "newtitle": "[刘欢老师经典歌曲12首]",
-    "lastedit": 1790590207,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2290616": {
     "totalreply": 111,
     "title": "[升级到NS2你最大的感受是什么？]",
@@ -15237,10 +15228,10 @@
     "update": false
   },
   "2290806": {
-    "totalreply": 366,
+    "totalreply": 368,
     "title": "[空前绝后的性转马尔福热潮]",
     "newtitle": "[空前绝后的性转马尔福热潮]",
-    "lastedit": 1791795849,
+    "lastedit": 1791800047,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15705,10 +15696,10 @@
     "update": false
   },
   "2290973": {
-    "totalreply": 105,
+    "totalreply": 106,
     "title": "[转转和那个CC真是炒作闹麻了]",
     "newtitle": "[转转和那个CC真是炒作闹麻了]",
-    "lastedit": 1791796206,
+    "lastedit": 1791800048,
     "category": "外野",
     "active": true,
     "update": false
@@ -16659,10 +16650,10 @@
     "update": false
   },
   "2291255": {
-    "totalreply": 211,
+    "totalreply": 212,
     "title": "[尊界汽车，符合国标，可免费升级刹车踏板]",
     "newtitle": "[尊界汽车，符合国标，可免费升级刹车踏板]",
-    "lastedit": 1791795127,
+    "lastedit": 1791800286,
     "category": "外野",
     "active": true,
     "update": false
@@ -16781,7 +16772,7 @@
     "newtitle": "[推漫：无良公会／不道德公会／不徳のギルド]",
     "lastedit": 1791540969,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2291183": {
@@ -17262,10 +17253,10 @@
     "update": false
   },
   "2291438": {
-    "totalreply": 115,
+    "totalreply": 116,
     "title": "[回顾当年被写入知识科普书籍但后来被证实为错误或虚假的知识点]",
     "newtitle": "[回顾当年被写入知识科普书籍但后来被证实为错误或虚假的知识点]",
-    "lastedit": 1791799687,
+    "lastedit": 1791800047,
     "category": "外野",
     "active": true,
     "update": false
@@ -17595,20 +17586,29 @@
     "update": false
   },
   "2291549": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[京东新业务“七鲜大厨”定价19888元，赌的是“机器炒菜”这件事有人买单]",
     "newtitle": "[京东新业务“七鲜大厨”定价19888元，赌的是“机器炒菜”这件事有人买单]",
-    "lastedit": 1791799686,
+    "lastedit": 1791800048,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2291539": {
-    "totalreply": 49,
+    "totalreply": 53,
     "title": "[对韭当割之30块耳机方案洋人卖一千多]",
     "newtitle": "[对韭当割之30块耳机方案洋人卖一千多]",
-    "lastedit": 1791799686,
+    "lastedit": 1791800286,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2184820": {
+    "totalreply": 408,
+    "title": "[『攻壳机动队』新作TV动画系列制作决定 2026年 科学猴制作]",
+    "newtitle": "[『攻壳机动队』新作TV动画系列制作决定 2026年 科学猴制作]",
+    "lastedit": 1791800054,
+    "category": "漫区",
     "active": true,
     "update": false
   }
