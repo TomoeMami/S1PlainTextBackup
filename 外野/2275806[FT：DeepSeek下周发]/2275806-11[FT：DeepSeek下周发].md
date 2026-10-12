@@ -13852,3 +13852,57 @@ minimax 是算法...不是那个minimax的公司
 我是说GPT-Astra自己烧了一个月TOKEN干不过我自己minimax思路写 ...</blockquote>
 你有给他算力训练吗？比如一张5090
 
+
+*****
+
+####  Gmlazy  
+##### 16013#       发表于 2026-10-12 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359772&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-12 12:14</a>
+
+你说得对，但我将要开始探针、快照、证据、门禁、夹具，还有哈希、冒烟、基线了
+
+我要先建立唯一基线，再 ...</blockquote>
+所以朋友，可以通过写文档来减缓这种情况吗？
+
+虽然加速了但还是好慢啊......
+
+*****
+
+####  RookieTnT  
+##### 16014#       发表于 2026-10-12 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359837&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-10-12 12:27</a>
+
+所以朋友，可以通过写文档来减缓这种情况吗？
+
+虽然加速了但还是好慢啊...... ...</blockquote>
+每次都让他不要过度校验 过度防御 过度审查
+
+
+*****
+
+####  umamusume  
+##### 16015#       发表于 2026-10-12 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359837&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-10-12 12:27</a>
+所以朋友，可以通过写文档来减缓这种情况吗？
+
+虽然加速了但还是好慢啊...... ...</blockquote>
+agentsmd里面写好，遵循能力还是可以的，不像某些蓝色xxx弄完了说一句文档都没看
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ Gmlazy + 1好评加鹅
+
+查看全部评分
+
