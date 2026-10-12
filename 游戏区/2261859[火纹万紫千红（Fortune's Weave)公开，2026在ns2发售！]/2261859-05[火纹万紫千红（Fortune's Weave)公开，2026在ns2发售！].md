@@ -13623,3 +13623,48 @@ HUZsjhRaoAA_SmK.jpg
 预赛就是每队和另外6队都组队一次</blockquote>
 那你这个统计就不对了，每个对手应该都出现三次
 
+
+*****
+
+####  roydimus  
+##### 7133#       发表于 2026-10-12 18:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第二部发道具之后顶掉身上的武器这bug太恶心了，每次开战前都要挨个检查一遍。。
+
+*****
+
+####  duraa  
+##### 7134#       发表于 2026-10-12 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361495&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-10-12 18:03</a>
+
+特技里简介前面带【】的 是不是只有实际担任那个类型的职业时才生效？比如抵抗魔装只有当重装兵时才生效， ...</blockquote>
+对，反过来说铁甲骑兵这类可以同时吃到骑士和重甲两种词条
+
+*****
+
+####  kalavinka  
+##### 7135#       发表于 2026-10-12 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361524&amp;ptid=2261859" target="_blank">gbjbb 发表于 2026-10-12 18:10</a>
+第三部招人时手快老是点到提升等级，重开了好几次。
+
+话说第三部贝特兰这属性还能救吗，我是真想用一用鞑古 ...</blockquote>
+用还是能用 实在喜欢就多喂点能力药<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  freedom12  
+##### 7136#       发表于 2026-10-12 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361553&amp;ptid=2261859" target="_blank">苍蓝之枪 发表于 2026-10-12 18:16</a>
+
+那你这个统计就不对了，每个对手应该都出现三次</blockquote>
+预赛就是每队和另外6队都组队一次 这个结论是对的
+
+图里统计的不对，现在的7场比赛就足够让每队和另外6队都组一次了
+
+应该不需要额外的商人/猫娘/新娘组队赛
+
