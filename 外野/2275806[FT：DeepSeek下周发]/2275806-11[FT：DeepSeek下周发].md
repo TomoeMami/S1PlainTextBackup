@@ -14198,3 +14198,11 @@ nosl A10有30胜率很夸张了，我自己打sl都经常1层死掉
 
 又是无事发生的一天，等周五<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eaglu  
+##### 16038#       发表于 2026-10-12 18:01
+
+opencode go的ds-4.1-flash额度提到80刀了
+

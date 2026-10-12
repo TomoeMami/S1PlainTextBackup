@@ -183,3 +183,13 @@ zzz的前三话也还好吧，枪梦魇和炸弹梦魇那两个故事有什么�
 
 说到这个，zzz应该是令和目前副骑形态最少的骑士了吧，nox骑士不算那个量产货只有基础和最终，齐格也只有一个形态。
 
+
+*****
+
+####  zakki  
+##### 239#       发表于 2026-10-12 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360869&amp;ptid=2278175" target="_blank">王留美 发表于 2026-10-12 16:06</a>
+zzz的前三话也还好吧，枪梦魇和炸弹梦魇那两个故事有什么被后面扔掉的大爆点吗？ ...</blockquote>
+三Z前20多集都是被后面丢掉的东西<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
