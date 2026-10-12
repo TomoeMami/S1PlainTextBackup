@@ -14052,3 +14052,16 @@ HUXAQR4acAAWsWc.jpg
 
 110个小时了已经，影之刃0之前应该打不完了
 
+
+*****
+
+####  mario21a  
+##### 7169#       发表于 2026-10-13 03:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70362674&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-10-13 01:05</a>
+
+我第一次去地牢就注意到那有个入口，就进去和霖多聊过了，但是只能干聊，并没有送礼之类的选项。
+
+——  ...</blockquote>
+确实没互动，但错过独占牢房线路的对话还是挺不爽的，等有空的时候找下别人流程视频或自己刷一下吧
+
