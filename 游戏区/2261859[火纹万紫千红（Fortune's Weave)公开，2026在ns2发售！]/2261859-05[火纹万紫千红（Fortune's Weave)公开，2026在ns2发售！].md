@@ -14015,3 +14015,17 @@ HUXAQR4acAAWsWc.jpg
 
 如果是的话那错过了不少对话<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangchunsiyue  
+##### 7166#       发表于 2026-10-13 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70362658&amp;ptid=2261859" target="_blank">mario21a 发表于 2026-10-13 00:47</a>
+做了凯伊线后期一个任务才知道牢房深处关着霖多，话说前期就可以进牢房深处见他了吗？
+
+如果是的话那错过了 ...</blockquote>
+我第一次去地牢就注意到那有个入口，就进去和霖多聊过了，但是只能干聊，并没有送礼之类的选项。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
