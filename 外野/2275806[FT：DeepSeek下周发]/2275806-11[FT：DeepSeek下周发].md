@@ -14283,3 +14283,132 @@ muse逆袭 斩杀fable astra</blockquote>
 muse逆袭 斩杀fable astra</blockquote>
 蜥蜴人跑分王差不多得了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">  还是看看不远方的哈基米4吧
 
+
+*****
+
+####  crow_wine  
+##### 16047#       发表于 2026-10-12 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360323&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-12 14:14</a>
+
+反应寥寥无几</blockquote>
+真正用ai做工业/机械建模的人太少了，没做过的不知道能做出这种效果有多不容易。大伙都喜欢那种前端oneshot的各种渲染，实际上一点用都没有
+
+*****
+
+####  hugosol  
+##### 16048#       发表于 2026-10-12 16:18
+
+ 本帖最后由 hugosol 于 2026-10-12 16:26 编辑 
+
+最近高强度用6.1-sol grilling，感觉这模型特征是，不要跟它纠结细节，否则讨论下去会没完没了，尽量用高层次的抽象给它描述规则，每次回答都附带理由，还有不停复读相关的原则，这样讨论起来会非常高效
+
+之所以不直接把原则写到agents.md，是因为我发现模型实际上很难判断“什么时候该用什么原则”，但是当你识别出某个问题可以运用原则去裁决时，把原则抛给它，它会想得非常清楚。把这类高杠杆的任务拆分出来留给人类去做才是务实的做法
+
+这是我用DeepSeek grilling时没有过的体验
+
+当然我开的思考强度是medium，这个强度我体感把控能力是刚刚好，如果再高又变成过度思考了
+
+*****
+
+####  crow_wine  
+##### 16049#       发表于 2026-10-12 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360382&amp;ptid=2275806" target="_blank">Sunyalche 发表于 2026-10-12 14:24</a>
+
+b站挺多搞astra过杀戮尖塔2的, 最高思考档A10大概能有nosl 30%胜率? 水平算不错了
+
+如果是pvp卡牌对现在的l ...</blockquote>
+nosl A10有30胜率很夸张了，我自己打sl都经常1层死掉
+
+*****
+
+####  cscbzcbz  
+##### 16050#       发表于 2026-10-12 16:44
+
+又是无事发生的一天，等周五<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eaglu  
+##### 16051#       发表于 2026-10-12 18:01
+
+opencode go的ds-4.1-flash额度提到80刀了
+
+*****
+
+####  UncleDracula  
+##### 16052#       发表于 2026-10-12 19:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361486&amp;ptid=2275806" target="_blank">eaglu 发表于 2026-10-12 18:01</a>
+
+opencode go的ds-4.1-flash额度提到80刀了</blockquote>
+智力比官方如何？有8成功力吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拯救节操希灵宅  
+##### 16053#       发表于 2026-10-12 20:02
+
+6.1sol今天已经断了好几次了，感觉o/的超卖商法顶不住了
+
+*****
+
+####  eaglu  
+##### 16054#       发表于 2026-10-12 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361829&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-12 19:48</a>
+
+智力比官方如何？有8成功力吗</blockquote>
+体感还行，就是速度没官方快
+
+*****
+
+####  果壳中的松鼠  
+##### 16055#       发表于 2026-10-12 21:30
+
+艹了，让6.1 sol 驾驶4.1flash写程序，在消息队列的callback函数里干重活，然后放着GPU不用，用CPU推理，两个吃白饭的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  =w=  
+##### 16056#       发表于 2026-10-12 22:30
+
+有体验过 [https://rea.tools/](https://rea.tools/) 这个逆向工具的吗，真的是什么都能逆向这么神？
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 16057#       发表于 2026-10-13 02:31
+
+muse逆袭 斩杀fable astra
+
+*****
+
+####  qwased  
+##### 16058#       发表于 2026-10-13 02:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70362754&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-10-13 02:31</a>
+muse逆袭 斩杀fable astra</blockquote>
+各种实测表示依然一坨<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小扎别刷了，丢人啊
+
+*****
+
+####  squallx  
+##### 16059#       发表于 2026-10-13 04:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70362754&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-10-13 02:31</a>
+
+muse逆袭 斩杀fable astra</blockquote>
+蜥蜴人跑分王差不多得了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">  还是看看不远方的哈基米4吧
+
+*****
+
+####  cscbzcbz  
+##### 16060#       发表于 2026-10-13 07:44
+
+好像v4.1f的速度变慢了一些？
+大概170t/s左右，难道说？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

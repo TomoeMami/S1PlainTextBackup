@@ -14065,3 +14065,16 @@ HUXAQR4acAAWsWc.jpg
 ——  ...</blockquote>
 确实没互动，但错过独占牢房线路的对话还是挺不爽的，等有空的时候找下别人流程视频或自己刷一下吧
 
+
+*****
+
+####  freedom12  
+##### 7170#       发表于 2026-10-13 07:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361711&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-10-12 19:13</a>
+
+关键是萨克斯已经有了</blockquote>
+女王是高音萨克斯
+
+商人是中音萨克斯
+
