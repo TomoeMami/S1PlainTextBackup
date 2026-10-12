@@ -14177,3 +14177,16 @@ DS 的 API 文档页面炸了,API也不稳定，会有 Something  New 吗？
 
 当然我开的思考强度是medium，这个强度我体感把控能力是刚刚好，如果再高又变成过度思考了
 
+
+*****
+
+####  crow_wine  
+##### 16036#       发表于 2026-10-12 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360382&amp;ptid=2275806" target="_blank">Sunyalche 发表于 2026-10-12 14:24</a>
+
+b站挺多搞astra过杀戮尖塔2的, 最高思考档A10大概能有nosl 30%胜率? 水平算不错了
+
+如果是pvp卡牌对现在的l ...</blockquote>
+nosl A10有30胜率很夸张了，我自己打sl都经常1层死掉
+
