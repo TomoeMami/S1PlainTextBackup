@@ -151,3 +151,14 @@
 
 肯定稳扎稳打啊，没有一上来就丢什么爆点像某三Z的前三集。前期的谜题，每集都在点到，但没有急着推，至少说明编剧算是在意这个伏笔，不像某三Z，前脚说后脚就丢掉了，全局最大爆点预知梦，也就体现了那么两三集<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 236#       发表于 2026-10-12 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360447&amp;ptid=2278175" target="_blank">zakki 发表于 2026-10-12 14:38</a>
+
+肯定稳扎稳打啊，没有一上来就丢什么爆点像某三Z的前三集。前期的谜题，每集都在点到，但没有急着推，至少 ...</blockquote>
+zzz的前三话也还好吧，枪梦魇和炸弹梦魇那两个故事有什么被后面扔掉的大爆点吗？
+

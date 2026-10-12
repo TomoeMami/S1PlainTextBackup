@@ -13494,3 +13494,15 @@ IMG_7942.jpeg
 
 220小时一周目通关，还有比我更长的吗？还是需要个超难难度，三房子超难什么时候更新的来着？
 
+
+*****
+
+####  duraa  
+##### 7121#       发表于 2026-10-12 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360684&amp;ptid=2261859" target="_blank">cmnewfan 发表于 2026-10-12 15:27</a>
+刚开始玩，这作不是单存档吗，有没有什么规划性的攻略？
+
+—— 来自 vivo V2303A, Android 16, 鹅球 v4.0 ...</blockquote>
+第一条线推荐迪托和雷达二选一，我二周目做路线规划的时候发现应该打这俩倒不是因为女王凯伊事情多，而是这俩条线才能解锁游侠<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
