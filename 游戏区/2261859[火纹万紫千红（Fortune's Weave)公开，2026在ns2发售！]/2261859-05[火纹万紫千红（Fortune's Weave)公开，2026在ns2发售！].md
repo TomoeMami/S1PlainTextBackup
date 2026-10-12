@@ -13532,3 +13532,14 @@ HUZsjhRaoAA_SmK.jpg
 
 <img src="https://img.stage1st.com/forum/202610/12/161032tuxupcrr997b9xl1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 7124#       发表于 2026-10-12 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360898&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-10-12 16:11</a>
+
+黑皮但是并不辣妹的组合</blockquote>
+然后5年后巴西初音从涩谷系辣妹变成真脏辫黑人了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
