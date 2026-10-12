@@ -13506,3 +13506,29 @@ IMG_7942.jpeg
 —— 来自 vivo V2303A, Android 16, 鹅球 v4.0 ...</blockquote>
 第一条线推荐迪托和雷达二选一，我二周目做路线规划的时候发现应该打这俩倒不是因为女王凯伊事情多，而是这俩条线才能解锁游侠<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gbjbb  
+##### 7122#       发表于 2026-10-12 16:05
+
+<blockquote>milky658 发表于 2026-10-12 09:10
+我凯伊线第二章先选了跳过，还没进第三章，现在再手打一次。进第三章道具坐骑和角色成长算哪一次的 ...</blockquote>
+角色能力取最高，仓库算第一次通关第二部的
+
+*****
+
+####  u2deack  
+##### 7123#       发表于 2026-10-12 16:11
+
+黑皮但是并不辣妹的组合
+
+HUZsjhRaoAA_SmK.jpg
+(420.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202610/12/161032tuxupcrr997b9xl1.jpg" referrerpolicy="no-referrer">
+
