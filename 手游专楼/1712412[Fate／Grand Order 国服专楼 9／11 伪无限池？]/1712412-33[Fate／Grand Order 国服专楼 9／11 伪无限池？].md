@@ -70,3 +70,14 @@
 小号也抽到剑心了。不过小号还是给迦摩戴冠吧。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太狗了 你怎么总出货啊 我扔了200+石毛都没出
 
+
+*****
+
+####  khxooo  
+##### 48256#       发表于 2026-10-12 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361419&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-10-12 17:45</a>
+
+太狗了 你怎么总出货啊 我扔了200+石毛都没出</blockquote>
+我看了看，小号剑心池可是丢了300多石，可是正常出率好不<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
