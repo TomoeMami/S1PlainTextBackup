@@ -2714,3 +2714,38 @@ TOE PS版本 PSP版都通了两遍，现在这高清马赛克……不知道还�
 我当年是初中的时候玩PS模拟器，基本都是普攻两下+招数，普攻三下就经常接不 ...</blockquote>
 哪来的TOE2
 
+
+*****
+
+####  talesof213  
+##### 255#       发表于 2026-10-12 10:49
+
+ 本帖最后由 talesof213 于 2026-10-12 10:51 编辑 
+<blockquote>trow233 发表于 2026-10-12 10:22
+感觉TOE的连招按键判定挺严格
+
+我当年是初中的时候玩PS模拟器，基本都是普攻两下+招数，普攻三下就经常接不 ...</blockquote>
+
+因为普攻要两下平A以后加个方向再A才能连上第三下吧，印象中是这样的，所以手感和后来直接A三下接特技的作品有点不一样。
+
+
+*****
+
+####  trow233  
+##### 256#       发表于 2026-10-12 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359229&amp;ptid=2280008" target="_blank">kakashisk 发表于 2026-10-12 10:43</a>
+
+哪来的TOE2</blockquote>
+打错了，TOD2
+
+*****
+
+####  trow233  
+##### 257#       发表于 2026-10-12 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359278&amp;ptid=2280008" target="_blank">talesof213 发表于 2026-10-12 10:49</a>
+
+因为普攻要两下平A以后加个方向再A才能连上第三下吧，印象中是这样的，所以手感和后来直接A三下接特技的 ...</blockquote>
+对，TOE好像是要下+普攻有个突刺再连技能，太久没玩了印象中是这样
+
