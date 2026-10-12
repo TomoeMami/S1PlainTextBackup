@@ -12723,3 +12723,16 @@ IMG_7942.jpeg
 
 —— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Jabeck  
+##### 7049#       发表于 2026-10-12 08:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70358294&amp;ptid=2261859" target="_blank">绕指流光 发表于 2026-10-12 08:15</a>
+
+第三章打到第三区分才发现神殿有试炼奖励饰品，推荐等级 60有打过的说说啥情况，有必要越级挑战么
+
+—— 来 ...</blockquote>
+雷达线就有卡拉神殿挑战给卡拉之弓。
+
