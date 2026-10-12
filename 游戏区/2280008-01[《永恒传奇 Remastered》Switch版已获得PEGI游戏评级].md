@@ -2757,3 +2757,14 @@ TOE PS版本 PSP版都通了两遍，现在这高清马赛克……不知道还�
 
 toe 这次有啥评测了吗 搞得如何？
 
+
+*****
+
+####  膛线  
+##### 259#       发表于 2026-10-12 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69556054&amp;ptid=2280008" target="_blank">kokyou 发表于 2026-4-30 07:51</a>
+
+！ 只上switch吗？</blockquote>
+蒸汽上预购页面已经好久了吧，只不过今天都没更新价格
+
