@@ -14236,3 +14236,13 @@ opencode go的ds-4.1-flash额度提到80刀了</blockquote>
 智力比官方如何？有8成功力吗</blockquote>
 体感还行，就是速度没官方快
 
+
+*****
+
+####  果壳中的松鼠  
+##### 16042#       发表于 2026-10-12 21:30
+
+艹了，让6.1 sol 驾驶4.1flash写程序，在消息队列的callback函数里干重活，然后放着GPU不用，用CPU推理，两个吃白饭的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

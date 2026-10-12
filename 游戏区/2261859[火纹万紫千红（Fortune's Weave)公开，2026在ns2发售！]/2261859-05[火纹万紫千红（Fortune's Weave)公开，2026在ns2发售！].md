@@ -13895,3 +13895,21 @@ HUXAQR4acAAWsWc.jpg
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  巨馍蘸酱  
+##### 7157#       发表于 2026-10-12 21:27
+
+角色服装可以切换吗？转职了感觉服装没有原皮好看
+
+*****
+
+####  Jabeck  
+##### 7158#       发表于 2026-10-12 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70362154&amp;ptid=2261859" target="_blank">巨馍蘸酱 发表于 2026-10-12 21:27</a>
+
+角色服装可以切换吗？转职了感觉服装没有原皮好看</blockquote>
+能切，不过限定个别职业。
+
