@@ -13777,3 +13777,29 @@ HUZsjhRaoAA_SmK.jpg
 
 不少角色直接被大帝扔进锅里跟城里的人一起煮了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 7145#       发表于 2026-10-12 19:26
+
+柯南一家
+
+HUXAQR4acAAWsWc.jpg
+(572.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 19:26 上传
+
+<img src="https://img.stage1st.com/forum/202610/12/192611rcg0lco3wll0l7ql.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lmclmc2  
+##### 7146#       发表于 2026-10-12 19:29
+
+这就显得红花特别权威了.当初谁能想到序章和后面她真出来之后反差这么大
+
+第二部战争片轻描淡写煮了50万人都是NPC可能还没这么刺激,一说如果有旧伤就会被丢进去那就不一样了
+
