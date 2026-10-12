@@ -14133,3 +14133,23 @@ Re:Source</blockquote>
  ...</blockquote>
 建议使用B站@分析学爱好者 的凡人分类法，按他之前的分类基本都是化神往上级别了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mp5  
+##### 16032#       发表于 2026-10-12 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359772&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-12 12:14</a>
+
+你说得对，但我将要开始探针、快照、证据、门禁、夹具，还有哈希、冒烟、基线了
+
+我要先建立唯一基线，再 ...</blockquote>
+笑不出来, 正在被这种过度防御折磨中<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hattle  
+##### 16033#       发表于 2026-10-12 15:17
+
+DS 的 API 文档页面炸了,API也不稳定，会有 Something  New 吗？
+
