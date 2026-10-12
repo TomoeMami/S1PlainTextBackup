@@ -13993,3 +13993,14 @@ minimax 是算法...不是那个minimax的公司
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  非教徒  
+##### 16022#       发表于 2026-10-12 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70354356&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-10-11 01:05</a>
+
+jev概念好像已经凉了</blockquote>
+试用了开源的clef之类的，准确率和普通qwen设置输出最多8token没有区别，由于推理引擎不成熟，速度还不如原版qwen
+
