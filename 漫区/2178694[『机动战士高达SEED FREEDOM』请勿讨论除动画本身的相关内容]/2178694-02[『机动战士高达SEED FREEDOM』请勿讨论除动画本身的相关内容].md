@@ -381,3 +381,28 @@ CODE GEASS系列其实这几年出的比高达还勤，还一直不绕着鲁鲁�
 
 所以这次新开世界观也是赌一把了，要是这都能让鲁鲁修穿越过来客串一下那当我没说
 
+
+*****
+
+####  猪突猛进R  
+##### 2090#       发表于 2026-10-12 17:49
+
+<img src="https://img.stage1st.com/forum/202610/12/174925qh0o6r6eleyt9ley.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 17:49 上传
+
+
+*****
+
+####  鱼雷鲨  
+##### 2091#       发表于 2026-10-12 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70357609&amp;ptid=2178694" target="_blank">ナルバレック 发表于 2026-10-11 23:01</a>
+
+CODE GEASS系列其实这几年出的比高达还勤，还一直不绕着鲁鲁修出....因此国内粉意见还蛮大的 ...</blockquote>
+Lost Stories的柴油兄妹在日服美服还比较有人气，不过最奇妙深刻的是一切投票总有莫妮卡，但复活赛从来没有
+
