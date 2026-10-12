@@ -14120,3 +14120,16 @@ Re:Source</blockquote>
 
 搞个rag或者skill之类的东西, 每回合把手牌状态局面发给API让他思考返回动作, 再加点长期记忆之类的, 大概勉强能玩, 就是太慢太贵了
 
+
+*****
+
+####  绕指流光  
+##### 16031#         楼主| 发表于 2026-10-12 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359014&amp;ptid=2275806" target="_blank">nice女武神 发表于 2026-10-12 10:15</a>
+
+我看到 有AI统计这次722-3论文的档次  是这样的吗  而且有直接终结一些细分研究的东西
+
+ ...</blockquote>
+建议使用B站@分析学爱好者 的凡人分类法，按他之前的分类基本都是化神往上级别了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
