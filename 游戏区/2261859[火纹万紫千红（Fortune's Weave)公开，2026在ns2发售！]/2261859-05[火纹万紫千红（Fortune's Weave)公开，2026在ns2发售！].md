@@ -13714,3 +13714,44 @@ HUZsjhRaoAA_SmK.jpg
 
 就是四个副主角的战斗曲，去听主配器就行
 
+
+*****
+
+####  索非亚  
+##### 7141#       发表于 2026-10-12 19:10
+
+ 本帖最后由 索非亚 于 2026-10-12 19:11 编辑 
+
+贝特兰就是IS故意下毒的，第二部的属性多正常，进第三部差不多砍了8级左右的属性。
+
+<img src="https://img.stage1st.com/forum/202610/12/191057uou0ffuodc8km7fk.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1791803456508_1.webp</strong> (160.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 19:10 上传
+
+<img src="https://img.stage1st.com/forum/202610/12/191057el3ph2h27h7holo9.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1791803456742_2.webp</strong> (190.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 19:10 上传
+
+
+*****
+
+####  flyingover  
+##### 7142#       发表于 2026-10-12 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361683&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-10-12 19:01</a>
+
+解放的凯歌/直线前进/月读幻想/昆仑之女
+
+就是四个副主角的战斗曲，去听主配器就行
+
+大商人是萨克斯/新娘是 ...</blockquote>
+关键是萨克斯已经有了
+
