@@ -13971,3 +13971,37 @@ HUXAQR4acAAWsWc.jpg
 
 迪线少拿了几个上级证，好几个已经要35级了但不够证转职，是不是应该尽量不要升级了
 
+
+*****
+
+####  kalavinka  
+##### 7164#       发表于 2026-10-13 00:03
+
+100小时通关 不用有啥强度焦虑 我没精养也是4回合强杀霸罗尔了 巴西初音和地拖双人组还是太权威了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/12/234130p1cegqekmtgknene.jpg" referrerpolicy="no-referrer">
+
+<strong>img_2815.jpg</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 23:41 上传
+
+<img src="https://img.stage1st.com/forum/202610/12/234142ebil1yvggtnuri8f.jpg" referrerpolicy="no-referrer">
+
+<strong>img_2816.jpg</strong> (482.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 23:41 上传
+
+<img src="https://img.stage1st.com/forum/202610/12/234147htrpciupig9gg8hi.jpg" referrerpolicy="no-referrer">
+
+<strong>img_2817.jpg</strong> (475.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 23:41 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
