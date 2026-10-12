@@ -13558,3 +13558,24 @@ HUZsjhRaoAA_SmK.jpg
 
 小穆、缇雅拉和罗蕾塔能出个JC组合吗<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绕指流光  
+##### 7127#       发表于 2026-10-12 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361144&amp;ptid=2261859" target="_blank">黛冬優子 发表于 2026-10-12 16:50</a>
+
+这次bgm真好听，远超前作了</blockquote>
+刚想说三房也是各有千秋，才想起来engage我就打了20个小时就放弃了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莱希拉姆  
+##### 7128#       发表于 2026-10-12 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360407&amp;ptid=2261859" target="_blank">mamayata 发表于 2026-10-12 14:31</a>
+
+刚才找豆包翻译了一下图片 似乎是有发生条件的 我第一部玩蕾达就没这些任务 第二次玩凯伊也没有 只有那个狂 ...</blockquote>
+这任务要第三条线才会出，前两条线的支线我都是全清的，所以也有可能有什么前置任务已经做掉了。具体任务是刺客和百夫长二选一，选刺客会接到后续任务，最后一个任务报酬就是阳炎勋章。做完这个任务，到第四条线就只剩下给百夫长信了，也有其后续。
+
