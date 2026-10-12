@@ -13630,3 +13630,29 @@ astra真是个好模型，就是额度实在太快了。
 
 但4.1f对嘉立创eda不算特别熟悉
 
+
+*****
+
+####  奈落的孤火花  
+##### 15995#       发表于 2026-10-12 08:36
+
+ 本帖最后由 奈落的孤火花 于 2026-10-12 08:41 编辑 
+
+这就是opus5.5啊，真的和gpt完全反过来，就得互补
+
+<img src="https://img.stage1st.com/forum/202610/12/083629iv08b7cfj000nn9g.png" referrerpolicy="no-referrer">
+
+<strong>25134.png</strong> (81.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 08:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/12/084133lprwr6azpqys2x1q.png" referrerpolicy="no-referrer">
+
+<strong>41031.png</strong> (84.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 08:41 上传
+
