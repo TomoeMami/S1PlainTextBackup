@@ -14217,3 +14217,11 @@ opencode go的ds-4.1-flash额度提到80刀了
 opencode go的ds-4.1-flash额度提到80刀了</blockquote>
 智力比官方如何？有8成功力吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 16040#       发表于 2026-10-12 20:02
+
+6.1sol今天已经断了好几次了，感觉o/的超卖商法顶不住了
+
