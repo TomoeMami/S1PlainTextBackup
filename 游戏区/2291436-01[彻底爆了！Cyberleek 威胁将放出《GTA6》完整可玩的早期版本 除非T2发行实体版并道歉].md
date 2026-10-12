@@ -417,3 +417,13 @@ CYBERLEEK还没被抓吗
 
 他手上的PC版再过一两个月就价值清零了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nozomitech  
+##### 52#       发表于 2026-10-13 02:19
+
+这哥们之前套了几十万美金跑路好不满足吗？那时候大家互相给个台阶下这事不就完了吗？现在看来还是不甘心啊，想再赌波大的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
