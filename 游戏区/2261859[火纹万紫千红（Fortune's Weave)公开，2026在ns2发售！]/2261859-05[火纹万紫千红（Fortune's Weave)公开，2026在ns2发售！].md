@@ -13001,3 +13001,29 @@ IMG_7942.jpeg
 原来0%也能被击中的，150小时终于进入第三部，感觉没有远疗的法师可以直接板凳了 ...</blockquote>
 盖茨有个牙閃+，神经刀，20%几率+7攻击力+100命中，在对面时偶尔会被坑到，is的小巧思了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黛冬優子  
+##### 7076#       发表于 2026-10-12 10:20
+
+ 本帖最后由 黛冬優子 于 2026-10-12 10:24 编辑 
+
+<img src="https://img.stage1st.com/forum/202610/12/102032m6dxjjxjwfp67jaq.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6031.jpeg</strong> (467.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 10:20 上传
+
+<img src="https://img.stage1st.com/forum/202610/12/102032h5zhhay5zjht65zh.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6032.jpeg</strong> (65.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 10:20 上传
+
+芙朵拉正宗杀人魔，法彪亲凹
+

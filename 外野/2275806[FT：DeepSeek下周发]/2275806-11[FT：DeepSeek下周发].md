@@ -13713,3 +13713,21 @@ astra真是个好模型，就是额度实在太快了。
 
 2026-10-12 10:14 上传
 
+
+*****
+
+####  nxmonitor  
+##### 16001#       发表于 2026-10-12 10:20
+
+火山的DS质量很低，实际上基本所有开源模型都有类似问题，不是量化就是参数配置问题……
+
+*****
+
+####  Hattle  
+##### 16002#       发表于 2026-10-12 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359042&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-12 10:20</a>
+
+火山的DS质量很低，实际上基本所有开源模型都有类似问题，不是量化就是参数配置问题…… ...</blockquote>
+那没办法，所有的第三方自部署都不可能给满血部署，只能说，凑合用<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
