@@ -14225,3 +14225,14 @@ opencode go的ds-4.1-flash额度提到80刀了</blockquote>
 
 6.1sol今天已经断了好几次了，感觉o/的超卖商法顶不住了
 
+
+*****
+
+####  eaglu  
+##### 16041#       发表于 2026-10-12 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361829&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-12 19:48</a>
+
+智力比官方如何？有8成功力吗</blockquote>
+体感还行，就是速度没官方快
+
