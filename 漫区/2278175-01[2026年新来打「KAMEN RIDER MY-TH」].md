@@ -193,3 +193,16 @@ zzz的前三话也还好吧，枪梦魇和炸弹梦魇那两个故事有什么�
 zzz的前三话也还好吧，枪梦魇和炸弹梦魇那两个故事有什么被后面扔掉的大爆点吗？ ...</blockquote>
 三Z前20多集都是被后面丢掉的东西<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 240#       发表于 2026-10-12 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361386&amp;ptid=2278175" target="_blank">浅川雏羽 发表于 2026-10-12 17:37</a>
+
+3Z前期毫无爆点无聊的要死，真火起来是中期重生之我是二周目特工好吧
+
+结果重生要素完全没用上一路拉跨到 ...</blockquote>
+第一个爆点是迷宫回揭秘宁梦有问题吧
+

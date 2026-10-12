@@ -16,3 +16,11 @@
 
  哦草是ST绫香！<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 2144#       发表于 2026-10-12 19:54
+
+唉，想抽啥都抽不出来，赛艇池也沉了
+

@@ -14206,3 +14206,14 @@ nosl A10有30胜率很夸张了，我自己打sl都经常1层死掉
 
 opencode go的ds-4.1-flash额度提到80刀了
 
+
+*****
+
+####  UncleDracula  
+##### 16039#       发表于 2026-10-12 19:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361486&amp;ptid=2275806" target="_blank">eaglu 发表于 2026-10-12 18:01</a>
+
+opencode go的ds-4.1-flash额度提到80刀了</blockquote>
+智力比官方如何？有8成功力吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
