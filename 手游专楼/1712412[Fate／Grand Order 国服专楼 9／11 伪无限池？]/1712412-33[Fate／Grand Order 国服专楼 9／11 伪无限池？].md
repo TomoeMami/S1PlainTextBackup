@@ -59,3 +59,14 @@
 
 小号也抽到剑心了。不过小号还是给迦摩戴冠吧。
 
+
+*****
+
+####  qixinno1  
+##### 48255#       发表于 2026-10-12 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361379&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-10-12 17:35</a>
+
+小号也抽到剑心了。不过小号还是给迦摩戴冠吧。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太狗了 你怎么总出货啊 我扔了200+石毛都没出
+
