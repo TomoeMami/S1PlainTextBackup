@@ -13731,3 +13731,23 @@ astra真是个好模型，就是额度实在太快了。
 火山的DS质量很低，实际上基本所有开源模型都有类似问题，不是量化就是参数配置问题…… ...</blockquote>
 那没办法，所有的第三方自部署都不可能给满血部署，只能说，凑合用<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rachepatty  
+##### 16003#       发表于 2026-10-12 10:24
+
+总之订阅用量，官方谷价用速"智", 搭着用 
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  なるぼど  
+##### 16004#       发表于 2026-10-12 10:31
+
+gpt老是给我把所有脚本都扫一遍，我真🌿了。🤣🤣🤣
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

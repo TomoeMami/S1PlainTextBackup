@@ -13027,3 +13027,14 @@ IMG_7942.jpeg
 
 芙朵拉正宗杀人魔，法彪亲凹
 
+
+*****
+
+####  绕指流光  
+##### 7077#       发表于 2026-10-12 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359049&amp;ptid=2261859" target="_blank">黛冬優子 发表于 2026-10-12 10:20</a>
+
+芙朵拉正宗杀人魔，法彪亲凹</blockquote>
+怪不得鞑古扎人看见芙朵拉的就说是臭外地的蛮子，这妥妥挑战神祖了
+
