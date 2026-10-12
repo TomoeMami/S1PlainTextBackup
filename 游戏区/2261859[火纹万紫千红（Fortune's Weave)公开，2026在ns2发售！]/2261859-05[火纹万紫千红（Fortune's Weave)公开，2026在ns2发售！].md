@@ -13803,3 +13803,17 @@ HUXAQR4acAAWsWc.jpg
 
 第二部战争片轻描淡写煮了50万人都是NPC可能还没这么刺激,一说如果有旧伤就会被丢进去那就不一样了
 
+
+*****
+
+####  trotsky  
+##### 7147#       发表于 2026-10-12 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361759&amp;ptid=2261859" target="_blank">lmclmc2 发表于 2026-10-12 19:29</a>
+这就显得红花特别权威了.当初谁能想到序章和后面她真出来之后反差这么大
+
+第二部战争片轻描淡写煮了50万人 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">只能说红花这个名字就有梗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
