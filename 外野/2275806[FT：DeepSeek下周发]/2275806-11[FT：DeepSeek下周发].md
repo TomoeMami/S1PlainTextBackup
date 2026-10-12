@@ -14064,3 +14064,59 @@ b站挺多搞astra过杀戮尖塔2的, 最高思考档A10大概能有nosl 30%胜
 
 如果是pvp卡牌对现在的llm可能还是太复杂了吧
 
+
+*****
+
+####  臭P遇上臭脚  
+##### 16028#       发表于 2026-10-12 14:27
+
+ 本帖最后由 臭P遇上臭脚 于 2026-10-12 14:28 编辑 
+
+这个step-5-preview模型实力怎么样，和国内其他模型比的话是什么水平<img src="https://static.stage1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  neptunehs  
+##### 16029#       发表于 2026-10-12 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360393&amp;ptid=2275806" target="_blank">臭P遇上臭脚 发表于 2026-10-12 14:27</a>
+这个step-5-preview模型实力怎么样，好用吗
+
+Re:Source</blockquote>
+上限跟v4.1f差不多，逆向读代码略强于4.1f
+免费版比4.1f慢不少，下限极差（各种低级错误导致满盘皆输，需要check至少两次）
+不如星际兔女郎
+但反正免费，我是准备用到他不免费为止（星际兔女郎在opencode里是有限免费）
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 臭P遇上臭脚 + 1好评加鹅
+
+查看全部评分
+
+
+*****
+
+####  Sunyalche  
+##### 16030#       发表于 2026-10-12 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359954&amp;ptid=2275806" target="_blank">陶矢 发表于 2026-10-12 12:53</a>
+
+我是搞技术的, 只是不会写大模型, 正常工程推的内容都列了, 
+
+用啥论文啥技术, 一步步怎么做, 说的头头是 ...</blockquote>
+如果指望AI许愿编程出一个离线机器人打牌, 那现在应该还差挺远
+
+搞个rag或者skill之类的东西, 每回合把手牌状态局面发给API让他思考返回动作, 再加点长期记忆之类的, 大概勉强能玩, 就是太慢太贵了
+

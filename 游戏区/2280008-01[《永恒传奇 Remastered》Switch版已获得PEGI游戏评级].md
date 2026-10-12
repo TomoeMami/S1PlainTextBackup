@@ -2822,3 +2822,14 @@ STEAM版未知道，不過應該都是這水平
 蒸汽上预购页面已经好久了吧，只不过今天都没更新价格</blockquote>
 4月刚公布时发的帖子…现在肯定知道是全平台啦哈哈。准备等15日先入个ps的玩
 
+
+*****
+
+####  TheOccuria  
+##### 265#       发表于 2026-10-12 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359561&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-10-12 11:38</a>
+
+说的好像你还有空打toe一样</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">怀旧可以以后抽空
+
