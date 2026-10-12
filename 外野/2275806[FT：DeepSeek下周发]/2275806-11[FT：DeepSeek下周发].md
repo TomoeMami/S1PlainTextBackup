@@ -13697,3 +13697,19 @@ astra真是个好模型，就是额度实在太快了。
 
 用本地部署的deepseekv4flash vison exo同测试了前几天写的那个漫画阅读器，差距惊人，我那个漫画阅读器核心c++甚至是在Windows上用zoocode插件的跑官方ds4.1flash的api，OneShot一遍出的代码，质量代码健壮水平爆了dsv4flash vison十条街，dsfvison甚至连c++都不敢用，只会拿已有的库拼尸块，重要技术决定更是一败涂地
 
+
+*****
+
+####  nice女武神  
+##### 16000#       发表于 2026-10-12 10:15
+
+我看到 有AI统计这次722-3论文的档次  是这样的吗  而且有直接终结一些细分研究的东西
+
+<img src="https://img.stage1st.com/forum/202610/12/101439c6uzbb0rlr9i2ibl.png" referrerpolicy="no-referrer">
+
+<strong>02164524b1f19c8d911b0d78369e5ab5253693341.png</strong> (34 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 10:14 上传
+

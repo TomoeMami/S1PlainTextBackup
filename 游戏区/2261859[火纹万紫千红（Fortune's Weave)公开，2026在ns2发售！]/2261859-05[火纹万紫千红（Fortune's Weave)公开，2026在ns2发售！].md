@@ -12980,3 +12980,24 @@ IMG_7942.jpeg
 
 这个伊尼奥尼是不是有点说法，女王线声望9入队，到手28点力量，比起一堆13，14力的，气笑了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mamayata  
+##### 7074#       发表于 2026-10-12 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70358921&amp;ptid=2261859" target="_blank">黛冬優子 发表于 2026-10-12 10:01</a>
+这个伊尼奥尼是不是有点说法，女王线声望9入队，到手28点力量，比起一堆13，14力的，气笑了 ...</blockquote>
+本身就很强啊 用弓额外加3力量 但我感觉还是没莉莉安强
+
+*****
+
+####  黛冬優子  
+##### 7075#       发表于 2026-10-12 10:08
+
+ 本帖最后由 黛冬優子 于 2026-10-12 10:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70358870&amp;ptid=2261859" target="_blank">gbjbb 发表于 2026-10-12 09:53</a>
+
+原来0%也能被击中的，150小时终于进入第三部，感觉没有远疗的法师可以直接板凳了 ...</blockquote>
+盖茨有个牙閃+，神经刀，20%几率+7攻击力+100命中，在对面时偶尔会被坑到，is的小巧思了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

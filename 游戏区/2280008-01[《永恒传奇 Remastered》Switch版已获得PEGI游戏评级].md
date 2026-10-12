@@ -2677,3 +2677,13 @@ TOX也是垃…玩了半小时就觉得不对劲了，怎么会有这么无聊�
 中文奖杯列表
 [https://www.exophase.com/game/ta ... psn/trophies/zh-CN/](https://www.exophase.com/game/tales-of-eternia-remastered-psn/trophies/zh-CN/)
 
+
+*****
+
+####  TheOccuria  
+##### 252#       发表于 2026-10-12 10:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了下就是全收集+全隐藏要素全打一遍
+
+幸好玩steam不在乎成就了，这东西也就年轻的时候有心情按照攻略去复刻
+
