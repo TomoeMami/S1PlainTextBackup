@@ -13759,3 +13759,21 @@ gpt老是给我把所有脚本都扫一遍，我真🌿了。🤣🤣🤣
 
 GPT 6.1 SOL 弱智吧，让他校验一个开发计划有没有问题，连开发人天都要核验，<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> ，都是AI干活你校验这个干啥？
 
+
+*****
+
+####  陶矢  
+##### 16006#       发表于 2026-10-12 11:58
+
+ 本帖最后由 陶矢 于 2026-10-12 11:59 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">有个问题啊, 我想试下AI自我推进的能力
+
+我自己写个卡牌类AI, 我自己用一个minimax遍历再裁剪对抗网络的半脚本AI
+
+然后给4000局对战数据让 Astra 自己额度放开了烧, 我什么都不管, 让自己推动给我自己写的AI去打
+
+结果他烧了一个月用了几张重置卡还是个菜比啊... 是不是不该这么玩?
+
+有没有真正搞这块的大手子跟我说下思路? 
+
