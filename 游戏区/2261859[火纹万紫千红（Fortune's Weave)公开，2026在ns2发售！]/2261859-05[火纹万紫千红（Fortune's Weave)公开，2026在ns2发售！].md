@@ -13943,3 +13943,23 @@ HUXAQR4acAAWsWc.jpg
 
 2026-10-12 23:06 上传
 
+
+*****
+
+####  hl氏  
+##### 7161#       发表于 2026-10-12 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70362429&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-12 23:09</a>
+
+贫民区这一直有个守门杂兵，有没有相关事件？
+
+看胸前的徽章粉毛伯父家的杂兵也有人戴，但和看门的不是同一 ...</blockquote>
+已经通了三线在通凯伊线，目前没看到这里的剧情，我每个月都有对话，好像和弗拉玛有关，可能是商人线或者猫猫头线的剧情
+
+*****
+
+####  蜜梨柑  
+##### 7162#       发表于 2026-10-12 23:28
+
+我都救世主了还要收我的钱<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">活该你们鞑古扎被毁灭啊
+
