@@ -13963,3 +13963,11 @@ HUXAQR4acAAWsWc.jpg
 
 我都救世主了还要收我的钱<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">活该你们鞑古扎被毁灭啊
 
+
+*****
+
+####  ckl80  
+##### 7163#       发表于 2026-10-12 23:36
+
+迪线少拿了几个上级证，好几个已经要35级了但不够证转职，是不是应该尽量不要升级了
+
