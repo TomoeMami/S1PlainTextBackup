@@ -13235,3 +13235,13 @@ IMG_7942.jpeg
 
 你直接点目标地点会告诉你用几回合到，就是让你自己算好路程回城够不够时间。
 
+
+*****
+
+####  chiefshi  
+##### 7095#       发表于 2026-10-12 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359879&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-10-12 12:35</a>
+你直接点目标地点会告诉你用几回合到，就是让你自己算好路程回城够不够时间。 ...</blockquote>
+刷个遭遇战就麻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

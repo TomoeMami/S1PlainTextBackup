@@ -13906,3 +13906,28 @@ agentsmd里面写好，遵循能力还是可以的，不像某些蓝色xxx弄完
 
 查看全部评分
 
+
+*****
+
+####  qwased  
+##### 16016#       发表于 2026-10-12 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359788&amp;ptid=2275806" target="_blank">陶矢 发表于 2026-10-12 12:17</a>
+
+minimax 是算法...不是那个minimax的公司
+
+我是说GPT-Astra自己烧了一个月TOKEN干不过我自己minimax思路写 ...</blockquote>
+那你先跟他讨论好你要干什么，目标是什么，让他给你列需要什么工具，制定好计划再开工
+
+*****
+
+####  巨魔已被忠诚  
+##### 16017#       发表于 2026-10-12 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359843&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-12 12:29</a>
+每次都让他不要过度校验 过度防御 过度审查</blockquote>
+没什么用啊。
+现在的工程能力反而因为规范太多在查询过程中空转，整得和在欧盟开会推进具体项目落地一个德行。
+规定了先做最小实践方案，然后嵌合业务流程的修改，再做工程合规性检查，再去做具体修改计划。每次计划都在增改，很少删减。
+最后施工时发现内容里有多个计划，知识库，事实，规范，review阶段冲突搞崩了来找我<img src="https://static.stage1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
+
