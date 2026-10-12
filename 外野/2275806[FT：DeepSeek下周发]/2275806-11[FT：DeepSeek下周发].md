@@ -14004,3 +14004,14 @@ minimax 是算法...不是那个minimax的公司
 jev概念好像已经凉了</blockquote>
 试用了开源的clef之类的，准确率和普通qwen设置输出最多8token没有区别，由于推理引擎不成熟，速度还不如原版qwen
 
+
+*****
+
+####  moekyo  
+##### 16023#       发表于 2026-10-12 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359746&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-10-12 12:10</a>
+
+有点牛逼</blockquote>
+反应寥寥无几<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

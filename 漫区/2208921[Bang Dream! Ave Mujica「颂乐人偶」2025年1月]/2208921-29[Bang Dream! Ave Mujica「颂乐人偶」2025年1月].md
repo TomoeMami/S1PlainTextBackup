@@ -476,3 +476,23 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
        [https://www.facebook.com/bangdreamon.TCN/posts/122144013993238347](https://www.facebook.com/bangdreamon.TCN/posts/122144013993238347)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42085#       发表于 2026-10-12 14:14
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/12/141400wzx7fzxfk5xaw3vt.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-10-12_14-11-55.jpg</strong> (193.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 14:14 上传
+
+       [https://x.com/bang_dream_info/status/2109479171881935049](https://x.com/bang_dream_info/status/2109479171881935049)
+
+       [https://www.bilibili.com/video/BV1KJpX6SELX](https://www.bilibili.com/video/BV1KJpX6SELX)  &lt;——bilibili搬运视频
+
