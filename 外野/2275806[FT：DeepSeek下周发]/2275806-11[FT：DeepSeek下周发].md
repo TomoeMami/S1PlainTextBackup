@@ -14015,3 +14015,52 @@ jev概念好像已经凉了</blockquote>
 有点牛逼</blockquote>
 反应寥寥无几<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sunyalche  
+##### 16024#       发表于 2026-10-12 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359772&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-12 12:14</a>
+
+你说得对，但我将要开始探针、快照、证据、门禁、夹具，还有哈希、冒烟、基线了
+
+我要先建立唯一基线，再 ...</blockquote>
+其他词都能大概理解, 冒烟枪到底是什么东西
+
+*****
+
+####  med  
+##### 16025#       发表于 2026-10-12 14:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 敬爱的Z公司给免费开了3个pro账户，都不清楚课题组这些老师学生怎么骗到智谱的fund
+
+开始glm试用
+
+
+*****
+
+####  Hattle  
+##### 16026#       发表于 2026-10-12 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360347&amp;ptid=2275806" target="_blank">Sunyalche 发表于 2026-10-12 14:18</a>
+
+其他词都能大概理解, 冒烟枪到底是什么东西</blockquote>
+冒烟测试，业内名词
+
+*****
+
+####  Sunyalche  
+##### 16027#       发表于 2026-10-12 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359678&amp;ptid=2275806" target="_blank">陶矢 发表于 2026-10-12 11:58</a>
+
+有个问题啊, 我想试下AI自我推进的能力
+
+我自己写个卡牌类AI, 用一个minimax遍历再剪枝对抗网络的半脚本AI
+
+ ...</blockquote>
+b站挺多搞astra过杀戮尖塔2的, 最高思考档A10大概能有nosl 30%胜率? 水平算不错了
+
+如果是pvp卡牌对现在的llm可能还是太复杂了吧
+

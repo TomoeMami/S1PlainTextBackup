@@ -13291,3 +13291,31 @@ IMG_7942.jpeg
 
 请教一下 莱桑达和莉莉安b级支援对话解锁满足特定条件 特定条件是什么
 
+
+*****
+
+####  Humpy  
+##### 7100#       发表于 2026-10-12 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360316&amp;ptid=2261859" target="_blank">mamayata 发表于 2026-10-12 14:13</a>
+请教一下 莱桑达和莉莉安b级支援对话解锁满足特定条件 特定条件是什么</blockquote>
+我印象中莉莉安和莱桑达的b支援必须最先点，不能先看莉莉安和柯南的b支援
+
+*****
+
+####  mamayata  
+##### 7101#       发表于 2026-10-12 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359749&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-12 12:10</a>
+刚好凯伊线接不了这任务</blockquote>
+你好 不懂日文 阳炎勋章这个前置任务是不是完成神威法王行踪和帮小孩招房子任务？
+
+*****
+
+####  mamayata  
+##### 7102#       发表于 2026-10-12 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70360354&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-10-12 14:19</a>
+我印象中莉莉安和莱桑达的b支援必须最先点，不能先看莉莉安和柯南的b支援 ...</blockquote>
+好坑啊 这种三角关系
+
