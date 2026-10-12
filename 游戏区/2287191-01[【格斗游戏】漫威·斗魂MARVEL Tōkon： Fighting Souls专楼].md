@@ -22,3 +22,19 @@
 
 2026-10-11 22:50 上传
 
+
+*****
+
+####  John_Stockton  
+##### 48#         楼主| 发表于 2026-10-12 13:23
+
+evo赛后，第一季4个角色全部放出
+
+<img src="https://img.stage1st.com/forum/202610/12/132319s7x0zkknmondd097.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (391.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 13:23 上传
+
