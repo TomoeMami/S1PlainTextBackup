@@ -13978,3 +13978,18 @@ minimax 是算法...不是那个minimax的公司
 我要先建立唯一基线，再 ...</blockquote>
 看笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RookieTnT  
+##### 16021#       发表于 2026-10-12 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70359903&amp;ptid=2275806" target="_blank">巨魔已被忠诚 发表于 2026-10-12 12:39</a>
+没什么用啊。
+现在的工程能力反而因为规范太多在查询过程中空转，整得和在欧盟开会推进具体项目落地一个 ...</blockquote>
+我一般只用 ADR 加 task 任务 加 agent.md 其他什么都不加… 先开一个写任务 人评审完后 再开一个线程来做任务
+
+而且如果出现冲突一般来说就要思考工作流是否要修改了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
