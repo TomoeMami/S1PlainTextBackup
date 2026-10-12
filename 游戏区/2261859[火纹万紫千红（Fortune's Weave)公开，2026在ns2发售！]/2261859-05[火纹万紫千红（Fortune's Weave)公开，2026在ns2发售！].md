@@ -14005,3 +14005,13 @@ HUXAQR4acAAWsWc.jpg
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  mario21a  
+##### 7165#       发表于 2026-10-13 00:47
+
+做了凯伊线后期一个任务才知道牢房深处关着霖多，话说前期就可以进牢房深处见他了吗？
+
+如果是的话那错过了不少对话<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
