@@ -13926,3 +13926,20 @@ HUXAQR4acAAWsWc.jpg
 
 不过像妮涅这种特殊小裙子转骑兵系的话就不能切回通用服装了 
 
+
+*****
+
+####  索非亚  
+##### 7160#       发表于 2026-10-12 23:09
+
+贫民区这一直有个守门杂兵，有没有相关事件？
+看胸前的徽章粉毛伯父家的杂兵也有人戴，但和看门的不是同一个人，不知道是不是杂兵通用建模。
+
+<img src="https://img.stage1st.com/forum/202610/12/230619v5zxpq1x1wwewxv0.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1791817578652_3.webp</strong> (92.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-12 23:06 上传
+
