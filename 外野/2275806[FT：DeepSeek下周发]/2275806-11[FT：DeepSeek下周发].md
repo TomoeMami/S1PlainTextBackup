@@ -14190,3 +14190,11 @@ b站挺多搞astra过杀戮尖塔2的, 最高思考档A10大概能有nosl 30%胜
 如果是pvp卡牌对现在的l ...</blockquote>
 nosl A10有30胜率很夸张了，我自己打sl都经常1层死掉
 
+
+*****
+
+####  cscbzcbz  
+##### 16037#       发表于 2026-10-12 16:44
+
+又是无事发生的一天，等周五<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

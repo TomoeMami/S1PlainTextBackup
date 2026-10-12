@@ -13543,3 +13543,18 @@ HUZsjhRaoAA_SmK.jpg
 黑皮但是并不辣妹的组合</blockquote>
 然后5年后巴西初音从涩谷系辣妹变成真脏辫黑人了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黛冬優子  
+##### 7125#       发表于 2026-10-12 16:50
+
+这次bgm真好听，远超前作了
+
+*****
+
+####  无色辉火  
+##### 7126#       发表于 2026-10-12 16:50
+
+小穆、缇雅拉和罗蕾塔能出个JC组合吗<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
