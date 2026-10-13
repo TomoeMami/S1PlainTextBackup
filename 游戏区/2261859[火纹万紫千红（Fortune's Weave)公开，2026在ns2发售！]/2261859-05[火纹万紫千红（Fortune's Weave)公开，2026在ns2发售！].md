@@ -15368,3 +15368,11 @@ IS的左右脑互搏
 没露脸只存在在对话里的人吧</blockquote>
 我还以为第三部的死人里我漏了谁呢，看来可能会是dlc出现的人物。
 
+
+*****
+
+####  シルフィエット  
+##### 7290#       发表于 2026-10-13 21:10
+
+奶龙真的凿到小姨子了吗，我看小姨子那装失忆不让碰的样子估计够呛啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
