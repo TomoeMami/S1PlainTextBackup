@@ -15192,3 +15192,27 @@ DS今天绝对有问题。。我一直用DS4.1跑酒馆。。今天晚上，蠢�
 复述SetSavedPoint这个判据真的有用吗？
 我试了下opencodego套餐的有时也是能识别到的，用官方api有时识别不到但是tok/s只有140
 
+
+*****
+
+####  nxmonitor  
+##### 16137#       发表于 2026-10-13 22:29
+
+看起来没用，但是突然降低的TPS不知道是为什么？难道是不同的卡的区别？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sunyalche  
+##### 16138#       发表于 2026-10-13 22:33
+
+难道是换了华为卡? 140也够用, 能再降点价就好了(
+
+
+*****
+
+####  cscbzcbz  
+##### 16139#       发表于 2026-10-13 22:34
+
+别猜了等周五看有没有大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在4.1f+kimi3我已经够用了，有更好的模型是好，别涨价就行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
