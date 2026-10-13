@@ -54,3 +54,15 @@ https://github.com/freefrank/LostOdysseyRecomp
 
 失落的奥德赛Recomp，马上1.0了
 
+
+*****
+
+####  atomicink  
+##### 62#       发表于 2026-10-13 16:36
+
+ 本帖最后由 atomicink 于 2026-10-13 16:37 编辑 
+
+被血缘安卓版刷屏了
+
+mac和ios那边有人搞了switch游戏的自动（？）移植，估计也要刷屏了
+
