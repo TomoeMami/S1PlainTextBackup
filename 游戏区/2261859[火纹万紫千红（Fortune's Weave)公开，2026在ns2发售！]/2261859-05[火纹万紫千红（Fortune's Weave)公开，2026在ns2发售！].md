@@ -15343,3 +15343,28 @@ IS的左右脑互搏
 
 没露脸只存在在对话里的人吧
 
+
+*****
+
+####  逆城的风  
+##### 7288#       发表于 2026-10-13 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361662&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-10-12 18:54</a>
+所以砍掉四个的方尖塔音乐会是什么乐器</blockquote>
+二胡，虚拟歌姬，三角铁，沙锤
+
+—— 来自 HUAWEI VOL-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  巴尔干炮  
+##### 7289#       发表于 2026-10-13 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367216&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-10-13 20:50</a>
+
+被巴恩巴恩干掉的那个？
+
+没露脸只存在在对话里的人吧</blockquote>
+我还以为第三部的死人里我漏了谁呢，看来可能会是dlc出现的人物。
+
