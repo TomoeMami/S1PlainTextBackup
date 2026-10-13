@@ -15299,3 +15299,23 @@ llama不知道哪里的路边
 GPT那么喜欢防御测试，但经常一开始就埋点雷，越做越错，最绝望的就是白白烧的token<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/35/e84c1d650ea683fb2e182d60a4fa4a3c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 16147#       发表于 2026-10-14 01:38
+
+最新爆料，Fable5.5本周发，Astra6.1这个月内发
+
+*****
+
+####  qwased  
+##### 16148#       发表于 2026-10-14 01:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368177&amp;ptid=2275806" target="_blank">unrealMeeSeeks 发表于 2026-10-14 01:19</a>
+
+GPT那么喜欢防御测试，但经常一开始就埋点雷，越做越错，最绝望的就是白白烧的token
+
+ ...</blockquote>
+小心他给你重置卡用了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
