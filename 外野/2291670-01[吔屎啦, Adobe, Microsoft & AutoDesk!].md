@@ -519,3 +519,43 @@ ai的屎山比 ...</blockquote>
 有没有人来把clip studio paint给逆向了，我不想每年给倭倭上供了<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 不过csp国际版最大价值其实是用户发的那些素材，弄免费版如果没法兼容正版csp的模型笔刷什么的好像也没太大意义，要建起来一个专门的用户分享社群也需要时间……
 
+
+*****
+
+####  碧空之歌P  
+##### 45#       发表于 2026-10-13 23:47
+
+游戏大厂会不会为了对抗反编译，在程序里猛猛加料让正版玩家被屎糊脸
+
+*****
+
+####  WiiGe  
+##### 46#         楼主| 发表于 2026-10-13 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367970&amp;ptid=2291670" target="_blank">碧空之歌P 发表于 2026-10-13 23:47</a>
+
+游戏大厂会不会为了对抗反编译，在程序里猛猛加料让正版玩家被屎糊脸</blockquote>
+D加密: 失去了过去的记忆吗哥哥? 我们一起回想起来吧
+
+
+*****
+
+####  一只优越Fa♂  
+##### 47#       发表于 2026-10-13 23:54
+
+word还是有问题，CC全家桶可以扔掉大半了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  WiiGe  
+##### 48#         楼主| 发表于 2026-10-13 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367987&amp;ptid=2291670" target="_blank">一只优越Fa♂ 发表于 2026-10-13 23:54</a>
+
+word还是有问题，CC全家桶可以扔掉大半了
+
+—— 来自 nubia NX809J, Android 16, 鹅球 v3.5.99 ...</blockquote>
+Bdobe Creative Claude 说是<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
