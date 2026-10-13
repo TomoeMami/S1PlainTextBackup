@@ -14362,3 +14362,16 @@ HUXAQR4acAAWsWc.jpg
 
 回第一部看了后打通，再跳过对应第二部，触发因果成立试试
 
+
+*****
+
+####  kelveen  
+##### 7195#       发表于 2026-10-13 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70363557&amp;ptid=2261859" target="_blank">苍蓝之枪 发表于 2026-10-13 10:30</a>
+
+送死改乱数表是什么原理？单纯从第一部第一章重开没用？</blockquote>
+自捏建号即锁乱数表，送了重捏才能开新的乱数。转职可以让乱数后移9位。
+
+我是觉得没太大必要，现在这个机制太麻烦了，玩女王魔比力高5点也不影响过关，可能等超难出来的时候会有一些机制上的补偿或者调整。
+
