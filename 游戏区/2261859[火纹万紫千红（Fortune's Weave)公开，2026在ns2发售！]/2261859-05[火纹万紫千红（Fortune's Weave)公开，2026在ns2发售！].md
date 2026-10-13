@@ -14419,3 +14419,37 @@ HUXAQR4acAAWsWc.jpg
 这是凹自捏吧，不凹自捏就没必要这么搞是吧</blockquote>
 所有人的乱数表都是跟着自捏走的，你不重捏就没法改。
 
+
+*****
+
+####  Jabeck  
+##### 7200#       发表于 2026-10-13 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70363424&amp;ptid=2261859" target="_blank">caps洛奇 发表于 2026-10-13 10:12</a>
+
+然而女王和莉莉安真就做了五年前后两套模型的支援
+
+再不济可以设计成“回忆”吗 或者类似全局好感度那种  ...</blockquote>
+那没辙，说明某些剧情在IS眼里只有第一部才适合发生。等哪一部工期充足了做差分了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fireadol  
+##### 7201#       发表于 2026-10-13 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70363899&amp;ptid=2261859" target="_blank">trotsky 发表于 2026-10-13 11:13</a>
+怪鸟很强，诺克裘拉在第一章打个拳也还行了</blockquote>
+弓手有佣兵姐都不用费心培养，诺克求拉收收残血还行，当个闪避T都勉强，到最后还是只有迪托初音能站前排<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  anyasora  
+##### 7202#       发表于 2026-10-13 11:48
+
+支援在第一部内也会锁 蕾达和巴卡尼亚/希洛可的C 好像在打凯伊之后就看不了了 我本来想一条线通完再慢慢看支援的 结果最后两章通完看见两个锁着的
+
+继承要重打这好几张几百回合啊。。放弃了 蕾达看着也比较女同就找奥琳匹亚/阿斯旺贴贴去算了
+
