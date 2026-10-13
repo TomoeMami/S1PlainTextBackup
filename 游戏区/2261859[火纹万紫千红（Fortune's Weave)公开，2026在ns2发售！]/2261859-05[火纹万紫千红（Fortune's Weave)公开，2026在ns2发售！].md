@@ -15494,3 +15494,11 @@ IS的左右脑互搏
 
 现实不是过家家，哪有那么多敌方老大犯蠢自己断自己粮的事。。。
 
+
+*****
+
+####  ParukiaMKII  
+##### 7301#       发表于 2026-10-13 23:27
+
+ 我第三章白发鬼叔叔打防御战，开了欧若拉加护被一个小兵2连秒了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
