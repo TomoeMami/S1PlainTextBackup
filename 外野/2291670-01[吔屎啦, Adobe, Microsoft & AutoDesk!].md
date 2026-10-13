@@ -559,3 +559,22 @@ word还是有问题，CC全家桶可以扔掉大半了
 —— 来自 nubia NX809J, Android 16, 鹅球 v3.5.99 ...</blockquote>
 Bdobe Creative Claude 说是<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WiiGe  
+##### 49#         楼主| 发表于 2026-10-14 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367824&amp;ptid=2291670" target="_blank">Demi.Albertini 发表于 2026-10-13 23:05</a>
+
+有中文吗？？？？</blockquote>
+正在翻
+
+<img src="https://img.stage1st.com/forum/202610/14/000116kr426jkkws468rr5.png" referrerpolicy="no-referrer">
+
+<strong>23f54313-ffed-4704-bd72-b53c5c0faac7.png</strong> (110.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 00:01 上传
+

@@ -15502,3 +15502,19 @@ IS的左右脑互搏
 
  我第三章白发鬼叔叔打防御战，开了欧若拉加护被一个小兵2连秒了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Humpy  
+##### 7302#       发表于 2026-10-13 23:54
+
+想开始玩玩战车了，短弓是优良武器箱出吗……
+
+
+*****
+
+####  Losange  
+##### 7303#       发表于 2026-10-14 00:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">对 优良武器箱 高级箱是投枪雷电剑 
+
