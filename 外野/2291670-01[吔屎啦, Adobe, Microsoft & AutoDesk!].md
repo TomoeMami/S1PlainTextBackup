@@ -695,3 +695,23 @@ csp我本身就用的折腾版倒无所谓，我觉得挺好用的<img src="http
 
 一方面是过去码农重复造了太多轮子和模块化了太多实体题，而且很多小东西包括传统办公软件都有开源版本，这些都让AI得了便宜，等于一个刷满了题的实习生。。。你让高考数学状元别的不说，做数学题效率是杠杠的。
 
+
+*****
+
+####  WiiGe  
+##### 62#         楼主| 发表于 2026-10-14 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368125&amp;ptid=2291670" target="_blank">炎壁 发表于 2026-10-14 00:51</a>
+
+有adobe Acrobat DC吗？公司因为版权问题不给装盗版，但是又要处理很多pdf    Re:Source ...</blockquote>
+PDFCraft, 能编辑, 能E签
+
+*****
+
+####  jojog  
+##### 63#       发表于 2026-10-14 01:03
+
+内存管理不知道如何
+
+开个几百m的图就要崩的话真替代不了ps啊……
+
