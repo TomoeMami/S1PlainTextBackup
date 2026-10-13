@@ -497,3 +497,25 @@ solidworks也来一下</blockquote>
 
 还没合到主仓库, 但已经架上枪了: [https://github.com/bherbruck/solidcraft](https://github.com/bherbruck/solidcraft)
 
+
+*****
+
+####  simonroam  
+##### 43#       发表于 2026-10-13 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367930&amp;ptid=2291670" target="_blank">nukacolamania 发表于 2026-10-13 23:34</a>
+
+对于只会堆屎山把软件变得越来越臃肿残废不好用还想骗用户一辈子订阅费的程序员确实不是好事
+
+ai的屎山比 ...</blockquote>
+
+听说adobe的工作环境非常爽，顶级的work life balance，我想说的是以后这种工作就到头了吧
+
+*****
+
+####  羊寢  
+##### 44#       发表于 2026-10-13 23:40
+
+有没有人来把clip studio paint给逆向了，我不想每年给倭倭上供了<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+不过csp国际版最大价值其实是用户发的那些素材，弄免费版如果没法兼容正版csp的模型笔刷什么的好像也没太大意义，要建起来一个专门的用户分享社群也需要时间……
+

@@ -15226,3 +15226,19 @@ DS今天绝对有问题。。我一直用DS4.1跑酒馆。。今天晚上，蠢�
 难道是换了华为卡? 140也够用, 能再降点价就好了(</blockquote>
 我觉得这才是之前说的游戏卡部署的实际落地内容，不过肯定不是一张…
 
+
+*****
+
+####  jinuzuktII  
+##### 16141#       发表于 2026-10-13 23:44
+
+来了来了
+
+<img src="https://img.stage1st.com/forum/202610/13/234410ypl0tst32o0opgky.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (20.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 23:44 上传
+
