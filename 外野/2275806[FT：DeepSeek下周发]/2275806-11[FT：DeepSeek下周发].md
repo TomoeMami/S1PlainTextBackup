@@ -14970,3 +14970,24 @@ GPT的前端审美确实不行，到处塞文字+莫名其妙的五颜六色，�
 
 测了一下更倾向于一个新的检查点，稳定了不少…
 
+
+*****
+
+####  BarricadeMKXX  
+##### 16116#       发表于 2026-10-13 18:38
+
+ 本帖最后由 BarricadeMKXX 于 2026-10-13 18:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70365598&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-13 15:43</a>
+那账号安全保证啊，我淘宝买的号被封了一个了
+
+自己注册用国际信用卡直接付款吗？o家封不封中国ip？ ...</blockquote>
+我之前应该在楼里回过
+googleplay外区账号绑自己信用卡（国内发行的visa/mastercard即可），下载chatgpt app，在里面内购plus，要买pro的话买完plus会显示出来升级选项
+之后开codex用谷歌号登录，已经充钱的号大概率不会要你外区手机号了
+
+（网页买的话填卡号大概率报错，猜测是检查到发卡行在国内就拦了）
+
+我没有苹果设备，不过流程差不多，也是外区苹果商店转一道手
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

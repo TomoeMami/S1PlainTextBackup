@@ -6246,10 +6246,10 @@
     "update": false
   },
   "2071122": {
-    "totalreply": 3725,
+    "totalreply": 3726,
     "title": "[龙之信条 十周年 《龙之信条 2》正式发表，PV1公开！]",
     "newtitle": "[《龙之信条2》专楼 ／ DLC 2026年10月9日推出]",
-    "lastedit": 1791885007,
+    "lastedit": 1791888007,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 16115,
+    "totalreply": 16116,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[OPENAI数学氢弹雨来袭 ｜ 大模型讨论专楼]",
-    "lastedit": 1791887772,
+    "lastedit": 1791888008,
     "category": "外野",
     "active": true,
     "update": false
@@ -13068,10 +13068,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 42588,
+    "totalreply": 42589,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1791886811,
+    "lastedit": 1791888006,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14489,15 +14489,6 @@
     "active": false,
     "update": false
   },
-  "2290629": {
-    "totalreply": 53,
-    "title": "[因为黄女配黄男这件事，白男破防了]",
-    "newtitle": "[因为黄女配黄男这件事，白男破防了]",
-    "lastedit": 1790678287,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2290642": {
     "totalreply": 73,
     "title": "[回顾仁王1，有点佩服当年能玩下去的人]",
@@ -14557,15 +14548,6 @@
     "title": "[第一次，对一个国内运动员产生巨大的心理厌恶]",
     "newtitle": "[第一次，对一个国内运动员产生巨大的心理厌恶]",
     "lastedit": 1791184087,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2290685": {
-    "totalreply": 133,
-    "title": "[国庆问题，孙中山为什么是国父]",
-    "newtitle": "[国庆问题，孙中山为什么是国父]",
-    "lastedit": 1790678287,
     "category": "外野",
     "active": false,
     "update": false
@@ -15287,7 +15269,7 @@
     "newtitle": "[印度专楼（南亚神奇故事收录楼）]",
     "lastedit": 1791628809,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2256342": {
@@ -16808,7 +16790,7 @@
     "newtitle": "[烧了50亿token还没升级完前端]",
     "lastedit": 1791628808,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2291378": {
@@ -17451,19 +17433,19 @@
     "update": false
   },
   "2291589": {
-    "totalreply": 266,
+    "totalreply": 267,
     "title": "[华为回应尊界V800踏板断裂：施加3000N力后无断裂]",
     "newtitle": "[华为尊界回应V800踏板断裂：施加3000N力后无断裂]",
-    "lastedit": 1791887770,
+    "lastedit": 1791888365,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2291062": {
-    "totalreply": 52,
+    "totalreply": 53,
     "title": "[鲁鲁修开播20年了，大家最初的印象是什么]",
     "newtitle": "[鲁鲁修开播20年了，大家最初的印象是什么]",
-    "lastedit": 1791887645,
+    "lastedit": 1791888248,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17564,6 +17546,15 @@
     "newtitle": "[银松镇挺不错的，2D版寂静岭2]",
     "lastedit": 1791886812,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2291621": {
+    "totalreply": 42,
+    "title": "[韩华向美军交付K9MH卡车炮，命名为XM1776]",
+    "newtitle": "[韩华向美军交付K9MH卡车炮，命名为XM1776]",
+    "lastedit": 1791888008,
+    "category": "外野",
     "active": true,
     "update": false
   }
