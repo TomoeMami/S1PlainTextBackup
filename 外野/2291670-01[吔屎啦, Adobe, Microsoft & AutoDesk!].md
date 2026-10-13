@@ -597,3 +597,26 @@ Bdobe Creative Claude 说是<img src="https://static.stage1st.com/image/smiley/f
 唯一的不足就是要注册账号登录</blockquote>
 本地运行并不需要
 
+
+*****
+
+####  WiiGe  
+##### 52#         楼主| 发表于 2026-10-14 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367949&amp;ptid=2291670" target="_blank">羊寢 发表于 2026-10-13 23:40</a>
+
+有没有人来把clip studio paint给逆向了，我不想每年给倭倭上供了
+
+不过csp国际版最大价值其实是用户发的那 ...</blockquote>
+CSP国行那才叫一个恶心, 我看Discord里已经在讨论搞传统动画软件了, 暂定叫 ToonCraft
+
+感觉CSP也快了
+
+
+*****
+
+####  chuchoselph  
+##### 53#       发表于 2026-10-14 00:25
+
+已经爽用一周了，感觉比affinity还顺手，好时代，来临力<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

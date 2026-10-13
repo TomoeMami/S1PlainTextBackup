@@ -1618,3 +1618,13 @@ CROSS DIMENSION 0079送的SSR驾驶员是不是有BUG....只能在驾驶员列�
 
 这游戏对重氪来说还是有那么一点恶心的
 
+
+*****
+
+####  一个陆仁贾  
+##### 4855#       发表于 2026-10-14 00:19
+
+我排名第一的机体是sp的sr自由和黄ur鸡神<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
