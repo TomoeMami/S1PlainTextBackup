@@ -620,3 +620,20 @@ CSP国行那才叫一个恶心, 我看Discord里已经在讨论搞传统动画�
 
 已经爽用一周了，感觉比affinity还顺手，好时代，来临力<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 54#       发表于 2026-10-14 00:31
+
+即使是有AI的帮助，能搓出这么多与商业软件功能相同的开源软件，也太惊人了。
+
+*****
+
+####  狼崽随心贴  
+##### 55#       发表于 2026-10-14 00:32
+
+我记得之前好像说哪个爷青回级别的手游有人拿ai复刻了一部分 还在进行中
+
+梅露可物语？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
