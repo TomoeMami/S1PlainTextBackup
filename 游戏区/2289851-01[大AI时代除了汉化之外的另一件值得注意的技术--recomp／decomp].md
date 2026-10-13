@@ -44,3 +44,13 @@ https://www.youtube.com/watch ...</blockquote>
 
 不过现在貌似还没有ps2游戏recomp的成熟案例, 我真想在psv上玩ps2的机战啊....
 
+
+*****
+
+####  huge_cat  
+##### 61#       发表于 2026-10-13 15:14
+
+https://github.com/freefrank/LostOdysseyRecomp
+
+失落的奥德赛Recomp，马上1.0了
+

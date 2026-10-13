@@ -14712,3 +14712,68 @@ PTC模式到底是啥？比标准模式好用？AI解释半天也没看懂
 
 发送一段带有 popleft() 方法的代码段让它检查问题，它总会在 popleft() 的拼写上纠结一会儿，彷佛觉得并没有这个方法。
 
+
+*****
+
+####  hugosol  
+##### 16091#       发表于 2026-10-13 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70365108&amp;ptid=2275806" target="_blank">lubo 发表于 2026-10-13 14:24</a>
+
+Grok bot现在最大的亮点是不需要折腾网络环境的Opus5.5吧。 之前还可以创建本地Bot，通过给系统打补丁， ...</blockquote>
+用grokbot上A家的模型也太……曲线救国了，A畜这态度我是不想给他送钱的
+
+我纯粹是对这个产品形态感兴趣，之前看uncle bob天天在x上吹这玩意<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hattle  
+##### 16092#       发表于 2026-10-13 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70365228&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-13 14:42</a>
+
+PTC模式到底是啥？比标准模式好用？AI解释半天也没看懂</blockquote>
+会把一堆的操作组合起来，比如你要编辑一个文本的第1,33,678,1234行。标准模式是 分四步走，每一行调用一次 edit方法，PTC 就是 他本地写个 batchEdit 方法，在这个方法里把四个修改统一处理，这样能减少上下文和一些其他开销。
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 16093#       发表于 2026-10-13 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70365148&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-13 14:29</a>
+想问下各位，如果我想偶尔用下gpt出方案，让大鲸鱼干活的话，有什么便宜的中转站或者方案吗？
+
+一些日常小 ...</blockquote>
+Plus订阅呗，20美元一个月
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tonyunreal  
+##### 16094#       发表于 2026-10-13 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70365228&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-13 14:42</a>
+
+PTC模式到底是啥？比标准模式好用？AI解释半天也没看懂</blockquote>
+不是PTC模式好用，是大肥鱼后训练有问题，极简和普通模式有概率进入降智思维链
+
+PTC模式平均能力更低但是不容易触发降智思维链，是大肥鱼特有的特征
+
+*****
+
+####  绿色食品  
+##### 16095#       发表于 2026-10-13 15:13
+
+说好的opus5.5薄纱6.1sol呢  怎么sol老是断连
+
+*****
+
+####  rayaxu  
+##### 16096#       发表于 2026-10-13 15:14
+
+6.1sol现在是在太慢了，我plus问个问题快半小时了就用了我5%不到的5小时用量
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
