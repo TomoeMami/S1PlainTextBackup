@@ -15421,3 +15421,18 @@ pro用户反重力不支持
 
 现在倒是感觉边际效应越来越明显，手头的工作用Astra和用几个头部开源的差距拉不开，不像年初那种差别过大。国模再迭代两个版本估计能完全满足我的需求了。
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 16159#       发表于 2026-10-14 03:42
+
+印度pro推送argon了，试了一下，文笔和玩梗能力依然惊人，不过好像argon世界知识不如3.1pro猛，测试了一下之前问pro的小众问题，argon不联网答不上来
+
+*****
+
+####  UmarIbnLaAhad  
+##### 16160#       发表于 2026-10-14 03:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确认了，同一个对话，argon答不上来的切3.1pro再想一轮又是秒杀
+
