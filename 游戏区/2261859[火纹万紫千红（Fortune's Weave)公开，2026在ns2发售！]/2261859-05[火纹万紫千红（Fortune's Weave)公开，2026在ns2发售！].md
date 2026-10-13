@@ -14218,3 +14218,22 @@ HUXAQR4acAAWsWc.jpg
 
 不过这关要敌全灭也不太容易，最终防线的栅栏一旦破掉，哪怕是被对面大象冲破的，霖多马上就会开始主动攻击，没办法处理其他敌人了
 
+
+*****
+
+####  caps洛奇  
+##### 7182#       发表于 2026-10-13 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70363215&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-13 09:28</a>
+
+大概需要你第一部看完了C之后继续打通，然后再打第二部或者skip？</blockquote>
+等我正常通关一遍然后再死马当活马医试试这招吧 唉<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 7183#       发表于 2026-10-13 09:42
+
+仔细一想战争篇的敌全灭难度都比单纯过关难不少，只有第一关和第五关是容易敌全灭的，最后一关更是数值怪惹不起
+
