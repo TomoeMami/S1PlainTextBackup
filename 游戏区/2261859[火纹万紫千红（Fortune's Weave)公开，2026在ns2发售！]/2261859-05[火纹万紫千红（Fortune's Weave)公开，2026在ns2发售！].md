@@ -15459,3 +15459,11 @@ IS的左右脑互搏
 
 —— 来自 nubia NX733J, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nancygreenlife  
+##### 7298#       发表于 2026-10-13 23:04
+
+都玩得挺快啊，就我是220小时才通关一周目吗？
+
