@@ -15436,3 +15436,13 @@ pro用户反重力不支持
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确认了，同一个对话，argon答不上来的切3.1pro再想一轮又是秒杀
 
+
+*****
+
+####  qwased  
+##### 16161#       发表于 2026-10-14 03:47
+
+网页端有哈基米4了
+
+玩了一下语言表达能力非常不错，说的是人话，比其他代码专精模型强多了
+
