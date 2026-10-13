@@ -14485,3 +14485,30 @@ ms 不作为的话就是个极其 dirty 的工作，只能让老崔他们慢慢�
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  UncleDracula  
+##### 16069#       发表于 2026-10-13 12:02
+
+<img src="https://img.stage1st.com/forum/202610/13/120201xdqcsuvy1xsu41qy.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (110.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 12:02 上传
+
+为何思维链是这样的？你们有这种情况吗？CodeBuddy的4.1F
+
+*****
+
+####  umamusume  
+##### 16070#       发表于 2026-10-13 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70364332&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-13 12:02</a>
+为何思维链是这样的？你们有这种情况吗？CodeBuddy的4.1F</blockquote>
+扔了换会话，这个session没救了
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
