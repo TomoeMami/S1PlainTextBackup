@@ -249,3 +249,15 @@ live.shmilyhua.com
 
 1:23:58-1:25:42 ★（特别推荐） 17. 梦灯笼 / 夢灯籠 / RADWIMPS（动画电影《你的名字。》片头曲）
 
+
+*****
+
+####  术士q  
+##### 21155#       发表于 2026-10-14 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367982&amp;ptid=2018830" target="_blank">shmilyhua 发表于 2026-10-13 23:52</a>
+关于信息聚合，这两天又狠狠地蹬了Gemini，做了从TG接收消息并分类显示的网页，因为做了实时刷新，就我个人 ...</blockquote>
+第一反应是感觉手机上看比电脑上看舒服一点(
+
+话说是开发调试使用嘛，对于信息汇总和分类确实会方便好多，不过感觉很多人用bot也是因为能及时收到通知知道咩有动静/开播了，而qq是一个会习惯性检查的地方，所以感觉好像定位不太一样
+
