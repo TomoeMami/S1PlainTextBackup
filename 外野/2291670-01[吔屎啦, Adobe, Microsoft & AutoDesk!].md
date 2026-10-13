@@ -715,3 +715,26 @@ PDFCraft, 能编辑, 能E签
 
 开个几百m的图就要崩的话真替代不了ps啊……
 
+
+*****
+
+####  omnitoken  
+##### 64#       发表于 2026-10-14 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368150&amp;ptid=2291670" target="_blank">jojog 发表于 2026-10-14 01:03</a>
+内存管理不知道如何
+
+开个几百m的图就要崩的话真替代不了ps啊……</blockquote>
+编程界原神rust了解一下 可能会有bug成品最后搞不好内存占用更少
+
+<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  二十二颗牛油果  
+##### 65#       发表于 2026-10-14 01:12
+
+photocraft的那些修补工具功能目前还没出只有占位符吗
+
