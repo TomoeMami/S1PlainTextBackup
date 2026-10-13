@@ -738,3 +738,48 @@ PDFCraft, 能编辑, 能E签
 
 photocraft的那些修补工具功能目前还没出只有占位符吗
 
+
+*****
+
+####  伽蓝寺  
+##### 66#       发表于 2026-10-14 01:29
+
+啥时候把jerbrain系也重构一个，虽然人家源码也开放来着
+
+*****
+
+####  坏掉了  
+##### 67#       发表于 2026-10-14 01:30
+
+能反编各windwos出来么
+
+*****
+
+####  alitonz  
+##### 68#       发表于 2026-10-14 01:31
+
+净逆向些没用的，我的免费虚幻6呢？<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+（我知道只有5）
+
+
+*****
+
+####  cscnake  
+##### 69#       发表于 2026-10-14 01:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367855&amp;ptid=2291670" target="_blank">张小狗 发表于 2026-10-13 23:12</a>
+
+不行，解raw会有杂色    Re:Source</blockquote>
+是不是解的时候没有套lens profile来矫正啊？还是说这个软件现在还不支持这功能
+
+*****
+
+####  看穿一切的鱼  
+##### 70#       发表于 2026-10-14 01:35
+
+支持正义执行，订阅制就是该死<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+当然超高价买断制也是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
