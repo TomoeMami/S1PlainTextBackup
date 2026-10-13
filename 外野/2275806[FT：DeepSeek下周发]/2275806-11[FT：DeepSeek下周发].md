@@ -14777,3 +14777,27 @@ PTC模式平均能力更低但是不容易触发降智思维链，是大肥鱼�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  绿色食品  
+##### 16097#       发表于 2026-10-13 15:20
+
+Selected model is at capacity. Please try a different model.Selected model is at capacity. Please try a different model.我百万卡集群呢 救一下啊
+
+*****
+
+####  qwased  
+##### 16098#       发表于 2026-10-13 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70365286&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-10-13 14:51</a>
+
+最近发现了一个很好玩的现象，DeepSeek V4.1f 对于 Python deque 的 popleft() 方法天生不信任。
+
+发送一段 ...</blockquote>
+就是前几天字节那个DSV4架构缺陷导致幻觉的论文
+
+我也遇到过好几次，ninfer他会反复拼成infer然后报错，他再改，又错了，然后自己思维链里面拼写好几次才能打对
+
+加一点无关紧要的废话让token位置错开可能就好了
+
