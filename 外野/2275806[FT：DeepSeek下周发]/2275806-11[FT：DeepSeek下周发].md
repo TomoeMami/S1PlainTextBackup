@@ -14907,3 +14907,11 @@ b865906c4792af93170dbaa59d34dbcc.jpg
 
 <img src="https://img.stage1st.com/forum/202610/13/172415cgkleuetikn17imi.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hattle  
+##### 16109#       发表于 2026-10-13 17:28
+
+离上次模型发布已经过去1个月了，梁子该拿出点新东西了
+
