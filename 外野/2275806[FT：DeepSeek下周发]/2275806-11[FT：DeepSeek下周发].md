@@ -15014,3 +15014,30 @@ googleplay外区账号绑自己信用卡（国内发行的visa/mastercard即可�
 据说是悄悄换了4.1mini测试....测试你们感觉的出来不如果是真的，这才是今年最大的核弹。 ...</blockquote>
 mini模型之前ds官方不是说是谣言了吗
 
+
+*****
+
+####  qwased  
+##### 16119#       发表于 2026-10-13 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70366627&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-13 18:56</a>
+
+为什么这是“最”大的？这个“最”把4.1-flash和4pro也涵盖进去了吗？
+
+意思是智力方面mini &gt; flash吗？
+
+ ...</blockquote>
+qwen3.8 flash next证明了新架构加持下普通游戏电脑（64G+16G）都能运行一个60~200tps、智力在opus4.6~4.8之间的模型
+
+而DS的训练配方大概率是比qwen好的，如果DS想做，那上下限都会比QWEN强<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Promeus  
+##### 16120#       发表于 2026-10-13 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70366629&amp;ptid=2275806" target="_blank">serj005 发表于 2026-10-13 18:57</a>
+mini模型之前ds官方不是说是谣言了吗</blockquote>
+这是指泄露的招标讲话里提到的可以用游戏电脑跑的模型
+
