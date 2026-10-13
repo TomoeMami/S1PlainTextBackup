@@ -15049,3 +15049,28 @@ mini模型之前ds官方不是说是谣言了吗</blockquote>
 
 当初上41F的时候就说是个中间检查点，现在要出货多半是新检查点。国内的算力大模型快不了，能加快迭代Flash模型也不错。
 
+
+*****
+
+####  overflowal  
+##### 16122#       发表于 2026-10-13 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70366787&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-13 19:26</a>
+当初上41F的时候就说是个中间检查点，现在要出货多半是新检查点。国内的算力大模型快不了，能加快迭代Flash ...</blockquote>
+并没有说是中间检查点。说是中间检查点的是公开测试时的那个    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  startraveller  
+##### 16123#       发表于 2026-10-13 19:34
+
+晚上Gemini 4也要来了
+
+
+*****
+
+####  frankCC  
+##### 16124#       发表于 2026-10-13 19:34
+
+6.1sol慢得简直不是人用的，我现在都是astra做规划和review，v41f执行了。手上也暂时没有大到超出能力的项目。
+
