@@ -15369,3 +15369,22 @@ gemini4正式推送给Pro用户了，有人尝鲜测试么？<img src="https://s
 gemini4正式推送给Pro用户了，有人尝鲜测试么？</blockquote>
 只给ultra
 
+
+*****
+
+####  陈八尺  
+##### 16154#       发表于 2026-10-14 02:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368284&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-14 02:31</a>
+只给ultra</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/14/024721xz2p4h3rq40nkpnz.png" referrerpolicy="no-referrer">
+
+<strong>img_3344.png</strong> (842.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 02:47 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

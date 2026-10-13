@@ -261,3 +261,21 @@ live.shmilyhua.com
 
 话说是开发调试使用嘛，对于信息汇总和分类确实会方便好多，不过感觉很多人用bot也是因为能及时收到通知知道咩有动静/开播了，而qq是一个会习惯性检查的地方，所以感觉好像定位不太一样
 
+
+*****
+
+####  shmilyhua  
+##### 21156#       发表于 2026-10-14 02:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368232&amp;ptid=2018830" target="_blank">术士q 发表于 2026-10-14 01:48</a>
+第一反应是感觉手机上看比电脑上看舒服一点(
+
+话说是开发调试使用嘛，对于信息汇总和分类确实会方便好多 ...</blockquote>
+手机上应该显示宽度比web切成五份要好一些，看着是更舒服，我再考虑一下。前端还是太复杂了。
+
+其实只是个人更偏好web，现在在用的tg/qq/discord/feishu都是竖向信息流，密度太低，想要一个一眼能看到近期各类内容的平台。
+
+暂时只是做着玩的个人自用，进一步完善优化后再发到频道吧大概。
+
+—— 来自 Google Pixel 9 Pro XL, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
