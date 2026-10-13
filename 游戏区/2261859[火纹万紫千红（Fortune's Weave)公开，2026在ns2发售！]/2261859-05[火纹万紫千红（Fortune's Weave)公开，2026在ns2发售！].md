@@ -14296,3 +14296,28 @@ HUXAQR4acAAWsWc.jpg
 
 不过月老锁这种三房DLC就有的东西 这次依然没有第一时间加入 很难说他们思维正不正常<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  没取名啊  
+##### 7189#       发表于 2026-10-13 10:23
+
+支援锁这种事，你在支援界面把条件标出来就好了，想刷的人虽然麻烦也自然会去刷
+纯锁着让人猜条件那就只能随缘了
+
+*****
+
+####  mai6696  
+##### 7190#       发表于 2026-10-13 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70363424&amp;ptid=2261859" target="_blank">caps洛奇 发表于 2026-10-13 10:12</a>
+
+然而女王和莉莉安真就做了五年前后两套模型的支援
+
+再不济可以设计成“回忆”吗 或者类似全局好感度那种  ...</blockquote>
+换个模型完全不是问题，问题在于角色关系的改变。
+
+你想杰斯塔小丑，五年前是伪装潜入，自然可以和但丁、哈尔温聊表演啊，马戏团的事儿。
+
+五年后他都不伪装了你能让他聊相同内容吗？
+

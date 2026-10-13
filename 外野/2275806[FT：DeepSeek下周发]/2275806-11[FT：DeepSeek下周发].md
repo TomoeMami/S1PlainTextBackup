@@ -14464,3 +14464,14 @@ dsh前段时间更新之后项目文件夹不给完全控制就会被标记成�
 
 每次调用播放器都会给我调出一个全初始化设置的播放器。
 
+
+*****
+
+####  舞以  
+##### 16067#       发表于 2026-10-13 10:17
+
+桌面端沙箱会让人不幸<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+ms 不作为的话就是个极其 dirty 的工作，只能让老崔他们慢慢磨了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
