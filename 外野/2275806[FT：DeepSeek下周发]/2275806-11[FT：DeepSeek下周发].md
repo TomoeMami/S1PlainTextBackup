@@ -14674,3 +14674,21 @@ Grok bot现在最大的亮点是不需要折腾网络环境的Opus5.5吧。 之�
 
 一些日常小事和自己的一些实践，我现在一天大约跑不到1亿tokens
 
+
+*****
+
+####  UncleDracula  
+##### 16087#       发表于 2026-10-13 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70365070&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-10-13 14:17</a>
+
+DSH 干了一天 花了 commandCode  1B 的 4.1Flash token ，感觉只要模块设计好了，让大肥鱼全力干也不是不 ...</blockquote>
+PTC模式到底是啥？比标准模式好用？AI解释半天也没看懂
+
+*****
+
+####  chaoswing  
+##### 16088#       发表于 2026-10-13 14:42
+
+我已经懒得管重置预测了，就按自己的步调用，用少了不心疼，用多了花credits
+
