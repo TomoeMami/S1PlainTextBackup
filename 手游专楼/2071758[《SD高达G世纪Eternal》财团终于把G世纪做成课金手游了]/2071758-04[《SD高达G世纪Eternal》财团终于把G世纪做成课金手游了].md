@@ -1570,3 +1570,27 @@ CROSS DIMENSION 0079送的SSR驾驶员是不是有BUG....只能在驾驶员列�
 —— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99</blockquote>
 不知道，我反正是越来越懒了，强敌LV20都懒得打，反正放着钻也不会消失，等要挖了再说吧，至于大师联盟也是保底就行了的态度
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4852#       发表于 2026-10-13 21:25
+
+<img src="https://img.stage1st.com/forum/202610/13/212528ion8yu6yu9bygrzb.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20261013-212048-744.png</strong> (455.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 21:25 上传
+
+<img src="https://img.stage1st.com/forum/202610/13/212528dsks0ujkqqiqusqq.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20261013-212153-632.png</strong> (387.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 21:25 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可以说是相当出乎意料了
+
