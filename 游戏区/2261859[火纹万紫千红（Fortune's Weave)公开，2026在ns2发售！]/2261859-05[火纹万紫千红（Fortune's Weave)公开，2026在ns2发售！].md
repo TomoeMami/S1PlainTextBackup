@@ -15202,3 +15202,15 @@ a少能学到一个自带净化特效的拳套特技
 
 索雷尔凿小姨子关我伊修马尔什么事，我已经和老婆手下的绿头发老女人五世告白了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  trotsky  
+##### 7275#       发表于 2026-10-13 17:57
+
+奶龙和马兹剧情里都说过好几次交给天意了吧，明着说摆烂<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+而且奶龙其实是既没能力（打不过巨人）又没势力（手下都被莱拉亲完了，调查个修道会都得亲力亲为潜入搞），他爹有能力有势力还被莱拉当条狗一样玩，属于是家族遗传了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

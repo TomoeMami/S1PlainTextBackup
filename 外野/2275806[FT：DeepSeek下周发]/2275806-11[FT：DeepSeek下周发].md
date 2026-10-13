@@ -14934,3 +14934,21 @@ b865906c4792af93170dbaa59d34dbcc.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Sunyalche  
+##### 16112#       发表于 2026-10-13 17:58
+
+4.1F现在够用了, 别再端出来个4pro的烂活就行
+
+*****
+
+####  Steel.Haze  
+##### 16113#       发表于 2026-10-13 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70365991&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-13 16:45</a>
+
+外网在说DS4.1Flash悄悄升级了？</blockquote>
+据说是悄悄换了4.1mini测试....测试你们感觉的出来不<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
