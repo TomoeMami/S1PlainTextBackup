@@ -637,3 +637,11 @@ CSP国行那才叫一个恶心, 我看Discord里已经在讨论搞传统动画�
 
 梅露可物语？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak123  
+##### 56#       发表于 2026-10-14 00:45
+
+所以修图调色打印支持和ps一样准么，准的话我就换了<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

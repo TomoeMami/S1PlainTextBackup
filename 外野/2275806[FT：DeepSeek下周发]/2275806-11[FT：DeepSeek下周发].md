@@ -15242,3 +15242,16 @@ DS今天绝对有问题。。我一直用DS4.1跑酒馆。。今天晚上，蠢�
 
 2026-10-13 23:44 上传
 
+
+*****
+
+####  evaqyqx  
+##### 16142#       发表于 2026-10-14 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367003&amp;ptid=2275806" target="_blank">jojog 发表于 2026-10-13 20:10</a>
+
+character.ai直接死了？
+
+莫非陪伴类的泡沫也要直接爆了</blockquote>
+什么情况
+

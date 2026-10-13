@@ -15548,3 +15548,17 @@ IS的左右脑互搏
 
 也可能西洛克从小就喜欢大的，对这时还是小小的蕾达没啥兴趣。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PigMourne  
+##### 7306#       发表于 2026-10-14 00:34
+
+ 本帖最后由 PigMourne 于 2026-10-14 00:38 编辑 
+
+服了呀，第三部这个不停刷新的野怪挡路也太耗费回合了，地图上还有好多抓好的马和菜等着我去收，冥界门附近的瘴气每个都要点3下才消，根本不想留队在家附近清兵。
+
+然后我就发现等敌人到老家的防守战并不是主角本人，还可以选11个家里的板凳上场，这不是反而变成了练级沙包<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，而且极度适合练大象和重装，卡住位置只要npc不死，就能慢慢刮涨熟练度。甚至队友也不会死亡，派几个飞天拼死法师，剩下全是经验包
+
+就是通关时长又拉长了，本来只用速决战打掉的野怪，到家里就变成实地战棋，而且每波一场<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
