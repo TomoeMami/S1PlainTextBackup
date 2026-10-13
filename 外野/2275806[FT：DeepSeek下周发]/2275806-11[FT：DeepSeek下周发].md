@@ -15342,3 +15342,11 @@ cat jam free超级快啊 快到我都没法判断他的能力是强还是弱了�
 同时即没有非国产（立刻调用memory mcp ...</blockquote>
 硬是没看懂你在说什么<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer"> “同时即没有非国产（立刻调用memory mcp）的痕迹 ”是啥意思
 
+
+*****
+
+####  RookieTnT  
+##### 16151#       发表于 2026-10-14 02:14
+
+Tibo 无节制的重置，势必会导致运营成本的上涨，只能通过削减额度或提高模型定价来平衡。这又导致如果不重置，订阅的性价比就很低。而频繁重置，又打乱用户的正常使用节奏。这就是平庸之恶，一个重置引起的连锁反应。
+

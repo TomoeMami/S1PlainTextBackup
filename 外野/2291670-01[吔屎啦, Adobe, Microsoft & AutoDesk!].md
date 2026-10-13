@@ -791,3 +791,13 @@ photocraft的那些修补工具功能目前还没出只有占位符吗
 
 AI编程的一个正确用法啊，哈哈
 
+
+*****
+
+####  长征5号  
+##### 72#       发表于 2026-10-14 02:19
+
+用AI反编译个windows出来，国产桌面操作系统几十年短板直接拉平<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
