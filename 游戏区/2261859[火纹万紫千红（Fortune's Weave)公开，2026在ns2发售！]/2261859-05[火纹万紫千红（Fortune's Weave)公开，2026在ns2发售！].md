@@ -14094,3 +14094,21 @@ HUXAQR4acAAWsWc.jpg
 
 我说真有这种家里人全噶了还能作战的军队吗？还是说军队都是臭外地的？
 
+
+*****
+
+####  trotsky  
+##### 7172#       发表于 2026-10-13 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70362966&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-13 08:33</a>
+昨天一整天也没打完第二部。
+
+援军是真离谱吧。
+
+第四章那个大桥，神驼前面刷两只后面刷两只。清完了往前走， ...</blockquote>
+也可能都被莱拉亲过了，特别是大象<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+想起我第一次打战争篇，这场面还好是蕾达线
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
