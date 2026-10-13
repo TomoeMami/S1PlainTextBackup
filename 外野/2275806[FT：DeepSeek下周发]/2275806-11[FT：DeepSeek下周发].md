@@ -14626,3 +14626,41 @@ sol又capacity了 啥意思啊 只让看不让用?
 6.1sol codex显示当前模型已达到服务容量上限。。。这是全世界都在用力登么。。。 ...</blockquote>
 反正我plus觉得sol的用量和智力才是能用的起的 就是慢 但是快的astera也用不起 plus5h的量只够astera大人工作10分钟
 
+
+*****
+
+####  Hattle  
+##### 16083#       发表于 2026-10-13 14:17
+
+<img src="https://img.stage1st.com/forum/202610/13/141530fj9zjzha80003acu.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (24.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 14:15 上传
+
+ DSH 干了一天 花了 commandCode  1B 的 4.1Flash token ，感觉只要模块设计好了，让大肥鱼全力干也不是不可以
+
+*****
+
+####  nxmonitor  
+##### 16084#       发表于 2026-10-13 14:21
+
+6.1Sol绝对是那个Astra Mini，可能基模都是一样的，这当然会卡住了
+
+
+*****
+
+####  lubo  
+##### 16085#       发表于 2026-10-13 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70364873&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-13 13:38</a>
+
+Grok现在核心是在吹grokbot吧，但是只能用它家模型又是闭源的实在不想碰
+
+不过我现在自己已经有完整的局域网 ...</blockquote>
+Grok bot现在最大的亮点是不需要折腾网络环境的Opus5.5吧。 之前还可以创建本地Bot，通过给系统打补丁，把请求拦截给自定义模型。不过上月底更新后这条路被堵住，再加上系统更新太频繁，也就懒得继续折腾宿主补丁了。 
+
+现在换了个思路，给Bot接入社区做的Herdr插件，目前的流程是先跟Bot的Opus5.5讨论，Bot再通过Herdr把任务分发给别的agent
+
