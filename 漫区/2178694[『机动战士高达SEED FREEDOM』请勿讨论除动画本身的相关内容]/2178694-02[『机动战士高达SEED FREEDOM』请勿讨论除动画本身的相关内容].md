@@ -456,3 +456,14 @@ code gease系列出的新人物全是扶不起的阿斗，出这么多系列，�
 他不行是因为跟他对线的是另外俩主角啊
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  四毛流浪记  
+##### 2097#       发表于 2026-10-13 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70364541&amp;ptid=2178694" target="_blank">shinnluna 发表于 2026-10-13 12:36</a>
+
+没有魅力喷了，日本杂志又不是没做投票，除了鸡狼，不就是鸟排前面，除非鸡狼主角拍到死，SEED包括MSV， ...</blockquote>
+京宝梵算不算(
+
