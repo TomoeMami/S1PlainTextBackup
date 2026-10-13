@@ -15128,3 +15128,15 @@ cat jam free超级快啊 快到我都没法判断他的能力是强还是弱了�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  jojog  
+##### 16130#       发表于 2026-10-13 20:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+character.ai直接死了？
+
+莫非陪伴类的泡沫也要直接爆了
+
