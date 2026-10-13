@@ -15074,3 +15074,21 @@ mini模型之前ds官方不是说是谣言了吗</blockquote>
 
 6.1sol慢得简直不是人用的，我现在都是astra做规划和review，v41f执行了。手上也暂时没有大到超出能力的项目。
 
+
+*****
+
+####  med  
+##### 16125#       发表于 2026-10-13 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70366685&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-13 19:08</a>
+
+qwen3.8 flash next证明了新架构加持下普通游戏电脑（64G+16G）都能运行一个60~200tps、智力在opus4.6~4. ...</blockquote>
+不一定，小尺寸多模态这个生态位，就qwen一家。
+
+*****
+
+####  sql710  
+##### 16126#       发表于 2026-10-13 19:45
+
+6.1sol今天两次遇到服务器满了，<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，o/是在整什么大活么？
+
