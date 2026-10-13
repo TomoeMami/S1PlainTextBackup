@@ -14865,3 +14865,21 @@ Plus订阅呗，20美元一个月
 
 求问一下各位大佬，当前有除了command code以外支持哈基米的plan么？google的赠金快用完了，要找个替代
 
+
+*****
+
+####  zfy1989  
+##### 16105#       发表于 2026-10-13 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70366055&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-13 16:54</a>
+
+求问一下各位大佬，当前有除了command code以外支持哈基米的plan么？google的赠金快用完了，要找个替代 ...</blockquote>
+前面不是有个哥们做了比价嘛，用那个找一下
+
+*****
+
+####  jinuzuktII  
+##### 16106#       发表于 2026-10-13 17:15
+
+谷歌又搁那儿装腔作势，你倒是发模型呀，太小丑了
+
