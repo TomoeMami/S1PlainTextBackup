@@ -10,3 +10,22 @@ https://archive.org/details/@chun_s_ready-to-go_recomp_games
 
 —— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  泰坦失足  
+##### 59#       发表于 2026-10-13 13:15
+
+[ MONSTER HUNTER TRI] NEW PORT WII VERSION NATIVE PSVITA 60FPS #psvita
+[https://www.youtube.com/watch?v=SPP4wprGK-M](https://www.youtube.com/watch?v=SPP4wprGK-M)
+
+虽然不是PSP, 虽然不是P3G, 虽然来迟了十几年. 好歹也是上了不是吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/13/131530pgpgnpaema6n8a3g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (88.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 13:15 上传
+
