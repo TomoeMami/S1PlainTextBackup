@@ -14512,3 +14512,16 @@ ms 不作为的话就是个极其 dirty 的工作，只能让老崔他们慢慢�
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  eno_emos  
+##### 16071#       发表于 2026-10-13 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70364332&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-13 12:02</a>
+
+为何思维链是这样的？你们有这种情况吗？CodeBuddy的4.1F</blockquote>
+我自己架网关的时候碰到这个情况，诊断出来是上文和思维链没回灌
+
+codebuddy就不知道什么情况了
+
