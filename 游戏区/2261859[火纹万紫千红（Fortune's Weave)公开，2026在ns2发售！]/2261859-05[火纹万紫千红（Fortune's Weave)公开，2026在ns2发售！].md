@@ -15159,3 +15159,31 @@ a少能学到一个自带净化特效的拳套特技
 
 红绿想挖是不是还得a少线再打一次第二章
 
+
+*****
+
+####  纪寞  
+##### 7270#       发表于 2026-10-13 17:19
+
+这次主要是突然把原本剧本框架里的天意背锅牺牲位升级成了主角的前世，导致不得不重视这个问题了。
+
+原本没加救世主前，已经就因为剧情框架问题把奶龙当弃子了，但不知道为什么后面设定又把他捞回来当主角前世了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mamayata  
+##### 7271#       发表于 2026-10-13 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70366154&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-10-13 17:11</a>
+红绿想挖是不是还得a少线再打一次第二章</blockquote>
+蕾达应该也行 有个找胸针的任务
+
+*****
+
+####  斯大林的拖拉机  
+##### 7272#       发表于 2026-10-13 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70365468&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-10-13 15:22</a>
+撸鸟太功利了，因为挡刀极其有用</blockquote>
+挡刀几率是怎么算的，每个角色分开吗
+
