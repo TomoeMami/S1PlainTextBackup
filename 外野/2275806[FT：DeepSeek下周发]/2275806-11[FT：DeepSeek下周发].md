@@ -15329,3 +15329,16 @@ GPT那么喜欢防御测试，但经常一开始就埋点雷，越做越错，�
 最新爆料，Fable5.5本周发，Astra6.1这个月内发</blockquote>
 那么中国队在哪里呢
 
+
+*****
+
+####  qwased  
+##### 16150#       发表于 2026-10-14 02:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70366987&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-10-13 20:06</a>
+
+cat jam free超级快啊 快到我都没法判断他的能力是强还是弱了。。。
+
+同时即没有非国产（立刻调用memory mcp ...</blockquote>
+硬是没看懂你在说什么<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer"> “同时即没有非国产（立刻调用memory mcp）的痕迹 ”是啥意思
+
