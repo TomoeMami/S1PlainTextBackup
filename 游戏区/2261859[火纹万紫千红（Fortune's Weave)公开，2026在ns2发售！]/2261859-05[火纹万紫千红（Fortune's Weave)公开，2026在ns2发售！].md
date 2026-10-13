@@ -15388,3 +15388,11 @@ IS的左右脑互搏
 
 怎么编剧这么喜欢败好感的操作？
 
+
+*****
+
+####  Jabeck  
+##### 7292#       发表于 2026-10-13 21:42
+
+女王不是说了她只在乎她们国家的人，女王国家这么落魄不还是达古扎害得。 他们人民把幽法丝当瘟神一样也不无辜。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
