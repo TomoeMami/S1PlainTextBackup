@@ -15092,3 +15092,14 @@ qwen3.8 flash next证明了新架构加持下普通游戏电脑（64G+16G）都�
 
 6.1sol今天两次遇到服务器满了，<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，o/是在整什么大活么？
 
+
+*****
+
+####  tillnight  
+##### 16127#       发表于 2026-10-13 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70366889&amp;ptid=2275806" target="_blank">sql710 发表于 2026-10-13 19:45</a>
+
+6.1sol今天两次遇到服务器满了，，o/是在整什么大活么？</blockquote>
+从昨天就开始了。
+
