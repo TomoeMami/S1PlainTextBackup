@@ -596,3 +596,23 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
 节约竟然瘦了
 
+
+*****
+
+####  堀内爱里衣  
+##### 42090#       发表于 2026-10-13 14:57
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/13/145714eu31ccy4340cyxof.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-10-13_14-53-57.jpg</strong> (184.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 14:57 上传
+
+       [https://x.com/bang_dream_info/status/2109841573047320723](https://x.com/bang_dream_info/status/2109841573047320723)
+
+       [https://www.bilibili.com/video/BV1nMWc6cE5T](https://www.bilibili.com/video/BV1nMWc6cE5T)  &lt;——bilibili搬运视频
+

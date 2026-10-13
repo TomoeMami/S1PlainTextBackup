@@ -14807,3 +14807,23 @@ a少能学到一个自带净化特效的拳套特技
 因为一开始 ...</blockquote>
 太简单了，奶龙说要人治，直接加个奶龙很看中的人类领导角色自己不怎么管事，到时候所有的锅都推给他就行。反正教会控制力这么强，真被策反了也很正常。但如果加这么个角色奶龙自己的戏份就少了，剧本肯定要大改，连奶龙转世都是中途想到的，就现在这个体量肯定来不及改了。
 
+
+*****
+
+####  白昼梦DD  
+##### 7235#       发表于 2026-10-13 14:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这代一部撸鸟都懒得碰，过来逗鸟又没鸟的互动动作镜头神秘的一批，为了攒好感度配种又不是AllTo自捏，整个虚无的一批
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  索非亚  
+##### 7236#       发表于 2026-10-13 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70365124&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-10-13 14:26</a>
+有啥说不通的，开启第三部就代表你不会回去五年前了呗。</blockquote>
+剧情里并没有说回不到方尖碑了，机制上你也可以随时回去吃饭给3部的角色刷好感。
+福图纳也说了角色记忆会有问题，谁和谁突然想起支援B的事也是复合剧情逻辑的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
