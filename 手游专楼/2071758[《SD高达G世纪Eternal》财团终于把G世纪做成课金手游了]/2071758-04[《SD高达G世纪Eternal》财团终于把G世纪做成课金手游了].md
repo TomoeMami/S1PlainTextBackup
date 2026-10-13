@@ -1557,3 +1557,16 @@ CROSS DIMENSION 0079送的SSR驾驶员是不是有BUG....只能在驾驶员列�
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  马桶3  
+##### 4851#       发表于 2026-10-13 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70365058&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2026-10-13 14:15</a>
+
+真有人大师联盟打30万分吗
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99</blockquote>
+不知道，我反正是越来越懒了，强敌LV20都懒得打，反正放着钻也不会消失，等要挖了再说吧，至于大师联盟也是保底就行了的态度
+
