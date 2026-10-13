@@ -14675,3 +14675,18 @@ a少能学到一个自带净化特效的拳套特技
 
 第三就是众所周知的3部法爷无用论，什么雷剑都该去垃圾桶，萨拉曼达好使多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  エリ  
+##### 7223#       发表于 2026-10-13 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70361997&amp;ptid=2261859" target="_blank">无知的小鼠人 发表于 2026-10-12 20:35</a>
+
+白发鬼高光在第二部，第三部就被下毒了，按照平均成长计算初始速度只有三点
+
+其他三个人，大商人Debuff工具 ...</blockquote>
+白发鬼第二部觉醒状态开焰技太超模了，物抗魔抗+20，比女王还坦
+
+第三部造型反而变得和印第安部落首领一样了
+
