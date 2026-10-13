@@ -14446,3 +14446,11 @@ Day 8/ Reset
 
 记得上号，朋友们脚别停赶紧蹬。
 
+
+*****
+
+####  eaglu  
+##### 16065#       发表于 2026-10-13 09:53
+
+opencode的官方ios客户端也有tf了 https://testflight.apple.com/join/EnFsKYQ1
+

@@ -14237,3 +14237,16 @@ HUXAQR4acAAWsWc.jpg
 
 仔细一想战争篇的敌全灭难度都比单纯过关难不少，只有第一关和第五关是容易敌全灭的，最后一关更是数值怪惹不起
 
+
+*****
+
+####  Jabeck  
+##### 7184#       发表于 2026-10-13 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70363122&amp;ptid=2261859" target="_blank">caps洛奇 发表于 2026-10-13 09:09</a>
+
+我破防了 彻底破防了
+
+为什么支援要设计成随着进度上锁啊，你第一部锁第三部的A级我能理解，第三部为什还要 ...</blockquote>
+这倒挺正常。。。因为发生支援的时间不一样吧。。。第三部五年后总不能时间回转看第一部时间发生的支援吧。。。这样太怪了。除非做两套支援.。。。。从剧情角度来说，你第一部的时候没让她们产生羁绊以后就没交集了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
