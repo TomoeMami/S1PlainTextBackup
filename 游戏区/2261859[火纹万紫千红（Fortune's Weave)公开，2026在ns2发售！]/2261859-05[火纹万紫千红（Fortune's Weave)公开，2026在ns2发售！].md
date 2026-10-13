@@ -15331,3 +15331,15 @@ IS的左右脑互搏
 
 卡塔尼雅提到的老乡斯亚列斯有出现过吗？
 
+
+*****
+
+####  Humpy  
+##### 7287#       发表于 2026-10-13 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367132&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-10-13 20:33</a>
+卡塔尼雅提到的老乡斯亚列斯有出现过吗？</blockquote>
+被巴恩巴恩干掉的那个？
+
+没露脸只存在在对话里的人吧
+
