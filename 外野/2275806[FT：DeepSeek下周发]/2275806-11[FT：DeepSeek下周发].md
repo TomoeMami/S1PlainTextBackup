@@ -15350,3 +15350,22 @@ cat jam free超级快啊 快到我都没法判断他的能力是强还是弱了�
 
 Tibo 无节制的重置，势必会导致运营成本的上涨，只能通过削减额度或提高模型定价来平衡。这又导致如果不重置，订阅的性价比就很低。而频繁重置，又打乱用户的正常使用节奏。这就是平庸之恶，一个重置引起的连锁反应。
 
+
+*****
+
+####  陈八尺  
+##### 16152#       发表于 2026-10-14 02:23
+
+gemini4正式推送给Pro用户了，有人尝鲜测试么？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 16153#       发表于 2026-10-14 02:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368273&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-10-14 02:23</a>
+
+gemini4正式推送给Pro用户了，有人尝鲜测试么？</blockquote>
+只给ultra
+
