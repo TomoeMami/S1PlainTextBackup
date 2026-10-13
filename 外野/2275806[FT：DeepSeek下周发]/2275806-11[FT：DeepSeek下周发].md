@@ -14525,3 +14525,16 @@ ms 不作为的话就是个极其 dirty 的工作，只能让老崔他们慢慢�
 
 codebuddy就不知道什么情况了
 
+
+*****
+
+####  UncleDracula  
+##### 16072#       发表于 2026-10-13 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70364483&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-10-13 12:23</a>
+
+我自己架网关的时候碰到这个情况，诊断出来是上文和思维链没回灌
+
+codebuddy就不知道什么情况了 ...</blockquote>
+哦，好像是因为上文是官方模型跑的，我在文峰时切成了CodeBuddy了，可能就不行了
+
