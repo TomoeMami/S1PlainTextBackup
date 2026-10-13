@@ -14580,3 +14580,13 @@ codebuddy就不知道什么情况了 ...</blockquote>
 
 善良open ai 无敌了 要是grok重置一下就好了
 
+
+*****
+
+####  泰坦失足  
+##### 16078#       发表于 2026-10-13 13:28
+
+能搞懂马斯克这一长串Grok/Cursor/X 新/老会员的也不是一般人了.
+
+之前有人说马斯克又是自研模型又是自己有超级机房, 事实证明也不咋地. 远不如A/O两家为了IPO死命砸墙补贴会员. 还有谷歌也是, "谷歌又是全世界的数据都在它家又是自研模型,连TPU都自研自产. 赶紧买Google 年费Ultra会员, 能亏待了大家吗" <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
