@@ -578,3 +578,22 @@ Bdobe Creative Claude 说是<img src="https://static.stage1st.com/image/smiley/f
 
 2026-10-14 00:01 上传
 
+
+*****
+
+####  ashunicorn  
+##### 50#       发表于 2026-10-14 00:11
+
+唯一的不足就是要注册账号登录
+
+
+*****
+
+####  一只优越Fa♂  
+##### 51#       发表于 2026-10-14 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368034&amp;ptid=2291670" target="_blank">ashunicorn 发表于 2026-10-14 00:11</a>
+
+唯一的不足就是要注册账号登录</blockquote>
+本地运行并不需要
+
