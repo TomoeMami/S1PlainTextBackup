@@ -15103,3 +15103,28 @@ qwen3.8 flash next证明了新架构加持下普通游戏电脑（64G+16G）都�
 6.1sol今天两次遇到服务器满了，，o/是在整什么大活么？</blockquote>
 从昨天就开始了。
 
+
+*****
+
+####  lubo  
+##### 16128#       发表于 2026-10-13 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70366889&amp;ptid=2275806" target="_blank">sql710 发表于 2026-10-13 19:45</a>
+
+6.1sol今天两次遇到服务器满了，，o/是在整什么大活么？</blockquote>
+因为全局重置，所有人都在蹬，负载堆一块了。每次全局重置后，都有人报告周限额下降大概也是这个原因，现在感觉O是恶性循环了，越重置，体验越差
+
+*****
+
+####  neptunehs  
+##### 16129#       发表于 2026-10-13 20:06
+
+ 本帖最后由 neptunehs 于 2026-10-13 20:07 编辑 
+
+cat jam free超级快啊 快到我都没法判断他的能力是强还是弱了。。。
+同时即没有非国产（立刻调用memory mcp）的痕迹 也没有hmm，let me go
+
+这东西是啥呢到底
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
