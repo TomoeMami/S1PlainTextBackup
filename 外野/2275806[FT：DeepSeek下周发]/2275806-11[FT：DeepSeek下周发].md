@@ -15290,3 +15290,12 @@ llama不知道哪里的路边
 
 不过antigravity太拉了……
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 16146#       发表于 2026-10-14 01:19
+
+GPT那么喜欢防御测试，但经常一开始就埋点雷，越做越错，最绝望的就是白白烧的token<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/e84c1d650ea683fb2e182d60a4fa4a3c/image.jpg" referrerpolicy="no-referrer">
+
