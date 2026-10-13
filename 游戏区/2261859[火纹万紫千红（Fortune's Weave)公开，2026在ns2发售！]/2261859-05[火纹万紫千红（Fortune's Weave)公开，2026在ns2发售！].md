@@ -15396,3 +15396,56 @@ IS的左右脑互搏
 
 女王不是说了她只在乎她们国家的人，女王国家这么落魄不还是达古扎害得。 他们人民把幽法丝当瘟神一样也不无辜。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 7293#       发表于 2026-10-13 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367351&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-13 21:20</a>
+
+说好的萨拉米斯危机的时候，商人要给女王打钱的呢？怎么跑对面去了。
+
+女王这边还搞掠夺这一套。
+
+怎么编剧这 ...</blockquote>
+女王纵兵劫掠这段是本作我觉得最有意思的描写了，虽然因为贝特兰的仁义而作罢，但如果没有被阻止的话女王的行为会被玩家接受吗？我认为会的，因为这场战争萨拉米斯是输不起的，所以女王的行为纵然不对但相比亡国灭种来说是可以被容忍的，可以说是相当现实的描写了，我没想到主角级的人物会有这样的描写，初见非常惊喜。
+
+*****
+
+####  纪寞  
+##### 7294#       发表于 2026-10-13 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367105&amp;ptid=2261859" target="_blank">nancygreenlife 发表于 2026-10-13 20:30</a>
+
+也正常，大苏总得从时间因缘里捞个有来头的人出来吧，何况大苏说这事你来办最合适，而整件事确实奶龙大锅 ...</blockquote>
+我是从编辑安排的上帝视角出发的，本次的自捏是前面的剧情大纲都弄好后才要加的。但奶龙本来就因为这个剧情框架和走向就内定了牺牲背锅位做弃子了，但到做自捏时又把他重新弄出来了，又不想改前面的剧情大纲了，结果就弄成这样了。
+
+所以就是为什么草木原原本都把他当弃子了，但之后为什么又重新找回来了。
+
+
+*****
+
+####  reficul  
+##### 7295#       发表于 2026-10-13 22:11
+
+神威奶龙
+
+<img src="https://img.stage1st.com/forum/202610/13/221135bpet8v49gve3hee8.jpg" referrerpolicy="no-referrer">
+
+<strong>16797.jpg</strong> (197.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 22:11 上传
+
+*****
+
+####  Jabeck  
+##### 7296#       发表于 2026-10-13 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367529&amp;ptid=2261859" target="_blank">纪寞 发表于 2026-10-13 22:09</a>
+
+我是从编辑安排的上帝视角出发的，本次的自捏是前面的剧情大纲都弄好后才要加的。但奶龙本来就因为这个剧 ...</blockquote>
+自捏如果跟五年前的人物没联系不就一二部都跟自捏没任何大关系了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

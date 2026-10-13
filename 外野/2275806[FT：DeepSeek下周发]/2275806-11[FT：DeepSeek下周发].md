@@ -15175,3 +15175,11 @@ DS今天绝对有问题。。我一直用DS4.1跑酒馆。。今天晚上，蠢�
 
 一般DS降智就是为了上新模型了，但是不知道什么时候能上
 
+
+*****
+
+####  Promeus  
+##### 16135#       发表于 2026-10-13 22:07
+
+好像抽到了复述SetSavedPoint这个版本，完全没有写作能力了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
