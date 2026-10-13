@@ -15388,3 +15388,14 @@ gemini4正式推送给Pro用户了，有人尝鲜测试么？</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qwased  
+##### 16155#       发表于 2026-10-14 03:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368303&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-10-14 02:47</a>
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我的还是3.1pro
+
