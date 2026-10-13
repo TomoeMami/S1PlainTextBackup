@@ -15140,3 +15140,14 @@ character.ai直接死了？
 
 莫非陪伴类的泡沫也要直接爆了
 
+
+*****
+
+####  qwased  
+##### 16131#       发表于 2026-10-13 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70366881&amp;ptid=2275806" target="_blank">med 发表于 2026-10-13 19:43</a>
+不一定，小尺寸多模态这个生态位，就qwen一家。</blockquote>
+ds如果想做的话没什么门槛
+不过确实没什么动力就是了
+
