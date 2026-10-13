@@ -29,3 +29,18 @@ https://archive.org/details/@chun_s_ready-to-go_recomp_games
 
 2026-10-13 13:15 上传
 
+
+*****
+
+####  风夏  
+##### 60#         楼主| 发表于 2026-10-13 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70364756&amp;ptid=2289851" target="_blank">泰坦失足 发表于 2026-10-13 13:15</a>
+
+[ MONSTER HUNTER TRI] NEW PORT WII VERSION NATIVE PSVITA 60FPS #psvita
+
+https://www.youtube.com/watch ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到手柄在发售15年之后焕发第二春了.... 
+
+不过现在貌似还没有ps2游戏recomp的成熟案例, 我真想在psv上玩ps2的机战啊....
+
