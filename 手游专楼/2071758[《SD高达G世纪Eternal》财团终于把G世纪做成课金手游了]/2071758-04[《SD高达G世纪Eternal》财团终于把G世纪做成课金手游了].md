@@ -1547,3 +1547,13 @@ CROSS DIMENSION 0079送的SSR驾驶员是不是有BUG....只能在驾驶员列�
 
 另外2个联邦和吉翁的男主必须要通过筛选CROSS DIMENSION 0079才会出现在列表里
 
+
+*****
+
+####  jackyhuang  
+##### 4850#       发表于 2026-10-13 14:15
+
+真有人大师联盟打30万分吗
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
