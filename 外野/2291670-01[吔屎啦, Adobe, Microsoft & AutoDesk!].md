@@ -645,3 +645,53 @@ CSP国行那才叫一个恶心, 我看Discord里已经在讨论搞传统动画�
 
 所以修图调色打印支持和ps一样准么，准的话我就换了<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ashunicorn  
+##### 57#       发表于 2026-10-14 00:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368043&amp;ptid=2291670" target="_blank">一只优越Fa♂ 发表于 2026-10-14 00:14</a>
+
+本地运行并不需要</blockquote>
+刚安装好不是要注册吗？
+
+*****
+
+####  isa2456  
+##### 58#       发表于 2026-10-14 00:49
+
+希望能赶上camera raw的功能<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我电脑现在打开camera raw很容易爆炸，只能用其他软件套lut简单调一下
+
+csp我本身就用的折腾版倒无所谓，我觉得挺好用的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  炎壁  
+##### 59#       发表于 2026-10-14 00:51
+
+有adobe Acrobat DC吗？公司因为版权问题不给装盗版，但是又要处理很多pdf    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  lin2004  
+##### 60#       发表于 2026-10-14 00:52
+
+<blockquote>碧空之歌P 发表于 2026-10-13 23:47
+游戏大厂会不会为了对抗反编译，在程序里猛猛加料让正版玩家被屎糊脸</blockquote>
+加密抵抗反编译可对抗不了净室复现啊，你这软件只要能运行就要被ai复现干死，因为用户只管看着像鸭子，叫着像鸭子，摸起来像鸭子，吃起来像鸭子，可不管你这鸭子是吃饲料长大的还是吃草长大的.jpg
+
+*****
+
+####  无所不黑  
+##### 61#       发表于 2026-10-14 00:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368086&amp;ptid=2291670" target="_blank">来都来了 发表于 2026-10-14 00:31</a>
+
+即使是有AI的帮助，能搓出这么多与商业软件功能相同的开源软件，也太惊人了。 ...</blockquote>
+一方面是传统屎山虚夸大了难度和工作量。 AI同样擅长甚至更擅长堆出能用的屎山。
+
+一方面是AI可自动化自迭代反馈开发，确实解放生产力。其实能优化到这个地步反而是我觉得AI不擅长的。
+
+一方面是过去码农重复造了太多轮子和模块化了太多实体题，而且很多小东西包括传统办公软件都有开源版本，这些都让AI得了便宜，等于一个刷满了题的实习生。。。你让高考数学状元别的不说，做数学题效率是杠杠的。
+
