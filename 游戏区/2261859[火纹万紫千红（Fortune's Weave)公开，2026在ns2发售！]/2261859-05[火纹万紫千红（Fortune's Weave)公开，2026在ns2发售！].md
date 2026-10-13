@@ -14588,3 +14588,34 @@ HUXAQR4acAAWsWc.jpg
 
 怎么看负重呢？还有战斗时，有个积累条，积累条满了人会发光下，那个有什么用？
 
+
+*****
+
+####  a3a4sc  
+##### 7216#       发表于 2026-10-13 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70364472&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-13 12:22</a>
+拳斗士不能拿剑，当然了你可以全靠训练来拉熟练度。
+
+如果你训练场资源要给别人的话那就恶棍→游侠吧。</blockquote>
+谢谢
+不过我听信了首发的其他攻略，先通完了凯伊线<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这下不用纠结了
+
+之前我还看到游侠这职业没那么重要可以晚点拿，看来我的攻略先后顺序很多是歪的
+不练法师了，雷电剑攒起来
+
+
+*****
+
+####  mai6696  
+##### 7217#       发表于 2026-10-13 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70364659&amp;ptid=2261859" target="_blank">a3a4sc 发表于 2026-10-13 12:57</a>
+
+谢谢
+
+不过我听信了首发的其他攻略，先通完了凯伊线这下不用纠结了</blockquote>
+你也可以试试楼上说的萨满路线，玩雷电剑应该也是可以的。（但是物理端可能就要放弃了。）
+
+我自己是红羽鸵鸟练上来的，魔力一般般但是拿起雷电剑在第二部也很强了。
+

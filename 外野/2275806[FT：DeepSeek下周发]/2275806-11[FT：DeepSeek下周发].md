@@ -14538,3 +14538,13 @@ codebuddy就不知道什么情况了
 codebuddy就不知道什么情况了 ...</blockquote>
 哦，好像是因为上文是官方模型跑的，我在文峰时切成了CodeBuddy了，可能就不行了
 
+
+*****
+
+####  jojog  
+##### 16073#       发表于 2026-10-13 12:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">Muse感觉还可以吧 和grok4.7差不多
+
+3D实例是真的一坨，不如haiku
+
