@@ -445,3 +445,14 @@ code gease系列出的新人物全是扶不起的阿斗，出这么多系列，�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">鸟还不行？
 
+
+*****
+
+####  exiaexa  
+##### 2096#       发表于 2026-10-13 17:44
+
+为什么会有人觉得鸟人气不行
+
+他不行是因为跟他对线的是另外俩主角啊
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
