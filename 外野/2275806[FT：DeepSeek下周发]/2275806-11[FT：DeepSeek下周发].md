@@ -15446,3 +15446,131 @@ pro用户反重力不支持
 
 玩了一下语言表达能力非常不错，说的是人话，比其他代码专精模型强多了
 
+
+*****
+
+####  startraveller  
+##### 16162#       发表于 2026-10-14 01:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368217&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-14 01:38</a>
+最新爆料，Fable5.5本周发，Astra6.1这个月内发</blockquote>
+那么中国队在哪里呢
+
+*****
+
+####  qwased  
+##### 16163#       发表于 2026-10-14 02:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70366987&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-10-13 20:06</a>
+
+cat jam free超级快啊 快到我都没法判断他的能力是强还是弱了。。。
+
+同时即没有非国产（立刻调用memory mcp ...</blockquote>
+硬是没看懂你在说什么<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer"> “同时即没有非国产（立刻调用memory mcp）的痕迹 ”是啥意思
+
+*****
+
+####  RookieTnT  
+##### 16164#       发表于 2026-10-14 02:14
+
+Tibo 无节制的重置，势必会导致运营成本的上涨，只能通过削减额度或提高模型定价来平衡。这又导致如果不重置，订阅的性价比就很低。而频繁重置，又打乱用户的正常使用节奏。这就是平庸之恶，一个重置引起的连锁反应。
+
+*****
+
+####  陈八尺  
+##### 16165#       发表于 2026-10-14 02:23
+
+gemini4正式推送给Pro用户了，有人尝鲜测试么？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 16166#       发表于 2026-10-14 02:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368273&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-10-14 02:23</a>
+
+gemini4正式推送给Pro用户了，有人尝鲜测试么？</blockquote>
+只给ultra
+
+*****
+
+####  陈八尺  
+##### 16167#       发表于 2026-10-14 02:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368284&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-14 02:31</a>
+只给ultra</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/14/024721xz2p4h3rq40nkpnz.png" referrerpolicy="no-referrer">
+
+<strong>img_3344.png</strong> (842.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 02:47 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qwased  
+##### 16168#       发表于 2026-10-14 03:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368303&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-10-14 02:47</a>
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我的还是3.1pro
+
+*****
+
+####  平昭·南宫司卿  
+##### 16169#       发表于 2026-10-14 03:20
+
+我的账号也推了 4argon，明天摸鱼有的玩了
+
+*****
+
+####  lly778  
+##### 16170#       发表于 2026-10-14 03:22
+
+pro用户反重力不支持
+
+*****
+
+####  The_Ether_  
+##### 16171#       发表于 2026-10-14 03:22
+
+现在倒是感觉边际效应越来越明显，手头的工作用Astra和用几个头部开源的差距拉不开，不像年初那种差别过大。国模再迭代两个版本估计能完全满足我的需求了。
+
+*****
+
+####  UmarIbnLaAhad  
+##### 16172#       发表于 2026-10-14 03:42
+
+印度pro推送argon了，试了一下，文笔和玩梗能力依然惊人，不过好像argon世界知识不如3.1pro猛，测试了一下之前问pro的小众问题，argon不联网答不上来
+
+*****
+
+####  UmarIbnLaAhad  
+##### 16173#       发表于 2026-10-14 03:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确认了，同一个对话，argon答不上来的切3.1pro再想一轮又是秒杀
+
+*****
+
+####  qwased  
+##### 16174#       发表于 2026-10-14 03:47
+
+网页端有哈基米4了
+
+玩了一下语言表达能力非常不错，说的是人话，比其他代码专精模型强多了
+
+*****
+
+####  wandeeees  
+##### 16175#       发表于 2026-10-14 05:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368217&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-14 01:38</a>
+
+最新爆料，Fable5.5本周发，Astra6.1这个月内发</blockquote>
+说好的减速呢，这迭代速度也太快了，卡多就是豪横啊<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">徐直军，我卡呢
+
