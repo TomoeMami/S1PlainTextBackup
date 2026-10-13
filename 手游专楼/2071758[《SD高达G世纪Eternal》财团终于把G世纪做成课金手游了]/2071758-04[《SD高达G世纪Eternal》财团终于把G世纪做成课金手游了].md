@@ -1594,3 +1594,15 @@ CROSS DIMENSION 0079送的SSR驾驶员是不是有BUG....只能在驾驶员列�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可以说是相当出乎意料了
 
+
+*****
+
+####  arthes  
+##### 4853#       发表于 2026-10-13 22:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+铃铛姐也是满破，v2一星，希望接下来别又来铃铛姐了
+
+等什么时候制作组开更高星突破吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

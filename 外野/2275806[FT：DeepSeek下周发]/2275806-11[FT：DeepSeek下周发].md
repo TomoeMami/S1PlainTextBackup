@@ -15216,3 +15216,13 @@ DS今天绝对有问题。。我一直用DS4.1跑酒馆。。今天晚上，蠢�
 别猜了等周五看有没有大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 现在4.1f+kimi3我已经够用了，有更好的模型是好，别涨价就行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 16140#       发表于 2026-10-13 22:48
+
+<blockquote>Sunyalche 发表于 2026-10-13 22:33
+难道是换了华为卡? 140也够用, 能再降点价就好了(</blockquote>
+我觉得这才是之前说的游戏卡部署的实际落地内容，不过肯定不是一张…
+
