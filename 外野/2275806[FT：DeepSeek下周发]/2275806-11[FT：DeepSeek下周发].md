@@ -15183,3 +15183,12 @@ DS今天绝对有问题。。我一直用DS4.1跑酒馆。。今天晚上，蠢�
 
 好像抽到了复述SetSavedPoint这个版本，完全没有写作能力了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 16136#       发表于 2026-10-13 22:20
+
+复述SetSavedPoint这个判据真的有用吗？
+我试了下opencodego套餐的有时也是能识别到的，用官方api有时识别不到但是tok/s只有140
+

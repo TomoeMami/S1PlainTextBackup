@@ -15449,3 +15449,13 @@ IS的左右脑互搏
 我是从编辑安排的上帝视角出发的，本次的自捏是前面的剧情大纲都弄好后才要加的。但奶龙本来就因为这个剧 ...</blockquote>
 自捏如果跟五年前的人物没联系不就一二部都跟自捏没任何大关系了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哌啶  
+##### 7297#       发表于 2026-10-13 22:23
+
+145小时通关了，最后几章的心态已经变成“吃不下了，快让我解脱吧”
+
+—— 来自 nubia NX733J, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
