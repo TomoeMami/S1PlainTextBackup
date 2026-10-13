@@ -15214,3 +15214,27 @@ a少能学到一个自带净化特效的拳套特技
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  mai6696  
+##### 7276#       发表于 2026-10-13 18:09
+
+ 本帖最后由 mai6696 于 2026-10-13 18:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70364841&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-13 13:31</a>
+
+我自己是在女王线养过全程走法系拿雷剑的罗雷塔，只能说不太好用。
+
+一是雷剑的8重对肌无力来说等于常驻-5攻 ...</blockquote>
+我一直走物理的，但是魔力也不赖。
+
+可能还是鸵鸟太权威了。
+
+<img src="https://img.stage1st.com/forum/202610/13/181037c0tpxa3kpjtkxk50.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7557.jpeg</strong> (432.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-13 18:10 上传
+

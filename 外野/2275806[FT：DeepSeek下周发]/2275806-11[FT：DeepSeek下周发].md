@@ -14952,3 +14952,13 @@ b865906c4792af93170dbaa59d34dbcc.jpg
 外网在说DS4.1Flash悄悄升级了？</blockquote>
 据说是悄悄换了4.1mini测试....测试你们感觉的出来不<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  med  
+##### 16114#       发表于 2026-10-13 18:13
+
+O/最近是投了多少广告费啊，opus5.5超astra都来了
+
+GPT的前端审美确实不行，到处塞文字+莫名其妙的五颜六色，最近看学生作品被丑到了
+
