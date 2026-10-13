@@ -14991,3 +14991,26 @@ googleplay外区账号绑自己信用卡（国内发行的visa/mastercard即可�
 
 —— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  pure_liquid  
+##### 16117#       发表于 2026-10-13 18:56
+
+<blockquote>Steel.Haze 发表于 2026-10-13 18:01
+据说是悄悄换了4.1mini测试....测试你们感觉的出来不如果是真的，这才是今年最大的核弹。 ...</blockquote>
+为什么这是“最”大的？这个“最”把4.1-flash和4pro也涵盖进去了吗？
+
+意思是智力方面mini &gt; flash吗？
+
+还是说mini尺寸更小、适合本地部署？
+
+*****
+
+####  serj005  
+##### 16118#       发表于 2026-10-13 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70366412&amp;ptid=2275806" target="_blank">Steel.Haze 发表于 2026-10-13 18:01</a>
+据说是悄悄换了4.1mini测试....测试你们感觉的出来不如果是真的，这才是今年最大的核弹。 ...</blockquote>
+mini模型之前ds官方不是说是谣言了吗
+

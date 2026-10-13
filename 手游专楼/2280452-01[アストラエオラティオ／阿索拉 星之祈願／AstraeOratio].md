@@ -14,3 +14,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ba角色再就业+1
 
+
+*****
+
+####  幽灵部长助理  
+##### 124#       发表于 2026-10-13 18:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">优香，何时来的？
+
