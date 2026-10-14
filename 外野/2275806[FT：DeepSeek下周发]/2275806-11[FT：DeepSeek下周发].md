@@ -16382,3 +16382,29 @@ Astra 今天都蹬爆了好几次
 
 opencodego的哈基米4锁地区吗 支付宝充的能用不<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星野あさみ  
+##### 16256#       发表于 2026-10-14 19:50
+
+<img src="https://img.stage1st.com/forum/202610/14/194159oxn5uue2nqsqsysj.png" referrerpolicy="no-referrer">
+
+<strong>4b39663e29a922d8b3486ebc2eb1ebac.png</strong> (250.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 19:41 上传
+
+<img src="https://img.stage1st.com/forum/202610/14/194920ym1zllohf3f1bgcc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 19:49 上传
+
+昨天谷歌发了EmbeddingGemma2，于是今天让大肥鱼秒搓了个POC把10w照片都向量化。
+
+意外的效果还行，这下可以用自然语言搜相册了
+
