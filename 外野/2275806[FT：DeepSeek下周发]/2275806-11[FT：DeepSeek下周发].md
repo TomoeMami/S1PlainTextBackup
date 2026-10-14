@@ -16633,3 +16633,16 @@ workbuddy 没有积分得了？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  andychen  
+##### 16276#       发表于 2026-10-15 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70373448&amp;ptid=2275806" target="_blank">squallx 发表于 2026-10-15 00:25</a>
+
+模型部门内斗中被云部门打的满地找不着牙 现在连额度都不给API共通的 就是纯缺资源 ...</blockquote>
+现在Pro给的Argon用量真不少，我进行了10轮左右的智能体交互都没能把5%周限额给用光
+
+这个用量至少比GPT Plus给的Astra要多很多，而这个模型我认为在很多工作上是比Astra更强的
+
