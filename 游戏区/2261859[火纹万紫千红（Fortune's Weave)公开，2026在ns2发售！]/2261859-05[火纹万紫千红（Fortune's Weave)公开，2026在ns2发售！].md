@@ -16193,3 +16193,37 @@ IS的左右脑互搏
 真有人认真走格子打野战啊。我后三条线都是一路睡大觉的。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想收益高点不就是给自己找目标做来回跑，睡大觉其实也就算是重复度爆炸只能一路跳过了
 
+
+*****
+
+####  索非亚  
+##### 7363#       发表于 2026-10-14 15:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2、3区复兴，4区开神将，5区开始是真没新东西了
+
+
+*****
+
+####  Jabeck  
+##### 7364#       发表于 2026-10-14 15:32
+
+迪哥打遭遇战能拿石头，其他线打遭遇战图什么。跟别说第一章等级太高也没啥好处。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 7365#       发表于 2026-10-14 15:33
+
+与其说重复度高不如说其实没啥事好做。
+
+*****
+
+####  白昼梦DD  
+##### 7366#       发表于 2026-10-14 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371228&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-10-14 15:32</a>
+迪哥打遭遇战能拿石头，其他线打遭遇战图什么。跟别说第一章等级太高也没啥好处。 ...</blockquote>
+不是特意去打 路上刷怪了又绕不开
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
