@@ -15742,3 +15742,39 @@ Pro 方案只能在 gemini.google.com 上用 Gemini 4，Antigravity 和 AI Studi
 GOO ...</blockquote>
 不一定上得了，中选不是没有凌空爆炸的可能性。
 
+
+*****
+
+####  startraveller  
+##### 16193#       发表于 2026-10-14 10:38
+
+国模也别藏着掖着了，有改进就赶快放出来更新下吧……不然被卷飞了
+
+
+*****
+
+####  omnitoken  
+##### 16194#       发表于 2026-10-14 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369382&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-14 10:19</a>
+开了一个月pro，只要33块钱作为聊天模型还是可以的，但是不喜欢搜索的问题还是存在，对自己的知识库太自信 ...</blockquote>
+怎么买啊现在
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Keiji  
+##### 16195#       发表于 2026-10-14 10:45
+
+随便玩了一下，消耗得还挺多😂
+
+*****
+
+####  lactone  
+##### 16196#       发表于 2026-10-14 10:45
+
+b站现在各种国模完蛋焦虑贴，传回泥漏了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

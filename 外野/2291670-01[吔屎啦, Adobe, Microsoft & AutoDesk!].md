@@ -1293,3 +1293,21 @@ AI工具链里的一环啊，让AI调用这些来修图
 
 参考以前的民间qq
 
+
+*****
+
+####  normalli  
+##### 117#       发表于 2026-10-14 10:38
+
+我觉得这个山寨软件根本没法维护
+
+*****
+
+####  EverNight  
+##### 118#       发表于 2026-10-14 10:39
+
+presentation还是有一些差距，形状直接导出为svg是我还在用msoffice的重要理由，其他软件几乎都没有，或者是极其难用
+把这一块补全就可以开心放弃Windows了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
