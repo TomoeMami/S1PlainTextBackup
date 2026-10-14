@@ -297,3 +297,17 @@
 
 这钱怎么挣啊
 
+
+*****
+
+####  椎名mahuyo  
+##### 106#       发表于 2026-10-15 02:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70373566&amp;ptid=2274134" target="_blank">DARK_HGCG 发表于 2026-10-15 01:37</a>
+妈呀DLC新角色要50万git
+
+这钱怎么挣啊</blockquote>
+钱用不完的，稍微后面点加入的任务，好感任务做一次就是30w，最多的到70w
+
+—— 来自 realme RMX3708, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
