@@ -166,3 +166,11 @@
 等主线解禁还是有隐藏任务？</blockquote>
 20章后面主线开，后面有些人物支线地区有些地方去不了也得主线解锁
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 95#       发表于 2026-10-14 11:25
+
+艾米真的很可爱，怕鬼这一点不仅不会让人嫌弃，反而增加萌点。我要是阿鲁多就每周吓唬她一次，平时有空就带她去鬼屋或者墓地之类的地方，直到给她练到脱敏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

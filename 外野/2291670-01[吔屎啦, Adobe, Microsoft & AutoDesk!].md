@@ -1410,3 +1410,21 @@ PDFCraft, 能编辑, 能E签</blockquote>
 
 —— 来自 vivo V2303A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无事忙  
+##### 124#       发表于 2026-10-14 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368125&amp;ptid=2291670" target="_blank">炎壁 发表于 2026-10-14 00:51</a>
+
+有adobe Acrobat DC吗？公司因为版权问题不给装盗版，但是又要处理很多pdf    Re:Source ...</blockquote>
+野生的pdf软件是不是功能不足？我看过国内的大多是动不动要收费会员
+
+*****
+
+####  濡鸦之羽_  
+##### 125#       发表于 2026-10-14 11:31
+
+这回山寨软件真不一样了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
