@@ -16279,3 +16279,36 @@ fb62d84e-ee71-4717-aab7-1e02106f1a93.png
 
 <img src="https://img.stage1st.com/forum/202610/14/162113di4mst17f9fi757q.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oniwarud  
+##### 7372#       发表于 2026-10-14 16:43
+
+迪哥线里绿毛提到的那个回收失败的翠兰的魔轮虎原来是跑到商人手上去了，估计是商人线开头不久的剧情了
+
+*****
+
+####  シルフィエット  
+##### 7373#       发表于 2026-10-14 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371412&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-10-14 16:08</a>
+
+发现有些人招募晚也是有好处的，比如驽佐就会带把雷电剑。</blockquote>
+努佐杰斯塔晚招带雷剑，哈尔温早招带短弓
+
+*****
+
+####  シルフィエット  
+##### 7374#       发表于 2026-10-14 16:45
+
+好惨的皮特鲁
+
+<img src="https://img.stage1st.com/forum/202610/14/164547ct7w7zr7nstt7naz.jpg" referrerpolicy="no-referrer">
+
+<strong>`QRY2_SP3D})X1H3ZIU9E[M.jpg</strong> (560.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 16:45 上传
+

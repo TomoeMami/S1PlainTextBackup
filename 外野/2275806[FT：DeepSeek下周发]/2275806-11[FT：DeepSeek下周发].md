@@ -16233,3 +16233,43 @@ argon出图有点爱加戏
 
 2026-10-14 16:18 上传
 
+
+*****
+
+####  andychen  
+##### 16241#       发表于 2026-10-14 16:43
+
+我服了，Astra都开始at capacity了
+
+OAI已经烂完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhanglei1943  
+##### 16242#       发表于 2026-10-14 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371469&amp;ptid=2275806" target="_blank">故障机器人 发表于 2026-10-14 16:18</a>
+
+argon出图有点爱加戏</blockquote>
+チラ草
+
+紫薯布丁紫薯布丁
+
+*****
+
+####  RinQ0326  
+##### 16243#       发表于 2026-10-14 16:47
+
+<blockquote>故障机器人 发表于 2026-10-14 16:18
+argon出图有点爱加戏</blockquote>
+如果你是说它加上去的天花板和窗户，那我觉得应该指定不想被它重绘的地方。
+
+*****
+
+####  ayanamilin  
+##### 16244#       发表于 2026-10-14 16:48
+
+Gemini 4 的人类思维做得很好。我以前尝试过让 GPT/Claude 来讲算法题，难一点的（codeforce &gt; 1600）解释起来就很难让人听懂了。
+
+Argon 讲题真的很厉害，贴近人类思维，容易理解。
+
