@@ -16227,3 +16227,30 @@ IS的左右脑互搏
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  星花  
+##### 7367#       发表于 2026-10-14 15:39
+
+你不会用脚走又不住店吧？
+
+*****
+
+####  lbj5454  
+##### 7368#       发表于 2026-10-14 15:42
+
+现在打着打着感觉回到了打光明三 3部曲的感觉了，前2部用不同的主角从不同的视角参与故事，第3部合流打最终BOSS
+
+
+*****
+
+####  白昼梦DD  
+##### 7369#       发表于 2026-10-14 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371264&amp;ptid=2261859" target="_blank">星花 发表于 2026-10-14 15:39</a>
+你不会用脚走又不住店吧？</blockquote>
+又不是下了马车野怪自动消失 不知所云
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
