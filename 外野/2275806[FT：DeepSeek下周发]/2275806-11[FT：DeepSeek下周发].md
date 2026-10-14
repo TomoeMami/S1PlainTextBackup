@@ -16353,3 +16353,14 @@ pro用户给到argon了，体感说胡话的频率低了，之前3.1pro让他给
 
 到时候让坛友来品鉴下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shiraikuroko  
+##### 16253#       发表于 2026-10-14 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371789&amp;ptid=2275806" target="_blank">matthewsteel 发表于 2026-10-14 17:16</a>
+
+从来没有像这两个小时觉得6.1sol真的慢。。。。。。。</blockquote>
+我还以为就我的问题，慢但是又没断
+
