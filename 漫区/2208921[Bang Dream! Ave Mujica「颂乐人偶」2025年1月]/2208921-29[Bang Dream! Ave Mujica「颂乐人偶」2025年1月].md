@@ -634,3 +634,23 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
 顺便说个笑话：柿本广大据说是大学法律系毕业，结果连初音作为私生子女在2013年后的日本法律里能拥有生父的财产继承权这种事情都不知道。
 
+
+*****
+
+####  堀内爱里衣  
+##### 42093#       发表于 2026-10-14 13:07
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/14/130712v55uflov55zo5f1l.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-10-14_13-04-04.jpg</strong> (176.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 13:07 上传
+
+       [https://x.com/bang_dream_info/status/2110203943943127303](https://x.com/bang_dream_info/status/2110203943943127303)
+
+       [https://www.bilibili.com/video/BV1Sqpy6NE9p/](https://www.bilibili.com/video/BV1Sqpy6NE9p/)  &lt;——bilibili搬运视频
+

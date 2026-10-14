@@ -15943,3 +15943,33 @@ qwen4之前有人评论前端能打opus5.5</blockquote>
 不一定上得了，中选不是没有凌空爆炸的可能性。</blockquote>
 上不上得了和上了值多少钱是两件事，做财报是为了推高估值，营收几乎是唯一能支持财务叙事的指标
 
+
+*****
+
+####  stonego  
+##### 16214#       发表于 2026-10-14 13:05
+
+哈吉米4王者归来，终于摘掉了戴了大半年的美国豆包帽子<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 16215#       发表于 2026-10-14 13:09
+
+<img src="https://p.sda1.dev/35/907ebb630c621c961d83054320d5235e/1000049896.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  jinuzuktII  
+##### 16216#       发表于 2026-10-14 13:09
+
+<img src="https://img.stage1st.com/forum/202610/14/130948lsb00084q830nsnq.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (319.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 13:09 上传
+
