@@ -1573,3 +1573,13 @@ wps的我感觉不好用，微软的更是一坨大便屎中屎</blockquote>
 
 2026-10-14 20:55 上传
 
+
+*****
+
+####  空き地卯木  
+##### 138#       发表于 2026-10-14 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372743&amp;ptid=2291670" target="_blank">liuguokobe 发表于 2026-10-14 20:55</a>
+只能说还有人认为EULA是天上皇帝呢，殊不知人家直接相当于平行开发把你取而代之了 ...</blockquote>
+ai时代还学蜗蜗小画师舞版权大棒，智力水平堪比一只哈基米了
+
