@@ -1271,3 +1271,25 @@ scilab。但其实都没法完全代替matlab</blockquote>
 
 既然AI可以直接作图改图 那么这类工具的下场最终也是被AI淘汰<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lisylfn  
+##### 115#       发表于 2026-10-14 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369380&amp;ptid=2291670" target="_blank">like0036 发表于 2026-10-14 10:19</a>
+既然AI可以直接作图改图 那么这类工具的下场最终也是被AI淘汰</blockquote>
+AI工具链里的一环啊，让AI调用这些来修图
+
+*****
+
+####  希望之花  
+##### 116#       发表于 2026-10-14 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367708&amp;ptid=2291670" target="_blank">庸necro 发表于 2026-10-13 22:44</a>
+
+那有没有可能让ai重做一个真正能用的微信</blockquote>
+技术上应该没问题，难度应该在法院这块<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+参考以前的民间qq
+
