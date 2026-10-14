@@ -1,0 +1,142 @@
+﻿
+*****
+
+####  saintsimpler  
+##### 16281#       发表于 2026-10-14 21:26
+
+ds怎么退了点钱<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+——来自  HUAWEI Pura X View OpenHarmony-7.0.0.109(26) 上的 [S1 Orange](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2244111) 1.4.4
+
+*****
+
+####  星野あさみ  
+##### 16282#       发表于 2026-10-14 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372509&amp;ptid=2275806" target="_blank">novalli 发表于 2026-10-14 20:03</a>
+
+这个算是把图片识别的结果固化为向量？大概需要给agent哪些方向和技术要求？
+
+—— 来自 Xiaomi 25042PN2 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/14/212920s8zhvoznorphxkso.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (158.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 21:29 上传
+
+我理解不是简单的图片识别，是把整个图片都转换成向量存起来了。（和llm多模态识图原理一样吧）
+
+用户用自然语言查询时，查询条件也同样会被转成向量，与库里存的向量比对相似度找到最接近的。
+
+比如我可以用比较复杂的自然语言“暹罗猫和女人躺在床上”来搜，准确率也很高。普通的图片识别应该做不到这种程度。
+
+技术栈见截图。（就只是一个oneshot提示，大模型自己研究并跑起来了）
+
+*****
+
+####  白日依山尽  
+##### 16283#       发表于 2026-10-14 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372905&amp;ptid=2275806" target="_blank">星野あさみ 发表于 2026-10-14 21:37</a>
+
+我理解不是简单的图片识别，是把整个图片都转换成向量存起来了。（和llm多模态识图原理一样吧）
+
+用户 ...</blockquote>
+就是本地知识库的向量数据吧？
+
+本质是让小模型先将本地数据向量化，然后大模型调用查询更方便
+
+之前纯文本的Qwen3-Embedding，前段时间腾讯也搞了个多模态WeMM-Embedding
+
+*****
+
+####  Litccc  
+##### 16284#       发表于 2026-10-14 22:24
+
+gemini 4 argon的写文能力确实不错，看来我前段时间已经路由到了，就得多一点这种模型啊<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UncleDracula  
+##### 16285#       发表于 2026-10-14 22:49
+
+<img src="https://img.stage1st.com/forum/202610/14/224726kf1p4wdk3b0p1433.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (13.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 22:47 上传
+
+就离谱，让DS4.1F判断，左图和右边两个哪个形状一样，commandcode和CodeBuddy都做错了，就官方做对了。智力有这么大差距吗，还是中转站的视力被阉割了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 16286#       发表于 2026-10-15 00:13
+
+我测试了一下Argon，在非代码工程类的任务上我认为这个模型至少是Fable级别的。不过代码工程上差不多Sol 6.1能力齐平
+
+最搞笑的是Pro用户在Gemini App上调这个模型一次5小时限额仅相当于周限额的5%，这真得掐着点用才能把周限额用满。这么设计让我感觉Google根本不缺少这个模型的服务能力，但是要拼命提防用户薅羊毛
+
+*****
+
+####  squallx  
+##### 16287#       发表于 2026-10-15 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70373411&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-15 00:13</a>
+
+我测试了一下Argon，在非代码工程类的任务上我认为这个模型至少是Fable级别的。不过代码工程上差不多Sol 6. ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">模型部门内斗中被云部门打的满地找不着牙 现在连额度都不给API共通的 就是纯缺资源
+
+*****
+
+####  老司机的马甲  
+##### 16288#       发表于 2026-10-15 00:59
+
+workbuddy 没有积分得了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  andychen  
+##### 16289#       发表于 2026-10-15 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70373448&amp;ptid=2275806" target="_blank">squallx 发表于 2026-10-15 00:25</a>
+
+模型部门内斗中被云部门打的满地找不着牙 现在连额度都不给API共通的 就是纯缺资源 ...</blockquote>
+现在Pro给的Argon用量真不少，我进行了10轮左右的智能体交互都没能把5%周限额给用光
+
+这个用量至少比GPT Plus给的Astra要多很多，而这个模型我认为在很多工作上是比Astra更强的
+
+*****
+
+####  qwased  
+##### 16290#       发表于 2026-10-15 01:34
+
+印度pro账号，argon的正确用法就是gemini网页里面只用任务模式
+
+只要把任务材料准备好，干什么都是5%的5h限额，根本用不完
+
+*****
+
+####  knnknn  
+##### 16291#       发表于 2026-10-15 01:52
+
+ 本帖最后由 knnknn 于 2026-10-15 01:53 编辑 
+
+印度pro的argon怎么用，好像有个只读游览器，和我说没有环境但是又能安装字体。
+
+还总是卡approve。
+
+*****
+
+####  haiuhfuwah  
+##### 16292#       发表于 2026-10-15 06:38
+
+a/第三季度营收168亿美元
+
