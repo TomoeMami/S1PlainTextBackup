@@ -1263,3 +1263,11 @@ scilab。但其实都没法完全代替matlab</blockquote>
 
 已经在用了，photocraft感觉不错，cad不行~~~~
 
+
+*****
+
+####  like0036  
+##### 114#       发表于 2026-10-14 10:19
+
+既然AI可以直接作图改图 那么这类工具的下场最终也是被AI淘汰<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

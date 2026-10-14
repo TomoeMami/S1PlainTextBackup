@@ -15686,3 +15686,20 @@ gemini对我最大的问题是它默认你的所有输入都会被用来打标�
 
 argon额度也太少了
 
+
+*****
+
+####  小野賢章  
+##### 16187#       发表于 2026-10-14 10:19
+
+开了一个月pro，只要33块钱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为聊天模型还是可以的，但是不喜欢搜索的问题还是存在，对自己的知识库太自信了。
+
+*****
+
+####  发呆的龙虾  
+##### 16188#       发表于 2026-10-14 10:21
+
+太贵了，我用的中转站里是3.8f的两倍以上价格，玩不起。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
