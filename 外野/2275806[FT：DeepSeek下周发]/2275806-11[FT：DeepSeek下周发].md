@@ -16623,3 +16623,13 @@ gemini 4 argon的写文能力确实不错，看来我前段时间已经路由到
 我测试了一下Argon，在非代码工程类的任务上我认为这个模型至少是Fable级别的。不过代码工程上差不多Sol 6. ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">模型部门内斗中被云部门打的满地找不着牙 现在连额度都不给API共通的 就是纯缺资源
 
+
+*****
+
+####  老司机的马甲  
+##### 16275#       发表于 2026-10-15 00:59
+
+workbuddy 没有积分得了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
