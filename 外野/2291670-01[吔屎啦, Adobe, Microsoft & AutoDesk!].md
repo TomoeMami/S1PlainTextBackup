@@ -801,3 +801,20 @@ AI编程的一个正确用法啊，哈哈
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  martinoy  
+##### 73#       发表于 2026-10-14 07:49
+
+试了下感觉还行，粗调的话已经完全取代我用LR了。没有玩很久，感觉有些细节还是有差距。
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ccow  
+##### 74#       发表于 2026-10-14 07:52
+
+用户苦Adobe久已
+
