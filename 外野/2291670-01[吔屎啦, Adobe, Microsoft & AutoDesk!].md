@@ -830,3 +830,13 @@ AI编程的一个正确用法啊，哈哈
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  umamusume  
+##### 76#       发表于 2026-10-14 08:32
+
+有中文了，所以三维软件的什么时候端上来，nx sw都是冚家铲东西早看他们不爽了
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

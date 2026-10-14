@@ -15592,3 +15592,13 @@ IS的左右脑互搏
 冥将：上将凯伊。
 霸罗尔：凯伊？哈哈哈哈哈，凯伊能统兵吗？我看这救世主也老糊涂了，派了个种地的来拆我的冥界门。
 
+
+*****
+
+####  trotsky  
+##### 7310#       发表于 2026-10-14 08:30
+
+这冥军也是拉完了，亚丝望说亚拉格还保有全盛期的6成兵力真没绷住<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">这还是加上5年前战争篇的战损吧，感觉巴罗尔也挺能摸的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
