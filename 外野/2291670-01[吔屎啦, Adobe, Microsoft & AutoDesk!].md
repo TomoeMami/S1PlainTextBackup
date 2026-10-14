@@ -1066,3 +1066,54 @@ b站看到有人做的单机版百万亚瑟王
 
 有个问题，免费开源的东西除非那种一堆人维护的，不然谁能保证可靠性呢？ 
 
+
+*****
+
+####  WiiGe  
+##### 94#         楼主| 发表于 2026-10-14 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368714&amp;ptid=2291670" target="_blank">noneoneone 发表于 2026-10-14 08:48</a>
+
+在主楼说一下要下launcher吧，直接主页下的那个还要注册。
+
+https://getartcraft.com/apps ...</blockquote>
+已更新提示
+
+*****
+
+####  临界点  
+##### 95#       发表于 2026-10-14 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369014&amp;ptid=2291670" target="_blank">死神只爱吃苹果 发表于 2026-10-14 09:33</a>
+
+花钱买订阅买安心嘛
+
+有个问题，免费开源的东西除非那种一堆人维护的，不然谁能保证可靠性呢？  ...</blockquote>
+用的人多自然有维护  再说了免费的东西 用着觉得不好那就用回收费的不就完了吗
+
+*****
+
+####  ft5555  
+##### 96#       发表于 2026-10-14 09:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer"> 我装了pdf word excel  发现已经汉化了啊
+
+*****
+
+####  临界点  
+##### 97#       发表于 2026-10-14 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368007&amp;ptid=2291670" target="_blank">WiiGe 发表于 2026-10-14 00:01</a>
+
+正在翻</blockquote>
+官方版居然还没中文吗？ 我看移植的鸿蒙版有还以为官方已经有了呢
+[https://www.bilibili.com/video/BV1WMpY6xErh](https://www.bilibili.com/video/BV1WMpY6xErh)
+
+
+*****
+
+####  雪见  
+##### 98#       发表于 2026-10-14 09:43
+
+要是更新得快，说不定能比Lightroom更快支持A7M5跟A7R6的创意外观。A7M5发售都快一年了，LR跟ACR还没支持RAW的索尼原厂滤镜。
+

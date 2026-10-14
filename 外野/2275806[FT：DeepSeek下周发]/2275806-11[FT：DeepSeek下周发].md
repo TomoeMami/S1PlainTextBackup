@@ -15621,3 +15621,15 @@ GOOGLE还在依赖广告时代和GCP无限挖潜在用户的逻辑在把GEMINI�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  RookieTnT  
+##### 16180#       发表于 2026-10-14 09:41
+
+Gemini 4 Argon高强度体验了一下，说人话能力跟opus5.5差不多，
+
+指令理解和执行这块比gpt6.1sol和astra好太多了，没有那么多傻逼边界护栏钟墙门禁。跟opus5.5差距暂时没体验出来，但是胜在没有cyber墙
+
+可能接下来是我的主力模型。gpt越来越难用了。。
+
