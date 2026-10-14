@@ -16332,3 +16332,11 @@ pro用户给到argon了，体感说胡话的频率低了，之前3.1pro让他给
 
 10刀给60刀用量，应该是现在性价比最高的套餐
 
+
+*****
+
+####  千千千千鸟  
+##### 16251#       发表于 2026-10-14 17:24
+
+所以现在AI文爱还是酒馆吧。我看类脑的那些预设也都还是酒馆用的预设，这么久了还是没有一个通用性比较强的agent类的。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
