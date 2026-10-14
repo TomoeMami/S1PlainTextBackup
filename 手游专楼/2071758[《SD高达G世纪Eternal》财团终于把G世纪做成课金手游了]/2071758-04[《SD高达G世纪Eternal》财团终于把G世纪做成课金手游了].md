@@ -1664,3 +1664,30 @@ CROSS DIMENSION 0079送的SSR驾驶员是不是有BUG....只能在驾驶员列�
 
 洛叔立绘戴眼罩，ex演出有打穿大气层的超级大狙，不知道力天使会不会给六射
 
+
+*****
+
+####  森兰丸  
+##### 4860#       发表于 2026-10-14 16:29
+
+我++
+
+须佐和这次周年池已经把我石头都给抽光了接着马上又来重生
+
+这么多作品怎么连着出卡池的还能正好是我最喜欢的几个机体<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西人  
+##### 4861#       发表于 2026-10-14 16:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这么出，只能pass咯
+
+*****
+
+####  arthes  
+##### 4862#       发表于 2026-10-14 16:33
+
+我去啊 不该在v2池子发狂的
+怎么真是再生啊<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，我已经没钻战斗了
+
