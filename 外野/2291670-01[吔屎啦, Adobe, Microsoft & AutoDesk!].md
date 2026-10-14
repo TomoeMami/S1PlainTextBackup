@@ -1620,3 +1620,18 @@ DesignCraft可以设置ICC, 我试了下:
 
 PANTONE库肯定是不要想了
 
+
+*****
+
+####  wer5lcy  
+##### 141#       发表于 2026-10-15 04:05
+
+我了个龟龟，PDFCraft运行速度是真猛，已经切换默认PDF应用了。
+
+*****
+
+####  qwased  
+##### 142#       发表于 2026-10-15 04:11
+
+比起这种一大坨bug的ai还原应用，不如复活下Starcraft<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
