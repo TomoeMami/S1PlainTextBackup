@@ -15991,3 +15991,21 @@ qwen4之前有人评论前端能打opus5.5</blockquote>
 
 —— 来自 Xiaomi 2608BPX34C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  nxmonitor  
+##### 16219#       发表于 2026-10-14 13:47
+
+如果最后真2T的模型能跑出140TPS，说明4.1架构确实有奇效，至少不用担心像K3一样把自己算力卡死，白白浪费扩张的时机
+
+
+*****
+
+####  lactone  
+##### 16220#       发表于 2026-10-14 13:53
+
+140tps，4pro价格，k3或者fable水平，这就很能打了吧
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
