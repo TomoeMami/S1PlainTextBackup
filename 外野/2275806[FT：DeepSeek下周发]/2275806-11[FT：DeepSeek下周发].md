@@ -16561,3 +16561,20 @@ ds怎么退了点钱<img src="https://static.stage1st.com/image/smiley/face2017/
 
 技术栈见截图。（就只是一个oneshot提示，大模型自己研究并跑起来了）
 
+
+*****
+
+####  白日依山尽  
+##### 16270#       发表于 2026-10-14 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372905&amp;ptid=2275806" target="_blank">星野あさみ 发表于 2026-10-14 21:37</a>
+
+我理解不是简单的图片识别，是把整个图片都转换成向量存起来了。（和llm多模态识图原理一样吧）
+
+用户 ...</blockquote>
+就是本地知识库的向量数据吧？
+
+本质是让小模型先将本地数据向量化，然后大模型调用查询更方便
+
+之前纯文本的Qwen3-Embedding，前段时间腾讯也搞了个多模态WeMM-Embedding
+
