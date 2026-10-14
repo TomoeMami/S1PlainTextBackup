@@ -16439,3 +16439,16 @@ fb62d84e-ee71-4717-aab7-1e02106f1a93.png
 
 原来IS你知道是奶龙的问题啊
 
+
+*****
+
+####  无知的小鼠人  
+##### 7388#       发表于 2026-10-14 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372230&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-10-14 18:56</a>
+
+出现过的调停者就四个吧，一个叛徒，一个安娜，一个老奶奶还有个自捏。不知道被丢下去的是不是那个叛徒。 ...</blockquote>
+调停者叛徒是哪个啊？哪里有提到？
+
+从时间上，那个在伟大石碑给安纳托利亚留言的可能性更大一些
+

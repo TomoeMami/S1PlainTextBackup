@@ -1521,3 +1521,31 @@ wps的我感觉不好用，微软的更是一坨大便屎中屎</blockquote>
 
 所以说其实不能算实装了中文
 
+
+*****
+
+####  KDConan  
+##### 135#       发表于 2026-10-14 20:45
+
+试了下CAD打开图纸，也是字体问题，能识别但是原来的排版乱了，好像就俩主程序，不知道在哪儿能添加字体目录<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  WiiGe  
+##### 136#         楼主| 发表于 2026-10-14 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372696&amp;ptid=2291670" target="_blank">KDConan 发表于 2026-10-14 20:45</a>
+
+试了下CAD打开图纸，也是字体问题，能识别但是原来的排版乱了，好像就俩主程序，不知道在哪儿能添加字体目 ...</blockquote>
+据说读的是这里设置的字体
+
+<img src="https://img.stage1st.com/forum/202610/14/205108dd3d7x1hoshkj863.png" referrerpolicy="no-referrer">
+
+<strong>48e0de8f-71b0-48b0-9ab7-4bd49cdee1be.png</strong> (679.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 20:51 上传
+

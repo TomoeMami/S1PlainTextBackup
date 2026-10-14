@@ -16494,3 +16494,24 @@ argon比flash3.678好，就是甲好奇怪。<img src="https://static.stage1st.c
 
 DSH在B站上开了一个疑似的官方号……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iceddd  
+##### 16265#       发表于 2026-10-14 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372613&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-14 20:28</a>
+
+你给他一个标准模板就行，让4.1自己搞它容易越搞越不像人话</blockquote>
+刚接触ai办公 没有code需求 我之前整理文件之类都是用的workbuddy 用dsh写如果插件什么都没有是不是不如前者啊<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 16266#       发表于 2026-10-14 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372700&amp;ptid=2275806" target="_blank">iceddd 发表于 2026-10-14 20:46</a>
+
+刚接触ai办公 没有code需求 我之前整理文件之类都是用的workbuddy 用dsh写如果插件什么都没有是不是不如 ...</blockquote>
+你把要求提好，然后让他做成skill，或者先让他查一下有没有合适的插件，最保险的还是固定成skill或者插件形式，这样他存在哪里怎么读怎么更新都会记住，不然你让他随便发挥每次换新话题他都有可能搞出别的幺蛾子
+
