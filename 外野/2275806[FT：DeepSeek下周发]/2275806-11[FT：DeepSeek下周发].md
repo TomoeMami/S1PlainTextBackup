@@ -16061,3 +16061,46 @@ deepseek4.1flash最强的，还是速度快。。。
 现在国内模型是不是都在适配国产卡训练和推理啊？感觉上面的态度就是趁现在差距不大，宁可拼着落后一年也要 ...</blockquote>
 DS的适配已经结束了，前两个星期刚开源了一批关于昇腾的组件。
 
+
+*****
+
+####  奥柏伦亲王  
+##### 16227#       发表于 2026-10-14 14:25
+
+国模没有新东西还是挺烦的，gpt使用体验越来越差（指速度慢，额度反复横跳和一贯的文字表达能力不好），国模不更我只能捏鼻子想办法搞Opus5.5用了
+
+*****
+
+####  zy450  
+##### 16228#       发表于 2026-10-14 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369779&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-10-14 11:17</a>
+
+前端审美有啥用啊，设计是设计师的事，开发照着设计稿画都一样</blockquote>
+垃圾公司没有设计师，只有全栈程序员
+
+
+*****
+
+####  deviljz  
+##### 16229#       发表于 2026-10-14 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70370608&amp;ptid=2275806" target="_blank">Anarkia 发表于 2026-10-14 13:56</a>
+
+Argon干活先不说，写小黄文还是gemini那股发情味儿……</blockquote>
+写小黄文用啥模型好
+
+*****
+
+####  Anarkia  
+##### 16230#       发表于 2026-10-14 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70370810&amp;ptid=2275806" target="_blank">deviljz 发表于 2026-10-14 14:30</a>
+
+写小黄文用啥模型好</blockquote>
+argon和opus一半一半吧我觉得
+
+opus严谨，文笔不错，有时候有点干，给好指示了我觉得可能是最好的
+
+Argon写得还是偏腻，用词浮夸感叹号多
+
