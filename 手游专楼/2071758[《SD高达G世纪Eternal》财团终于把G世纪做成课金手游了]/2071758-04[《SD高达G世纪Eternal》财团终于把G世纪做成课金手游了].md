@@ -1652,3 +1652,15 @@ CROSS DIMENSION 0079送的SSR驾驶员是不是有BUG....只能在驾驶员列�
 
 能用到的当然点满啊为啥不点.....又不吃UR材料<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 4859#       发表于 2026-10-14 16:27
+
+力天使（红）
+
+再生高达（黄）
+
+洛叔立绘戴眼罩，ex演出有打穿大气层的超级大狙，不知道力天使会不会给六射
+

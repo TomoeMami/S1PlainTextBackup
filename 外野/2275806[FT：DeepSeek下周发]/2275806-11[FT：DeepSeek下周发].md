@@ -16209,3 +16209,27 @@ A/O是高价API收割B/G端用户, 以便用Coding  ...</blockquote>
 
 服务都是面向全球提供的，价格低了以国内的算力储备根本没法提供足够的服务。之前V4f已经发生过一次的事了
 
+
+*****
+
+####  故障机器人  
+##### 16240#       发表于 2026-10-14 16:18
+
+argon出图有点爱加戏
+
+<img src="https://img.stage1st.com/forum/202610/14/161811tffzpp2fhxhim7zw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (126.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 16:18 上传
+
+<img src="https://img.stage1st.com/forum/202610/14/161802nnf3b3zadagzdd2n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (437.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 16:18 上传
+
