@@ -16291,3 +16291,34 @@ argon的世界知识的确领先GPT很多，也有可能是原生多模态的缘
 
 说来现在AI搞文字黄色有没有新玩法，还是酒馆那套吗。感觉已经很不好用了
 
+
+*****
+
+####  squallx  
+##### 16247#       发表于 2026-10-14 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371690&amp;ptid=2275806" target="_blank">矮矮人 发表于 2026-10-14 16:59</a>
+说来现在AI搞文字黄色有没有新玩法，还是酒馆那套吗。感觉已经很不好用了 ...</blockquote>
+酒馆插件接入tts 生图、视频 galgame化
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  这次是十块钱  
+##### 16248#       发表于 2026-10-14 17:15
+
+pro用户给到argon了，体感说胡话的频率低了，之前3.1pro让他给我星际拓荒的非剧透攻略写的牛头不对马嘴，这次刚发售的银松镇给的攻略居然都挺对
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  matthewsteel  
+##### 16249#       发表于 2026-10-14 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371057&amp;ptid=2275806" target="_blank">Mirathel 发表于 2026-10-14 15:06</a>
+
+不止sol，astra这个小时也频繁爆资源上限错误，应该是o哪里出问题了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">从来没有像这两个小时觉得6.1sol真的慢。。。。。。。
+
