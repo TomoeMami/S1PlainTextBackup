@@ -15920,3 +15920,40 @@ IS的左右脑互搏
 
 画面呈现很明显是吸引了全部观众和法王目光的，并不是“偷偷的”
 
+
+*****
+
+####  Jabeck  
+##### 7337#       发表于 2026-10-14 11:17
+
+不是。。你观众都可以随便都奖励丢武器支援参赛者了，弄个怪兽出来助助兴很奇怪吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七月狼  
+##### 7338#       发表于 2026-10-14 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367351&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-13 21:20</a>
+
+说好的萨拉米斯危机的时候，商人要给女王打钱的呢？怎么跑对面去了。
+
+女王这边还搞掠夺这一套。
+
+怎么编剧这 ...</blockquote>
+是不是没打外传，打了外传商人投敌这段应该是只能在石碑房看，游戏流程里是找商人借钱去了
+
+
+*****
+
+####  白色有角  
+##### 7339#       发表于 2026-10-14 11:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">其实讨论战争中的道德的srpg还真有，公主同盟就有类似的展开，不过我在想如果fe搞出一个圣剑之下皆为正义的剧情是接受的人多还是喷的人多
+
+*****
+
+####  苍蓝之枪  
+##### 7340#       发表于 2026-10-14 11:26
+
+这观众还真不一般，扔的武器可是好东西
+

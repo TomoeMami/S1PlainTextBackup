@@ -1400,3 +1400,13 @@ PDFCraft, 能编辑, 能E签</blockquote>
 
 我看到有开源插件商店了
 
+
+*****
+
+####  Glaceon丶  
+##### 123#       发表于 2026-10-14 11:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有点强，什么时候能把FEA软件也整一手（ansys，abaqus这些）
+
+—— 来自 vivo V2303A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

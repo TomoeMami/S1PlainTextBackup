@@ -15845,3 +15845,34 @@ qwen4之前有人评论前端能打opus
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  nxmonitor  
+##### 16204#       发表于 2026-10-14 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369688&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-14 11:05</a>
+
+能有一个能力特化就够了，现在这个规模还想全面领先吗
+
+qwen4之前有人评论前端能打opus5.5</blockquote>
+测算法题都不如4.1F，说明数学和推理能力很拉，那这个前端能力是不是特化的，上点难度就要炸了？问题就在这里
+
+*****
+
+####  neptunehs  
+##### 16205#       发表于 2026-10-14 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368637&amp;ptid=2275806" target="_blank">Kazuhira 发表于 2026-10-14 08:35</a>
+我安装了以后，里面说IDA的headless不支持analyze，GUI支持的更少，是不是用Ghidra好点？ ...</blockquote>
+我都装了 ai主要用ghidra
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  很久就在那边l  
+##### 16206#       发表于 2026-10-14 11:17
+
+前端审美有啥用啊，设计是设计师的事，开发照着设计稿画都一样
+
