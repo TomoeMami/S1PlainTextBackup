@@ -16050,3 +16050,14 @@ deepseek4.1flash最强的，还是速度快。。。
 
 有时候心急，想要快点有个答案，做个小脚本，都是用dsflash...
 
+
+*****
+
+####  nxmonitor  
+##### 16226#       发表于 2026-10-14 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70370674&amp;ptid=2275806" target="_blank">夜游宫 发表于 2026-10-14 14:07</a>
+
+现在国内模型是不是都在适配国产卡训练和推理啊？感觉上面的态度就是趁现在差距不大，宁可拼着落后一年也要 ...</blockquote>
+DS的适配已经结束了，前两个星期刚开源了一批关于昇腾的组件。
+
