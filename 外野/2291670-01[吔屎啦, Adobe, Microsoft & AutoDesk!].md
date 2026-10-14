@@ -929,3 +929,41 @@ b站看到有人做的单机版百万亚瑟王
 
 它们这Discord真的是松弛, 谁逆好了把自己项目往这一捐, 改改外观直接合并. 所以根本看不到RoadMap规划啥的, 小酒喝着小嗑唠着就软件+1了 <img src="https://static.stage1st.com/image/smiley/face2017/272.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noneoneone  
+##### 80#       发表于 2026-10-14 08:48
+
+在主楼说一下要下launcher吧，直接主页下的那个还要注册。
+[https://getartcraft.com/apps](https://getartcraft.com/apps)
+
+
+*****
+
+####  广东  
+##### 81#       发表于 2026-10-14 08:51
+
+低调些，不要觉得院外集团、大公司法务和FBI没能力好吧？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  赞卡机  
+##### 82#       发表于 2026-10-14 08:53
+
+这对之前类似freecad的开源项目会不会有影响
+
+- 发自忧郁深沉的 [论坛助手 WinUI](https://apps.microsoft.com/detail/9nj2qf6m25f6?hl=zh-CN&amp;gl=CN) 非官方客户端
+
+
+*****
+
+####  广东  
+##### 83#       发表于 2026-10-14 08:55
+
+<blockquote>赞卡机 发表于 2026-10-14 08:53
+这对之前类似freecad的开源项目会不会有影响
+
+- 发自忧郁深沉的 论坛助手 WinUI 非官方客户端 ...</blockquote>
+讲实话，如果freecad团队的目的就是搞个开源免费的cad，那么他们可以加入。
+

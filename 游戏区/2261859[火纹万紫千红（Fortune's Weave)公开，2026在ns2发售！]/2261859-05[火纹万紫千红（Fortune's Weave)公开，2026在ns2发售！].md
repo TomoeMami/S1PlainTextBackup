@@ -15602,3 +15602,14 @@ IS的左右脑互搏
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  逆旅行客  
+##### 7311#       发表于 2026-10-14 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367112&amp;ptid=2261859" target="_blank">陆久舟 发表于 2026-10-13 20:30</a>
+
+把大帝封印的是神威奶龙，打着复活大帝旗号的是神威奶龙，说大帝复活除非是乾坤逆转否则不可能的还是神威奶 ...</blockquote>
+就是因为知道大帝不可能复活打着复活旗号哄老婆啊，毕竟对外大帝名声威望都没受影响，只有他自己知道大帝其实已经精神失常了，老百姓心里还是个莫名其妙沉睡了的一代雄主
+
