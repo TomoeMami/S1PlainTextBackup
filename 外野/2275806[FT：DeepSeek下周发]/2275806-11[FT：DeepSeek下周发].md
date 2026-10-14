@@ -16145,3 +16145,18 @@ Argon写得还是偏腻，用词浮夸感叹号多
 —— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
 回去了我也试试ghidra<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  deviljz  
+##### 16235#       发表于 2026-10-14 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70370833&amp;ptid=2275806" target="_blank">Anarkia 发表于 2026-10-14 14:33</a>
+
+argon和opus一半一半吧我觉得
+
+opus严谨，文笔不错，有时候有点干，给好指示了我觉得可能是最好的
+
+Argon写 ...</blockquote>
+opus写的是好，之前我直接试着在claude code里让他写他也没拒绝。但感觉用自己账号搞这个有风险，用api的话又贵又容易中转站买到假的
+

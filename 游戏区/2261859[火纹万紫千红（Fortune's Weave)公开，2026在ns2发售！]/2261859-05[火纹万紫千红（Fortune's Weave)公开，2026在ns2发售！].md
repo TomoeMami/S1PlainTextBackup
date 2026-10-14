@@ -16174,3 +16174,22 @@ IS的左右脑互搏
 
 就该给第二部多加几场战役，多加几个达古扎的将领。一个霖多小红小绿打3章，也别说什么奶龙手下无人了，大帝+修道会也叫不出人，不是非编制就是外援<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 7361#       发表于 2026-10-14 15:21
+
+真有人认真走格子打野战啊。
+
+
+*****
+
+####  白昼梦DD  
+##### 7362#       发表于 2026-10-14 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371155&amp;ptid=2261859" target="_blank">星花 发表于 2026-10-14 15:21</a>
+
+真有人认真走格子打野战啊。我后三条线都是一路睡大觉的。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想收益高点不就是给自己找目标做来回跑，睡大觉其实也就算是重复度爆炸只能一路跳过了
+
