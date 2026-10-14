@@ -16475,3 +16475,29 @@ fb62d84e-ee71-4717-aab7-1e02106f1a93.png
 
 岩进是地底人吧，跟法比欧是同事，跟昆仑不是一个组织的
 
+
+*****
+
+####  Jabeck  
+##### 7391#       发表于 2026-10-14 21:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372754&amp;ptid=2261859" target="_blank">无知的小鼠人 发表于 2026-10-14 20:57</a>
+
+调停者叛徒哪里有提到？没仔细看
+
+从时间上，那个在伟大石碑给安纳托利亚留言的可能性更大一些 ...</blockquote>
+迪哥剧情第一次跟安纳托利亚他们打之后过场里龙老师说过有个叛徒调停者，然后我看贴吧整理剧情几百年前大帝能找到昆仑所在地就是因为这个叛徒调停者带路的。
+
+
+*****
+
+####  Jabeck  
+##### 7392#       发表于 2026-10-14 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372770&amp;ptid=2261859" target="_blank">星花 发表于 2026-10-14 21:01</a>
+
+迪线 法比欧隐藏剧情  特定日期在城里触发。
+
+反正舔狗是自愿的。</blockquote>
+你搞错了，岩进是地底人。把锅炸了那个疑似调停者都几百年前了。
+
