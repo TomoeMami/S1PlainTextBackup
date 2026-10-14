@@ -16009,3 +16009,11 @@ qwen4之前有人评论前端能打opus5.5</blockquote>
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Anarkia  
+##### 16221#       发表于 2026-10-14 13:56
+
+Argon干活先不说，写小黄文还是gemini那股发情味儿……
+
