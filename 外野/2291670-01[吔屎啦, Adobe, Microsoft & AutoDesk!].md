@@ -818,3 +818,15 @@ AI编程的一个正确用法啊，哈哈
 
 用户苦Adobe久已
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 75#       发表于 2026-10-14 08:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368118&amp;ptid=2291670" target="_blank">ashunicorn 发表于 2026-10-14 00:49</a>
+刚安装好不是要注册吗？</blockquote>
+你下错了，下launcher，不用注册
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
