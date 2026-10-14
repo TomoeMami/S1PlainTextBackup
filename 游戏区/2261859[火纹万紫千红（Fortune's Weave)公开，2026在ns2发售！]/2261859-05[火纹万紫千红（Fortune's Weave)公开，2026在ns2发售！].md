@@ -16365,3 +16365,23 @@ fb62d84e-ee71-4717-aab7-1e02106f1a93.png
 
 凯伊线要是能像女王线一样种菜抓马都能自己完成的话的话都要轻松不少
 
+
+*****
+
+####  oniwarud  
+##### 7381#       发表于 2026-10-14 18:44
+
+安娜支线里提到的那个把大锅给煮炸了的人到底是谁好像也给藏了没说明，感觉很有可能跟自捏的诞生有关
+
+
+*****
+
+####  bad_alloc  
+##### 7382#       发表于 2026-10-14 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372187&amp;ptid=2261859" target="_blank">oniwarud 发表于 2026-10-14 18:44</a>
+安娜支线里提到的那个把大锅给煮炸了的人到底是谁好像也给藏了没说明，感觉很有可能跟自捏的诞生有关 ...</blockquote>
+法比奥这种精英地底人，以及昆仑的调停者，有提到是有个高能核心的，我猜应该是某个调停者进锅然后煮炸了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
