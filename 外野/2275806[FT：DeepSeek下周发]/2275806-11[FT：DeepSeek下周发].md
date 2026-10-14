@@ -16123,3 +16123,25 @@ Argon写得还是偏腻，用词浮夸感叹号多
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  Mirathel  
+##### 16233#       发表于 2026-10-14 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70370861&amp;ptid=2275806" target="_blank">matthewsteel 发表于 2026-10-14 14:38</a>
+
+大家把6.1sol给蹬炸了么，at capacity</blockquote>
+不止sol，astra这个小时也频繁爆资源上限错误，应该是o哪里出问题了
+
+*****
+
+####  Kazuhira  
+##### 16234#       发表于 2026-10-14 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369759&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-10-14 11:15</a>
+我都装了 ai主要用ghidra
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
+回去了我也试试ghidra<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
