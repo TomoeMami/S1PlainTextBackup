@@ -1117,3 +1117,91 @@ https://getartcraft.com/apps ...</blockquote>
 
 要是更新得快，说不定能比Lightroom更快支持A7M5跟A7R6的创意外观。A7M5发售都快一年了，LR跟ACR还没支持RAW的索尼原厂滤镜。
 
+
+*****
+
+####  临界点  
+##### 99#       发表于 2026-10-14 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368268&amp;ptid=2291670" target="_blank">长征5号 发表于 2026-10-14 02:19</a>
+
+用AI反编译个windows出来，国产桌面操作系统几十年短板直接拉平</blockquote>
+系统本身相对没那么难 像鸿蒙PC系统便利性甚至超过Windows 生态兼容性才是最难的  你让AI反编译也做不出兼容性来 跟这些软件是不一样的 毕竟这些软件得文件格式是公开的  要兼容简单得多
+
+*****
+
+####  WiiGe  
+##### 100#         楼主| 发表于 2026-10-14 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369057&amp;ptid=2291670" target="_blank">ft5555 发表于 2026-10-14 09:40</a>
+
+我装了pdf word excel  发现已经汉化了啊</blockquote>
+啊? 难道是因为我装西班牙人骗 Claude 顺手把 ArtCraft 也骗了? 我记得这套是跟随系统语言的
+
+*****
+
+####  stanzgy  
+##### 101#       发表于 2026-10-14 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369002&amp;ptid=2291670" target="_blank">WiiGe 发表于 2026-10-14 09:32</a>
+
+试试 Octave? 
+
+https://octave.org/</blockquote>
+scilab。但其实都没法完全代替matlab
+
+*****
+
+####  小幽已上电棍床  
+##### 102#       发表于 2026-10-14 09:47
+
+所以excel好用吗
+
+wps的我感觉不好用，微软的更是一坨大便屎中屎
+
+
+*****
+
+####  不让用大写  
+##### 103#       发表于 2026-10-14 09:50
+
+试了一下EffectCraft，成长空间还很大
+
+拖动、缩放等操作上明显的不跟手，还不支持第三方插件\脚本
+
+如果只用原版AE的功能，那挺适合电脑配置不高的人，操作流程基本上一样的
+
+*****
+
+####  信长的呕吐  
+##### 104#       发表于 2026-10-14 09:51
+
+能支持ps用的ai修图插件吗能就把ps删了
+
+*****
+
+####  noneoneone  
+##### 105#       发表于 2026-10-14 09:53
+
+收集反馈这方面有开源社区弥补。而且很容易预见的，将来谁手头开源软件有问题都能用AI自己修好了，反倒是闭源才只能等着官方收到足够多的反馈才动手。
+
+*****
+
+####  长征5号  
+##### 106#       发表于 2026-10-14 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369089&amp;ptid=2291670" target="_blank">临界点 发表于 2026-10-14 09:45</a>
+
+系统本身相对没那么难 像鸿蒙PC系统便利性甚至超过Windows 生态兼容性才是最难的  你让AI反编译也做不出 ...</blockquote>
+生态也可以反编译过来啊，听说早就有人用AI反编译安卓APP转鸿蒙了
+
+*****
+
+####  WiiGe  
+##### 107#         楼主| 发表于 2026-10-14 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369105&amp;ptid=2291670" target="_blank">stanzgy 发表于 2026-10-14 09:46</a>
+
+scilab。但其实都没法完全代替matlab</blockquote>
+雀食, 要和 Mathworks 那么多年积累下来的工具箱斗还是有难度的
+
