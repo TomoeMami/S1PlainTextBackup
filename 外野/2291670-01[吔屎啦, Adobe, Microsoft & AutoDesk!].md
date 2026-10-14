@@ -1508,3 +1508,16 @@ wps的我感觉不好用，微软的更是一坨大便屎中屎</blockquote>
 
 我用了acrobat的模仿版，软件中文字体全是乱的，文件的倒是没有问题
 
+
+*****
+
+####  WiiGe  
+##### 134#         楼主| 发表于 2026-10-14 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371652&amp;ptid=2291670" target="_blank">北呱南飞去 发表于 2026-10-14 16:51</a>
+
+我用了acrobat的模仿版，软件中文字体全是乱的，文件的倒是没有问题</blockquote>
+他这UI汉化就是中英混合, 贼不上道
+
+所以说其实不能算实装了中文
+
