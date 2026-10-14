@@ -16322,3 +16322,13 @@ pro用户给到argon了，体感说胡话的频率低了，之前3.1pro让他给
 不止sol，astra这个小时也频繁爆资源上限错误，应该是o哪里出问题了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">从来没有像这两个小时觉得6.1sol真的慢。。。。。。。
 
+
+*****
+
+####  andychen  
+##### 16250#       发表于 2026-10-14 17:16
+
+对了，想用Argon的可以去开个Opencode Go
+
+10刀给60刀用量，应该是现在性价比最高的套餐
+
