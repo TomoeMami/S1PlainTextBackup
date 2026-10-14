@@ -16017,3 +16017,36 @@ qwen4之前有人评论前端能打opus5.5</blockquote>
 
 Argon干活先不说，写小黄文还是gemini那股发情味儿……
 
+
+*****
+
+####  cscbzcbz  
+##### 16222#       发表于 2026-10-14 14:05
+
+只求不涨价<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 16223#       发表于 2026-10-14 14:06
+
+ 本帖最后由 nxmonitor 于 2026-10-14 14:07 编辑 
+
+思维链像灰测，只说自己在干什么，具体干了什么不知道，不过是let me开头的而不是i'm doing，而且只有一张图目前说明不了什么。其实DS去试一下loop transformer最好，4.1的架构也很适合来做，也能防止被闭源的蒸馏了。
+
+*****
+
+####  夜游宫  
+##### 16224#       发表于 2026-10-14 14:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在国内模型是不是都在适配国产卡训练和推理啊？感觉上面的态度就是趁现在差距不大，宁可拼着落后一年也要把国内生态搞完整。
+
+*****
+
+####  自由之紫roy  
+##### 16225#       发表于 2026-10-14 14:09
+
+deepseek4.1flash最强的，还是速度快。。。
+
+有时候心急，想要快点有个答案，做个小脚本，都是用dsflash...
+

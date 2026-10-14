@@ -16059,3 +16059,18 @@ IS的左右脑互搏
 
 以及补救方法有吗？
 
+
+*****
+
+####  Jabeck  
+##### 7351#       发表于 2026-10-14 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70370622&amp;ptid=2261859" target="_blank">DarkDawn 发表于 2026-10-14 13:59</a>
+
+目前有没有详细整理所有的支援锁情况的
+
+只知道女王那边有一套奇怪的锁，必须按正确顺序观看
+
+那种限制特定章 ...</blockquote>
+重开第一章没锁的章节然后一路通关再跳过第二章能继承好像
+
