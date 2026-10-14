@@ -15574,3 +15574,13 @@ pro用户反重力不支持
 最新爆料，Fable5.5本周发，Astra6.1这个月内发</blockquote>
 说好的减速呢，这迭代速度也太快了，卡多就是豪横啊<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">徐直军，我卡呢
 
+
+*****
+
+####  泰坦失足  
+##### 16176#       发表于 2026-10-14 09:05
+
+Antigravity不上Gemini4,大概是EDU会员和JIO会员实在太tm多了.
+
+A/O是高价API收割B/G端用户, 以便用Coding Plan补贴个人用户并养成用户粘性和市场占有率. OpenAI为此都紧急自断一臂, 直接砍了Sora, 用PC上的CodeX APP防止被Calude Code/Cowork偷家. Google这个减少给全球正常花钱的个人用户额度, 补贴无数EDU邮箱一年会员和JIO用户的操作就真让人看不懂了. <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
