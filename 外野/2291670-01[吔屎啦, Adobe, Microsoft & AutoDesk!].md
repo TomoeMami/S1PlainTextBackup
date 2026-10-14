@@ -1591,3 +1591,32 @@ ai时代还学蜗蜗小画师舞版权大棒，智力水平堪比一只哈基米
 
 我是印刷行业的，adobe的优势是深度绑定色彩标准，这套东西是很难说换个软件就能平替。
 
+
+*****
+
+####  WiiGe  
+##### 140#         楼主| 发表于 2026-10-15 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70373165&amp;ptid=2291670" target="_blank">amzonme 发表于 2026-10-14 22:45</a>
+
+我是印刷行业的，adobe的优势是深度绑定色彩标准，这套东西是很难说换个软件就能平替。 ...</blockquote>
+DesignCraft可以设置ICC, 我试了下:
+
+<img src="https://img.stage1st.com/forum/202610/15/001226kz8dzdhje5llmjde.png" referrerpolicy="no-referrer">
+
+<strong>8ae95186-87a5-4ddb-9001-a7c1bee4b8b4.png</strong> (339.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 00:12 上传
+
+<img src="https://img.stage1st.com/forum/202610/15/001231jxcj25h7c9a909a5.png" referrerpolicy="no-referrer">
+
+<strong>3e743979-58b7-49fb-9ebe-09fb189d2231.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 00:12 上传
+
+PANTONE库肯定是不要想了
+

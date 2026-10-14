@@ -16602,3 +16602,13 @@ gemini 4 argon的写文能力确实不错，看来我前段时间已经路由到
 
 就离谱，让DS4.1F判断，左图和右边两个哪个形状一样，commandcode和CodeBuddy都做错了，就官方做对了。智力有这么大差距吗，还是中转站的视力被阉割了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 16273#       发表于 2026-10-15 00:13
+
+我测试了一下Argon，在非代码工程类的任务上我认为这个模型至少是Fable级别的。不过代码工程上差不多Sol 6.1能力齐平
+
+最搞笑的是Pro用户在Gemini App上调这个模型一次5小时限额仅相当于周限额的5%，这真得掐着点用才能把周限额用满。这么设计让我感觉Google根本不缺少这个模型的服务能力，但是要拼命提防用户薅羊毛
+
