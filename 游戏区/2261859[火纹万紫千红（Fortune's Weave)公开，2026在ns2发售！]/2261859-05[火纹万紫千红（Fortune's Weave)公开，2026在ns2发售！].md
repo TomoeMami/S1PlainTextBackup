@@ -15880,3 +15880,43 @@ IS的左右脑互搏
 
 而且第二部第一章白发鬼带队，迪子线的无名凑数骑士强度比另三线盖茨本尊要强
 
+
+*****
+
+####  caps洛奇  
+##### 7335#       发表于 2026-10-14 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369520&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-14 10:41</a>
+
+玛利亚没进场吧，只是在观众席偷偷召唤。
+
+至于奶龙，本身是为君子兰开的剑斗大赛，君子兰说好就行
+
+ ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/14/110914rignrpissephpesu.jpg" referrerpolicy="no-referrer">
+
+<strong>HUiFQ43aUAAUQ7V.jpg</strong> (71.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 11:09 上传
+
+刚好刷到X上吐槽这段的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  エリ  
+##### 7336#       发表于 2026-10-14 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369520&amp;ptid=2261859" target="_blank">索非亚 发表于 2026-10-14 10:41</a>
+
+玛利亚没进场吧，只是在观众席偷偷召唤。
+
+至于奶龙，本身是为君子兰开的剑斗大赛，君子兰说好就行
+
+ ...</blockquote>
+我凌晨刚打的，这段有过场，黑白双琴共鸣
+
+画面呈现很明显是吸引了全部观众和法王目光的，并不是“偷偷的”
+
