@@ -15584,3 +15584,20 @@ Antigravity不上Gemini4,大概是EDU会员和JIO会员实在太tm多了.
 
 A/O是高价API收割B/G端用户, 以便用Coding Plan补贴个人用户并养成用户粘性和市场占有率. OpenAI为此都紧急自断一臂, 直接砍了Sora, 用PC上的CodeX APP防止被Calude Code/Cowork偷家. Google这个减少给全球正常花钱的个人用户额度, 补贴无数EDU邮箱一年会员和JIO用户的操作就真让人看不懂了. <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绕指流光  
+##### 16177#         楼主| 发表于 2026-10-14 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368818&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-10-14 09:05</a>
+
+Antigravity不上Gemini4,大概是EDU会员和JIO会员实在太tm多了.
+
+A/O是高价API收割B/G端用户, 以便用Coding  ...</blockquote>
+没啥看不懂的，前两家的最核心任务是做高报表支撑冲刺上市的溢价率，不然资方看不到回报戏演不下去了
+
+GOOGLE还在依赖广告时代和GCP无限挖潜在用户的逻辑在把GEMINI当传统产品在经营
+
+很难说谁对谁错，就看最后纳指吃下A\和OA之后膨胀到什么水平
+
