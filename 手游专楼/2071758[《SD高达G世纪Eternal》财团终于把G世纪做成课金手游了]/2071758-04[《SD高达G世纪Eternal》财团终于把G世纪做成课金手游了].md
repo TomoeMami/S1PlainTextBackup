@@ -1775,3 +1775,16 @@ GN钢加浓可以是红机</blockquote>
 
 开服玩竟然只有上尉
 
+
+*****
+
+####  中野梓  
+##### 4871#       发表于 2026-10-14 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70373034&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-10-14 22:06</a>
+
+有人等级是少校吗
+
+开服玩竟然只有上尉</blockquote>
+我就是少校
+
