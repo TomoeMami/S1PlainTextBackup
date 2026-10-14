@@ -16475,3 +16475,14 @@ argon比flash3.678好，就是甲好奇怪。<img src="https://static.stage1st.c
 
 只是单纯整理工作记录，拿工作记录写几千字的档案（有过往文件现成的格式参考）用什么ai比较好啊<img src="https://static.stage1st.com/image/smiley/flash/127.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 16263#       发表于 2026-10-14 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372581&amp;ptid=2275806" target="_blank">iceddd 发表于 2026-10-14 20:20</a>
+
+只是单纯整理工作记录，拿工作记录写几千字的档案（有过往文件现成的格式参考）用什么ai比较好啊 4.1f可以 ...</blockquote>
+你给他一个标准模板就行，让4.1自己搞它容易越搞越不像人话
+

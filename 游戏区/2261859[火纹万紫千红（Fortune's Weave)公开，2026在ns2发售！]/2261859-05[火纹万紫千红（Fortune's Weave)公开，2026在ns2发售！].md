@@ -16423,3 +16423,19 @@ fb62d84e-ee71-4717-aab7-1e02106f1a93.png
 
 说起来哪吒之前送眯眯眼结石的真正理由是啥，到B支援就没了后续，不会是恋母情结送的定情信物吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 7387#       发表于 2026-10-14 20:34
+
+<img src="https://img.stage1st.com/forum/202610/14/203348jdddhduehildedsl.jpg" referrerpolicy="no-referrer">
+
+<strong>1000047494.jpg</strong> (373.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 20:33 上传
+
+原来IS你知道是奶龙的问题啊
+
