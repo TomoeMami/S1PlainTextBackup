@@ -16411,3 +16411,15 @@ fb62d84e-ee71-4717-aab7-1e02106f1a93.png
 
 今天才看到对话法比奥这些心脏是缩退炉，爆的时候才把那个釜炸了算大帝那地方运气好。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Humpy  
+##### 7386#       发表于 2026-10-14 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372230&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-10-14 18:56</a>
+出现过的调停者就四个吧，一个叛徒，一个安娜，一个老奶奶还有个自捏。不知道被丢下去的是不是那个叛徒。 ...</blockquote>
+哪吒也是制造出来的调停者吧，虽然出了意外导致个子矮小<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说起来哪吒之前送眯眯眼结石的真正理由是啥，到B支援就没了后续，不会是恋母情结送的定情信物吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

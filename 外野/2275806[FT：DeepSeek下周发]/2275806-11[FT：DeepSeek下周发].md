@@ -16456,3 +16456,22 @@ argon比flash3.678好，就是甲好奇怪。<img src="https://static.stage1st.c
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  阿刚  
+##### 16261#       发表于 2026-10-14 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371690&amp;ptid=2275806" target="_blank">矮矮人 发表于 2026-10-14 16:59</a>
+
+说来现在AI搞文字黄色有没有新玩法，还是酒馆那套吗。感觉已经很不好用了 ...</blockquote>
+不像纯折腾的酒馆的话，dsh有不少插件可以试试，还有平移酒馆内容的插件，然后有不少文风纠正的插件
+
+
+*****
+
+####  iceddd  
+##### 16262#       发表于 2026-10-14 20:20
+
+只是单纯整理工作记录，拿工作记录写几千字的档案（有过往文件现成的格式参考）用什么ai比较好啊<img src="https://static.stage1st.com/image/smiley/flash/127.gif" referrerpolicy="no-referrer">
+
