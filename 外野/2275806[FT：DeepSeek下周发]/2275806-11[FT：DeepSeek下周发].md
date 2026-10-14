@@ -15932,3 +15932,14 @@ qwen4之前有人评论前端能打opus5.5</blockquote>
 
 写文的话4还行，思路要更有人味儿一点，但是甲也是非常的精准，哪怕用身份注入破了他也有一套特别敏感的题材硬审核，就....凑活弄点清淡的吧
 
+
+*****
+
+####  绕指流光  
+##### 16213#         楼主| 发表于 2026-10-14 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369487&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-10-14 10:34</a>
+
+不一定上得了，中选不是没有凌空爆炸的可能性。</blockquote>
+上不上得了和上了值多少钱是两件事，做财报是为了推高估值，营收几乎是唯一能支持财务叙事的指标
+
