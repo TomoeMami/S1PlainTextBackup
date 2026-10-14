@@ -16364,3 +16364,13 @@ pro用户给到argon了，体感说胡话的频率低了，之前3.1pro让他给
 从来没有像这两个小时觉得6.1sol真的慢。。。。。。。</blockquote>
 我还以为就我的问题，慢但是又没断
 
+
+*****
+
+####  bartholo4  
+##### 16254#       发表于 2026-10-14 18:12
+
+Astra 今天都蹬爆了好几次
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
