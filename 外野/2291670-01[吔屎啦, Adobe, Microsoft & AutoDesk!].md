@@ -1045,3 +1045,24 @@ b站看到有人做的单机版百万亚瑟王
 中短期是法律战，但是远了就真没用了，除非美国有本事干死全世界ai不然人用它来编程，不然就会有“有人反 ...</blockquote>
 最黑暗的想法就是Adobe直接公开让oa他们炼自己的软件，以后谁敢用这两家的ai搞净室就直接dmca联合出动，不过目前应该不会这么极端
 
+
+*****
+
+####  WiiGe  
+##### 92#         楼主| 发表于 2026-10-14 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368837&amp;ptid=2291670" target="_blank">stanzgy 发表于 2026-10-14 09:08</a>
+
+印象里的各种垄断软件，好像就matlab还没见到</blockquote>
+试试 Octave? 
+[https://octave.org/](https://octave.org/)
+
+*****
+
+####  死神只爱吃苹果  
+##### 93#       发表于 2026-10-14 09:33
+
+花钱买订阅买安心嘛
+
+有个问题，免费开源的东西除非那种一堆人维护的，不然谁能保证可靠性呢？ 
+
