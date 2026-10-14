@@ -15821,3 +15821,27 @@ flash和Pro文笔有显著不同，不知是我心理作用还是确有其事  
 
 Qwen不知道拿出来的版本怎么样，之前看内侧完全是区，前端特化但推理能力很差，迁移能力还要打个问号。
 
+
+*****
+
+####  lubo  
+##### 16202#       发表于 2026-10-14 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369533&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-10-14 10:43</a>
+
+怎么买啊现在
+
+—— 来自 鹅球 v3.3.96</blockquote>
+ios低价区，多备几个号轮流开新会员折扣
+
+*****
+
+####  lactone  
+##### 16203#       发表于 2026-10-14 11:05
+
+能有一个能力特化就够了，现在这个规模还想全面领先吗
+
+qwen4之前有人评论前端能打opus
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

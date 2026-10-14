@@ -1387,3 +1387,16 @@ PDFCraft, 能编辑, 能E签</blockquote>
 
 这太牛了，关键体积小好评，之前用photon studio还是有点臃肿了
 
+
+*****
+
+####  WiiGe  
+##### 122#         楼主| 发表于 2026-10-14 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369151&amp;ptid=2291670" target="_blank">信长的呕吐 发表于 2026-10-14 09:51</a>
+
+能支持ps用的ai修图插件吗能就把ps删了</blockquote>
+[https://akkk09.github.io/artcraft-store/](https://akkk09.github.io/artcraft-store/)
+
+我看到有开源插件商店了
+
