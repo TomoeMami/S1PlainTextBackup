@@ -16578,3 +16578,11 @@ ds怎么退了点钱<img src="https://static.stage1st.com/image/smiley/face2017/
 
 之前纯文本的Qwen3-Embedding，前段时间腾讯也搞了个多模态WeMM-Embedding
 
+
+*****
+
+####  Litccc  
+##### 16271#       发表于 2026-10-14 22:24
+
+gemini 4 argon的写文能力确实不错，看来我前段时间已经路由到了，就得多一点这种模型啊<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
