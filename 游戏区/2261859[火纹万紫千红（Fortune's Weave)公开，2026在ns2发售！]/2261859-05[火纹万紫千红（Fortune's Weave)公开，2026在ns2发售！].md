@@ -16312,3 +16312,21 @@ fb62d84e-ee71-4717-aab7-1e02106f1a93.png
 
 2026-10-14 16:45 上传
 
+
+*****
+
+####  mai6696  
+##### 7375#       发表于 2026-10-14 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371609&amp;ptid=2261859" target="_blank">シルフィエット 发表于 2026-10-14 16:44</a>
+
+努佐杰斯塔晚招带雷剑，哈尔温早招带短弓</blockquote>
+怎么不提我们大熊的右钩爪
+
+*****
+
+####  北条早苗  
+##### 7376#       发表于 2026-10-14 16:49
+
+除了迪线刃鸣嗯刷遭遇战，其他线都没必要硬打吧，刷技能熟练度和练级都不如刷洞效率高了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
