@@ -250,3 +250,17 @@
 
 请问从客观角度出发，只考虑单机版内的内容不考虑其他附加因素的情况下，单机版剧情如何呀？
 
+
+*****
+
+####  椎名mahuyo  
+##### 102#       发表于 2026-10-14 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70370260&amp;ptid=2274134" target="_blank">caicaistar 发表于 2026-10-14 12:46</a>
+在愿望单里
+
+请问从客观角度出发，只考虑单机版内的内容不考虑其他附加因素的情况下，单机版剧情如何呀？ ...</blockquote>
+主线剧情其实真的很短，还有水时长环节，这游戏时长都是不能跳过的队友个人任务撑起来的，当然主线剧情肯定有亮点，只是感觉不如音乐好<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3708, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

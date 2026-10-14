@@ -97,3 +97,13 @@
 
 qp不够点树了，弓树慢慢来吧，现在最烦的还是杀冠人选问题
 
+
+*****
+
+####  FrozenA  
+##### 48259#       发表于 2026-10-14 13:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把杀狐拉到100级顿感天地宽了
+
+树又不用点，又不用去抽取/育成日常没有用那么多的从者去打杀冠
+
