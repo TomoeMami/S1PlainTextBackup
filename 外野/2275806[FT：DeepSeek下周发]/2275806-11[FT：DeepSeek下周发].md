@@ -15876,3 +15876,13 @@ qwen4之前有人评论前端能打opus5.5</blockquote>
 
 前端审美有啥用啊，设计是设计师的事，开发照着设计稿画都一样
 
+
+*****
+
+####  qz66618  
+##### 16207#       发表于 2026-10-14 11:33
+
+这下真成国模憋气大赛了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

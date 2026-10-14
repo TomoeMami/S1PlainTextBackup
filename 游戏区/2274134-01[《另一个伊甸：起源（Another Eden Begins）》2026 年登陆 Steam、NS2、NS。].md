@@ -174,3 +174,31 @@
 
 艾米真的很可爱，怕鬼这一点不仅不会让人嫌弃，反而增加萌点。我要是阿鲁多就每周吓唬她一次，平时有空就带她去鬼屋或者墓地之类的地方，直到给她练到脱敏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 96#       发表于 2026-10-14 11:42
+
+<img src="https://img.stage1st.com/forum/202610/14/113227ejqzfjpwnqqtnfgm.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CB23FF61-7EAA-4D04-97AE-AD48F1114771.jpeg</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 11:32 上传
+
+<img src="https://img.stage1st.com/forum/202610/14/113227dqsqi7f1nh8jq4ws.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0695342A-5BCA-4559-9C7F-990518289462.jpeg</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 11:32 上传
+
+种种迹象表明艾米很像是男主的官方CP。看这张活动图(CG)里面的角色站位，以及非常稀有的两人同框画面里对方就是艾米。
+
+其他一些细节比如游戏很早期专门安排的电影院对话，艾米老爹半开玩笑地说把女儿许给他等等。但是吧，男主成长的村子还有一位铁匠女儿梅也对他十分有好感……等下，两边都是武器店的女儿，铁匠铺的梅应该算是青梅了，而且相比艾米，梅的好感更加直接。所以这又是一出天降暴打青梅的戏？
+
+果然我的直觉很准，第1章刚进入梦见馆的剧情让玩家挑选一个4星角色，我毫不犹豫选了梅……
+
