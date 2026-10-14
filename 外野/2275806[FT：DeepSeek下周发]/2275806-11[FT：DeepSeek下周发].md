@@ -16586,3 +16586,19 @@ ds怎么退了点钱<img src="https://static.stage1st.com/image/smiley/face2017/
 
 gemini 4 argon的写文能力确实不错，看来我前段时间已经路由到了，就得多一点这种模型啊<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UncleDracula  
+##### 16272#       发表于 2026-10-14 22:49
+
+<img src="https://img.stage1st.com/forum/202610/14/224726kf1p4wdk3b0p1433.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (13.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 22:47 上传
+
+就离谱，让DS4.1F判断，左图和右边两个哪个形状一样，commandcode和CodeBuddy都做错了，就官方做对了。智力有这么大差距吗，还是中转站的视力被阉割了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
