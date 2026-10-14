@@ -16022,3 +16022,11 @@ IS的左右脑互搏
 
 差评除了完成度之外，主要是战棋部分没engage那样设计感强
 
+
+*****
+
+####  Jabeck  
+##### 7347#       发表于 2026-10-14 13:33
+
+只能说一款游戏越开放自由设计起来就越难，别急，等超难模式来个不炒作业就打不过连练习武器熟练度和泡澡都要精打细算估计就满意了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
