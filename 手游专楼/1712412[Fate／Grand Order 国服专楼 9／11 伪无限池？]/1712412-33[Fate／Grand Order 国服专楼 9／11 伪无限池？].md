@@ -89,3 +89,11 @@
 
 累计200多抽剑心池就出2个4星，最非的一次，我心痛欲裂<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 48258#       发表于 2026-10-14 12:29
+
+qp不够点树了，弓树慢慢来吧，现在最烦的还是杀冠人选问题
+
