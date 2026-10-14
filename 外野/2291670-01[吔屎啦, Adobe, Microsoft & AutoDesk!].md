@@ -1024,3 +1024,24 @@ b站看到有人做的单机版百万亚瑟王
 问题是现在说不清ai真能做到净室必须的隔离，不是说我不支持这个项目，而是adobe还是有可能从法律层面弄 ...</blockquote>
 中短期是法律战，但是远了就真没用了，除非美国有本事干死全世界ai不然人用它来编程，不然就会有“有人反汇编解析出设计图”公开，然后别人“我看了以后按照设计要求的功能复现”的软件出来干死原主。以前不能这么做是人工码代码是真掉头发，现在用ai来整只要电费，对比投入的人力所需的组织性协同开发实在简单太多也太快了。
 
+
+*****
+
+####  张小狗  
+##### 90#       发表于 2026-10-14 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368209&amp;ptid=2291670" target="_blank">cscnake 发表于 2026-10-14 01:35</a>
+
+是不是解的时候没有套lens profile来矫正啊？还是说这个软件现在还不支持这功能 ...</blockquote>
+有镜头矫正选项，但是提示：此文件中未嵌入镜头数据 (仅支持 DNG 镜头操作码)。<img src="https://static.stage1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 91#       发表于 2026-10-14 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368861&amp;ptid=2291670" target="_blank">lin2004 发表于 2026-10-14 09:12</a>
+中短期是法律战，但是远了就真没用了，除非美国有本事干死全世界ai不然人用它来编程，不然就会有“有人反 ...</blockquote>
+最黑暗的想法就是Adobe直接公开让oa他们炼自己的软件，以后谁敢用这两家的ai搞净室就直接dmca联合出动，不过目前应该不会这么极端
+

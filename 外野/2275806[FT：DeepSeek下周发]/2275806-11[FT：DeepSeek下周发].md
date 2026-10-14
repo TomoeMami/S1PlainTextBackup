@@ -15601,3 +15601,23 @@ GOOGLE还在依赖广告时代和GCP无限挖潜在用户的逻辑在把GEMINI�
 
 很难说谁对谁错，就看最后纳指吃下A\和OA之后膨胀到什么水平
 
+
+*****
+
+####  绕指流光  
+##### 16178#         楼主| 发表于 2026-10-14 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368752&amp;ptid=2275806" target="_blank">猎人D 发表于 2026-10-14 08:54</a>
+
+看了下，酒馆用户对哈基米4A评价很高啊，又有的吃了</blockquote>
+甲也更厚了，甚至能识别伪装身份<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fuero  
+##### 16179#       发表于 2026-10-14 09:22
+
+这两个月同时开了OC两家的顶档订阅+公司API对比，果然还是Opus和Sonnet系列体验更好（体现在高TPS和没那么多废话和越来越看不懂的防御性编程），而且Max档位明显比隔壁Pro耐用。国模兜兜转转一圈还是大肥鱼4.1f实用、够用
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
