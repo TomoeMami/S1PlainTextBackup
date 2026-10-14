@@ -1722,3 +1722,20 @@ GN钢加浓可以是红机
 
 玩代便手游应有的福报来了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4866#       发表于 2026-10-14 19:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">想要洛叔，后面要出的死亡骑士也很想要
+
+*****
+
+####  冰风血羽  
+##### 4867#       发表于 2026-10-14 19:43
+
+反正这次300抽换回王牌船真弹尽粮绝了，pass
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

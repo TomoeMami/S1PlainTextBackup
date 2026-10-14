@@ -16401,3 +16401,13 @@ fb62d84e-ee71-4717-aab7-1e02106f1a93.png
 
 可能是大块头舔狗。
 
+
+*****
+
+####  Jabeck  
+##### 7385#       发表于 2026-10-14 19:38
+
+ 本帖最后由 Jabeck 于 2026-10-14 19:39 编辑 
+
+今天才看到对话法比奥这些心脏是缩退炉，爆的时候才把那个釜炸了算大帝那地方运气好。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
