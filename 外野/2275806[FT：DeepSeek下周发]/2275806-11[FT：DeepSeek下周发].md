@@ -16196,3 +16196,16 @@ A/O是高价API收割B/G端用户, 以便用Coding  ...</blockquote>
 
 关于Antigravity上的Argon，现在Ultra会员都反映额度光速烧完，恐怕就算开给Pro会员也是几个提示烧光
 
+
+*****
+
+####  andychen  
+##### 16239#       发表于 2026-10-14 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70370869&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-10-14 14:38</a>
+
+如果那个 140 的速度 真是 4.1p 的话， 参考 4.1f 在内测时速度有 300，现在 200 多，那 pro 估计上线后速 ...</blockquote>
+如果性能提升上去那降价基本不用想
+
+服务都是面向全球提供的，价格低了以国内的算力储备根本没法提供足够的服务。之前V4f已经发生过一次的事了
+

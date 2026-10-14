@@ -1644,3 +1644,11 @@ CROSS DIMENSION 0079送的SSR驾驶员是不是有BUG....只能在驾驶员列�
 
 你们开发机的武装都会点满吗
 
+
+*****
+
+####  森兰丸  
+##### 4858#       发表于 2026-10-14 16:16
+
+能用到的当然点满啊为啥不点.....又不吃UR材料<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
