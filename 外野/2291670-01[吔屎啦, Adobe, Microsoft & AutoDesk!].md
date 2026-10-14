@@ -1205,3 +1205,61 @@ wps的我感觉不好用，微软的更是一坨大便屎中屎
 scilab。但其实都没法完全代替matlab</blockquote>
 雀食, 要和 Mathworks 那么多年积累下来的工具箱斗还是有难度的
 
+
+*****
+
+####  Lisylfn  
+##### 108#       发表于 2026-10-14 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369164&amp;ptid=2291670" target="_blank">长征5号 发表于 2026-10-14 09:53</a>
+生态也可以反编译过来啊，听说早就有人用AI反编译安卓APP转鸿蒙了</blockquote>
+那直接哪个app需要弄哪个app呗，何必再去搞个系统
+
+*****
+
+####  thegodra  
+##### 109#       发表于 2026-10-14 09:57
+
+软件要死了，token即软件
+
+
+*****
+
+####  ashunicorn  
+##### 110#       发表于 2026-10-14 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368576&amp;ptid=2291670" target="_blank">华发夜眼[CN] 发表于 2026-10-14 08:16</a>
+
+你下错了，下launcher，不用注册
+
+—— 来自 鹅球 v3.3.96</blockquote>
+难怪，谢谢提醒
+
+*****
+
+####  长征5号  
+##### 111#       发表于 2026-10-14 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369180&amp;ptid=2291670" target="_blank">Lisylfn 发表于 2026-10-14 09:55</a>
+
+那直接哪个app需要弄哪个app呗，何必再去搞个系统</blockquote>
+因为桌面系统没能打的啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashunicorn  
+##### 112#       发表于 2026-10-14 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368683&amp;ptid=2291670" target="_blank">WiiGe 发表于 2026-10-14 08:44</a>
+
+下一个杀谁？Substance Painter</blockquote>
+邮件这个好
+
+
+*****
+
+####  junqqq999  
+##### 113#       发表于 2026-10-14 10:05
+
+已经在用了，photocraft感觉不错，cad不行~~~~
+

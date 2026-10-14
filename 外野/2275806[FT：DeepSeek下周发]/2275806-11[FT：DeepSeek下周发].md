@@ -15641,3 +15641,48 @@ Gemini 4 Argon高强度体验了一下，说人话能力跟opus5.5差不多，
 
 gemini怎么突然进不去了
 
+
+*****
+
+####  hisousihou  
+##### 16182#       发表于 2026-10-14 09:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">能不能指个路，国内怎么用gemini，没有**的话……
+
+*****
+
+####  jinuzuktII  
+##### 16183#       发表于 2026-10-14 09:58
+
+gemini 最大的问题始终在于谷大善人到处发号，算力撑不住用户量
+
+
+*****
+
+####  Fuero  
+##### 16184#       发表于 2026-10-14 10:00
+
+gemini对我最大的问题是它默认你的所有输入都会被用来打标训练，不给开关
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  lactone  
+##### 16185#       发表于 2026-10-14 10:04
+
+谷歌这个感觉和astra接近
+有的地方还是有刷分嫌疑
+
+感觉现在不刷分的就oa两家，国内就kimi和ds不太刷分
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  绿色食品  
+##### 16186#       发表于 2026-10-14 10:05
+
+argon额度也太少了
+
