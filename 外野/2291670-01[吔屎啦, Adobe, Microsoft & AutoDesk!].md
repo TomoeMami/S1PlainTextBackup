@@ -1549,3 +1549,27 @@ wps的我感觉不好用，微软的更是一坨大便屎中屎</blockquote>
 
 2026-10-14 20:51 上传
 
+
+*****
+
+####  liuguokobe  
+##### 137#       发表于 2026-10-14 20:55
+
+只能说还有人认为EULA是天上皇帝呢，殊不知人家直接相当于平行开发把你取而代之了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/14/205500ol1al88cluqzdkfy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (462.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 20:55 上传
+
+<img src="https://img.stage1st.com/forum/202610/14/205527phphuyyyvkyj5op2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (221.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 20:55 上传
+
