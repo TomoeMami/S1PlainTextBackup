@@ -1428,3 +1428,11 @@ PDFCraft, 能编辑, 能E签</blockquote>
 
 这回山寨软件真不一样了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  科本学士  
+##### 126#       发表于 2026-10-14 11:53
+
+不知道将来it行业会不会更软硬一体化，纯软件公司慢慢消失
+

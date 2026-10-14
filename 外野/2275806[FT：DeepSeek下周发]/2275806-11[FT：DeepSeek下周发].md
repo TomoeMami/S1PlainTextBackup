@@ -15886,3 +15886,33 @@ qwen4之前有人评论前端能打opus5.5</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qz66618  
+##### 16208#       发表于 2026-10-14 11:48
+
+而且我觉得这一波国模更新完后也很难达到gpt6的水平，估计离gpt6还会有差距，大概在fable—gpt6之间，至于opus5.5就更不用报太大希望了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lactone  
+##### 16209#       发表于 2026-10-14 11:50
+
+4pro价格的fable5水平的模型就能打了
+
+实际上看muse wonder，分数刷高并不难
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  RookieTnT  
+##### 16210#       发表于 2026-10-14 11:51
+
+|Try to solve this problem --- For $x \in \mathbb{R}$, define \[ W(x) = 2 \sum_{n=1}^{\infty} \left( 2\pi^2 n^4 e^{\frac{9}{2}|x|} - 3\pi n^2 e^{\frac{5}{2}|x|} \right) e^{-\pi n^2 e^{2|x|}}. \]  Let \[ C = \int_{\mathbb{R}} W(x) \, dx, \quad p(x) = \frac{W(x)}{C}, \quad F(x) = \int_{-\infty}^x p(y) \, dy. \]  On the complex Hilbert space $L^2(\mathbb{R})$, define the integral operator \[ (Bf)(x) = \frac{i}{\sqrt{p(x)}} \left[ \int_{-\infty}^x \sqrt{p(y)} f(y) \, dy - F(x) \int_{\mathbb{R}} \sqrt{p(y)} f(y) \, dy \right]. \]  The following known properties may be used: \begin{enumerate}     \item $W$ is strictly positive, smooth, and an even function, satisfying $0 &lt; C &lt; \infty$.     \item $p$ is a probability density function, and for every $a &gt; 0$,     \[     \int_{\mathbb{R}} p(x) e^{a|x复制代码|
+
+可以用上面的来测试ai. 答案是做不出来的.
+
