@@ -16434,3 +16434,25 @@ opencodego的哈基米4锁地区吗 支付宝充的能用不<img src="https://st
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  andychen  
+##### 16259#       发表于 2026-10-14 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372488&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-10-14 19:57</a>
+
+这个是要授权把数据给谷歌用的，考虑到谷歌是个广告公司……</blockquote>
+我早就觉得无所谓了
+
+所谓的ZDR我都觉得是骗人的，用大模型我都默认他们会把会话拿去做训练
+
+*****
+
+####  发呆的龙虾  
+##### 16260#       发表于 2026-10-14 20:08
+
+argon比flash3.678好，就是甲好奇怪。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
