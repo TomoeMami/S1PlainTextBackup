@@ -16408,3 +16408,29 @@ opencodego的哈基米4锁地区吗 支付宝充的能用不<img src="https://st
 
 意外的效果还行，这下可以用自然语言搜相册了
 
+
+*****
+
+####  AraTurambar  
+##### 16257#       发表于 2026-10-14 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371794&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-14 17:16</a>
+
+对了，想用Argon的可以去开个Opencode Go
+
+10刀给60刀用量，应该是现在性价比最高的套餐 ...</blockquote>
+这个是要授权把数据给谷歌用的，考虑到谷歌是个广告公司……
+
+*****
+
+####  novalli  
+##### 16258#       发表于 2026-10-14 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372451&amp;ptid=2275806" target="_blank">星野あさみ 发表于 2026-10-14 19:50</a>
+昨天谷歌发了EmbeddingGemma2，于是今天让大肥鱼秒搓了个POC把10w照片都向量化。
+
+意外的效果还行，这下 ...</blockquote>
+这个算是把图片识别的结果固化为向量？大概需要给agent哪些方向和技术要求？
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
