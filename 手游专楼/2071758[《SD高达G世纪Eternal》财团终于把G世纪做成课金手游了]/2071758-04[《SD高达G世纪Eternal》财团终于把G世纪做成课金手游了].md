@@ -1739,3 +1739,16 @@ GN钢加浓可以是红机
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  alialex  
+##### 4868#       发表于 2026-10-14 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372160&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-10-14 18:37</a>
+
+再生可以变形
+
+GN钢加浓可以是红机</blockquote>
+目前所有可变/换装机体的UR形态都是阉割了变形/换装的
+

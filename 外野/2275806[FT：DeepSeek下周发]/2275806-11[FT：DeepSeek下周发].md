@@ -16533,3 +16533,31 @@ ds怎么退了点钱<img src="https://static.stage1st.com/image/smiley/face2017/
 
 ——来自  HUAWEI Pura X View OpenHarmony-7.0.0.109(26) 上的 [S1 Orange](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2244111) 1.4.4
 
+
+*****
+
+####  星野あさみ  
+##### 16269#       发表于 2026-10-14 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372509&amp;ptid=2275806" target="_blank">novalli 发表于 2026-10-14 20:03</a>
+
+这个算是把图片识别的结果固化为向量？大概需要给agent哪些方向和技术要求？
+
+—— 来自 Xiaomi 25042PN2 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/14/212920s8zhvoznorphxkso.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (158.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 21:29 上传
+
+我理解不是简单的图片识别，是把整个图片都转换成向量存起来了。（和llm多模态识图原理一样吧）
+
+用户用自然语言查询时，查询条件也同样会被转成向量，与库里存的向量比对相似度找到最接近的。
+
+比如我可以用比较复杂的自然语言“暹罗猫和女人躺在床上”来搜，准确率也很高。普通的图片识别应该做不到这种程度。
+
+技术栈见截图。（就只是一个oneshot提示，大模型自己研究并跑起来了）
+
