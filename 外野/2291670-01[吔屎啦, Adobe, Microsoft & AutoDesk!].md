@@ -840,3 +840,92 @@ AI编程的一个正确用法啊，哈哈
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  7776169  
+##### 77#       发表于 2026-10-14 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368089&amp;ptid=2291670" target="_blank">狼崽随心贴 发表于 2026-10-14 00:32</a>
+我记得之前好像说哪个爷青回级别的手游有人拿ai复刻了一部分 还在进行中
+
+梅露可物语？ ...</blockquote>
+b站看到有人做的单机版百万亚瑟王
+
+—— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  noword  
+##### 78#       发表于 2026-10-14 08:39
+
+这么厉害，试试看
+
+
+*****
+
+####  WiiGe  
+##### 79#         楼主| 发表于 2026-10-14 08:44
+
+下一个杀谁？Substance Painter
+
+<img src="https://img.stage1st.com/forum/202610/14/083436x8zx2xxxbxqz6h66.png" referrerpolicy="no-referrer">
+
+<strong>16e8bdac-9625-4f60-9492-f1713b54c57e.png</strong> (212.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 08:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/14/083432fl4u84j29il214il.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>image.webp</strong> (357.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 08:34 上传
+
+此外现在的猎杀名单有:
+
+1. LightRoom 移动版: [https://github.com/artcraft-android/lightcraft-android](https://github.com/artcraft-android/lightcraft-android)
+
+<img src="https://img.stage1st.com/forum/202610/14/084114u81piyfcff1fd8i9.png" referrerpolicy="no-referrer">
+
+<strong>0aba6e18-6f75-4b2d-8c5b-60e0c23c6c31.png</strong> (751.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 08:41 上传
+
+2. SolidWorks: [https://github.com/bherbruck/solidcraft](https://github.com/bherbruck/solidcraft)
+
+<img src="https://img.stage1st.com/forum/202610/14/084118e8n1wl8t4grl37b4.png" referrerpolicy="no-referrer">
+
+<strong>c311ac1d-5593-44c6-b8ab-c3ef32d33171.png</strong> (730.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 08:41 上传
+
+3. Outlook: [https://github.com/MonkeySaint/mailcraft](https://github.com/MonkeySaint/mailcraft)
+
+<img src="https://img.stage1st.com/forum/202610/14/084121jse7yoj32e65o3sm.png" referrerpolicy="no-referrer">
+
+<strong>f5832afe-2496-469e-8b64-720ed56ae11d.png</strong> (282.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 08:41 上传
+
+4. 土木快乐桶: [https://getcadcraft.com/apps](https://getcadcraft.com/apps), 有样学样这不是来了吗.jpg
+
+<img src="https://img.stage1st.com/forum/202610/14/084124xdc7mpxzxx5jzhpc.png" referrerpolicy="no-referrer">
+
+<strong>d2ad9649-0428-4b50-8858-8e2952a809db.png</strong> (988.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-14 08:41 上传
+
+它们这Discord真的是松弛, 谁逆好了把自己项目往这一捐, 改改外观直接合并. 所以根本看不到RoadMap规划啥的, 小酒喝着小嗑唠着就软件+1了 <img src="https://static.stage1st.com/image/smiley/face2017/272.png" referrerpolicy="no-referrer">
+
