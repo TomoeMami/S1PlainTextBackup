@@ -1311,3 +1311,79 @@ presentation还是有一些差距，形状直接导出为svg是我还在用msoff
 
 —— 来自 OPPO PHY110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  哈利谢顿  
+##### 119#       发表于 2026-10-14 10:46
+
+<blockquote>狼崽随心贴 发表于 2026-10-14 00:32
+我记得之前好像说哪个爷青回级别的手游有人拿ai复刻了一部分 还在进行中
+
+梅露可物语？ ...</blockquote>
+开源的《暗黑破坏神 II：狱火重生》来啦！
+
+地址：github.com/jhaizhou-ops/d2r-mobile/
+
+该项目是暗黑2术士君临 iOS 兼容层。把你自己购买的 Nintendo Switch 版游戏（含「术士君临」资料片）完整带到 iPhone 和 iPad 上：原版内核原生执行，整套操作为触屏重做，稳定 60 帧，一秒进局。
+
+目前测试过的最低机型是 iPhone 14 Pro Max（A16，6 GB 内存）可流畅运行。
+
+技术原理是图4
+
+https://weibo.com/2194035935/5353247556504951
+
+<img src="https://img.stage1st.com/forum/202610/14/104636b8qm2ryz2jqj9e91.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8334.jpeg</strong> (280.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-14 10:46 上传
+
+<img src="https://img.stage1st.com/forum/202610/14/104636jzjgq4gbzu3uu35g.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8333.jpeg</strong> (498.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-14 10:46 上传
+
+<img src="https://img.stage1st.com/forum/202610/14/104636ihvi5hbht5hwin53.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8335.jpeg</strong> (604.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-14 10:46 上传
+
+<img src="https://img.stage1st.com/forum/202610/14/104637uk5j49altcrvbcb9.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8336.jpeg</strong> (85.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-14 10:46 上传
+
+*****
+
+####  烦不烦  
+##### 120#       发表于 2026-10-14 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368139&amp;ptid=2291670" target="_blank">WiiGe 发表于 2026-10-14 00:57</a>
+
+PDFCraft, 能编辑, 能E签</blockquote>
+我也是找acrobat代替时候找到他们全家桶的 太像了
+
+
+*****
+
+####  tsubasa9  
+##### 121#       发表于 2026-10-14 10:54
+
+这太牛了，关键体积小好评，之前用photon studio还是有点臃肿了
+

@@ -81,3 +81,11 @@
 太狗了 你怎么总出货啊 我扔了200+石毛都没出</blockquote>
 我看了看，小号剑心池可是丢了300多石，可是正常出率好不<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 48257#       发表于 2026-10-14 10:48
+
+累计200多抽剑心池就出2个4星，最非的一次，我心痛欲裂<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

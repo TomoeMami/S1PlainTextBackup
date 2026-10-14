@@ -15778,3 +15778,46 @@ b站现在各种国模完蛋焦虑贴，传回泥漏了吗<img src="https://stat
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  zy450  
+##### 16197#       发表于 2026-10-14 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369501&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-14 10:38</a>
+
+国模也别藏着掖着了，有改进就赶快放出来更新下吧……不然被卷飞了</blockquote>
+DS还有可能藏着，GLM和KIMI不会掖着，应该是真到瓶颈了，现有的卡+训练模型+提供服务，只能提供现有的模型
+
+*****
+
+####  lactone  
+##### 16198#       发表于 2026-10-14 10:50
+
+qwen是唯一公开宣布有新模型的
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  nxmonitor  
+##### 16199#       发表于 2026-10-14 10:53
+
+K3.1也是存在的，毕竟页面都漏出来了，但是炸了应该也是真的，小道消息是倒吸了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 16200#       发表于 2026-10-14 10:54
+
+flash和Pro文笔有显著不同，不知是我心理作用还是确有其事    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  nxmonitor  
+##### 16201#       发表于 2026-10-14 10:54
+
+Qwen不知道拿出来的版本怎么样，之前看内侧完全是区，前端特化但推理能力很差，迁移能力还要打个问号。
+
