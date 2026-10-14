@@ -153,3 +153,16 @@
 
 等主线解禁还是有隐藏任务？
 
+
+*****
+
+####  椎名mahuyo  
+##### 94#       发表于 2026-10-14 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368543&amp;ptid=2274134" target="_blank">DARK_HGCG 发表于 2026-10-14 07:55</a>
+
+巨大格雷姆挡路的地方要怎么过？
+
+等主线解禁还是有隐藏任务？</blockquote>
+20章后面主线开，后面有些人物支线地区有些地方去不了也得主线解锁
+

@@ -616,3 +616,11 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
        [https://www.bilibili.com/video/BV1nMWc6cE5T](https://www.bilibili.com/video/BV1nMWc6cE5T)  &lt;——bilibili搬运视频
 
+
+*****
+
+####  老贝  
+##### 42091#       发表于 2026-10-14 10:05
+
+看柿本访谈，剧场版写的好像都是大人的事啊。<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
