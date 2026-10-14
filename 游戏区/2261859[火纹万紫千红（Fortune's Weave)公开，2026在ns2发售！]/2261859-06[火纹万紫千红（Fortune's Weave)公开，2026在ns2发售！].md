@@ -1,0 +1,25 @@
+﻿
+*****
+
+####  yangchunsiyue  
+##### 7401#       发表于 2026-10-15 00:25
+
+法比欧和哈尔温的b支援怎么触发啊？c支援好像是必须哈尔温没入队，但是b试了各个时间段都说不满足
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  巴尔干炮  
+##### 7402#       发表于 2026-10-15 00:28
+
+<img src="https://img.stage1st.com/forum/202610/15/002727ofjhui6v1phcxpxh.png" referrerpolicy="no-referrer">
+
+<strong>1791992272075817.png</strong> (85.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 00:27 上传
+
+地球没碎掉算幸运了。
+
