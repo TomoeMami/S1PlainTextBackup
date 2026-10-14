@@ -16168,3 +16168,31 @@ opus写的是好，之前我直接试着在claude code里让他写他也没拒�
 
 官方的 ds4f 确实是又快又好，在也不用火山的了
 
+
+*****
+
+####  andychen  
+##### 16237#       发表于 2026-10-14 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368704&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-14 08:47</a>
+
+用了两下argon感觉就是竞赛产物，并没有太惊艳的部分，唯一两点可能是output一下从64k水平干到1M去了，但是 ...</blockquote>
+说实话，AO两家今年的模型更新都去卷代码了。对于通用用途，两家除了最大规模的旗舰模型有进步其他模型甚至可以说是倒退
+
+这时候有Gemini4这种模型推出挺好的
+
+
+*****
+
+####  andychen  
+##### 16238#       发表于 2026-10-14 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368818&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-10-14 09:05</a>
+
+Antigravity不上Gemini4,大概是EDU会员和JIO会员实在太tm多了.
+
+A/O是高价API收割B/G端用户, 以便用Coding  ...</blockquote>
+便宜会员估计是之前产品烂又想冲用户数量弄出来的昏招。不过现在Google也有办法治，就是把所谓的付费Pro和免费Pro区分开
+
+关于Antigravity上的Argon，现在Ultra会员都反映额度光速烧完，恐怕就算开给Pro会员也是几个提示烧光
+
