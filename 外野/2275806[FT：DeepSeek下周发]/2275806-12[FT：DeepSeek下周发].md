@@ -932,3 +932,31 @@ RSI这种炒股用的**说法，。。
 
 tibo人呢怎么也睡着了
 
+
+*****
+
+####  苇原雪道  
+##### 16375#       发表于 2026-10-15 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374672&amp;ptid=2275806" target="_blank">夜鹿 发表于 2026-10-15 10:17</a>
+对不起刚才的内容发错楼了，https://grandet.ai/zh-CN/ 再宣下我们的小网站，已支持视频生成模型比价和各种 ...</blockquote>
+这网站能支持换RMB计价么？还有峰谷时间分开列这种。
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  unrealMeeSeeks  
+##### 16376#       发表于 2026-10-15 12:58
+
+好
+<img src="https://p.sda1.dev/35/cfbb8edaae801de783f8bcb86d0f4c56/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Hazlittnorton  
+##### 16377#       发表于 2026-10-15 13:01
+
+大肥鱼复活了
+

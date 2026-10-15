@@ -77,3 +77,13 @@ mac和ios那边有人搞了switch游戏的自动（？）移植，估计也要�
 
 马车wii decomp移植到psv上
 
+
+*****
+
+####  风夏  
+##### 64#         楼主| 发表于 2026-10-15 13:05
+
+[https://www.youtube.com/@vsmgammer/videos](https://www.youtube.com/@vsmgammer/videos)
+
+这老哥有很多老任平台(n64 ngc wii)的游戏移植到psv上的视频, 这些游戏的移植路线是decomp吧...
+
