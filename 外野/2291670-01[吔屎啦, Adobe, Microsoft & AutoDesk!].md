@@ -1933,3 +1933,41 @@ pdf用着用着就不显示中文字了，你们有这种情况没有
 
 —— 来自 vivo V2270A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  simonroam  
+##### 168#       发表于 2026-10-15 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377507&amp;ptid=2291670" target="_blank">C.W.Nimitz 发表于 2026-10-15 18:16</a>
+
+对程序员是好事呀，几个有经验的人凑一起可以搞以前几百号人才能搞的大型项目了
+
+但相对的程序员需求量大 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你难道没发现商业逻辑的问题吗，现在是开发成本急剧下降，然后逆向破解难度也大幅下降
+
+大伙反的是什么adobe和一些传统软件企业在这块的垄断，他们为什么能赚这么多钱还不是靠这些商业技术护城河
+
+现在垄断被打破了还能挣吗，你怎么还幻想几个人继续接着垄断呢，这几个人接着垄断大家就接着打倒呗
+
+那我问你有什么项目是以前几百人做的现在几个人能做营收还能保持几百人规模的？
+
+这几个人的商业护城河在哪里呢？
+
+
+*****
+
+####  C.W.Nimitz  
+##### 169#       发表于 2026-10-15 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377624&amp;ptid=2291670" target="_blank">simonroam 发表于 2026-10-15 18:44</a>
+
+你难道没发现商业逻辑的问题吗，现在是开发成本急剧下降，然后逆向破解难度也大幅下降
+
+大伙反的是什么ad ...</blockquote>
+个人挣足够多的钱过日子和资本家憋着上市是两回事。
+
+而且随着程序员的角色从写代码变成了代码编辑。有经验的程序员实际上越来越重要了。没有那个真面向大众的软件是ai直接生成不需要人改的。
+
+所以我觉得已经入行多年的程序员不用太担心，想入行的得考虑考虑了
+

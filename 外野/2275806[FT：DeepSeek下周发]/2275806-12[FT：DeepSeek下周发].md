@@ -1784,3 +1784,13 @@ opencode余额用早了<img src="https://static.stage1st.com/image/smiley/face20
 
 所以大的什么时候来<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发呆的龙虾  
+##### 16465#       发表于 2026-10-15 18:45
+
+这几天在玩argon，亏大了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
