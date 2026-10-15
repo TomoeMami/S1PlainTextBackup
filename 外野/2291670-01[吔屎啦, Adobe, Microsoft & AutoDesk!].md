@@ -2025,3 +2025,14 @@ Vibe coder 除了偷别人成果，做不出自己的东西了吗<img src="https
 
 而后者估计经常会见于小说、影视剧等虚构作品中，以展现主角的强大。
 
+
+*****
+
+####  WiiGe  
+##### 175#         楼主| 发表于 2026-10-15 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377696&amp;ptid=2291670" target="_blank">zion4wind 发表于 2026-10-15 18:59</a>
+
+开源怎么还要注册。。。</blockquote>
+他们觉得你想用他们的在线AI编辑平台了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
