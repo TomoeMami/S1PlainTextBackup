@@ -3053,3 +3053,13 @@ K嗷，who tell you深渊是3d传说的，传说3d不3d是看战斗来的，深�
 
 还有你以为热度高的地方讨论就是喷来喷去的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">简直naive，累死了，不跟你扯玩永恒去了，你觉得3d好那就多玩吧
 
+
+*****
+
+####  猫将军  
+##### 284#       发表于 2026-10-15 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377474&amp;ptid=2280008" target="_blank">Xenor 发表于 2026-10-15 18:08</a>
+K嗷，who tell you深渊是3d传说的，传说3d不3d是看战斗来的，深渊本质战斗还是2d的，一个过渡期，不要张冠 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">你说tos不是3d可以认同，但toa可以fr的。我怀疑你在妖言惑众。传说以前分2d组和3d组。有啥好争的。好不好最后都解散了。
+

@@ -1852,3 +1852,59 @@ a畜和O畜天天说ai训练的玩意不算剽窃，虽然材料都是偷来的
 
 你说保护知识产权？那让A畜和O畜先把他们剽窃来的训练材料的版权费付了
 
+
+*****
+
+####  C.W.Nimitz  
+##### 163#       发表于 2026-10-15 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367970&amp;ptid=2291670" target="_blank">碧空之歌P 发表于 2026-10-13 23:47</a>
+
+游戏大厂会不会为了对抗反编译，在程序里猛猛加料让正版玩家被屎糊脸</blockquote>
+那玩家就去转头玩独立游戏了，游戏那么多玩啥不是玩。本来现在每年都会出几个轻量化爆款便宜独有。游戏本身就是娱乐活动，离开哪个人都能活。
+
+*****
+
+####  雨昼斯基  
+##### 164#       发表于 2026-10-15 18:28
+
+我一直觉得wps的表格有个功能很好用，但是无论office，libreoffice还是这次的gridcraft都不做，就是筛选时可以直接看每个选项有多少个，以及一键仅筛选功能
+
+<img src="https://img.stage1st.com/forum/202610/15/182535hrtqd6611zjrhrjn.png" referrerpolicy="no-referrer">
+
+<strong>{1F4D2065-3A78-461C-961F-63DA970723AA}.png</strong> (25.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 18:25 上传
+
+<img src="https://img.stage1st.com/forum/202610/15/182801gb6zj2b58zb2qqjw.png" referrerpolicy="no-referrer">
+
+<strong>{7124A692-4941-4C22-8527-502D5898F2C9}.png</strong> (65.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 18:28 上传
+
+<img src="https://img.stage1st.com/forum/202610/15/182822kq6ulr1nkl7rkjmo.png" referrerpolicy="no-referrer">
+
+<strong>{BD359628-DB87-4AB4-AE6A-4DFFB259CB88}.png</strong> (52.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 18:28 上传
+
+*****
+
+####  C.W.Nimitz  
+##### 165#       发表于 2026-10-15 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70368820&amp;ptid=2291670" target="_blank">爱护动物抓根宝 发表于 2026-10-14 09:06</a>
+
+问题是现在说不清ai真能做到净室必须的隔离，不是说我不支持这个项目，而是adobe还是有可能从法律层面弄 ...</blockquote>
+软件版权官司可不好打，因为只要不是直接剽窃源代码，只是功能或者界面借用不太那么容易打赢官司。
+
+看后续发展了
+
+这事最解气的是，狗逼资本家天天嚷嚷ai代替人类，威胁开除员工给他们降薪。现在这些狗逼资本家要面对大幅降低的软件开发难度了，他们资本和人力护城河越来越低，该淘汰他们了
+
