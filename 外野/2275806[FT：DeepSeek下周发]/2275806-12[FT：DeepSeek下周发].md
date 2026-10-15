@@ -1128,3 +1128,11 @@ gemini现在怎么反代啊？我只有一个pro订阅，反重力权限不够�
 
 <img src="https://proxy.moonchan.xyz/35/26bab65f95952b8f66f4a80c67cbbc65/9347f694-269d-490c-86ae-b830b06da2fd.png?proxy_host=p.sda1.dev&amp;proxy_scheme=https" id="aimg_X9ggE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+*****
+
+####  nxmonitor  
+##### 16396#       发表于 2026-10-15 15:49
+
+看到哈基米4是在降价促销，其实和Bel一个大小？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
