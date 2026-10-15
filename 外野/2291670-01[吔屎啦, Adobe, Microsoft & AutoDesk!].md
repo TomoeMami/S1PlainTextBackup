@@ -1758,3 +1758,11 @@ PDFCraft还是不太行，OCR识别和PDF转word都有乱码，不过看个PDF�
 
 PDFCraft立刻进行一个整起来【。】
 
+
+*****
+
+####  inpachi  
+##### 155#       发表于 2026-10-15 17:05
+
+LightCraft解不了奥巴的raw，果然奥巴/奥之心还是太小众了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

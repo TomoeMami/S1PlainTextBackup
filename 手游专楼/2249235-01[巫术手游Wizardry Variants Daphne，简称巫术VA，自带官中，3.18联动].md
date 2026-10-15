@@ -71,3 +71,24 @@
 
 问题来了生命力个体的骑士加点怎么加，点生命力真的有用吗
 
+
+*****
+
+####  Flechette  
+##### 926#       发表于 2026-10-15 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377030&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2026-10-15 16:50</a>
+
+问题来了生命力个体的骑士加点怎么加，点生命力真的有用吗</blockquote>
+10点生命力大概加不到10点HP吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要堆防御就全运，要堆速度就全敏
+
+
+*****
+
+####  Flechette  
+##### 927#       发表于 2026-10-15 17:03
+
+推荐战力17000的那个有三波，第三波是第一章经典新人杀手2只菠萝状异形，体感两只都是有将近10w血的大血牛，注意续航
+
