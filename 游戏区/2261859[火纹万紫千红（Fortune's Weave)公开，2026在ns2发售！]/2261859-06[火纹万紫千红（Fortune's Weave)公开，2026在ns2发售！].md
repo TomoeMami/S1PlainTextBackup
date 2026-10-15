@@ -2500,3 +2500,14 @@ dlc四把武器效果怎么样
 一个都不招募能通关吗</blockquote>
 也能，白鸟哥一个人真够了
 
+
+*****
+
+####  纯夏  
+##### 7658#       发表于 2026-10-15 18:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377411&amp;ptid=2261859" target="_blank">passgan 发表于 2026-10-15 17:52</a>
+
+一个都不招募能通关吗</blockquote>
+能 可以不招募直接打第3部 但是难度大 属于挑战项目
+

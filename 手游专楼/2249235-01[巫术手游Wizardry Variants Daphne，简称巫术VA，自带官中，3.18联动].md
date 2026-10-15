@@ -118,3 +118,11 @@
 
 生命力或者说生存端同理，防御力/2=实际减伤的公式实在太幽默了，生存端完全依赖独立触发的减伤被动也是很不健康的设计，睡魔后就没出过新的可继承减伤被动了，所以我估计他们也意识到了这一点，但是二周年又端上来一个挨打防御被动<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，看得出来资金压力很大了
 
+
+*****
+
+####  UnknownRei  
+##### 931#       发表于 2026-10-15 18:38
+
+整个公司开了一堆奇奇怪怪的小项目，现金流就抱着这一个游戏，美术还搞降本增效，我看是钱来的太容易了<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+

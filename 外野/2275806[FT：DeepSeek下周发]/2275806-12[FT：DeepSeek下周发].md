@@ -1767,3 +1767,20 @@ opencode刚开了个free的41F，是不是深度求索回了他们一大笔款�
 退二十，感谢梁圣
 opencode余额用早了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  孔祈  
+##### 16463#       发表于 2026-10-15 18:33
+
+退了两块，亏麻了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  cscbzcbz  
+##### 16464#       发表于 2026-10-15 18:35
+
+麻了，今天一天，上午崩了上了一次热搜，晚上补偿又上了一次热搜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以大的什么时候来<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
