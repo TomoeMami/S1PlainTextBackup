@@ -2036,3 +2036,21 @@ Vibe coder 除了偷别人成果，做不出自己的东西了吗<img src="https
 开源怎么还要注册。。。</blockquote>
 他们觉得你想用他们的在线AI编辑平台了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  simonroam  
+##### 176#       发表于 2026-10-15 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377656&amp;ptid=2291670" target="_blank">C.W.Nimitz 发表于 2026-10-15 18:50</a>
+
+个人挣足够多的钱过日子和资本家憋着上市是两回事。
+
+而且随着程序员的角色从写代码变成了代码编辑。有经 ...</blockquote>
+
+你说的这种情况对于哪些钱赚得差不多快退休的有用，
+
+很多上有老下有小中登就算了吧
+
+别把经验看的太重要，没业务都是白搭
+

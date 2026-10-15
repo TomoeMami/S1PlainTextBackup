@@ -2537,3 +2537,11 @@ dlc四把武器效果怎么样
 
 本来正常我这没加速器很慢的
 
+
+*****
+
+####  Jabeck  
+##### 7662#       发表于 2026-10-15 19:51
+
+有啥好抄的，火纹从觉醒开始仿佛IS随时都会因为财政收入暴毙一样算任天堂第一方IP吃香最难看的了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

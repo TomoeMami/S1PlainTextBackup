@@ -131,3 +131,13 @@ https://github.com/keepvaibin/nebula
 
 —— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  noahhhh  
+##### 69#       发表于 2026-10-15 19:53
+
+<blockquote>葛雷新 发表于 2026-9-16 13:29
+那假如我想做一个PCE-CD游戏的重编译（汉化、加原创BGM，高清化等等），请问从哪里开始第一步呢？ ...</blockquote>
+花钱买glm或者kimi，在编程cli中直接讲就行了
+
