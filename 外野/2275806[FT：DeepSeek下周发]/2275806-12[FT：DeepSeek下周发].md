@@ -1120,3 +1120,11 @@ o大善人
 gemini现在怎么反代啊？我只有一个pro订阅，反重力权限不够，然后我用sub2api直接oauth反代一直429 ...</blockquote>
 试试EasyCLIProxyAPI，我之前一直用这个
 
+
+*****
+
+####  knnknn  
+##### 16395#       发表于 2026-10-15 15:41
+
+<img src="https://proxy.moonchan.xyz/35/26bab65f95952b8f66f4a80c67cbbc65/9347f694-269d-490c-86ae-b830b06da2fd.png?proxy_host=p.sda1.dev&amp;proxy_scheme=https" id="aimg_X9ggE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

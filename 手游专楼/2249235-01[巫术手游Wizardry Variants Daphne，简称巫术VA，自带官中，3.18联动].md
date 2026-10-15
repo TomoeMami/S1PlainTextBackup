@@ -32,3 +32,16 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">好差的设计，从雷霆肩甲到神秘棉袄，我说drecom自从引入AI原画后设计能力直线下降，尼玛我不信你们开服请的小崎没档期了，再不济随便请些人都比这种混乱组合的AI弱智设计好看
 
+
+*****
+
+####  Flechette  
+##### 922#       发表于 2026-10-15 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376111&amp;ptid=2249235" target="_blank">UnknownRei 发表于 2026-10-15 14:10</a>
+
+好差的设计，从雷霆肩甲到神秘棉袄，我说drecom自从引入AI原画后设计能力直线下降，尼玛我不信你们开服请的 ...</blockquote>
+从游戏出来大概半年后开始，放出的人物设定图就没有明显的原始设计的痕迹，更像是AI出图后倒推的结果，那个时候起角色设计就越来越差了
+
+日本人这么反感AI为什么能让drecom端上这种AI垃圾，日本的社畜大叔不行啊<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
