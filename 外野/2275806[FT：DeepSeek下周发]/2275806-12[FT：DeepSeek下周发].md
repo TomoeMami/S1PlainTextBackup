@@ -905,3 +905,22 @@ RSI这种炒股用的**说法，。。
 
 怎么还在炸<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  omnitoken  
+##### 16372#       发表于 2026-10-15 12:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 昨天找Argon问了一个关于相机和镜头的问题
+
+它居然知道四周轻微暗角是“德味”这种概念（我没提示）， astra和fable都只是很机械的提醒我不可用画质变差<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，国模基本是话都听不明白（除了豆包）
+
+专注coding对模型的影响的确太大了
+
+*****
+
+####  FMIC  
+##### 16373#       发表于 2026-10-15 12:23
+
+你这头吃白饭的鲸鱼是怎么睡得着的，起床干活了
+
