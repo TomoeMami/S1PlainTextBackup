@@ -3123,3 +3123,16 @@ TOE官方攻略本的隐藏要素标记不全，甚至有谬误，单就本作�
 
 都去玩永恒吧<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">比ps版的按键更多了，也比psp版多了震动，情节都能跳，战斗也能加速，而且还有各种小选项工具更方便游戏，好像还自带金手指。总的来说目前挑不出毛病，要是能多给几个调色滤镜就perfect了，开局直接用拳师爽爽中，一不留神都又要收水精灵了，感觉又要耗近百小时，只是没有S/L大法后期像打牌撞球跳舞拍卖这些小游戏就头疼了
 
+
+*****
+
+####  iqbsh38  
+##### 288#       发表于 2026-10-15 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377474&amp;ptid=2280008" target="_blank">Xenor 发表于 2026-10-15 18:08</a>
+
+K嗷，who tell you深渊是3d传说的，传说3d不3d是看战斗来的，深渊本质战斗还是2d的，一个过渡期，不要张冠 ...</blockquote>
+TOA其实已经可以自由移动了 TOS才是本质2D 有时候被两拨怪挤在中间走不动非常烦
+
+之后的TOV本质上是TOA的究极加强版 你总不能说TOV还是2D战斗吧
+
