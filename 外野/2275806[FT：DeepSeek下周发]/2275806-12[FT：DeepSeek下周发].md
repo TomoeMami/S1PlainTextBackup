@@ -1956,3 +1956,14 @@ gemini 4日常用用很好用诶
 
 这几天都在高强度玩游戏，deepseek的api几乎没碰过，在看到消息后，感觉丢了一箩筐的鸡蛋<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cankao  
+##### 16485#       发表于 2026-10-16 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377382&amp;ptid=2275806" target="_blank">平贺才人 发表于 2026-10-15 17:45</a>
+
+还能往外吐白饭的</blockquote>
+所以这赠送余额算是大肥鱼的口嚼酒吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
