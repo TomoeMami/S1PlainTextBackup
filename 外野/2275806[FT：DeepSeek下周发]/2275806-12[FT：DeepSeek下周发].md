@@ -1433,3 +1433,55 @@ GPT怎么又重置了，得开多两个许愿池加速蹬了<img src="https://st
 
 这几天白嫖了，而且东西也做完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛拉斯  
+##### 16429#       发表于 2026-10-15 17:14
+
+爽到，这几天我用了50多块钱，全补回来了，白嫖几十亿tokens
+
+*****
+
+####  中国人  
+##### 16430#       发表于 2026-10-15 17:16
+
+这算梁子版的重置卡吗？<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  inpachi  
+##### 16431#       发表于 2026-10-15 17:16
+
+梁叔叔只给我发了两毛三，还是用得不够多，平时都优先蹬codex了
+
+*****
+
+####  2017.05.04  
+##### 16432#       发表于 2026-10-15 17:16
+
+<img src="https://img.stage1st.com/forum/202610/15/171658npzlykz9d5u5vo2n.png" referrerpolicy="no-referrer">
+
+<strong>19aaf687ace9dd84ba68efa15d51e55a.png</strong> (7.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 17:16 上传
+
+<img src="https://img.stage1st.com/forum/202610/15/171734w3gzcpc3csp9cbbs.png" referrerpolicy="no-referrer">
+
+<strong>2A20B10C2C1C039086493F2E8716347C.png</strong> (15.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 17:17 上传
+
+*****
+
+####  phorcys02  
+##### 16433#       发表于 2026-10-15 17:17
+
+就发了3.01....最近都蹬ccg没有怎么蹬梁子的，亏大了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
