@@ -664,3 +664,29 @@ b站上线了官方号
 
 快3个小时了，直接上热搜了还行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 16346#       发表于 2026-10-15 11:08
+
+deepseek自己都没官号，harness先搞了官号<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  suran1989311  
+##### 16347#       发表于 2026-10-15 11:09
+
+gemini网页端似乎也爆了，不是数据中心被炸了吧
+
+*****
+
+####  lactone  
+##### 16348#       发表于 2026-10-15 11:09
+
+按理说上新模型不会这么长时间中断吧
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
