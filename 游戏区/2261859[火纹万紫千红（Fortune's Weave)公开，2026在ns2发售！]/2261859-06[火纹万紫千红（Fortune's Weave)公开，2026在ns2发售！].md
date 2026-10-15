@@ -2711,3 +2711,15 @@ DLC竟然不是全区的<img src="https://static.stage1st.com/image/smiley/face2
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  根正苗红  
+##### 7676#       发表于 2026-10-16 01:58
+
+ 本帖最后由 根正苗红 于 2026-10-16 02:00 编辑 
+
+打到蕾达线和拿枪的白袍美少女（？）组队。苦大仇深的stocking和一板正经的panty特别有喜感<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+为嘛panty不能入队啊！
+
