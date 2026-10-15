@@ -763,3 +763,80 @@ api能用，网页不行
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  overflowal  
+##### 16358#       发表于 2026-10-15 11:37
+
+一个上午都没恢复那只能认为是集群哪里炸了。。。换模型不至于
+
+*****
+
+####  novem  
+##### 16359#       发表于 2026-10-15 11:39
+
+<blockquote>overflowal 发表于 2026-10-15 11:37
+一个上午都没恢复那只能认为是集群哪里炸了。。。换模型不至于</blockquote>
+那不可能，集群又不止一个，估计还是某种低级的软件bug
+
+*****
+
+####  cscbzcbz  
+##### 16360#       发表于 2026-10-15 11:40
+
+太久了，大的又没了<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  体制  
+##### 16361#       发表于 2026-10-15 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374792&amp;ptid=2275806" target="_blank">novem 发表于 2026-10-15 10:29</a>
+大肥鱼不会是要给网页端切换成专属弱智模型吧，坏了这么久</blockquote>
+api也挂了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  lactone  
+##### 16362#       发表于 2026-10-15 11:42
+
+<img src="https://p.sda1.dev/35/0aeaaaa0702887b7bc3c03a8a91787c2/image.jpg" referrerpolicy="no-referrer">
+
+qwen4居然有消息了
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  化物语  
+##### 16363#       发表于 2026-10-15 11:42
+
+status.deepseek.com 都打不开了. 
+
+*****
+
+####  Hattle  
+##### 16364#       发表于 2026-10-15 11:44
+
+0.2.1.alpha3 更倾向于派发子智能体了，干了2活，两个活全给我开智能体团队多路并行开发了。Token飞速消耗中
+
+*****
+
+####  overflowal  
+##### 16365#       发表于 2026-10-15 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70375283&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-15 11:42</a>
+
+qwen4居然有消息了
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99</blockquote>
+RSI这种炒股用的**说法，。。
+
+问RSI在哪里，一看就是让模型参与训练，就这。
+
+在持续学习可行之前，RSI不了一点<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
