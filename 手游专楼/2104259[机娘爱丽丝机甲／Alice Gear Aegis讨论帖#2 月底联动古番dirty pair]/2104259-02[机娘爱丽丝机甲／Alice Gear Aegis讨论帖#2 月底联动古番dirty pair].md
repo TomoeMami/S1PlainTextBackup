@@ -64,3 +64,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">有点过分了喔一个an蓝赛艇人都不给只出红的
 
+
+*****
+
+####  不灭的旋律  
+##### 2147#       发表于 2026-10-15 20:19
+
+马鞭草BU抽了130连都没凑齐三人，四星一半以上和PU无关问你怕没<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

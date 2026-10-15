@@ -1878,3 +1878,11 @@ opencode余额用早了<img src="https://static.stage1st.com/image/smiley/face20
 
 <img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 16476#       发表于 2026-10-15 20:16
+
+opencode这个ds4.1f的infra水平和官方差距好大，首字输出都到10秒以上了，梁子能不能开个培训班帮帮他们
+
