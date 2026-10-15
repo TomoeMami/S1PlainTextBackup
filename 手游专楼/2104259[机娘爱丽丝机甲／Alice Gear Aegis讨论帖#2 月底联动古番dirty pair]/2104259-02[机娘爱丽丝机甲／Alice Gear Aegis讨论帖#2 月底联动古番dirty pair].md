@@ -72,3 +72,13 @@
 
 马鞭草BU抽了130连都没凑齐三人，四星一半以上和PU无关问你怕没<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 2148#         楼主| 发表于 2026-10-15 21:49
+
+这STSP不大行啊，没高速横移，一不小心气条就跑没了，还是ANSP无脑砍够爽（
+
+话说这理论上是“成熟”绫香吧，怎么换了发型还有头像比双马尾看起来还要幼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
