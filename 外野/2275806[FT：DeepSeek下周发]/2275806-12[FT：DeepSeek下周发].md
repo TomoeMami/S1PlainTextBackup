@@ -1854,3 +1854,27 @@ opencode余额用早了<img src="https://static.stage1st.com/image/smiley/face20
 
 赞美梁圣！
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 16473#       发表于 2026-10-15 20:03
+
+之前说涨价不是为了赚钱纯纯为了赶人方便训练我还不信，现在真信了，xkl梁神
+
+*****
+
+####  买码！注册！  
+##### 16474#       发表于 2026-10-15 20:06
+
+退了十几块
+
+明早起来，我要看到肥鱼给用户盛饭的梗图<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风之道2号  
+##### 16475#       发表于 2026-10-15 20:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
