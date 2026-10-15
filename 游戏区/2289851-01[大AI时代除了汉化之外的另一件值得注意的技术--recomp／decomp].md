@@ -87,3 +87,24 @@ mac和ios那边有人搞了switch游戏的自动（？）移植，估计也要�
 
 这老哥有很多老任平台(n64 ngc wii)的游戏移植到psv上的视频, 这些游戏的移植路线是decomp吧...
 
+
+*****
+
+####  qwjhb  
+##### 65#       发表于 2026-10-15 14:18
+
+马银
+https://github.com/keepvaibin/nebula
+<img src="https://p.sda1.dev/35/6273070bac1b85610b4885f9e4b6ef8c/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qwjhb  
+##### 66#       发表于 2026-10-15 14:19
+
+战神<img src="https://p.sda1.dev/35/bbe6c4e087de47e45732faa1fbb51f14/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

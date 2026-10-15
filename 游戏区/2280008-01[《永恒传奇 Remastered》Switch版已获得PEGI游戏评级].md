@@ -2920,3 +2920,27 @@ Steam版非要晚一天呗。
 
 所以TOX2???一年了
 
+
+*****
+
+####  qiyu1234  
+##### 274#         楼主| 发表于 2026-10-15 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376107&amp;ptid=2280008" target="_blank">eilot 发表于 2026-10-15 14:09</a>
+
+突然想到
+
+之前TOX都放上STEAM版，已經是25年10月的事情
+
+所以TOX2???一年了</blockquote>
+本来就不是按顺序推出，官方说法是根据开发完成状况安排（多个外包项目）
+
+X1复刻本来就很赶，是最近这几个复刻里首发BUG最多的，而且也没有修完，估计要等到X2做的差不多才会有动静了
+
+*****
+
+####  Xenor  
+##### 275#       发表于 2026-10-15 14:17
+
+还未来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这系列3D化后就没人跟早就没未来了，玄远见就是个很好的参考例子，而且难梦公这次的重制玩着也很一般，对待一个系列的巅峰都这样，实在没得救
+
