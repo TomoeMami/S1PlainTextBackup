@@ -1573,3 +1573,57 @@ opencode go的deepseek flash又流口水 <img src="https://static.stage1st.com/i
 
 DEEPSEEK 是一款我的问题
 
+
+*****
+
+####  bixinhaner  
+##### 16441#       发表于 2026-10-15 17:35
+
+都说gemini4文笔不错，直接能写刘备吗？gemini网页版吗就能搞还是别的地方？
+
+*****
+
+####  noneoneone  
+##### 16442#       发表于 2026-10-15 17:37
+
+正好前两天火山用光，蹬了官方，一下补回来50，可以可以
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+
+*****
+
+####  小野賢章  
+##### 16443#       发表于 2026-10-15 17:40
+
+我们公司的账号也退钱了，退了2.3万<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/15/174018j7dc2s7cmnxznppy.png" referrerpolicy="no-referrer">
+
+<strong>def686773ead4050d45a3e91404c5f15.png</strong> (71.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 17:40 上传
+
+*****
+
+####  sakatta  
+##### 16444#       发表于 2026-10-15 17:42
+
+梁圣！
+
+*****
+
+####  一般市民  
+##### 16445#       发表于 2026-10-15 17:43
+
+opencode刚开了个free的41F，是不是深度求索回了他们一大笔款？  <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  平贺才人  
+##### 16446#       发表于 2026-10-15 17:45
+
+还能往外吐白饭的
+
