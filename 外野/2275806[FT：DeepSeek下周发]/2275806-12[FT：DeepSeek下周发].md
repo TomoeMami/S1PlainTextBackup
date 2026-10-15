@@ -1033,3 +1033,21 @@ gemini现在怎么反代啊？我只有一个pro订阅，反重力权限不够�
 
 gpt这重置也tm频繁了吧。。。早知道不用sol，应该狂蹬astra<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dark_saber  
+##### 16386#       发表于 2026-10-15 13:49
+
+前天重置完一天蹬完了，还好又重置了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 16387#       发表于 2026-10-15 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70363385&amp;ptid=2275806" target="_blank">逆袭的黑月 发表于 2026-10-13 10:06</a>
+dsh前段时间更新之后项目文件夹不给完全控制就会被标记成低完整性，没法对沙箱外做任何调整。昨晚战AI搞到3 ...</blockquote>
+这个low标签还会导致编译出来的程序也是low，结果就是那样自己拿出去完全不能正常运行，不知道dsh怎么想的要加这个low，本来前面medium沙盒运行的好好的
+我实在是受不了这坑爹玩意让它自己写了一个插件改回原来的medium了
+

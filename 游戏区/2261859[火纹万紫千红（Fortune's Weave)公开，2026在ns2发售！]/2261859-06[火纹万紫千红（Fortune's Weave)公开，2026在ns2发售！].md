@@ -1763,3 +1763,14 @@ Nathan/Eshmel
 
 DLC 能补点女女后日谈吗，本篇太少了。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  逆旅行客  
+##### 7583#       发表于 2026-10-15 13:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70375634&amp;ptid=2261859" target="_blank">流连成双 发表于 2026-10-15 12:39</a>
+
+是说除了他们相关的以外能不能现有角色之间也给补点，希望能有......</blockquote>
+四个副队队内支援我觉得肯定会补，明显都少得跟山贼一个水平。队外的估计就这样了吧
+
