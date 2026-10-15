@@ -556,3 +556,76 @@ deepseek是天然元气鲸鱼娘</blockquote>
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  羊寢  
+##### 16337#       发表于 2026-10-15 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374262&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-10-15 09:27</a>
+DSH 更新 0.2.1.alpha3 了</blockquote>
+昨晚才用上今天就更新了，我这撞得真准<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 16338#       发表于 2026-10-15 10:49
+
+上次发v4pro的时候可没有中断服务，中断服务和发新模型可以说没有什么关系<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  last_regret  
+##### 16339#       发表于 2026-10-15 10:50
+
+我这api还能用啊
+
+<img src="https://img.stage1st.com/forum/202610/15/105025mqf0kffeyofokbl6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-10-15-10-50-03-791_xyz.chatboxapp.chatbox.jpg</strong> (152.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-15 10:50 上传
+
+*****
+
+####  羊寢  
+##### 16340#       发表于 2026-10-15 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374703&amp;ptid=2275806" target="_blank">莱茵哈鲁特 发表于 2026-10-15 10:19</a>
+claude是腹黑阴鸷大小姐
+
+gpt是三无娘
+
+deepseek是天然元气鲸鱼娘</blockquote>
+死宅？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 16341#       发表于 2026-10-15 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374966&amp;ptid=2275806" target="_blank">last_regret 发表于 2026-10-15 10:50</a>
+我这api还能用啊</blockquote>
+[https://status.deepseek.com](https://status.deepseek.com)
+
+网页是完全中段，api是部分中段
+
+*****
+
+####  dazzle  
+##### 16342#       发表于 2026-10-15 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374703&amp;ptid=2275806" target="_blank">莱茵哈鲁特 发表于 2026-10-15 10:19</a>
+
+claude是腹黑阴鸷大小姐
+
+gpt是三无娘
+
+deepseek是天然元气鲸鱼娘</blockquote>
+哈基米：家道中落，却总以为自己还是前沿级的傻乎乎猫娘
+
+说个好笑的，之前写了个GPT Astra的AI娘人设拿给gemini 3.8f看，结果gemini一看：project astra，又稳重又厉害，这不就是我吗！
+

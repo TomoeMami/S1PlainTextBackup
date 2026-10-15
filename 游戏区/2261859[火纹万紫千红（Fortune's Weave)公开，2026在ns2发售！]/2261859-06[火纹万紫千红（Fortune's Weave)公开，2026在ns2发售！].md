@@ -950,3 +950,58 @@ dlc添加角色应该都是第三部才会加入了
 
 谢谢库罗德兄弟的三格弓。打算给那些弓箭高手用。
 
+
+*****
+
+####  neokirin  
+##### 7509#       发表于 2026-10-15 10:47
+
+<img src="https://img.stage1st.com/forum/202610/15/104732zz5agzlog33qppgg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 10:47 上传
+
+诶不是，这也要等太久了吧
+
+*****
+
+####  索非亚  
+##### 7510#       发表于 2026-10-15 10:49
+
+第三弹隔一年还行，是有多少内容<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  1wq1  
+##### 7511#       发表于 2026-10-15 10:50
+
+这个时间只是告诉你17年出而已，又不是真的17年年底，估摸着明年6月前怎么样都要出了
+
+*****
+
+####  reikami  
+##### 7512#       发表于 2026-10-15 10:51
+
+当年真的是非常厌恶风花雪月，没想到万紫千红却进化成加贺后时代最喜欢的FE了，DLC自然是要买的，但是这个差不多半个游戏售价的DLC第三弹要是做出来另外4个人第一部再打一遍，那肯定要骂街了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 7513#       发表于 2026-10-15 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374944&amp;ptid=2261859" target="_blank">neokirin 发表于 2026-10-15 10:47</a>
+
+诶不是，这也要等太久了吧</blockquote>
+占位时间吧
+
+*****
+
+####  任毒瘤  
+##### 7514#       发表于 2026-10-15 10:55
+
+任天堂的DLC现在都是这样的吧 拉长游戏的时间周期  长卖也有宣传点
+
