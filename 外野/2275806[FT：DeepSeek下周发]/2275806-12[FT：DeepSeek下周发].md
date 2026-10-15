@@ -987,3 +987,18 @@ tibo人呢怎么也睡着了
 
 没有大的，大家回家吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  cscbzcbz  
+##### 16381#       发表于 2026-10-15 13:18
+
+嗨，白激动了<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Quelaan  
+##### 16382#       发表于 2026-10-15 13:21
+
+gemini现在怎么反代啊？我只有一个pro订阅，反重力权限不够，然后我用sub2api直接oauth反代一直429<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -1695,3 +1695,13 @@ PS: 这是它的另一个分支, 更新频繁许多: [https://github.com/YuZhouR
 
 这个和Photon Studio比起来怎样？
 
+
+*****
+
+####  pgain2004  
+##### 148#       发表于 2026-10-15 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70373656&amp;ptid=2291670" target="_blank">qwased 发表于 2026-10-15 04:11</a>
+比起这种一大坨bug的ai还原应用，不如复活下Starcraft</blockquote>
+……你在说啥？
+
