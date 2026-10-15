@@ -2980,3 +2980,33 @@ TOX我现在都不敢打二周目就是怕它好几年后才出TOX2，太早打�
 
 话说南梦宫这开发效率，唉
 
+
+*****
+
+####  孤狼arcueid  
+##### 279#       发表于 2026-10-15 16:18
+
+<img src="https://static.stage1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">怎么还没屏蔽888拉伸哥的
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 17 Ultra
+
+*****
+
+####  qiyu1234  
+##### 280#         楼主| 发表于 2026-10-15 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376630&amp;ptid=2280008" target="_blank">空洞骑士 发表于 2026-10-15 15:38</a>
+
+TOX我现在都不敢打二周目就是怕它好几年后才出TOX2，太早打完就把剧情给忘光了。这两部复刻的发售间隔都 ...</blockquote>
+目前复刻的问题还是管杀不管埋
+
+TOE复刻目前几个新增（相对前几个复刻）的官方QOL增强还是好评比较多的
+
+问题是越早的复刻这种针对性强的QOL就越少，而且也不会进行QOL更新，针对一部分BUG反馈也没有充分的修改，版权DLC更不用提了
+
+TOE复刻根据反馈追加了称号继承这点还算是听取了玩家的声音
+
+但像TOE基于PSP版移植导致的没有多人热座的问题就没有什么回应了
+
+至少在复刻企划的态度上，给人感觉更像是 “完成任务”，而不是“把复刻尽可能完整的移交给现代平台”
+

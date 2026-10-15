@@ -1185,3 +1185,97 @@ opencode go上了一个免费的200k上下文v41f，很神秘
 
 梁叔叔给我发了90+的余额补偿<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，我决定不黑梁叔叔直到余额用完
 
+
+*****
+
+####  cscbzcbz  
+##### 16401#       发表于 2026-10-15 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376816&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-10-15 16:13</a>
+梁叔叔给我发了90+的余额补偿，我决定不黑梁叔叔直到余额用完</blockquote>
+啊，为啥只给我发了19<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FACS  
+##### 16402#       发表于 2026-10-15 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376838&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-15 16:17</a>
+啊，为啥只给我发了19</blockquote>
+用的多吧，我只给了6分<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 16403#       发表于 2026-10-15 16:19
+
+我一分没发<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sunyalche  
+##### 16404#       发表于 2026-10-15 16:19
+
+梁圣不仅不让我峰价时用, 还补偿了我98, 这个月我也不黑了
+
+*****
+
+####  nxmonitor  
+##### 16405#       发表于 2026-10-15 16:21
+
+虽然发了余额，但是也说明没有大的了…
+
+
+*****
+
+####  heemoon  
+##### 16406#       发表于 2026-10-15 16:22
+
+发了80，是不是和上午用没用过有关系
+
+*****
+
+####  Sunyalche  
+##### 16407#       发表于 2026-10-15 16:25
+
+我算了下, 应该刚好是前七天用的量
+
+*****
+
+####  马桶3  
+##### 16408#       发表于 2026-10-15 16:26
+
+给我补了4.9<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 16409#       发表于 2026-10-15 16:26
+
+发了20，今天服务恢复前没用过，不知道按什么算的
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  andychen  
+##### 16410#       发表于 2026-10-15 16:26
+
+给我发了……8毛1<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 16411#       发表于 2026-10-15 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376884&amp;ptid=2275806" target="_blank">Sunyalche 发表于 2026-10-15 16:25</a>
+我算了下, 应该刚好是前七天用的量</blockquote>
+亏了，前天开始用opencodego订阅的dsv4.1f<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  唠叨  
+##### 16412#       发表于 2026-10-15 16:27
+
+我才补了1.78元<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

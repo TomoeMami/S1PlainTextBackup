@@ -731,3 +731,23 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
 看到所谓剧情梗概了，wsd应该付钱给看电影的观众
 
+
+*****
+
+####  堀内爱里衣  
+##### 42099#       发表于 2026-10-15 16:22
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/15/162322ksspk6zq7xq315t2.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-15_16-18-41.png</strong> (845.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 16:23 上传
+
+       [https://x.com/bang_dream_info/status/2110566350447837502](https://x.com/bang_dream_info/status/2110566350447837502)
+
+       [https://www.bilibili.com/video/BV1zhJC6zEQJ](https://www.bilibili.com/video/BV1zhJC6zEQJ)  &lt;——bilibili搬运视频
+
