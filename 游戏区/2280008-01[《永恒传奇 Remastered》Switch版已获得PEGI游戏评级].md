@@ -2880,3 +2880,13 @@ Steam版非要晚一天呗。
 
 这代是jrpg主角是村民的刻板印象来源之一吧，我一直记得op里女主扛一捆稻草的画面
 
+
+*****
+
+####  猪突猛进R  
+##### 270#       发表于 2026-10-15 12:11
+
+法拉就是村姑啊，没啥问题。
+
+就是力气大得能一脚踢飞熊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
