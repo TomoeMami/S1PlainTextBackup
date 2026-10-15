@@ -311,3 +311,23 @@
 
 —— 来自 realme RMX3708, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 107#       发表于 2026-10-15 17:57
+
+<blockquote>Dragon_Quest_U 发表于 2026-10-14 13:41
+啊，单机版莉卡是没觉醒土系技能吗，这和原版很不一样了，原版最快19级就能点出土属性中级打击技，反而兽 ...</blockquote>
+OK，打开游戏找到了，在这个版本里莉卡只有两个地属性技能，分别是70AP的地属性连锁技和200AP的地属性主动技。这游戏第1部内容里水迷宫不多，但有一个卡在相当前期，差不多就是刚好能点出70的地连锁就遇到了。
+
+<img src="https://img.stage1st.com/forum/202610/15/175658f84v4hcngdentgcu.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2B624BCE-304B-4885-9EC0-22DE7EDA6CC9.jpeg</strong> (797.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 17:56 上传
+
+这个场景有点幻视HD-2D，但一进入村子，滤镜就碎了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

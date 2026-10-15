@@ -1657,3 +1657,44 @@ opencode刚开了个free的41F，是不是深度求索回了他们一大笔款�
 
 但是还是没有4.1p
 
+
+*****
+
+####  hugosol  
+##### 16451#       发表于 2026-10-15 17:58
+
+梁圣A股到底赚了多少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  med  
+##### 16452#       发表于 2026-10-15 17:58
+
+也退了几百
+
+<img src="https://img.stage1st.com/forum/202610/15/175807gjijjc8i70twzxt9.png" referrerpolicy="no-referrer">
+
+<strong>9d09d82052783d7bc607bdc719a97b4d.png</strong> (64.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 17:58 上传
+
+
+*****
+
+####  NMTor  
+##### 16453#       发表于 2026-10-15 18:05
+
+梁圣赚太多惹
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">大肥鱼原生家庭真不赖👏🏻
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  谎称  
+##### 16454#       发表于 2026-10-15 18:07
+
+作为补偿，我们将按您账号 7 日内（10.8-10.14）的消耗金额以赠金形式全额返还，赠金自动到账，API 计费扣款先从赠金账户扣除。此次故障对您造成了影响，我们再次致歉，感谢您一直以来的信任与支持。
+

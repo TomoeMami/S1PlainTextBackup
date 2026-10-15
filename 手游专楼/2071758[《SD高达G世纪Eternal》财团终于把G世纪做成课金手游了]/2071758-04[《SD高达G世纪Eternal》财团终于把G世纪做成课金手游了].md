@@ -1852,3 +1852,18 @@ S级有的
 
 估计钱包保不住了，看看明天出来是什么标签吧
 
+
+*****
+
+####  ティグル  
+##### 4876#       发表于 2026-10-15 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377329&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-10-15 17:35</a>
+
+6格3援攻，比姆增伤25
+
+S级有的</blockquote>
+陪跑很拉，又不怎么想下池了
+
+如果EX是特殊增伤倒还好说，现在有点卡住了
+

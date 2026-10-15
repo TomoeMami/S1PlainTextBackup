@@ -3089,3 +3089,14 @@ FF16那个demo你们能看得出来行，也是厉害，光开头的不死鸟打
 - 主线故事大约 20-30 小 ...</blockquote>
 那么短啊，感觉一下子不太想买了。。。demo随便打打就4-5个小时了
 
+
+*****
+
+####  黑暗之眼  
+##### 311#       发表于 2026-10-15 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377296&amp;ptid=2283081" target="_blank">密特罗德2026 发表于 2026-10-15 17:28</a>
+
+那么短啊，感觉一下子不太想买了。。。demo随便打打就4-5个小时了</blockquote>
+我demo还打了10.7小时呢，岂不是我就剩一半流程了？什么鬼算法
+
