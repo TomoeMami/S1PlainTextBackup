@@ -1803,3 +1803,32 @@ opencode余额用早了<img src="https://static.stage1st.com/image/smiley/face20
 虚假的二游：炸服后发点不疼不痒的补偿，屁用没有。
 真正的二游：Deepseek，炸服后返还7天花的人民币，花多少返多少。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  飛霞精灵  
+##### 16467#       发表于 2026-10-15 19:03
+
+所以梁圣是真不差那点API钱啊？
+
+*****
+
+####  守名居  
+##### 16468#       发表于 2026-10-15 19:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">后悔为啥不多用点了，才返了10块
+
+*****
+
+####  love4aids  
+##### 16469#       发表于 2026-10-15 19:05
+
+梁圣真不差你们这三瓜两枣<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 16470#       发表于 2026-10-15 19:06
+
+万一是这几天做空吃了很多米呢？
+

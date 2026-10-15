@@ -1990,3 +1990,26 @@ pdf用着用着就不显示中文字了，你们有这种情况没有
 
 开源怎么还要注册。。。
 
+
+*****
+
+####  绕指流光  
+##### 172#       发表于 2026-10-15 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70371180&amp;ptid=2291670" target="_blank">zyuco 发表于 2026-10-14 15:26</a>
+做不出来。
+
+或者说，我做出来了一个能用的微信，别人也做出来了一个自己能用的微信，另外一个一般路过的 ...</blockquote>
+QQ 珊瑚虫的年代没有经历过吗？
+当然以现在这个环境和技术，我也觉得不大可能做出来，南山必胜客会使用爆炸的
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  ayanamilin  
+##### 173#       发表于 2026-10-15 19:13
+
+Vibe coder 除了偷别人成果，做不出自己的东西了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
