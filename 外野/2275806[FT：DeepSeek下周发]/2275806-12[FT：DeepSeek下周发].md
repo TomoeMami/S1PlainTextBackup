@@ -140,3 +140,60 @@ workbuddy 没有积分得了？
 
 a/第三季度营收168亿美元
 
+
+*****
+
+####  cscbzcbz  
+##### 16293#       发表于 2026-10-15 08:59
+
+50分钟了，还没修好<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+大的要来了还是小的要来了
+
+
+*****
+
+####  飛霞精灵  
+##### 16294#       发表于 2026-10-15 09:01
+
+先别抱期待，万一只是服务器电线被早晨没睡醒的员工绊了呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Milarvoz  
+##### 16295#       发表于 2026-10-15 09:01
+
+国模，你崛起吧。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  zy450  
+##### 16296#       发表于 2026-10-15 09:03
+
+难道说<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  马桶3  
+##### 16297#       发表于 2026-10-15 09:03
+
+还以为是我的问题，原来大家都一样啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojog  
+##### 16298#       发表于 2026-10-15 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70373707&amp;ptid=2275806" target="_blank">haiuhfuwah 发表于 2026-10-15 06:38</a>
+
+a/第三季度营收168亿美元</blockquote>
+其实说实话虽然A/是畜生，但是Q4搞不好能到200
+
+毕竟o/自爆了，grok4.7拉完了，gemini4虽然强但是谷大善人的尿性两个礼拜就要流口水
+
+（antigravity太拉胯也是一方面）
+
+不过说好的年化1000呢？
+
