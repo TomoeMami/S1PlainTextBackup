@@ -3175,3 +3175,23 @@ tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感
 
 看到这个主题才回头看了一下 Steam 游戏库，发现破晓现在默认的封面图和背景都换成 beyond the dawn 版本了（白色背景，人物像塔一样堆了三层）。刚发售的时候还是只有男女主站在一起的。
 
+
+*****
+
+####  慕容断月  
+##### 293#       发表于 2026-10-16 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377266&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-10-15 17:23</a>
+https://stage1st.com/2b/thread-2291419-1-2.html</blockquote>
+如果你说是喜欢把拉伸图到处发的那位，我建议尽早塞抹布，极品发言也不少
+
+*****
+
+####  恋妖壶  
+##### 294#       发表于 2026-10-16 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377474&amp;ptid=2280008" target="_blank">Xenor 发表于 2026-10-15 18:08</a>
+
+K嗷，who tell you深渊是3d传说的，传说3d不3d是看战斗来的，深渊本质战斗还是2d的，一个过渡期，不要张冠 ...</blockquote>
+我说这个硬要把“谁告诉你”说成“who tell you”的细节让其人形象跃然纸上仿佛回到20年前的S1有懂的吗<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
