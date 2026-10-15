@@ -3157,3 +3157,13 @@ TOA其实已经可以自由移动了 TOS才是本质2D 有时候被两拨怪挤�
 之后的TOV本质上是TOA的 ...</blockquote>
 tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感觉类似tor三线战斗，tos也类似，只是隐藏的还不是直线，但如你说是toa的加强版，要是后期有解锁了移动方式能和tov一样那肯定就是3d是我错了，toa我顶天只玩了前面2小时内容对后面除了剧情外是一片空白<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  火红之眼  
+##### 291#       发表于 2026-10-16 00:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">肝了一天打完mania难度了，顺便把20小时称号做了
+
+斗技场某人现在赢了也可以反复打了
+

@@ -2699,3 +2699,15 @@ DLC竟然不是全区的<img src="https://static.stage1st.com/image/smiley/face2
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  yangchunsiyue  
+##### 7675#       发表于 2026-10-16 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70378771&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-10-15 23:50</a>
+然后又试了下在第11章挖了哈尔温也可以触发。看来只是c支援要求哈尔温不入队，然后进入到11章就能触发b支 ...</blockquote>
+又试了一下，第10章邀请哈尔温入队之后也能触发哈尔温和法比欧的c支援，所以只是章节锁吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

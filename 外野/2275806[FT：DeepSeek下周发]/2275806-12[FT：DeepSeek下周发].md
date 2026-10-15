@@ -1948,3 +1948,11 @@ gemini 4日常用用很好用诶
 
 开了5刀的gemini pro 结果反重力用不了4 Argon<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moudianzi  
+##### 16484#       发表于 2026-10-16 00:18
+
+这几天都在高强度玩游戏，deepseek的api几乎没碰过，在看到消息后，感觉丢了一箩筐的鸡蛋<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
