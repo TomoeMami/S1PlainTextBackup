@@ -1794,3 +1794,12 @@ opencode余额用早了<img src="https://static.stage1st.com/image/smiley/face20
 
 —— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  来都来了  
+##### 16466#       发表于 2026-10-15 18:54
+
+虚假的二游：炸服后发点不疼不痒的补偿，屁用没有。
+真正的二游：Deepseek，炸服后返还7天花的人民币，花多少返多少。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
