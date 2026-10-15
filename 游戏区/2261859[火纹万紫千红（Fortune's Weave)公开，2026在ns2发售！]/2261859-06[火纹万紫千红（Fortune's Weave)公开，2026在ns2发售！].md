@@ -659,3 +659,52 @@ dlc别的再差，邪龙dlc最后一关的战斗就能值回票价
 
 猫猫头跳下去的那幕真是觉醒皇姐既视感<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  trotsky  
+##### 7475#       发表于 2026-10-15 09:59
+
+妮涅和粉毛强度还是可以的，粉毛算我方2/3顺位的飞马，妮涅合一下也是强力水桶了
+
+丹提就没什么救<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  milky658  
+##### 7476#       发表于 2026-10-15 10:02
+
+应该关卡制吧，但想想没了第一第二部的大量养成，到第三部有点吃亏，那些角色能救吗<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mamayata  
+##### 7477#       发表于 2026-10-15 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374261&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-10-15 09:26</a>
+第三弹希望每条线有6关以上算是奢求吗（</blockquote>
+这价格快赶上本体一半了，本体一条线12话 这个6话差不多吧
+
+*****
+
+####  SEGA  
+##### 7478#       发表于 2026-10-15 10:04
+
+好来，真的搞成火焰八方。现在才打到第三个女王，说不定DLC出来，游戏我还没通。
+
+*****
+
+####  逆旅行客  
+##### 7479#       发表于 2026-10-15 10:04
+
+PV里有猫猫头停熊车的CG，估计就是救丢人西提司的剧情
+
+*****
+
+####  yoyokirby  
+##### 7480#       发表于 2026-10-15 10:04
+
+剧情放在第一部的话，那第三部应该不动？那我要不放着第三部不打得了等DLC
+

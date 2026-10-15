@@ -379,3 +379,37 @@ OpenAI也偷但是装样子不偷，谷歌偷自己的网盘数据，A÷装也�
 
 pro的api也中断了，大的要来了，大的要来了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙骑士尹志平  
+##### 16319#       发表于 2026-10-15 09:57
+
+具身智能都是在线式的，连战场机器人都是拖光纤的，离线小模型没啥必要，具身要求的模型只要求保证高速条件下的准确性就好，ds41f就是往这个方向发展的
+
+*****
+
+####  startraveller  
+##### 16320#       发表于 2026-10-15 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374291&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-15 09:31</a>
+A/直接发报告自己偷数据啊</blockquote>
+外发的数据都默认被偷的。而且这两家对于大部分非技术开发场景都太贵了，这个场景需要的是更好的Deepseek V4 Flash，智能够用、便宜，还可以本地部署。
+
+
+*****
+
+####  cscbzcbz  
+##### 16321#       发表于 2026-10-15 10:00
+
+opencodego的还能用，看来真的是自己部署的
+
+*****
+
+####  nxmonitor  
+##### 16322#       发表于 2026-10-15 10:01
+
+<blockquote>洛拉斯 发表于 2026-10-15 09:25
+问题是就现在技术，再高速的模型都是秒级响应，没法实时控制机器人的，除非你接受机器人动作延迟都是秒级 ...</blockquote>
+所以特指了4.1F，性能高的同时首字能压到200ms，实际的computer use能力也不弱…
+
