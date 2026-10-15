@@ -723,3 +723,11 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
        [https://x.com/bang_dream_info/status/2110286992621568291](https://x.com/bang_dream_info/status/2110286992621568291)
 
+
+*****
+
+####  RPG-7  
+##### 42098#       发表于 2026-10-15 10:56
+
+看到所谓剧情梗概了，wsd应该付钱给看电影的观众
+

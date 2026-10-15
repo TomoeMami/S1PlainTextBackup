@@ -629,3 +629,38 @@ deepseek是天然元气鲸鱼娘</blockquote>
 
 说个好笑的，之前写了个GPT Astra的AI娘人设拿给gemini 3.8f看，结果gemini一看：project astra，又稳重又厉害，这不就是我吗！
 
+
+*****
+
+####  andychen  
+##### 16343#       发表于 2026-10-15 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374486&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-15 09:58</a>
+外发的数据都默认被偷的。而且这两家对于大部分非技术开发场景都太贵了，这个场景需要的是更好的Deepseek ...</blockquote>
+如果你说的技术开发指编程，就我使用的体验v4.1f在非编程任务上比起v4f是倒退的
+
+最近半年训练的小模型基本都是编程杂活专用，我觉得对于非编程实施类任务目前除了Sota模型没有别的好选择
+
+*****
+
+####  makourisu-2  
+##### 16344#       发表于 2026-10-15 10:59
+
+b站上线了官方号
+
+<img src="https://img.stage1st.com/forum/202610/15/105954zhawi11ascenacbh.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792033193923_1.webp</strong> (34.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 10:59 上传
+
+
+*****
+
+####  cscbzcbz  
+##### 16345#       发表于 2026-10-15 11:02
+
+快3个小时了，直接上热搜了还行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
