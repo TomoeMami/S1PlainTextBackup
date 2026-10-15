@@ -2064,3 +2064,13 @@ muse spark open  斩杀 k3 glm5.3
 
 点击文件名下载附件
 
+
+*****
+
+####  黄泉川此方  
+##### 16490#       发表于 2026-10-16 04:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下一步想重新搓实时语音翻译的轮子了
+
+有没有已经搓好的
+
