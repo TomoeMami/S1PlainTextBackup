@@ -3217,3 +3217,11 @@ TOA其实已经可以自由移动了 TOS才是本质2D 有时候被两拨怪挤�
 
 相比之下我还是喜欢PS2的toa的方式：在直线移动和出招的方向都用十字键，自由跑动时用L2+左摇杆，区分开来操作更清晰
 
+
+*****
+
+####  火红之眼  
+##### 297#       发表于 2026-10-16 07:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3个等级的问答游戏全换成新的了，只在TOS TOG TOX TOB这几个已经出了冷饭的上面出题
+
