@@ -1904,3 +1904,13 @@ opencode这个ds4.1f的infra水平和官方差距好大，首字输出都到10�
 
 你们这群人立场一点都不坚定，在我这梁圣永远是梁圣！
 
+
+*****
+
+####  酱油拌饭s  
+##### 16479#       发表于 2026-10-15 22:53
+
+ 本帖最后由 酱油拌饭s 于 2026-10-15 22:55 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">求救现在写文哪家强&amp;怎么买合适，D老师的写文已经彻底没救了 顺便问gemini怎么买划算&amp;连api的时候同时要开梯子嘛
+
