@@ -1081,3 +1081,15 @@ dot也能节约大量额度，真的是用不完
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 17 Ultra
 
+
+*****
+
+####  heemoon  
+##### 16391#       发表于 2026-10-15 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376254&amp;ptid=2275806" target="_blank">孤狼arcueid 发表于 2026-10-15 14:32</a>
+今天gpt一直model not found
+
+Re:Source · Xiaomi 17 Ultra</blockquote>
+这个倒没遇到，capacity遇到2次了
+

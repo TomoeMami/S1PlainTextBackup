@@ -557,3 +557,11 @@ CODE GEASS系列其实这几年出的比高达还勤，还一直不绕着鲁鲁�
 
 然后如果是无正作为主角机的话也挺有意思的，人物选原来的人气老三做主角，机体选之前一直没啥时髦画面、自由系充话费送的机体做主角机<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Adrenaline!!!  
+##### 2107#       发表于 2026-10-15 14:40
+
+好像配件包是单卖宙斯魅影哦
+
