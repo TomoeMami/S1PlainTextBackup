@@ -33,3 +33,15 @@ mihon 这几天怎么一天一更新？没出什么事吧？
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  azbhg1  
+##### 207#         楼主| 发表于 2026-10-16 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70378302&amp;ptid=2254551" target="_blank">KDConan 发表于 2026-10-15 21:57</a>
+说0.21.2是最后一个支持tachiyomi插件的大版本了？我怎么确定装的哪些插件是tachiyomi的？
+
+—— 来自 Xiao ...</blockquote>
+插件版本号是1.4.xxx的，最新的都是1.6.xxx
+
