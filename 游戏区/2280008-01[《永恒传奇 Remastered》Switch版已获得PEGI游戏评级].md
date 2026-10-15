@@ -3144,3 +3144,16 @@ TOA其实已经可以自由移动了 TOS才是本质2D 有时候被两拨怪挤�
 
 第一次看到说toa不算3d传说……对我来说tos就是3d传说……因为比起3d战斗我更习惯2d的战斗……
 
+
+*****
+
+####  Xenor  
+##### 290#       发表于 2026-10-15 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70378403&amp;ptid=2280008" target="_blank">iqbsh38 发表于 2026-10-15 22:24</a>
+
+TOA其实已经可以自由移动了 TOS才是本质2D 有时候被两拨怪挤在中间走不动非常烦
+
+之后的TOV本质上是TOA的 ...</blockquote>
+tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感觉类似tor三线战斗，tos也类似，只是隐藏的还不是直线，但如你说是toa的加强版，要是后期有解锁了移动方式能和tov一样那肯定就是3d是我错了，toa我顶天只玩了前面2小时内容对后面除了剧情外是一片空白<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
