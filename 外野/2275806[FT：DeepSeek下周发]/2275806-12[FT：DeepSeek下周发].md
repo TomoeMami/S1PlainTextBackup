@@ -447,3 +447,54 @@ DS怎么一直service too busy 现在不是梁文峰吗</blockquote>
 DS怎么一直service too busy 现在不是梁文峰吗</blockquote>
 现在是网页对话和API全线不可用<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜鹿  
+##### 16327#       发表于 2026-10-15 10:17
+
+ 本帖最后由 夜鹿 于 2026-10-15 10:18 编辑 
+
+对不起刚才的内容发错楼了，[https://grandet.ai/zh-CN/](https://grandet.ai/zh-CN/) 再宣下我们的小网站，已支持视频生成模型比价和各种可用性排名，一天内会上skill，，
+
+*****
+
+####  莱茵哈鲁特  
+##### 16328#       发表于 2026-10-15 10:19
+
+claude是腹黑阴鸷大小姐
+
+gpt是三无娘
+
+deepseek是天然元气鲸鱼娘
+
+那么gemini是什么？
+
+
+*****
+
+####  gammatau  
+##### 16329#       发表于 2026-10-15 10:20
+
+大肥鱼的消失...
+
+*****
+
+####  bartholo4  
+##### 16330#       发表于 2026-10-15 10:22
+
+灵气断绝 绝地天通<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 16331#       发表于 2026-10-15 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374703&amp;ptid=2275806" target="_blank">莱茵哈鲁特 发表于 2026-10-15 10:19</a>
+claude是腹黑阴鸷大小姐
+
+gpt是三无娘
+
+deepseek是天然元气鲸鱼娘</blockquote>
+现在通用造型是个憨批猫娘
+

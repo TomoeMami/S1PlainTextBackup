@@ -1643,3 +1643,13 @@ PANTONE库肯定是不要想了
 
 看哪天稳定了bug清了也不怕版权炮了就来一个试试吧
 
+
+*****
+
+####  bnr34y3  
+##### 144#       发表于 2026-10-15 10:23
+
+安装launcher后打开显示“无法定位程序输入点 GetSystemTimePreciseAsFileTime 于动态链接库kernel32.dll上。”
+
+是windows7系统用不了吗？<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
