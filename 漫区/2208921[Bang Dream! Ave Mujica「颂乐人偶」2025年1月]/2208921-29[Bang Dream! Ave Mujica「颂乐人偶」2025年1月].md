@@ -779,3 +779,62 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
 听起来好像银趴啊，全女吗
 
+
+*****
+
+####  堀内爱里衣  
+##### 42102#       发表于 2026-10-15 23:48
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/15/234851giwllc8bwcz12zsy.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-15_23-47-20.png</strong> (1.35 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 23:48 上传
+
+       [https://x.com/bang_dream_info/status/2110726795133870532](https://x.com/bang_dream_info/status/2110726795133870532)
+
+       [https://avemujica-movie.bang-dream.com/event/](https://avemujica-movie.bang-dream.com/event/)
+
+*****
+
+####  堀内爱里衣  
+##### 42103#       发表于 2026-10-15 23:50
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/15/235040ezy7p7jpjnn2ha2m.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-15_23-49-23.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 23:50 上传
+
+       [https://x.com/bang_dream_info/status/2110728291053400386](https://x.com/bang_dream_info/status/2110728291053400386)
+
+       [https://avemujica-movie.bang-dream.com/event/](https://avemujica-movie.bang-dream.com/event/)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42104#       发表于 2026-10-15 23:52
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/15/235243g9x9ex99rpxhrx95.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-15_23-51-35.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 23:52 上传
+
+       [https://x.com/bang_dream_info/status/2110731921433272383](https://x.com/bang_dream_info/status/2110731921433272383)
+
+       [https://www.doco-tick-experience.net/avemujica/lp/](https://www.doco-tick-experience.net/avemujica/lp/)
+

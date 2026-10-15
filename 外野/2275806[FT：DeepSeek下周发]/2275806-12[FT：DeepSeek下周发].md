@@ -1940,3 +1940,11 @@ gemini 4日常用用很好用诶
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  ttoady  
+##### 16483#       发表于 2026-10-15 23:49
+
+开了5刀的gemini pro 结果反重力用不了4 Argon<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

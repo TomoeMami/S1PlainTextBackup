@@ -2674,3 +2674,28 @@ dlc四把武器效果怎么样
 
 DLC竟然不是全区的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangchunsiyue  
+##### 7673#       发表于 2026-10-15 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70373654&amp;ptid=2261859" target="_blank">南宫月汐 发表于 2026-10-15 04:08</a>
+据说必须要过了白卵之民那一章以后，再挖角哈尔温，才能解锁法毕欧和她的支援
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+我这边打完第9章白卵传说进入第10章，哈尔温不入队可以触发c支援，但还是触发不了他俩的b支援。于是我接着试了下在竞技场把白鸦新娘全团打败，然后到第11章的时候，哈尔温不入队，终于触发了这个支援…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yangchunsiyue  
+##### 7674#       发表于 2026-10-15 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70378766&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-10-15 23:49</a>
+我这边打完第9章白卵传说进入第10章，哈尔温不入队可以触发c支援，但还是触发不了他俩的b支援。于是我接 ...</blockquote>
+然后又试了下在第11章挖了哈尔温也可以触发。看来只是c支援要求哈尔温不入队，然后进入到11章就能触发b支援了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
