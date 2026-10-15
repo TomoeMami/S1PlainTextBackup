@@ -1012,3 +1012,24 @@ gemini现在怎么反代啊？我只有一个pro订阅，反重力权限不够�
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  宏.  
+##### 16384#       发表于 2026-10-15 13:37
+
+<img src="https://img.stage1st.com/forum/202610/15/133722m3jjhv5pg5cijjij.jpg" referrerpolicy="no-referrer">
+
+<strong>1792041238233.jpg</strong> (103.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 13:37 上传
+
+*****
+
+####  heemoon  
+##### 16385#       发表于 2026-10-15 13:39
+
+gpt这重置也tm频繁了吧。。。早知道不用sol，应该狂蹬astra<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

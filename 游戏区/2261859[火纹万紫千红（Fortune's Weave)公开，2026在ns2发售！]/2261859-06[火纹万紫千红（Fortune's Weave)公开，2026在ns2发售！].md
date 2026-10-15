@@ -1745,3 +1745,21 @@ Nathan/Eshmel
 
 估计得八个小金人才能触发真结局
 
+
+*****
+
+####  白昼梦DD  
+##### 7581#       发表于 2026-10-15 13:41
+
+没救了吧 唯一一次机会就这dlc斧子特效做成加命中
+除非出新职业补命中
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  HazukiShion  
+##### 7582#       发表于 2026-10-15 13:44
+
+DLC 能补点女女后日谈吗，本篇太少了。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
