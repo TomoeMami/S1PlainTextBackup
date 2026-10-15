@@ -1136,3 +1136,36 @@ gemini现在怎么反代啊？我只有一个pro订阅，反重力权限不够�
 
 看到哈基米4是在降价促销，其实和Bel一个大小？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cyberalogo  
+##### 16397#       发表于 2026-10-15 15:58
+
+workbuddy更新后在对话框下方加了不能在设置里关闭的漂浮推荐标签，感觉像是日后加广告的预演。
+
+操作界面太空旷了，企鹅不塞点广告浑身难受。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过可以向AI许愿屏蔽掉。
+
+
+*****
+
+####  serj005  
+##### 16398#       发表于 2026-10-15 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376731&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-10-15 15:58</a>
+workbuddy更新后在对话框下方加了不能在设置里关闭的漂浮推荐标签，感觉像是日后加广告的预演。
+
+操作界面 ...</blockquote>
+这两天workbuddy还有个新的小巧思，签到那个小弹窗增加了多页切换，默认不首先显示签到按钮页面，昨天还以为签到积分没了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 16399#       发表于 2026-10-15 16:05
+
+opencode go上了一个免费的200k上下文v41f，很神秘
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

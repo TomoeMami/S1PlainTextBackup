@@ -45,3 +45,11 @@
 
 日本人这么反感AI为什么能让drecom端上这种AI垃圾，日本的社畜大叔不行啊<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茄子自走炮  
+##### 923#       发表于 2026-10-15 16:04
+
+之前问卷就骂了，你要用AI能不能用好点的，整的像gemini直出一样的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">日本中老年人可能是对AI容受度最高的了
+

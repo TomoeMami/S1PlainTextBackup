@@ -2970,3 +2970,13 @@ X1复刻本来就很赶，是最近这几个复刻里首发BUG最多的，而且
 所以TOX2???一年了</blockquote>
 TOX我现在都不敢打二周目就是怕它好几年后才出TOX2，太早打完就把剧情给忘光了。这两部复刻的发售间隔都超过原版的发售间隔了，这发售安排太牛了。
 
+
+*****
+
+####  TheOccuria  
+##### 278#       发表于 2026-10-15 15:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">卜要慌，隔壁ace8也隔了n年拿出个新高峰，让我们爱信等富泽geigei
+
+话说南梦宫这开发效率，唉
+

@@ -2265,3 +2265,39 @@ awwbwg确实太先进了，有些人不闷头玩内容这么丰富的游戏还�
 
 首发150小时玩个半成品，出完DLC再让玩家玩100小时是吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  未熟串烧  
+##### 7633#       发表于 2026-10-15 15:58
+
+其实我觉得这次有点贵乱的人物关系设定真有点给系谱重置铺垫的可能（
+
+
+*****
+
+####  lelouchwang  
+##### 7634#       发表于 2026-10-15 16:04
+
+dlc四把武器效果怎么样
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  空气先生  
+##### 7635#       发表于 2026-10-15 16:04
+
+你就是玩500小时他也是半成品捏
+
+*****
+
+####  duraa  
+##### 7636#       发表于 2026-10-15 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376760&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-10-15 16:04</a>
+dlc四把武器效果怎么样
+
+论坛助手,iPhone</blockquote>
+剑枪自带必杀，弓能打3格，斧…..备战dlc3白发鬼！<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
