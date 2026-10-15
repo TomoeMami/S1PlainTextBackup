@@ -1796,3 +1796,25 @@ DLC 能补点女女后日谈吗，本篇太少了。<img src="https://static.sta
 
 这作勇者系武器集体缺席，唯一的二连武器甚至是爱娜手里的黑魔法就很难绷
 
+
+*****
+
+####  oniwarud  
+##### 7586#       发表于 2026-10-15 14:11
+
+马兹的专武也是剑吧
+
+*****
+
+####  mai6696  
+##### 7587#       发表于 2026-10-15 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376079&amp;ptid=2261859" target="_blank">Tilocal 发表于 2026-10-15 14:04</a>
+
+都不需要改机制，也不需要什么圣斧雷斧，只要单独出一把勇者斧就够一堆人重新捡起斧头了
+
+这作勇者系武器 ...</blockquote>
+这作不是有很多连击战技吗？
+
+弓箭手甚至有四连射。
+

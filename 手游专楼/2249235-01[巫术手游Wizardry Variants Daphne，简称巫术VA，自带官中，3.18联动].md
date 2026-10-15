@@ -24,3 +24,11 @@
 
 上次出矮人新角已经是2025年6月了，作为老登IP的底蕴呢，矜持呢<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UnknownRei  
+##### 921#       发表于 2026-10-15 14:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">好差的设计，从雷霆肩甲到神秘棉袄，我说drecom自从引入AI原画后设计能力直线下降，尼玛我不信你们开服请的小崎没档期了，再不济随便请些人都比这种混乱组合的AI弱智设计好看
+
