@@ -580,3 +580,82 @@ PS３时代的CAPCOM的阿修罗之怒就干过了。    [Re:Source](https://s
 欧若拉我怀疑她有蕾妲同款甚至上位的我方群体无视冥魔特效效果剧情上说得过去，游戏性上也很合适 ...</blockquote>
 她的加护不就是无视冥魔吗 本人没有说不过去吧
 
+
+*****
+
+####  a3a4sc  
+##### 7466#       发表于 2026-10-15 09:44
+
+我们火纹也要有自己的八方
+
+*****
+
+####  1wq1  
+##### 7467#       发表于 2026-10-15 09:45
+
+这几个神都只能救世篇加入并且有特别的能力可以用
+
+*****
+
+####  真田源次郎信繁  
+##### 7468#       发表于 2026-10-15 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374311&amp;ptid=2261859" target="_blank">a3a4sc 发表于 2026-10-15 09:34</a>
+
+仓花千夏画得好看的那几个女角色，有好几个IS给她们强度都不高。
+
+粉色天马那么萌萌哒结果不好用，只好仓库 ...</blockquote>
+第三部的冥魔防御低，全靠加护挺着，飞马攻击也不高
+
+我方飞马拿个净化剑两刀砍死飞兵，直接就起到阻击援军的战略作用了，飞马还比弓兵方便
+
+粉毛特技不如金毛，不过她自带的马加移动，感觉目的就是拿来打敌方飞兵援军的
+
+*****
+
+####  真田源次郎信繁  
+##### 7469#       发表于 2026-10-15 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374332&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-10-15 09:37</a>
+
+前两弹敷衍我现在觉得是好事，反正买过engage那个dlc之后这个我是不会无脑首发入了的。不如说现在任天堂游 ...</blockquote>
+dlc别的再差，邪龙dlc最后一关的战斗就能值回票价
+
+*****
+
+####  Horusddt  
+##### 7470#       发表于 2026-10-15 09:48
+
+你最好是关卡制好吧，再让我跑四遍大地图真的要骂人了
+
+*****
+
+####  陆久舟  
+##### 7471#       发表于 2026-10-15 09:49
+
+不知道新加的神能不能搞牵绊，我想让白鸟成为凯伊后爸
+
+
+*****
+
+####  ShitOverflow  
+##### 7472#       发表于 2026-10-15 09:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是if而是前传吗，神也才给三个，怎么隐隐感觉还有第二票
+
+*****
+
+####  caps洛奇  
+##### 7473#       发表于 2026-10-15 09:52
+
+我猜还是原模原样的马桶制，新娘借船出海的剧情和地图都做好了
+
+唯一可能有变化的是白毛鬼 他的线可能是让盖茨在外面跑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黛冬優子  
+##### 7474#       发表于 2026-10-15 09:54
+
+猫猫头跳下去的那幕真是觉醒皇姐既视感<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

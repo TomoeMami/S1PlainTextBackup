@@ -1788,3 +1788,37 @@ GN钢加浓可以是红机</blockquote>
 开服玩竟然只有上尉</blockquote>
 我就是少校
 
+
+*****
+
+####  gpx234mqx  
+##### 4872#       发表于 2026-10-15 09:44
+
+V高活动差不多练完了
+
+2台ssp，ult2阶
+
+<img src="https://img.stage1st.com/forum/202610/15/094342h0danw60vfy0dv0v.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9331.png</strong> (543.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 09:43 上传
+
+<img src="https://img.stage1st.com/forum/202610/15/094342o1innnnd79huonwb.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9332.png</strong> (564.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 09:43 上传
+
+<img src="https://img.stage1st.com/forum/202610/15/094342olw5r6p3d3dktdv2.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9333.png</strong> (564.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 09:43 上传
+
