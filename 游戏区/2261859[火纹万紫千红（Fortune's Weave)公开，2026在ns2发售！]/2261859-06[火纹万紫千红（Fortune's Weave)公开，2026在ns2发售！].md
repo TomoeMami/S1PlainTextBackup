@@ -514,3 +514,69 @@ PS３时代的CAPCOM的阿修罗之怒就干过了。    [Re:Source](https://s
 四把武器别到了第三部强化完又打不过强化木剑 ...</blockquote>
 弓有独特价值，普攻2-3射程<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抹茶瓜  
+##### 7458#       发表于 2026-10-15 09:34
+
+为了弄一个机票 不惜弄些免费更新水平的东西充数吗 上次看到这种没活操作还是p3r<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a3a4sc  
+##### 7459#       发表于 2026-10-15 09:34
+
+仓花千夏画得好看的那几个女角色，有好几个IS给她们强度都不高。
+粉色天马那么萌萌哒结果不好用，只好仓库里呆着，等着看支援剧情。
+我好喜欢作家丹提，画得真的好漂亮，但是感觉只能当必杀挂件。
+
+还有安娜无法入队，DLC2安娜入队，会赢吗
+
+*****
+
+####  真田源次郎信繁  
+##### 7460#       发表于 2026-10-15 09:34
+
+这作白魔法强势，欧若拉感觉要最有用角色和最有用加护双冠王了
+
+*****
+
+####  hkguty  
+##### 7461#       发表于 2026-10-15 09:36
+
+哇！猫猫头封面！靠，剩下四英杰居然是最后一次更新一起放，感觉每个角色的路线规模应该不大
+
+*****
+
+####  u2deack  
+##### 7462#       发表于 2026-10-15 09:37
+
+前两弹敷衍我现在觉得是好事，反正买过engage那个dlc之后这个我是不会无脑首发入了的。不如说现在任天堂游戏的dlc除了xb我都要看了具体内容再买了
+
+*****
+
+####  Humpy  
+##### 7463#       发表于 2026-10-15 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374312&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-10-15 09:34</a>
+这作白魔法强势，欧若拉感觉要最有用角色和最有用加护双冠王了</blockquote>
+欧若拉我怀疑她有蕾妲同款甚至上位的我方群体无视冥魔特效效果<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 7464#       发表于 2026-10-15 09:39
+
+制作者和斧头有仇啊。
+
+
+*****
+
+####  mamayata  
+##### 7465#       发表于 2026-10-15 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374334&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-10-15 09:38</a>
+欧若拉我怀疑她有蕾妲同款甚至上位的我方群体无视冥魔特效效果剧情上说得过去，游戏性上也很合适 ...</blockquote>
+她的加护不就是无视冥魔吗 本人没有说不过去吧
+
