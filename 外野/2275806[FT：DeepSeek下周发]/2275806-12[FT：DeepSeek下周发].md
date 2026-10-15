@@ -1975,3 +1975,14 @@ gemini 4日常用用很好用诶
 
 muse spark open  斩杀 k3 glm5.3
 
+
+*****
+
+####  tonyunreal  
+##### 16487#       发表于 2026-10-16 02:07
+
+红迪老哥说是spark 1.1水平
+而且816B-42B也太大了，美模果然没有算力压力
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

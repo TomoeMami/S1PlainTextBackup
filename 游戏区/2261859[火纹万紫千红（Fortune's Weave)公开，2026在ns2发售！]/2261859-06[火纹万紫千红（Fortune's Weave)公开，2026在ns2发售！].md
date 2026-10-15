@@ -2723,3 +2723,12 @@ DLC竟然不是全区的<img src="https://static.stage1st.com/image/smiley/face2
 
 为嘛panty不能入队啊！
 
+
+*****
+
+####  57042711  
+##### 7677#       发表于 2026-10-16 02:14
+
+想拯救斧头还不简单？按贝里克物语的思路来不就好了，配合技能反手特别牛逼可以蓄力然后有很多把自己防御变0来提升输出的技能<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+斧头本来就是攻强守弱的武器嘛…
+
