@@ -873,3 +873,35 @@ RSI这种炒股用的**说法，。。
 
 末法时代了，断了这么久吗，我看到外包兄弟里别的模型挤爆了
 
+
+*****
+
+####  novem  
+##### 16369#       发表于 2026-10-15 11:57
+
+<blockquote>lactone 发表于 2026-10-15 11:49
+而且我觉得持续学习工程上很难实现，安全护栏就不好搞，不然就是直接让人搞注入攻击
+
+—— 来自 vivo V2505 ...</blockquote>
+持续学习真的很难吧，LLM怎么知道什么是应该学的什么是不改学的
+
+
+*****
+
+####  qwased  
+##### 16370#       发表于 2026-10-15 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70375307&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-15 11:47</a>
+
+主要rsi这波是openai和谷歌先炒，然后a\表示我也行，然后智谱说我也行
+
+—— 来自 vivo V2505A, Android  ...</blockquote>
+最早吹实现RSI的minimax在哪发财呢……
+
+*****
+
+####  qz66618  
+##### 16371#       发表于 2026-10-15 12:05
+
+怎么还在炸<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

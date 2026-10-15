@@ -1661,3 +1661,29 @@ PANTONE库肯定是不要想了
 
 好不好用另说，启动速度快得有点不适应了
 
+
+*****
+
+####  WiiGe  
+##### 146#         楼主| 发表于 2026-10-15 11:56
+
+ 本帖最后由 WiiGe 于 2026-10-15 11:58 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374742&amp;ptid=2291670" target="_blank">bnr34y3 发表于 2026-10-15 10:23</a>
+
+安装launcher后打开显示“无法定位程序输入点 GetSystemTimePreciseAsFileTime 于动态链接库kernel32.dll上 ...</blockquote>
+你这个问题我用FireFox遇到过, 这是因为系统API在Win7上没有更新了, 所以找不到, 你至少需要Win8才能用
+
+但我用这个VxKex: [https://github.com/i486/VxKex](https://github.com/i486/VxKex) 开起来过其他软件, 它的好处是扩展系统API的同时不改动系统文件没有侵入性, 所以很稳也好回滚 (而且有UI
+
+<img src="https://img.stage1st.com/forum/202610/15/115605nb4tvpvbk1f1ezk1.png" referrerpolicy="no-referrer">
+
+<strong>5d5b7519-e739-4709-ab79-654351f41738.png</strong> (29.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 11:56 上传
+
+不过WIn7确实太老了, 如果真的喜欢精简系统应该考虑新版的Windows Server 的
+
+PS: 这是它的另一个分支, 更新频繁许多: [https://github.com/YuZhouRen86/VxKex-NEXT](https://github.com/YuZhouRen86/VxKex-NEXT)
+
