@@ -840,3 +840,36 @@ RSI这种炒股用的**说法，。。
 
 在持续学习可行之前，RSI不了一点<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 16366#       发表于 2026-10-15 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70375299&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-10-15 11:45</a>
+RSI这种炒股用的**说法，。。
+
+问RSI在哪里，一看就是让模型参与训练，就这。
+
+在持续学习可行之前，RSI不 ...</blockquote>
+主要rsi这波是openai和谷歌先炒，然后a\表示我也行，然后智谱说我也行
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lactone  
+##### 16367#       发表于 2026-10-15 11:49
+
+而且我觉得持续学习工程上很难实现，安全护栏就不好搞，不然就是直接让人搞注入攻击
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  crow_wine  
+##### 16368#       发表于 2026-10-15 11:52
+
+末法时代了，断了这么久吗，我看到外包兄弟里别的模型挤爆了
+
