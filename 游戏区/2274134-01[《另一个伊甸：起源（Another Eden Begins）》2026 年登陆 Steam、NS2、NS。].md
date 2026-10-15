@@ -331,3 +331,18 @@ OK，打开游戏找到了，在这个版本里莉卡只有两个地属性技能
 
 这个场景有点幻视HD-2D，但一进入村子，滤镜就碎了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  游蜓  
+##### 108#       发表于 2026-10-15 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70370260&amp;ptid=2274134" target="_blank">caicaistar 发表于 2026-10-14 12:46</a>
+
+在愿望单里
+
+请问从客观角度出发，只考虑单机版内的内容不考虑其他附加因素的情况下，单机版剧情如何呀？ ...</blockquote>
+一般水平吧，我个人来说大概7分
+
+手游里比较精髓的剧情都在外传了
+

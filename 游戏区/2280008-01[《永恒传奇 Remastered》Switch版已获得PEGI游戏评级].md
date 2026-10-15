@@ -3085,3 +3085,33 @@ K嗷，who tell you深渊是3d传说的，传说3d不3d是看战斗来的，深�
 
 至于TOS我认为也是3D传说战斗，原因是虽然玩家不能FR或者横向移动，但是对象（敌人）是可以的，玩家可以通过切换锁定不同的对象实现移动方向的变化，本质也是3D场景战斗
 
+
+*****
+
+####  qiyu1234  
+##### 286#         楼主| 发表于 2026-10-15 19:53
+
+ 本帖最后由 qiyu1234 于 2026-10-15 19:55 编辑 
+
+除了WIKI以外，本作推荐的纸质攻略本是 FAMI攻略本，也是少数FAMI攻略比NAMCO官方攻略更优秀的一作，
+
+TOE官方攻略本的隐藏要素标记不全，甚至有谬误，单就本作的攻略本质量来说确实远不如FAMI攻略本
+
+通过网盘分享的文件：Tales_Of_Eternia_PSX_Famitsu_Guide.rar
+
+链接: [https://pan.baidu.com/s/1SaP77d691ljx6GvUUnsEaA?pwd=TOER](https://pan.baidu.com/s/1SaP77d691ljx6GvUUnsEaA?pwd=TOER) 提取码: TOER 
+
+另外打包了一下这次的豪华版的历代战斗曲包，有需要自用
+
+通过网盘分享的文件：テイルズ オブ エターニア リマスター バトルBGMパック.rar
+
+链接: [https://pan.baidu.com/s/1fGVQJcXSU6TfDeEWJlyxVw?pwd=TOER](https://pan.baidu.com/s/1fGVQJcXSU6TfDeEWJlyxVw?pwd=TOER) 提取码: TOER
+
+<img src="https://img.stage1st.com/forum/202610/15/195339xtig3poxwgmu3pwl.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (143.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 19:53 上传
+
