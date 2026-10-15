@@ -237,3 +237,119 @@ a/发那个报告后不少公司停用来着，倒也不一定会上涨。o/虽�
 
 崩了崩了，那就是来了来了
 
+
+*****
+
+####  Promeus  
+##### 16303#       发表于 2026-10-15 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374101&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-15 09:11</a>
+真就非sota不用吗大部分应付老板的工作v41f都能做得很好了吧
+
+至少我是看不到astra用户转claude的必要性</blockquote>
+关键还是热爱追sota的程序员这个群体就这么多还随着ai被裁员了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 16304#       发表于 2026-10-15 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374071&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-15 09:07</a>
+a/发那个报告后不少公司停用来着，倒也不一定会上涨。o/虽然拉了，但是增量的非程序员群体里里有啥不用as ...</blockquote>
+Fable级价格的Astra和4折的Opus 55打得有来有回，人家还快还审美好，非程序场景不在国内的话，有啥理由用Astra
+
+*****
+
+####  redfortress  
+##### 16305#       发表于 2026-10-15 09:16
+
+大...大...大...大的要来啦。
+
+*****
+
+####  jojog  
+##### 16306#       发表于 2026-10-15 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374071&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-15 09:07</a>
+
+a/发那个报告后不少公司停用来着，倒也不一定会上涨。o/虽然拉了，但是增量的非程序员群体里里有啥不用as ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+非程序员群体压根就不用sota啊，前两天karpathy不才刚说去掉2000万程序员大部分人也就是当个chatbot用么
+
+*****
+
+####  FACS  
+##### 16307#       发表于 2026-10-15 09:17
+
+这么早，感觉是无事发生啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 16308#       发表于 2026-10-15 09:21
+
+下一步给机器人当大脑才是真的，但是梁总之前看中宇树就有点……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛拉斯  
+##### 16309#       发表于 2026-10-15 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374188&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-15 09:21</a>
+
+下一步给机器人当大脑才是真的，但是梁总之前看中宇树就有点……</blockquote>
+如果真用大模型实时识别，实时编程动作，那算力要求太高了
+
+*****
+
+####  nxmonitor  
+##### 16310#       发表于 2026-10-15 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374212&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-15 09:22</a>
+
+如果真用大模型实时识别，实时编程动作，那算力要求太高了</blockquote>
+就那个conputer use发展下去就行，搞个4.1F这样的高速模型，专门蒸馏这方面的能力是可以的
+
+*****
+
+####  tillnight  
+##### 16311#       发表于 2026-10-15 09:24
+
+实际情况就是最新报告称oai抢了很多a/的企业客户。你觉得opus5.5多牛逼不重要，反正看起来大客户们没觉得。
+
+*****
+
+####  洛拉斯  
+##### 16312#       发表于 2026-10-15 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374235&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-15 09:24</a>
+
+就那个conputer use发展下去就行，搞个4.1F这样的高速模型，专门蒸馏这方面的能力是可以的 ...</blockquote>
+问题是就现在技术，再高速的模型都是秒级响应，没法实时控制机器人的，除非你接受机器人动作延迟都是秒级以上
+
+*****
+
+####  nxmonitor  
+##### 16313#       发表于 2026-10-15 09:26
+
+要不是Astra防御性编程有点过分了，不然opus5.5确实是比不上的，至于企业客户流失这事情和智谱是一样的，A÷是根本不装在监控用户数据
+
+*****
+
+####  Hattle  
+##### 16314#       发表于 2026-10-15 09:27
+
+DSH 更新 0.2.1.alpha3 了
+
+*****
+
+####  qz66618  
+##### 16315#       发表于 2026-10-15 09:27
+
+放到机器人身上的模型肯定是特化训练后的小模型，也只有这一种可能才可以满足实时需求，现在模型厂商都是把模型往大了训，其实我感觉在小模型的训练方面同样值得重点关注<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
