@@ -1805,3 +1805,29 @@ LightCraft解不了奥巴的raw，果然奥巴/奥之心还是太小众了</bloc
 我试了，好像不能直接打开pdf，只能先开软件再在工作台中打开。我下的便携版PDFCraft-Windows-x64-Portab ...</blockquote>
 [https://support.microsoft.com/zh ... ult-apps-in-windows](https://support.microsoft.com/zh-cn/windows/apps/change-default-apps-in-windows)
 
+
+*****
+
+####  C.W.Nimitz  
+##### 160#       发表于 2026-10-15 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367630&amp;ptid=2291670" target="_blank">shhekun 发表于 2026-10-13 22:30</a>
+
+这种反汇编，然后用ai处理估计会遭铁拳吧，太容易有一学一了。</blockquote>
+a畜和O畜天天说ai训练的玩意不算剽窃，虽然材料都是偷来的
+
+那你怎么确认ai搓出来的软件就侵权了？有本事搬石头砸自己脚呗
+
+
+*****
+
+####  C.W.Nimitz  
+##### 161#       发表于 2026-10-15 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367727&amp;ptid=2291670" target="_blank">simonroam 发表于 2026-10-13 22:47</a>
+
+这对于程序员来说不是好事吧，这种企业都被搞没了以后开发什么项目能赚钱呢，难不成都去搞破坏当黑客吗 ...</blockquote>
+对程序员是好事呀，几个有经验的人凑一起可以搞以前几百号人才能搞的大型项目了
+
+但相对的程序员需求量大幅下降，整体需求萎缩了
+

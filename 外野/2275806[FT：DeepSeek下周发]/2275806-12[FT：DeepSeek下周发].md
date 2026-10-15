@@ -1698,3 +1698,54 @@ opencode刚开了个free的41F，是不是深度求索回了他们一大笔款�
 
 作为补偿，我们将按您账号 7 日内（10.8-10.14）的消耗金额以赠金形式全额返还，赠金自动到账，API 计费扣款先从赠金账户扣除。此次故障对您造成了影响，我们再次致歉，感谢您一直以来的信任与支持。
 
+
+*****
+
+####  来都来了  
+##### 16455#       发表于 2026-10-15 18:08
+
+这几天因为手游的活动快过期了，晚上打了几天手游，没有好好蹬，后悔死了（打滚）<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leina0602  
+##### 16456#       发表于 2026-10-15 18:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">退了140
+
+
+*****
+
+####  squallx  
+##### 16457#       发表于 2026-10-15 18:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这几天TIBO一直重置没怎么蹬大肥鱼 就退了几块钱血亏
+
+*****
+
+####  冬眠的龙凰  
+##### 16458#       发表于 2026-10-15 18:16
+
+我已经能猜到接下来会看到什么动画了
+
+拿出珍藏的大白饭补偿用户的大肥鱼
+
+*****
+
+####  红色福音  
+##### 16459#       发表于 2026-10-15 18:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">从梁叔叔那里领了一块五，早知道这几天玩酒馆就站起来蹬了
+
+*****
+
+####  夜鹿  
+##### 16460#       发表于 2026-10-15 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70375712&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-10-15 12:57</a>
+
+这网站能支持换RMB计价么？还有峰谷时间分开列这种。
+
+—— 来自 Xiaomi 24129PN74C, Android 16, 鹅球 v ...</blockquote>
+支持的rmb的，峰谷还没做，现在还有好多功能在排产
+
