@@ -1653,3 +1653,11 @@ PANTONE库肯定是不要想了
 
 是windows7系统用不了吗？<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zitan  
+##### 145#       发表于 2026-10-15 11:31
+
+好不好用另说，启动速度快得有点不适应了
+

@@ -736,3 +736,30 @@ gemini网页端似乎也爆了，不是数据中心被炸了吧
 
 就是网线断了吧感觉
 
+
+*****
+
+####  白日依山尽  
+##### 16355#       发表于 2026-10-15 11:29
+
+api能用，网页不行
+
+*****
+
+####  羊寢  
+##### 16356#       发表于 2026-10-15 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70375123&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-15 11:15</a>
+开盘就是九点半，九点上班不是很正常？</blockquote>
+看楼内记录应该是八点十分左右就开始炸了，先是网页然后才到api(存疑，也可能是同时炸的，不过漏油没发现)
+
+
+*****
+
+####  Milarvoz  
+##### 16357#       发表于 2026-10-15 11:30
+
+说不定是打扫卫生的阿姨为了给自己的手机充电顺手拔了个插头。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
