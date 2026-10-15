@@ -1002,3 +1002,13 @@ tibo人呢怎么也睡着了
 
 gemini现在怎么反代啊？我只有一个pro订阅，反重力权限不够，然后我用sub2api直接oauth反代一直429<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 16383#       发表于 2026-10-15 13:28
+
+0731是下午一点五十发的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

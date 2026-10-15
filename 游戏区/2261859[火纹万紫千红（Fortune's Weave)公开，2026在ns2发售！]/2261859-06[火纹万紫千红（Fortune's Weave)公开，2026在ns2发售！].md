@@ -1610,3 +1610,138 @@ dlc给第三部加新要素让玩家打二周目可以，能不能先把重开�
 
 你们就没觉得最后一关很怪么？
 
+
+*****
+
+####  freedom12  
+##### 7578#       发表于 2026-10-15 13:25
+
+ 本帖最后由 freedom12 于 2026-10-15 13:27 编辑 
+
+这是红迪上根据 相邻时存在好感度加成 整理出的可能存在的支援对话
+
+Bertrand/Gaitz
+
+Bertrand/Jester
+
+Bertrand/Dante
+
+Bertrand/Goliath
+
+Bertrand/Dietrich
+
+Bertrand/Fianna
+
+Bertrand/Nathan
+
+Bertrand/Creek
+
+Bertrand/Aswan
+
+Bertrand/Eshmel
+
+Gaitz/Jester
+
+Orchel/Diego
+
+Orchel/Seteth
+
+Orchel/Loretta
+
+Orchel/Cai
+
+Orchel/Theodora
+
+Orchel/Eshmel
+
+Ninae/Seteth
+
+Ninae/Nezha
+
+Ninae/Loretta
+
+Anatolia/Sha Lan
+
+Anatolia/Halvin
+
+Anatolia/**o
+
+Anatolia/Nezha
+
+Anatolia/Leda
+
+Anatolia/Talimun
+
+Anatolia/Eshmel
+
+Sha Lan/**o
+
+Halvin/**o
+
+Talimun/Ursula
+
+Talimun/Ludia
+
+Talimun/Eshmel
+
+Ursula/Ludia
+
+Fianna/Nathan
+
+Benditz/Jasmine
+
+Benditz/Majide
+
+Benditz/Nydine
+
+Benditz/Noctula
+
+Inyoni/Catania
+
+Inyoni/Zarcone
+
+Alexandra/Sofia
+
+Troy/Eshmel
+
+Centurio/Eshmel
+
+Aswan/Eshmel
+
+Aswan/Tahonia
+
+Tahonia/Eshmel
+
+Klapka/Eshmel
+
+Kiroc/Eshmel
+
+Nuzzuo/Eshmel
+
+Creek/Eshmel
+
+Nathan/Eshmel
+
+被和谐的是本作人气第一的大刀
+
+*****
+
+####  索非亚  
+##### 7579#       发表于 2026-10-15 13:26
+
+斧子还有救吗，机制应该没法改，数值能不能加高点。现在都20+的面板斧子高个3-4点真不够看的。
+
+*****
+
+####  freedom12  
+##### 7580#       发表于 2026-10-15 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70375817&amp;ptid=2261859" target="_blank">星花 发表于 2026-10-15 13:19</a>
+
+你们就没觉得最后一关很怪么？
+
+第三章重不重做不知道，但至少还有一个BOSS要打。 ...</blockquote>
+大脑那里吧，现在看确实不明所以
+
+估计得八个小金人才能触发真结局
+
