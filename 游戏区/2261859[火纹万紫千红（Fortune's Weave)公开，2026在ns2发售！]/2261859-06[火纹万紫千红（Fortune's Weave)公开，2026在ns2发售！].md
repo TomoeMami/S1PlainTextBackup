@@ -58,3 +58,13 @@
 —— 来自 鹅球 v3.5.99 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer"> 我可以理解剧情锁，但为了这点小巧思就要重打迪哥线是不是过于脑瘫了。
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 7406#       发表于 2026-10-15 08:46
+
+突然公布了dlc
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
