@@ -197,3 +197,43 @@ a/第三季度营收168亿美元</blockquote>
 
 不过说好的年化1000呢？
 
+
+*****
+
+####  lactone  
+##### 16299#       发表于 2026-10-15 09:06
+
+廉价快速fable5要来了吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Promeus  
+##### 16300#       发表于 2026-10-15 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374055&amp;ptid=2275806" target="_blank">jojog 发表于 2026-10-15 09:05</a>
+其实说实话虽然A/是畜生，但是Q4搞不好能到200
+
+毕竟o/自爆了，grok4.7拉完了，gemini4虽然强但是谷大善 ...</blockquote>
+a/发那个报告后不少公司停用来着，倒也不一定会上涨。o/虽然拉了，但是增量的非程序员群体里里有啥不用astra的理由么<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 16301#       发表于 2026-10-15 09:11
+
+真就非sota不用吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大部分应付老板的工作v41f都能做得很好了吧
+
+至少我是看不到astra用户转claude的必要性
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  千秋难诉  
+##### 16302#       发表于 2026-10-15 09:12
+
+崩了崩了，那就是来了来了
+
