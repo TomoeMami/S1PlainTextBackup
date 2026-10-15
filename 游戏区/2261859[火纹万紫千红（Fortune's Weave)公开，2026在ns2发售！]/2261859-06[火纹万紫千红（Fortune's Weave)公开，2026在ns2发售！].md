@@ -2666,3 +2666,11 @@ dlc四把武器效果怎么样
 
 第一部+第二部总计：223小时
 
+
+*****
+
+####  gbjbb  
+##### 7672#       发表于 2026-10-15 23:17
+
+DLC竟然不是全区的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

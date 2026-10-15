@@ -1922,3 +1922,11 @@ opencode这个ds4.1f的infra水平和官方差距好大，首字输出都到10�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这个月刚开始换用ocg……
 
+
+*****
+
+####  kickass007  
+##### 16481#       发表于 2026-10-15 23:16
+
+gemini 4日常用用很好用诶
+
