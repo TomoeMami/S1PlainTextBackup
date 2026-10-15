@@ -2058,3 +2058,65 @@ DLC 能补点女女后日谈吗，本篇太少了。<img src="https://static.sta
 
 买了的都觉得内容太丰富了不闷着头打可能今年结束都打不完，怎么可能这么有空在吵呢，其它游戏甚至任天堂的那些都没那么大反应，成分很可疑<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白昼梦DD  
+##### 7610#       发表于 2026-10-15 15:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">除你任籍
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  黑上シグマ  
+##### 7611#       发表于 2026-10-15 15:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我今天早上去上班前刷推看到消息，立马就打开电脑上日亚下单充值卡买好季票了，谁管你什么内容买了再说
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+*****
+
+####  mai6696  
+##### 7612#       发表于 2026-10-15 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376457&amp;ptid=2261859" target="_blank">被击坠王 发表于 2026-10-15 15:04</a>
+
+买了的都觉得内容太丰富了不闷着头打可能今年结束都打不完，怎么可能这么有空整天在发泄呢，其它游戏甚至任 ...</blockquote>
+既然那么丰富，那么我说最好别搞什么新要素需要重玩第一部的更新了。
+
+尤其是超难，真别让我重刷伟业了吧。
+
+*****
+
+####  流连成双  
+##### 7613#       发表于 2026-10-15 15:11
+
+分割商法早在if就品鉴过啦（。没给每条线都割成单卖的dlc就知足了
+
+*****
+
+####  1wq1  
+##### 7614#       发表于 2026-10-15 15:11
+
+扣帽子大战启动·jpg
+
+反正等明年出了详情再考虑要不要买，当初直接入暗煤现在想起来有点亏
+
+
+*****
+
+####  avgust  
+##### 7615#       发表于 2026-10-15 15:13
+
+战报会骗人 战线不会 日服eshop风花都卖到排名十几了 engage更是难得进入排行榜 排四十多
+
+*****
+
+####  Horusddt  
+##### 7616#       发表于 2026-10-15 15:15
+
+awwbwg确实太先进了，有些人不闷头玩内容这么丰富的游戏还有空上网看差评怎么不怕年底打不完了？
+
