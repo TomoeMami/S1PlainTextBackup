@@ -1485,3 +1485,74 @@ GPT怎么又重置了，得开多两个许愿池加速蹬了<img src="https://st
 
 就发了3.01....最近都蹬ccg没有怎么蹬梁子的，亏大了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梁皇无忌  
+##### 16434#       发表于 2026-10-15 17:20
+
+亏了，这几天主要用WB的免费积分<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野あさみ  
+##### 16435#       发表于 2026-10-15 17:23
+
+<img src="https://img.stage1st.com/forum/202610/15/172316egy2bmgjvzzbblzr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (287.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 17:23 上传
+
+opencode go的deepseek flash又流口水 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ambivalence  
+##### 16436#       发表于 2026-10-15 17:25
+
+<img src="https://img.stage1st.com/forum/202610/15/172504xf330ffn95zcglz5.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (110.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 17:25 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这下不黑梁圣了
+
+*****
+
+####  eno_emos  
+##### 16437#       发表于 2026-10-15 17:26
+
+<img src="https://img.stage1st.com/forum/202610/15/172548s6mgykz3ryt3002u.png" referrerpolicy="no-referrer">
+
+<strong>04e32bb8c96c9edac6f4056c6d184cca.png</strong> (56.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 17:25 上传
+
+升格为梁圣
+
+炸服全额补偿，哪家二游有这种（
+
+*****
+
+####  Hattle  
+##### 16438#       发表于 2026-10-15 17:27
+
+<img src="https://img.stage1st.com/forum/202610/15/172632eqiqyoiilnii2q88.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 17:26 上传
+
+发公告了，补偿 10.8-10.14 的所有消费
+

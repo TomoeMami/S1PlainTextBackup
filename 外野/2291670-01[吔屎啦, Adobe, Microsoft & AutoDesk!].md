@@ -1766,3 +1766,11 @@ PDFCraft立刻进行一个整起来【。】
 
 LightCraft解不了奥巴的raw，果然奥巴/奥之心还是太小众了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BTmanMk2  
+##### 156#       发表于 2026-10-15 17:21
+
+PDFCraft距离完美替代Acrobat还有点距离，特别是LiveCycle那套表单屎山。。。目前当个查看器还是没问题的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
