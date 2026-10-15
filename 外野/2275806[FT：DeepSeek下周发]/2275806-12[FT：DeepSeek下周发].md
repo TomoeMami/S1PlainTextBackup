@@ -413,3 +413,37 @@ opencodego的还能用，看来真的是自己部署的
 问题是就现在技术，再高速的模型都是秒级响应，没法实时控制机器人的，除非你接受机器人动作延迟都是秒级 ...</blockquote>
 所以特指了4.1F，性能高的同时首字能压到200ms，实际的computer use能力也不弱…
 
+
+*****
+
+####  zxtree  
+##### 16323#       发表于 2026-10-15 10:12
+
+DS怎么一直service too busy 现在不是梁文峰吗
+
+*****
+
+####  cscbzcbz  
+##### 16324#       发表于 2026-10-15 10:14
+
+2个小时了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 16325#       发表于 2026-10-15 10:14
+
+<blockquote>zxtree 发表于 2026-10-15 10:12
+DS怎么一直service too busy 现在不是梁文峰吗</blockquote>
+全炸了，如果不是被攻击，就是真的有大的…
+
+*****
+
+####  Hattle  
+##### 16326#       发表于 2026-10-15 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374619&amp;ptid=2275806" target="_blank">zxtree 发表于 2026-10-15 10:12</a>
+
+DS怎么一直service too busy 现在不是梁文峰吗</blockquote>
+现在是网页对话和API全线不可用<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

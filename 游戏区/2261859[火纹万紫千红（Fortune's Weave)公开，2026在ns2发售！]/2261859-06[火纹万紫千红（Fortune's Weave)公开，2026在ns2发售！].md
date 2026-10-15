@@ -708,3 +708,45 @@ PV里有猫猫头停熊车的CG，估计就是救丢人西提司的剧情
 
 剧情放在第一部的话，那第三部应该不动？那我要不放着第三部不打得了等DLC
 
+
+*****
+
+####  巴尔干炮  
+##### 7481#       发表于 2026-10-15 10:06
+
+果然是幽法丝跳大锅，最后看到的人影就是他大姐吧。
+
+
+*****
+
+####  5ew47  
+##### 7482#       发表于 2026-10-15 10:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白昼梦DD  
+##### 7483#       发表于 2026-10-15 10:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">天马这个有点制作组拿第三部的平衡性往前倒推做数值影响第一部体验的意思，还有肌无力和超绝武器锻造数值也是
+
+*****
+
+####  白昼梦DD  
+##### 7484#       发表于 2026-10-15 10:12
+
+做成第一部打八遍就未免有点太恶心了
+
+*****
+
+####  Jabeck  
+##### 7485#       发表于 2026-10-15 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374311&amp;ptid=2261859" target="_blank">a3a4sc 发表于 2026-10-15 09:34</a>
+
+仓花千夏画得好看的那几个女角色，有好几个IS给她们强度都不高。
+
+粉色天马那么萌萌哒结果不好用，只好仓库 ...</blockquote>
+妮涅稍微凹一下就是最强重甲，能抗物理也能抗法伤。<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
