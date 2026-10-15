@@ -498,3 +498,51 @@ gpt是三无娘
 deepseek是天然元气鲸鱼娘</blockquote>
 现在通用造型是个憨批猫娘
 
+
+*****
+
+####  来都来了  
+##### 16332#       发表于 2026-10-15 10:26
+
+<img src="https://img.stage1st.com/forum/202610/15/102635jfusg3u3ddgyaudg.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792031194463_3.webp</strong> (96.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 10:26 上传
+
+*****
+
+####  novem  
+##### 16333#       发表于 2026-10-15 10:29
+
+大肥鱼不会是要给网页端切换成专属弱智模型吧，坏了这么久
+
+*****
+
+####  某穆克拉  
+##### 16334#       发表于 2026-10-15 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70374703&amp;ptid=2275806" target="_blank">莱茵哈鲁特 发表于 2026-10-15 10:19</a>
+claude是腹黑阴鸷大小姐
+
+gpt是三无娘
+
+deepseek是天然元气鲸鱼娘</blockquote>
+故障极其猫
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  星野あさみ  
+##### 16335#       发表于 2026-10-15 10:32
+
+体感opencode go的deepseek flash是自己跑的渣渣量化版吧
+
+前几天经常蹦出tool call死循环，还有一次我说中文它回日语
+
+真就operation cheepseek了
+
