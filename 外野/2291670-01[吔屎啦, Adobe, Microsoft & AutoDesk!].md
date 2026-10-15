@@ -1750,3 +1750,11 @@ PDFCraft还是不太行，OCR识别和PDF转word都有乱码，不过看个PDF�
 PDFCraft还是不太行，OCR识别和PDF转word都有乱码，不过看个PDF文件是没问题，很丝滑。 ...</blockquote>
 我试了，好像不能直接打开pdf，只能先开软件再在工作台中打开。我下的便携版PDFCraft-Windows-x64-Portable.zip。能直接双击pdf，打开阅读么？
 
+
+*****
+
+####  Photic  
+##### 154#       发表于 2026-10-15 16:47
+
+PDFCraft立刻进行一个整起来【。】
+

@@ -53,3 +53,13 @@
 
 之前问卷就骂了，你要用AI能不能用好点的，整的像gemini直出一样的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">日本中老年人可能是对AI容受度最高的了
 
+
+*****
+
+####  琉歌  
+##### 924#       发表于 2026-10-15 16:42
+
+2周年整得毫无抽卡欲望，还不如开柚奈复刻池呢。新活动连战也是毫无新意，再不更第五章这游戏能玩？<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 來自 realme RMX5200, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v4.0
+

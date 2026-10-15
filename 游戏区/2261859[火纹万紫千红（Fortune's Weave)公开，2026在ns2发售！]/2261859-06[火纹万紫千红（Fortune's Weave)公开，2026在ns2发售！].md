@@ -2368,3 +2368,24 @@ dlc四把武器效果怎么样
 
 过一阵可以写支援对话赏析和打分了，有好有坏，不过还是火纹历史上第一次让我有兴趣来赏析支援对话。以前的作品还是大多那种一惊一乍的舞台剧感，这作好了不少。
 
+
+*****
+
+####  纪寞  
+##### 7645#       发表于 2026-10-15 16:37
+
+ 本帖最后由 纪寞 于 2026-10-15 16:40 编辑 
+
+话说天冠到底依附在哪的啊，为什么猫猫头机械身体都仅剩灵魂了也还保持使徒和魂魄两天冠<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  anyasora  
+##### 7646#       发表于 2026-10-15 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376877&amp;ptid=2261859" target="_blank">星花 发表于 2026-10-15 16:24</a>
+
+3个。</blockquote>
+感谢 还不少 那安心走重甲吃靴子了
+

@@ -1350,3 +1350,46 @@ GPT怎么又重置了，得开多两个许愿池加速蹬了<img src="https://st
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">送了六块，今天领鸡蛋了
 
+
+*****
+
+####  Promeus  
+##### 16420#       发表于 2026-10-15 16:38
+
+我前一周也用了5块钱啊为啥不给补偿<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andychen  
+##### 16421#       发表于 2026-10-15 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376905&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-15 16:28</a>
+
+多了8块
+
+想想最近可能只用官方api做过翻译工具类的耗用，其他都在各路plan里，大概就是按最近一周的蹬的量 ...</blockquote>
+所以不能吊死在一棵树上。我是在云端部署了网关管理多个套餐的路由，然后所有服务都接到网关
+
+*****
+
+####  SmterC  
+##### 16422#       发表于 2026-10-15 16:47
+
+<img src="https://img.stage1st.com/forum/202610/15/164648u37o4upvexp8rz74.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 16:46 上传
+
+这两天每天睡前都布置任务让它干，居然能等到电表倒转，爽到啊
+
+*****
+
+####  lilod  
+##### 16423#       发表于 2026-10-15 16:47
+
+虽然我没有被影响到，但还是送了我37块钱
+
