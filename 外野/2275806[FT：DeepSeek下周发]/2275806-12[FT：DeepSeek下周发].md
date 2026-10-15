@@ -1556,3 +1556,20 @@ opencode go的deepseek flash又流口水 <img src="https://static.stage1st.com/i
 
 发公告了，补偿 10.8-10.14 的所有消费
 
+
+*****
+
+####  nekomimimisuzu  
+##### 16439#       发表于 2026-10-15 17:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">国庆狂蹬200块大肥鱼，国庆后主蹬GPT的亏麻了
+
+*****
+
+####  jinuzuktII  
+##### 16440#       发表于 2026-10-15 17:30
+
+停服补偿，当场失忆
+
+DEEPSEEK 是一款我的问题
+
