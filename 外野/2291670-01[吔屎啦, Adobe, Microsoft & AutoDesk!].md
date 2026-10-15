@@ -1774,3 +1774,34 @@ LightCraft解不了奥巴的raw，果然奥巴/奥之心还是太小众了<img s
 
 PDFCraft距离完美替代Acrobat还有点距离，特别是LiveCycle那套表单屎山。。。目前当个查看器还是没问题的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  WiiGe  
+##### 157#         楼主| 发表于 2026-10-15 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376921&amp;ptid=2291670" target="_blank">安静困难 发表于 2026-10-15 16:31</a>
+
+PDFCraft还是不太行，OCR识别和PDF转word都有乱码，不过看个PDF文件是没问题，很丝滑。 ...</blockquote>
+OCR老大难问题了, 看晚点能不能通过插件挂个好点的OCR AI来做吧, AI 是个团队的舒适区
+
+*****
+
+####  WiiGe  
+##### 158#         楼主| 发表于 2026-10-15 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377137&amp;ptid=2291670" target="_blank">inpachi 发表于 2026-10-15 17:05</a>
+
+LightCraft解不了奥巴的raw，果然奥巴/奥之心还是太小众了</blockquote>
+街拍巴斯竟然能拍RAW? 手动狗头.jpg
+
+*****
+
+####  WiiGe  
+##### 159#         楼主| 发表于 2026-10-15 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376940&amp;ptid=2291670" target="_blank">O小不点0 发表于 2026-10-15 16:36</a>
+
+我试了，好像不能直接打开pdf，只能先开软件再在工作台中打开。我下的便携版PDFCraft-Windows-x64-Portab ...</blockquote>
+[https://support.microsoft.com/zh ... ult-apps-in-windows](https://support.microsoft.com/zh-cn/windows/apps/change-default-apps-in-windows)
+
