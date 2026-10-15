@@ -1051,3 +1051,23 @@ dsh前段时间更新之后项目文件夹不给完全控制就会被标记成�
 这个low标签还会导致编译出来的程序也是low，结果就是那样自己拿出去完全不能正常运行，不知道dsh怎么想的要加这个low，本来前面medium沙盒运行的好好的
 我实在是受不了这坑爹玩意让它自己写了一个插件改回原来的medium了
 
+
+*****
+
+####  bartholo4  
+##### 16388#       发表于 2026-10-15 14:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70375910&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-10-15 13:39</a>
+
+gpt这重置也tm频繁了吧。。。早知道不用sol，应该狂蹬astra</blockquote>
+还有3张重置卡 都是Astra xhigh默认
+
+dot也能节约大量额度，真的是用不完
+
+*****
+
+####  科技新闻搬运工  
+##### 16389#       发表于 2026-10-15 14:05
+
+真是机房线被扯断了？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

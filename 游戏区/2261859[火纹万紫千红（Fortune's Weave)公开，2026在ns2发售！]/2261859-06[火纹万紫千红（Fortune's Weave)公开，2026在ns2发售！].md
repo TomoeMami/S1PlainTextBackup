@@ -1774,3 +1774,25 @@ DLC 能补点女女后日谈吗，本篇太少了。<img src="https://static.sta
 是说除了他们相关的以外能不能现有角色之间也给补点，希望能有......</blockquote>
 四个副队队内支援我觉得肯定会补，明显都少得跟山贼一个水平。队外的估计就这样了吧
 
+
+*****
+
+####  Humpy  
+##### 7584#       发表于 2026-10-15 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70375926&amp;ptid=2261859" target="_blank">白昼梦DD 发表于 2026-10-15 13:41</a>
+没救了吧 唯一一次机会就这dlc斧子特效做成加命中
+除非出新职业补命中</blockquote>
+第三弹dlc，马兹神加入，专有技能战神的咆哮，消耗自身10%hp，范围内我方力量+5，命中+50%，战斗后回血，这样能拯救斧子吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tilocal  
+##### 7585#       发表于 2026-10-15 14:04
+
+<blockquote>索非亚 发表于 2026-10-15 13:26
+斧子还有救吗，机制应该没法改，数值能不能加高点。现在都20+的面板斧子高个3-4点真不够看的。 ...</blockquote>
+都不需要改机制，也不需要什么圣斧雷斧，只要单独出一把勇者斧就够一堆人重新捡起斧头了
+
+这作勇者系武器集体缺席，唯一的二连武器甚至是爱娜手里的黑魔法就很难绷
+
