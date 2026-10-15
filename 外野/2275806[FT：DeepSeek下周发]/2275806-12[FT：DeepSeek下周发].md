@@ -1108,3 +1108,15 @@ ds api还是用不了吗
 
 o大善人
 
+
+*****
+
+####  jinuzuktII  
+##### 16394#       发表于 2026-10-15 15:00
+
+ 本帖最后由 jinuzuktII 于 2026-10-15 15:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70375828&amp;ptid=2275806" target="_blank">Quelaan 发表于 2026-10-15 13:21</a>
+
+gemini现在怎么反代啊？我只有一个pro订阅，反重力权限不够，然后我用sub2api直接oauth反代一直429 ...</blockquote>
+试试EasyCLIProxyAPI，我之前一直用这个
+
