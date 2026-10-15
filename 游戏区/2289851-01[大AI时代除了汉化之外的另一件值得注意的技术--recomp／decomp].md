@@ -66,3 +66,14 @@ https://github.com/freefrank/LostOdysseyRecomp
 
 mac和ios那边有人搞了switch游戏的自动（？）移植，估计也要刷屏了
 
+
+*****
+
+####  风夏  
+##### 63#         楼主| 发表于 2026-10-15 12:43
+
+[https://github.com/snailspeed3/mkw](https://github.com/snailspeed3/mkw)
+[https://www.youtube.com/watch?v=8MboUhC0kKY](https://www.youtube.com/watch?v=8MboUhC0kKY)
+
+马车wii decomp移植到psv上
+

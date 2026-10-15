@@ -2890,3 +2890,13 @@ Steam版非要晚一天呗。
 
 就是力气大得能一脚踢飞熊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不可避免  
+##### 271#       发表于 2026-10-15 12:46
+
+用PSP版移植的吗，我就记得当年看人说PSP版的画面相比PS版少了两截，所以选的是PS玩去玩。
+
+重制版有相同的问题吗？
+
