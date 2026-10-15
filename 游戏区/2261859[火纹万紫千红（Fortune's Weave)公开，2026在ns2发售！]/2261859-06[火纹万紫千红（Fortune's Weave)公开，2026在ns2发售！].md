@@ -1543,3 +1543,11 @@ dlc给第三部加新要素让玩家打二周目可以，能不能先把重开�
 肯定要补的，别的不说四个副主角单独出了线还没A支援怎么想都不可能</blockquote>
 是说除了他们相关的以外能不能现有角色之间也给补点，希望能有......
 
+
+*****
+
+####  Jabeck  
+##### 7570#       发表于 2026-10-15 12:54
+
+想要小姨子也能入队然后三人修罗场<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
