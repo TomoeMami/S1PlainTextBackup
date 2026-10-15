@@ -45,3 +45,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mai6696  
+##### 7405#       发表于 2026-10-15 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70373654&amp;ptid=2261859" target="_blank">南宫月汐 发表于 2026-10-15 04:08</a>
+
+据说必须要过了白卵之民那一章以后，再挖角哈尔温，才能解锁法毕欧和她的支援
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer"> 我可以理解剧情锁，但为了这点小巧思就要重打迪哥线是不是过于脑瘫了。
+
