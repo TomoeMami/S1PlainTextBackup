@@ -1071,3 +1071,13 @@ dot也能节约大量额度，真的是用不完
 
 真是机房线被扯断了？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  孤狼arcueid  
+##### 16390#       发表于 2026-10-15 14:32
+
+今天gpt一直model not found
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 17 Ultra
+

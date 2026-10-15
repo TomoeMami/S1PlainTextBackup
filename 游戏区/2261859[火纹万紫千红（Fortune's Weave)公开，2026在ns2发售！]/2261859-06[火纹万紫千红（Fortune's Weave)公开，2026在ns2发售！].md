@@ -1839,3 +1839,80 @@ DLC 能补点女女后日谈吗，本篇太少了。<img src="https://static.sta
 
 现在勇者系都是先攻触发，和战技没什么区别。其他武器连击减伤害，俺们斧子再减命中<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 7590#       发表于 2026-10-15 14:29
+
+看了下成长率表，本作理论上是不是大部分人上级职业都可以无脑转游侠<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+还有常态下破冥府加护的只有净化剑了吗，我看其他要么是战技要么是加护，没法常态保持，而且净化武器是只有剑吗<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 7591#       发表于 2026-10-15 14:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怎么更了个dlc的消息搞得日本人都在骂了
+
+
+*****
+
+####  freedom12  
+##### 7592#       发表于 2026-10-15 14:34
+
+我个人猜测一下dlc的编排
+
+第一部 方尖大厅的圆形广场下半侧 正好可以新增四个尖碑作为新增的入口
+
+篇幅上应该会是4主角的精简版，大概在6章左右，完全把预赛阶段跳过
+
+1-2章用来介绍小队组建，1-2章大赛期间外出推进自己的故事线，3章这个时间线夺冠的淘汰赛
+
+白发鬼会比较特殊，应该是围绕战车试炼来展开
+
+其他人应该不会有太多大地图探索
+
+<img src="https://img.stage1st.com/forum/202610/15/141052ouqunhj2ztiehv9e.png" referrerpolicy="no-referrer">
+
+<strong>0D539FBF3AEEAAD4B6DF848151C3AAC4.png</strong> (7.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 14:10 上传
+
+但也可能限定角色来开放地图的这些地点（新娘去所罗门，商人去莫扎）
+
+四个人也可能会有单独的系统，天赋修改/魔法强化/饰品精炼/占卜
+
+第二部 也应该会增加四个人章节
+
+白发鬼第一章时期专属视角，之后和女王回合就走现在的第二部路线
+
+剩下三个人中大商人有明确的和敌方的纠葛，剩下两个也不太适合作为女王助手去打达鼓席翁
+
+所以应该会展示每个人在这段时期的一些剧情，各2章的内容量吧
+
+第三部 攒齐8个小金人后，大厅的那个8指针表盘应该会有变化
+
+可以通过这里进入达鼓席翁内一直无法进入的芙托娜神殿
+
+从这里展开补完救世主的剧情线，同时安娜入队
+
+最终战的大脑那里触发真正的战斗来达成真结局
+
+按照我的想法大概需要新增35场战斗，但其中第一部分的24场战斗水分比较大
+
+并且结合本体的体量与野心，以及dlc的售价，所以还是有那么一丢丢可能性
+
+*****
+
+####  caps洛奇  
+##### 7593#       发表于 2026-10-15 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70375603&amp;ptid=2261859" target="_blank">出言不迅 发表于 2026-10-15 12:34</a>
+
+还没打到后面，几个坏女人有DLC入队的可能吗？</blockquote>
+没有 都死透了 
+
