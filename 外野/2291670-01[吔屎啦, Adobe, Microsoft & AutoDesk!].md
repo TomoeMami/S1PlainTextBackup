@@ -1687,3 +1687,11 @@ PANTONE库肯定是不要想了
 
 PS: 这是它的另一个分支, 更新频繁许多: [https://github.com/YuZhouRen86/VxKex-NEXT](https://github.com/YuZhouRen86/VxKex-NEXT)
 
+
+*****
+
+####  cqyaya  
+##### 147#       发表于 2026-10-15 13:17
+
+这个和Photon Studio比起来怎样？
+
