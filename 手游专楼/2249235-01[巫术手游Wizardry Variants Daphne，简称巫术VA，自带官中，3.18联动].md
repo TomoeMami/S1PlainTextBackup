@@ -126,3 +126,13 @@
 
 整个公司开了一堆奇奇怪怪的小项目，现金流就抱着这一个游戏，美术还搞降本增效，我看是钱来的太容易了<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 932#       发表于 2026-10-15 19:24
+
+这比游戏可能就剩音乐还没用AI了，连战新曲子还是崎元仁的味道
+
+当然如果是AI崎元仁那我也没话说了
+
