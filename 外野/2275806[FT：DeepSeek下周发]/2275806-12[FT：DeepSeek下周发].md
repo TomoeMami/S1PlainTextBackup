@@ -2074,3 +2074,183 @@ muse spark open  斩杀 k3 glm5.3
 
 有没有已经搓好的
 
+
+*****
+
+####  谎称  
+##### 16491#       发表于 2026-10-15 22:32
+
+你们这群人立场一点都不坚定，在我这梁圣永远是梁圣！
+
+*****
+
+####  酱油拌饭s  
+##### 16492#       发表于 2026-10-15 22:53
+
+ 本帖最后由 酱油拌饭s 于 2026-10-15 22:55 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">求救现在写文哪家强&amp;怎么买合适，D老师的写文已经彻底没救了 顺便问gemini怎么买划算&amp;连api的时候同时要开梯子嘛
+
+*****
+
+####  不想当咸鱼  
+##### 16493#       发表于 2026-10-15 23:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这个月刚开始换用ocg……
+
+*****
+
+####  kickass007  
+##### 16494#       发表于 2026-10-15 23:16
+
+gemini 4日常用用很好用诶
+
+*****
+
+####  rachepatty  
+##### 16495#       发表于 2026-10-15 23:27
+
+梁子有钱啊，坏事变好事就要补贴宣传，你多用他一个月不到就能挣回来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  ttoady  
+##### 16496#       发表于 2026-10-15 23:49
+
+开了5刀的gemini pro 结果反重力用不了4 Argon<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moudianzi  
+##### 16497#       发表于 2026-10-16 00:18
+
+这几天都在高强度玩游戏，deepseek的api几乎没碰过，在看到消息后，感觉丢了一箩筐的鸡蛋<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cankao  
+##### 16498#       发表于 2026-10-16 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377382&amp;ptid=2275806" target="_blank">平贺才人 发表于 2026-10-15 17:45</a>
+
+还能往外吐白饭的</blockquote>
+所以这赠送余额算是大肥鱼的口嚼酒吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 16499#       发表于 2026-10-16 01:47
+
+muse spark open  斩杀 k3 glm5.3
+
+*****
+
+####  tonyunreal  
+##### 16500#       发表于 2026-10-16 02:07
+
+红迪老哥说是spark 1.1水平
+而且816B-42B也太大了，美模果然没有算力压力
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lactone  
+##### 16501#       发表于 2026-10-16 02:51
+
+怎么还在吹刷分王，不长记性吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  黄泉川此方  
+##### 16502#       发表于 2026-10-16 04:06
+
+ 本帖最后由 黄泉川此方 于 2026-10-16 04:39 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重复发明轮子之本地截图翻译机
+
+识别文字 → 抹除原文 → 翻译 → 填回原位置
+
+本地部署不需要API
+
+支持英/日→中文
+
+支持后台运行，快捷键翻译
+
+支持术语库，支持更换本地翻译模型
+
+需要硬盘＞15GB、显存＞7GB（据说）
+
+1-10s翻译好一张图
+
+效果还行，选了个7B翻译模型，能说人话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/16/040822zbqz94bjwjoqqzlo.jpg" referrerpolicy="no-referrer">
+
+<strong>20261016 04：08：03.jpg</strong> (21.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 04:08 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/041311qgmke5cmp3g5elcv.jpg" referrerpolicy="no-referrer">
+
+<strong>20261016 04：13：01.jpg</strong> (108.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 04:13 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/035724tsyi25uf5ssguii5.jpg" referrerpolicy="no-referrer">
+
+<strong>20261016 03：55：15.jpg</strong> (686.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 03:57 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/035727extz4wzu0x4uzrkv.jpg" referrerpolicy="no-referrer">
+
+<strong>20261016 03：54：23.jpg</strong> (177.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 03:57 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/040822snc1nomt0o1k9ctx.jpg" referrerpolicy="no-referrer">
+
+<strong>20261016 04：08：15.jpg</strong> (108.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 04:08 上传
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+截图翻译-分享包.zip
+(307.76 KB, 下载次数: 0)
+
+2026-10-16 04:21 上传
+
+点击文件名下载附件
+
+*****
+
+####  黄泉川此方  
+##### 16503#       发表于 2026-10-16 04:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下一步想重新搓实时语音翻译的轮子了
+
+有没有已经搓好的
+
+*****
+
+####  谎称  
+##### 16504#       发表于 2026-10-16 06:44
+
+这一波梁圣发出去多少钱，几个亿总有吧？
+
