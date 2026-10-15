@@ -1731,3 +1731,22 @@ PS: 这是它的另一个分支, 更新频繁许多: [https://github.com/YuZhouR
 
 这丝滑体验……adobe早该吃屎了
 
+
+*****
+
+####  安静困难  
+##### 152#       发表于 2026-10-15 16:31
+
+PDFCraft还是不太行，OCR识别和PDF转word都有乱码，不过看个PDF文件是没问题，很丝滑。
+
+
+*****
+
+####  O小不点0  
+##### 153#       发表于 2026-10-15 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376921&amp;ptid=2291670" target="_blank">安静困难 发表于 2026-10-15 16:31</a>
+
+PDFCraft还是不太行，OCR识别和PDF转word都有乱码，不过看个PDF文件是没问题，很丝滑。 ...</blockquote>
+我试了，好像不能直接打开pdf，只能先开软件再在工作台中打开。我下的便携版PDFCraft-Windows-x64-Portable.zip。能直接双击pdf，打开阅读么？
+

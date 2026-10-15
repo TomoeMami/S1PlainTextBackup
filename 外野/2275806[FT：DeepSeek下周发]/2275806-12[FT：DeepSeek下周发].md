@@ -1279,3 +1279,74 @@ opencode go上了一个免费的200k上下文v41f，很神秘
 
 我才补了1.78元<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绕指流光  
+##### 16413#         楼主| 发表于 2026-10-15 16:28
+
+ 本帖最后由 绕指流光 于 2026-10-15 16:30 编辑 
+
+多了8块
+
+想想最近可能只用官方api做过翻译工具类的耗用，其他都在各路plan里，大概就是按最近一周的蹬的量给的补偿？
+
+DS现在有点基础设施的意思了，不知不觉手头搭了那么多乱七八糟的玩意儿，一遇到这种跟停水停电一样的事故全都歇菜<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  normalli  
+##### 16414#       发表于 2026-10-15 16:29
+
+停服发补偿，二游特征又加一条
+
+*****
+
+####  橙冰  
+##### 16415#       发表于 2026-10-15 16:30
+
+<img src="https://img.stage1st.com/forum/202610/15/162918vpfzil49qq12bqze.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20261015162815_27_10.png</strong> (34.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 16:29 上传
+
+今天没用过，那大概是10.8-10.14的消费金额
+
+*****
+
+####  我也很绝望啊  
+##### 16416#       发表于 2026-10-15 16:30
+
+GPT怎么又重置了，得开多两个许愿池加速蹬了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  marrrk  
+##### 16417#       发表于 2026-10-15 16:34
+
+<img src="https://img.stage1st.com/forum/202610/15/163405p7yrdlle7xw17fr6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-15 16:34 上传
+
+*****
+
+####  纸皮  
+##### 16418#       发表于 2026-10-15 16:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">后悔没多蹬！
+
+*****
+
+####  黄泉川此方  
+##### 16419#       发表于 2026-10-15 16:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">送了六块，今天领鸡蛋了
+
