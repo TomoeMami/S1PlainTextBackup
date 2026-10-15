@@ -3195,3 +3195,11 @@ https://stage1st.com/2b/thread-2291419-1-2.html</blockquote>
 K嗷，who tell you深渊是3d传说的，传说3d不3d是看战斗来的，深渊本质战斗还是2d的，一个过渡期，不要张冠 ...</blockquote>
 我说这个硬要把“谁告诉你”说成“who tell you”的细节让其人形象跃然纸上仿佛回到20年前的S1有懂的吗<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mjzs07  
+##### 295#       发表于 2026-10-16 01:40
+
+没双打还玩个毛
+
