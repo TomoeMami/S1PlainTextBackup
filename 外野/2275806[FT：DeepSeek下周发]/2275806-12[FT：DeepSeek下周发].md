@@ -2817,3 +2817,21 @@ Google收紧了第三方Harness通过反代调用Antigravity端口的风控，�
 我现在尝试用dsh调用一次性子代理，用干净提示词出文，今天没设置好跑了6 ...</blockquote>
 可以试试GLM5.5,doubao 2.1t
 
+
+*****
+
+####  nxmonitor  
+##### 16554#       发表于 2026-10-16 19:07
+
+DeepSeek有一点发模型的征兆，在往官方群里拉人了…
+
+*****
+
+####  陈八尺  
+##### 16555#       发表于 2026-10-16 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383403&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-16 17:57</a>
+
+Google收紧了第三方Harness通过反代调用Antigravity端口的风控，现在两三个请求就会触发429 ...</blockquote>
+只是针对4argon还是连3.8flash也一样加强风控？
+
