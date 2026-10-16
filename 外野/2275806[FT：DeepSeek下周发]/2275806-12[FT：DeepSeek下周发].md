@@ -3224,3 +3224,42 @@ openrouter 的大部分都是走的第三方自部署，这些数据国内也拿
 
 [https://www.mofcom.gov.cn/zwgk/z ... _source=chatgpt.com](https://www.mofcom.gov.cn/zwgk/zcjd/art/2026/art_b11d5c1e9374421e93e85dc87eba6e38.html?utm_source=chatgpt.com)
 
+
+*****
+
+####  ycjiang1337  
+##### 16587#       发表于 2026-10-16 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384779&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-10-16 22:55</a>
+
+openrouter 的大部分都是走的第三方自部署，这些数据国内也拿不到
+
+—— 来自 vivo V2405A, Android 15,  ...</blockquote>
+[https://www.mofcom.gov.cn/zwgk/z ... _source=chatgpt.com](https://www.mofcom.gov.cn/zwgk/zcjd/art/2026/art_b11d5c1e9374421e93e85dc87eba6e38.html?utm_source=chatgpt.com)
+
+实际上这次的官方解释明确说了，API对境外服务不算出口，所以他这个论调反而证明必须用出口管制干死境外的三方部署，不然境内的投入都被白嫖了。
+
+*****
+
+####  eno_emos  
+##### 16588#       发表于 2026-10-16 23:00
+
+我只能想到opencode这种便宜plan可能以后没有新的大肥鱼了
+
+境外数据中心自行部署显然算模型出口
+
+*****
+
+####  ycjiang1337  
+##### 16589#       发表于 2026-10-16 23:02
+
+ 本帖最后由 ycjiang1337 于 2026-10-16 23:04 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384799&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-10-16 23:00</a>
+
+我只能想到opencode这种便宜plan可能以后没有新的大肥鱼了
+
+境外数据中心自行部署显然算模型出口 ...</blockquote>
+你还真信opencode能自己部署V4 Pro级别的模型并且做到官方价格啊？它根本没这个本事，之前吹了半天的复现V4 Flash官方价格，结果后面也没动静了。
+
+现在Opencode的订阅都是转发官方的，API服务明确不属于出口
+
