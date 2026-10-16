@@ -3062,3 +3062,30 @@ sol用gimp也行吧
 这个具体是怎么操作的？</blockquote>
 直接让它用那个开源ps的接口画<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 16574#       发表于 2026-10-16 22:07
+
+Ds生了但生错了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novem  
+##### 16575#       发表于 2026-10-16 22:13
+
+新的LLM限制出口条件很严啊
+
+未来非FLASH肯定没法开源了
+
+*****
+
+####  ayanamilin  
+##### 16576#       发表于 2026-10-16 22:13
+
+Gemini 4的推理能力非常差，感觉还不如DeepSeek v4.1f。普通难度的数学题算法题经常陷入到错误里，然后开始嘴硬。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
