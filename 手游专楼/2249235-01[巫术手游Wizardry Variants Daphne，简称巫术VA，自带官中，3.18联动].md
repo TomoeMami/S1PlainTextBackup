@@ -144,3 +144,13 @@
 
 100抽骑士+12抽睡法，3骑士2睡法收工
 
+
+*****
+
+####  sosgame67  
+##### 934#       发表于 2026-10-16 08:34
+
+ 本帖最后由 sosgame67 于 2026-10-16 08:36 编辑 
+
+230黎明骨头，16个ssr，好消息是王女终于克9了，坏消息是一堆用不上的冷门角色（大狗忍者、狮樱、宵藏、狼叔、黑兽sp、黛博拉sp、男娘）<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
