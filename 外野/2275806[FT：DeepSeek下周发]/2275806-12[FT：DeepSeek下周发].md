@@ -2907,3 +2907,14 @@ Re:Source</blockquote>
 
 我自用的翻译工具和文档编译工具可以正常调用，应该是通过提示词发现是第三方Harness调用才会触发
 
+
+*****
+
+####  ycjiang1337  
+##### 16561#       发表于 2026-10-16 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381759&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-16 13:59</a>
+
+鲸鱼4.1 Pro有那么快吗？ 如果和4.1 Flash一样是新构架的话那得很早就开始炼了，4.0 Pro也许不是炼炸了，是 ...</blockquote>
+新架构已经确定的情况下肯定不可能再折腾老架构了
+
