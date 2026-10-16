@@ -3657,3 +3657,20 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 不是这个第二部怎么一直动我装备啊，每局都要调整一次是不是有什么大病
 
+
+*****
+
+####  mai6696  
+##### 7764#       发表于 2026-10-16 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384495&amp;ptid=2261859" target="_blank">bingo0716 发表于 2026-10-16 21:53</a>
+
+不是这个第二部怎么一直动我装备啊，每局都要调整一次是不是有什么大病</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大抵就是你自带的装备都不会动，但是借给你的铁器+3每章都要先收走，然后看你有没有装备。
+
+没装备先给你发铁器，有装备先给你塞特效药和解毒药。剩下还有空格再塞铁器。
+
+真的是很脑瘫的设定，每章都要折腾。
+
+而且第二部整个打下来也没几个用毒的，我不知道优先每个人塞解毒剂是为啥。
+
