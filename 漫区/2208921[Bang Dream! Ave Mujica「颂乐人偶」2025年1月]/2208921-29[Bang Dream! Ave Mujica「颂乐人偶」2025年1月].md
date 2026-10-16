@@ -1082,3 +1082,13 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
 2026-10-16 15:00 上传
 
+
+*****
+
+####  osore  
+##### 42119#       发表于 2026-10-16 15:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情感觉好无聊
+
+可能重点在LIVE吧
+

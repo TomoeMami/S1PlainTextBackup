@@ -3578,3 +3578,14 @@ tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感
 可以4传5秒白，上+特技按不出是因为调成全手动了吧</blockquote>
 哦哦 确实 我是全手动，回去改成半自动看看 谢啦~
 
+
+*****
+
+####  TheOccuria  
+##### 328#       发表于 2026-10-16 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380651&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-10-16 11:00</a>
+
+来晚了 居然是临时工  再见了 等真打折</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我也是，没用过杉果本来打算中午看看的，上班误事啊
+
