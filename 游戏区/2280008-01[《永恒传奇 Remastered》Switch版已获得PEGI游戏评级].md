@@ -3589,3 +3589,14 @@ tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感
 来晚了 居然是临时工  再见了 等真打折</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我也是，没用过杉果本来打算中午看看的，上班误事啊
 
+
+*****
+
+####  alucardcz  
+##### 329#       发表于 2026-10-16 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382317&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-10-16 15:15</a>
+
+我也是，没用过杉果本来打算中午看看的，上班误事啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不慌 我一怒直接不买了 等真打折到80再见
+
