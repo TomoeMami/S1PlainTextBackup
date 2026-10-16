@@ -2176,3 +2176,27 @@ QQ 珊瑚虫的年代没有经历过吗？
 不过有私信功能的AP ...</blockquote>
 S1这点体量管理员就三天两头喝茶了，你要做个有人用的开源QQ（就叫OpenICQ吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">）那得准备好40个脑袋
 
+
+*****
+
+####  蛋黄酱Release  
+##### 187#       发表于 2026-10-16 18:50
+
+在这楼也发一下吧，测试下来哈基米是唯一一个能准确在ps中画图的大模型，而且能准确理解图层遮挡关系。别的模型也就勉强能画出几何形状
+
+<img src="https://img.stage1st.com/forum/202610/16/184948aw8h824ohss8so2p.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1792147787311_6.webp</strong> (122.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 18:49 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/184948xfsmwsb11r2sstdh.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1792147787588_7.webp</strong> (158.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 18:49 上传
+

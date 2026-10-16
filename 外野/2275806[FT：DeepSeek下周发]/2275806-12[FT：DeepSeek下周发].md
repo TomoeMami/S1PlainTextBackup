@@ -2788,3 +2788,32 @@ k3速度要赶上古法编程了
 
 Google收紧了第三方Harness通过反代调用Antigravity端口的风控，现在两三个请求就会触发429
 
+
+*****
+
+####  蛋黄酱Release  
+##### 16552#       发表于 2026-10-16 18:46
+
+这比生图好玩多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">每个元素都能精准修改
+
+<img src="https://img.stage1st.com/forum/202610/16/184611jzrt0y59q19yf0fa.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1792147570324_5.webp</strong> (158.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 18:46 上传
+
+
+*****
+
+####  神必迷你龙  
+##### 16553#       发表于 2026-10-16 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382471&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-16 15:35</a>
+
+日常写公文，大家推荐那个模型？
+
+我现在尝试用dsh调用一次性子代理，用干净提示词出文，今天没设置好跑了6 ...</blockquote>
+可以试试GLM5.5,doubao 2.1t
+
