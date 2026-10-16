@@ -838,3 +838,13 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
        [https://www.doco-tick-experience.net/avemujica/lp/](https://www.doco-tick-experience.net/avemujica/lp/)
 
+
+*****
+
+####  达达葱2  
+##### 42105#       发表于 2026-10-16 08:53
+
+求剧透
+
+听说初音还是初华捅了祥子？
+

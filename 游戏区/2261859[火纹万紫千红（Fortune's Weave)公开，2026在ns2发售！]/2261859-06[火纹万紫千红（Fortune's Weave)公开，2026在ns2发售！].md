@@ -2793,3 +2793,18 @@ DLC竟然不是全区的<img src="https://static.stage1st.com/image/smiley/face2
 
 转成中后期的特技，装备获取，不让早期的山贼哥纯经验包吧
 
+
+*****
+
+####  黑卷轴陶德传  
+##### 7685#       发表于 2026-10-16 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70379555&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-16 08:07</a>
+
+都在讨论斧子蛆。
+
+我想问IS为什么这么想要摆脱剑枪斧的克制关系？</blockquote>
+以前，主角拿剑的多的，山贼拿斧方便主角刷怪（唯一反例776主角就山贼团，敌方反而是正规军枪兵多也有利我方练级）
+
+现在因为主角团里拿斧的也很多，对方阵营拿剑的也很多，避免我方斧子兵打不中人，现在没克制的情况斧头的命中都不高了，再加克制玩斧就更蛆了
+
