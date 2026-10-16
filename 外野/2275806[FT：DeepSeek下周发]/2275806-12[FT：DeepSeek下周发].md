@@ -2275,3 +2275,11 @@ Unavailable · Gemini 4 Argon is currently available to Ultra and paid Pro plan 
 我们今 ...</blockquote>
 同jio用户，这价钱，万一哪天真给了gemini 4呢。
 
+
+*****
+
+####  bad_alloc  
+##### 16507#       发表于 2026-10-16 10:00
+
+大善人啊，后悔这几天蹬少了，才毛了40多块
+

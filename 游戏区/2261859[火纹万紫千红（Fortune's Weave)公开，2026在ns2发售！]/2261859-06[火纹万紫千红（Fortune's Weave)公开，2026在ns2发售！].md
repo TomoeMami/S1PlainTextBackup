@@ -2895,3 +2895,26 @@ DLC竟然不是全区的<img src="https://static.stage1st.com/image/smiley/face2
 
 不过大意还是嗯嗯好的收到 敬语占一半字数
 
+
+*****
+
+####  duraa  
+##### 7693#       发表于 2026-10-16 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380089&amp;ptid=2261859" target="_blank">ParukiaMKII 发表于 2026-10-16 09:47</a>
+主要是，拿的动斧子的，技巧都低，本身武器命中还低，这下叠加后低的没法看了都 ...</blockquote>
+我一周目那会还在想着谁适合用斧子，挑来挑去当时感觉小红很适合，低速高力技，结果进了第三部发现速度低的连重甲都追不了一下战锤又打不死罐头<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 7694#       发表于 2026-10-16 10:07
+
+<blockquote>引用第7691楼caps洛奇于2026-10-16 09:57发表的  :
+
+本帖最后由 caps洛奇 于 2026-10-16 09:58 编辑 没指望他们能回复 结果还真回复......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就是“已阅”吗
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
