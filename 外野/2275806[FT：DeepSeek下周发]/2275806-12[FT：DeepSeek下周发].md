@@ -3112,3 +3112,16 @@ Gemini 4的推理能力非常差，感觉还不如DeepSeek v4.1f。普通难度�
 
 2026-10-16 22:19 上传
 
+
+*****
+
+####  ycjiang1337  
+##### 16579#       发表于 2026-10-16 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384596&amp;ptid=2275806" target="_blank">novem 发表于 2026-10-16 22:13</a>
+
+新的LLM限制出口条件很严啊
+
+未来非FLASH肯定没法开源了</blockquote>
+在境内平台开源应该不算出口，不过Kimi卖国外的商业许可证模式估计不好做了
+
