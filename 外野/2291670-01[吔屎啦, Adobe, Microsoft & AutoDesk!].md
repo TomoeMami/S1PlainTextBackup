@@ -2150,3 +2150,16 @@ QQ 珊瑚虫的年代没有经历过吗？
 我如果搞个内置agent的SMS软件，像Pi一样 ...</blockquote>
 社交软件的用户搞事情，运营商要背锅的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 185#       发表于 2026-10-16 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382701&amp;ptid=2291670" target="_blank">qwased 发表于 2026-10-16 16:11</a>
+
+社交软件的用户搞事情，运营商要背锅的</blockquote>
+不知道额，大概跟S1性质差不多，要ICP备案之类的吧，顶多三天两头被人请去喝茶什么的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过有私信功能的APP多了去了，应该还好吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
