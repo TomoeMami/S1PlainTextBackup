@@ -2475,3 +2475,46 @@ muse现在纯小丑<img src="https://static.stage1st.com/image/smiley/face2017/0
 
 哇，藤子大气
 
+
+*****
+
+####  lactone  
+##### 16525#       发表于 2026-10-16 13:39
+
+<img src="https://img.stage1st.com/forum/202610/16/133618tbwswr0se2osx0jm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 13:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/133637cakhela77hlad7nw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 13:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/133904o00zmnxn1smw1xxt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 13:39 上传
+
+昨天晚上X上一大堆国模消息
+
+
+*****
+
+####  酱油拌饭s  
+##### 16526#       发表于 2026-10-16 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381119&amp;ptid=2275806" target="_blank">oct71952 发表于 2026-10-16 12:06</a>
+
+Gemini4 写文真不错，昨天用了不到三次五小时额度写了五万多字一篇完整的同人文，甚至还能再写两个番外，AI ...</blockquote>
+求教现在买gemini怎么划算（另外求问用的时候需要梯子么？
+
