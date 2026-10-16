@@ -2437,3 +2437,33 @@ Gemini4 写文真不错，昨天用了不到三次五小时额度写了五万多
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  asier  
+##### 16521#       发表于 2026-10-16 13:06
+
+tmd藤子这不是赚麻了
+
+
+*****
+
+####  洛拉斯  
+##### 16522#       发表于 2026-10-16 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381134&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-16 12:08</a>
+
+kimi还出1399套餐了……说来推上ChrisGPT（这人至少和Kimi蛮熟的）啥的都说国内几家都准备好大的了，这几天 ...</blockquote>
+kimi真用不起，我今天让dsh用干净的子代理调用一次k3写一篇文章，直接炸了我2块钱，输出太贵了
+
+*****
+
+####  lactone  
+##### 16523#       发表于 2026-10-16 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381410&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-16 12:56</a>
+刚看到蜥蜴人开源的这个，这参数和激活数量也能拿出手的？真以为不知道muse spark有多拉？ ...</blockquote>
+muse现在纯小丑<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
