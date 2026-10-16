@@ -1231,3 +1231,40 @@ BanGDream! bilibili官方：@BanGDream_CN
 
        [https://x.com/bang_dream_info/status/2111021328316989867](https://x.com/bang_dream_info/status/2111021328316989867)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42123#       发表于 2026-10-17 03:27
+
+       <strong>神の名を（Game Ver.） - Ave Mujica</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/17/032717tpjwtt2mm21wjmwm.png" referrerpolicy="no-referrer">
+
+<strong>63a8e55c992e7105c735271ac05349b3fcf92129.png</strong> (335.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 03:27 上传
+
+游戏</blockquote>
+       [https://www.bilibili.com/video/BV1RjJ96fE13](https://www.bilibili.com/video/BV1RjJ96fE13)
+
+*****
+
+####  堀内爱里衣  
+##### 42124#       发表于 2026-10-17 03:28
+
+       <strong>[Ave Mujica]《BADDY BADDY》 中译/平假名/罗马音（全损音质.ver）</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/17/032759lop6g9796pi8z33l.png" referrerpolicy="no-referrer">
+
+<strong>aed923b5a7d5e68dd5e353a714442a86af59d01c.png</strong> (739.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 03:27 上传
+
+我运行如天堂！</blockquote>
+       [https://www.bilibili.com/video/BV1HBJb6BEvU](https://www.bilibili.com/video/BV1HBJb6BEvU)
+
