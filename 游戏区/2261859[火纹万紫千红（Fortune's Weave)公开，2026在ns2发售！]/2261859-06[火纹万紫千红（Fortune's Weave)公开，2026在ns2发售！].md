@@ -3210,3 +3210,28 @@ A少跟猫猫头，两个魅力最高的男女角色，但是感觉性格都很�
 
 这豹子说着要反水干死大姐我还以为主线，结果一个隐藏剧情人就没了啊，大姐也是彩笔奶龙这都拿不下更废物了啊
 
+
+*****
+
+####  bwsusaga  
+##### 7722#       发表于 2026-10-16 14:20
+
+感觉队伍差距太大了，DLC也没公布成长率相关的官方挂。
+
+一部分队员数值被杂兵碾压，比如大部分9、10声望入队的。
+
+还有些就应该坐神殿里被人供着，比如迪少和初音妹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  Humpy  
+##### 7723#       发表于 2026-10-16 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381888&amp;ptid=2261859" target="_blank">bwsusaga 发表于 2026-10-16 14:20</a>
+感觉队伍差距太大了，DLC也没公布成长率相关的官方挂。
+
+一部分队员数值被杂兵碾压，比如大部分9、10声望入 ...</blockquote>
+初音妹是有可能长歪的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我迪线初音妹和巨人一比，同等级力防加起来差了15点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
