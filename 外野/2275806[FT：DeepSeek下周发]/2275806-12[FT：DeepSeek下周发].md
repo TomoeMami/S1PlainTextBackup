@@ -3032,3 +3032,23 @@ argon低强度好像是路由给3.8f了<img src="https://static.stage1st.com/ima
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  白日依山尽  
+##### 16572#       发表于 2026-10-16 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383253&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-10-16 17:29</a>
+
+我再也不黑哈基米了，哈基米是唯一一个会用ps画画的大模型</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/16/204812i5j9zxuol4i665gz.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-10-16 204740.png</strong> (1.16 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 20:48 上传
+
+sol用gimp也行吧
+
