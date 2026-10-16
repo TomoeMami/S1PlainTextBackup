@@ -2918,3 +2918,18 @@ Re:Source</blockquote>
 鲸鱼4.1 Pro有那么快吗？ 如果和4.1 Flash一样是新构架的话那得很早就开始炼了，4.0 Pro也许不是炼炸了，是 ...</blockquote>
 新架构已经确定的情况下肯定不可能再折腾老架构了
 
+
+*****
+
+####  cscbzcbz  
+##### 16562#       发表于 2026-10-16 19:52
+
+最快也下周一吧，周五晚上发啥模型，有问题明天还得加班<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tsubasa9  
+##### 16563#       发表于 2026-10-16 19:53
+
+用了下gemini4 argon惊了，pro用户提三个问题就76%了
+
