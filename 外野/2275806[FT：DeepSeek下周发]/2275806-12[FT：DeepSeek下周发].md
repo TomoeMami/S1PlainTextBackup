@@ -3355,3 +3355,31 @@ openrouter 的大部分都是走的第三方自部署，这些数据国内也拿
 开源前沿模型的真正意义是挤压OA二畜，断掉他们“超级智能超级溢价”的美梦，GPT4o FABLE的溢价被挤到卖不 ...</blockquote>
 实际上现在三方托管的打法已经过时了，国内头部几家都是自己亲自承接海外的服务，直接收钱，DeepSeek挂的时候下游都是跟着一起挂。现在开源其实最大的作用是提高自身透明度，防止路由嘉豪。既然你要打掉OA的溢价，那肯定是价格直接打到底，国外号称算力更充裕，实际上根本做不到把价格打到官方Infra的水平
 
+
+*****
+
+####  phorcys02  
+##### 16598#       发表于 2026-10-16 23:36
+
+哪里的来那么多一转咩鳖的嘉豪。什么风吹草动都要咩一下国模...
+
+*****
+
+####  qwased  
+##### 16599#       发表于 2026-10-16 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384919&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-10-16 23:26</a>
+实际上现在三方托管的打法已经过时了，国内头部几家都是自己亲自承接海外的服务，直接收钱，DeepSeek挂的 ...</blockquote>
+本地部署满足保密和监管要求也是很重要的一点，OA肯定恨死开源模型让他们拿不到各大公司内部的保密数据了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  squallx  
+##### 16600#       发表于 2026-10-16 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384957&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-10-16 23:36</a>
+
+哪里的来那么多一转咩鳖的嘉豪。什么风吹草动都要咩一下国模...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
