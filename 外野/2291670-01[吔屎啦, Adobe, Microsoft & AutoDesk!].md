@@ -2163,3 +2163,16 @@ QQ 珊瑚虫的年代没有经历过吗？
 
 不过有私信功能的APP多了去了，应该还好吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 186#       发表于 2026-10-16 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383428&amp;ptid=2291670" target="_blank">hugosol 发表于 2026-10-16 18:01</a>
+
+不知道额，大概跟S1性质差不多，要ICP备案之类的吧，顶多三天两头被人请去喝茶什么的
+
+不过有私信功能的AP ...</blockquote>
+S1这点体量管理员就三天两头喝茶了，你要做个有人用的开源QQ（就叫OpenICQ吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">）那得准备好40个脑袋
+

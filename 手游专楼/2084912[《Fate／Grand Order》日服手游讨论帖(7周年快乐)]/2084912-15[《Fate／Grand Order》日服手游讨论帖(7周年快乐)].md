@@ -129,3 +129,16 @@
 
 雖然仲達應該沒見過他
 
+
+*****
+
+####  qixinno1  
+##### 21658#       发表于 2026-10-16 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383344&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-10-16 17:44</a>
+
+抠抠搜搜的30充+3次B（西哥：第一次？
+
+好处是自己宝具OC效果非常猛，OC+2直接多了30宝具威力，双冠呆直接 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在剑冠最简单的还是双棉被吧 任意一个发出两张卡直接三连EX带走
+
