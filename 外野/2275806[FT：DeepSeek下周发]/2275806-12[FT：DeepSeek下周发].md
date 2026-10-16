@@ -2283,3 +2283,25 @@ Unavailable · Gemini 4 Argon is currently available to Ultra and paid Pro plan 
 
 大善人啊，后悔这几天蹬少了，才毛了40多块
 
+
+*****
+
+####  梁皇无忌  
+##### 16508#       发表于 2026-10-16 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70379841&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-10-16 09:12</a>
+梁子崩了以后不管是cline还是opencode还是commandcode，甚至workbuddy，全都是爆满拥挤
+
+足以证明梁子自己 ...</blockquote>
+等等，那我在wb用的岂不是都退给腾子了
+
+<img src="https://img.stage1st.com/forum/202610/16/112145gdfm2sfy7d2hpmf2.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792120905349_3.webp</strong> (8.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 11:21 上传
+
+—— 来自 vivo V2547DA, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

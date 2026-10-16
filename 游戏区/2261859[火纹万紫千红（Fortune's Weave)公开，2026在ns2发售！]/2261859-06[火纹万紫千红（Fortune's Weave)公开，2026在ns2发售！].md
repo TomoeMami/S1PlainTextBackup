@@ -3024,3 +3024,56 @@ dlc出来最危险的可能是迪耶哥吧，想了想他大概是唯一一个�
 一起吃chinese布洛芬是什么意思
 这两天刷到不少急着要玩安娜托利亚线的都这么说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  caps洛奇  
+##### 7704#       发表于 2026-10-16 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380750&amp;ptid=2261859" target="_blank">蓮華 发表于 2026-10-16 11:13</a>
+
+一起吃chinese布洛芬是什么意思
+
+这两天刷到不少急着要玩安娜托利亚线的都这么说 ...</blockquote>
+大概是女同圈的黑话
+
+*****
+
+####  PigMourne  
+##### 7705#       发表于 2026-10-16 11:16
+
+刀哥从特性到属性简直是战车转大象圣体，爽完之后我已决定不黑刀哥<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  milky658  
+##### 7706#       发表于 2026-10-16 11:17
+
+大刀最大的过错是少了一点，名字就太刀那再怎么下头都释怀了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PigMourne  
+##### 7707#       发表于 2026-10-16 11:17
+
+三角克制确实没有那么不堪，虽然强行但能让玩家自发组一个多样化队伍，而不是找个高收益武器配高成长的职业搞复制人大军
+
+
+*****
+
+####  milky658  
+##### 7708#       发表于 2026-10-16 11:21
+
+我第一章后期和第二章已经是不知道转什么就转游侠的状态了
+
+*****
+
+####  Humpy  
+##### 7709#       发表于 2026-10-16 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380721&amp;ptid=2261859" target="_blank">1wq1 发表于 2026-10-16 11:10</a>
+dlc出来最危险的可能是迪耶哥吧，想了想他大概是唯一一个有可能和猫猫头a支援的男人（真要有双人结局也肯定 ...</blockquote>
+如果能加入的神也有支援，那柯雷尔也有可能和猫猫头a支援吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+噫，我们就是要看艹大嫂啊
+
