@@ -2546,3 +2546,52 @@ minimax已经被遗忘了
 全是猜测，没有一个是准确的，连舅舅都不算……</blockquote>
 luminabench还算是舅舅的
 
+
+*****
+
+####  一般市民  
+##### 16530#       发表于 2026-10-16 13:59
+
+鲸鱼4.1 Pro有那么快吗？ 如果和4.1 Flash一样是新构架的话那得很早就开始炼了，4.0 Pro也许不是炼炸了，是没炼完直接扔了。
+
+
+*****
+
+####  Hattle  
+##### 16531#       发表于 2026-10-16 14:01
+
+我真的很需要V4.1Pro来做模块顶层设计工作，Flash 干这事情总是有点智障
+
+*****
+
+####  Promeus  
+##### 16532#       发表于 2026-10-16 14:01
+
+我是需要4.1p写文<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绿色食品  
+##### 16533#       发表于 2026-10-16 14:06
+
+<img src="https://img.stage1st.com/forum/202610/16/140620wy9fm9ch5dhzmi88.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 14:06 上传
+
+难道说算力真是天上掉下来的?
+
+*****
+
+####  nxmonitor  
+##### 16534#       发表于 2026-10-16 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381735&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-16 13:55</a>
+
+luminabench还算是舅舅的</blockquote>
+说在测的部分应该还是对的，DS有时候会抽到一个140TPS的模型，但是什么时候出就不知道了
+
