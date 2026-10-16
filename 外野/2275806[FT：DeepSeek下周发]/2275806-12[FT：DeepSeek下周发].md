@@ -2518,3 +2518,31 @@ muse现在纯小丑<img src="https://static.stage1st.com/image/smiley/face2017/0
 Gemini4 写文真不错，昨天用了不到三次五小时额度写了五万多字一篇完整的同人文，甚至还能再写两个番外，AI ...</blockquote>
 求教现在买gemini怎么划算（另外求问用的时候需要梯子么？
 
+
+*****
+
+####  nxmonitor  
+##### 16527#       发表于 2026-10-16 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381633&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-16 13:39</a>
+
+昨天晚上X上一大堆国模消息</blockquote>
+全是猜测，没有一个是准确的，连舅舅都不算……
+
+*****
+
+####  scikirbypoke  
+##### 16528#       发表于 2026-10-16 13:51
+
+minimax已经被遗忘了
+
+*****
+
+####  lactone  
+##### 16529#       发表于 2026-10-16 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381700&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-16 13:50</a>
+
+全是猜测，没有一个是准确的，连舅舅都不算……</blockquote>
+luminabench还算是舅舅的
+
