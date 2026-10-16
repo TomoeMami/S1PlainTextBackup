@@ -3600,3 +3600,16 @@ tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感
 我也是，没用过杉果本来打算中午看看的，上班误事啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不慌 我一怒直接不买了 等真打折到80再见
 
+
+*****
+
+####  新條直輝  
+##### 330#       发表于 2026-10-16 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381613&amp;ptid=2280008" target="_blank">火红之眼 发表于 2026-10-16 13:35</a>
+
+白金了，要不是TOE被研究得够透彻，白金难度在系列里也算高的了，得亏有内挂没啥作业量，难的全是小游戏 ...</blockquote>
+小时候第一次玩的美版，xo键位对调的，看的日版攻略导致按不出极光波一直通关不了，后面重打日版才爽打
+
+突然想到现在ps都是x确认了，这次不会有这个问题了吧
+
