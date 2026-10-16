@@ -2744,3 +2744,39 @@ k3速度要赶上古法编程了
 
 有什么好的方案让其稳定下来吗 买什么去进行转发比较好
 
+
+*****
+
+####  蛋黄酱Release  
+##### 16550#       发表于 2026-10-16 17:29
+
+我再也不黑哈基米了，哈基米是唯一一个会用ps画画的大模型
+
+<img src="https://img.stage1st.com/forum/202610/16/172846fxf1ljbax4fmnwol.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1792142925720_2.webp</strong> (122.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 17:28 上传
+
+下面是astra画的
+
+<img src="https://img.stage1st.com/forum/202610/16/172916c63ai2eue3l3qv3a.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1792142956257_3.webp</strong> (90.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 17:29 上传
+
+参考图
+
+<img src="https://img.stage1st.com/forum/202610/16/172936owepy6pw4o4zi0c7.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1792142975434_4.webp</strong> (476.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 17:29 上传
+
