@@ -3089,3 +3089,26 @@ Gemini 4的推理能力非常差，感觉还不如DeepSeek v4.1f。普通难度�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jojog  
+##### 16577#       发表于 2026-10-16 22:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+一般人也用不到2T模型吧
+
+*****
+
+####  qwased  
+##### 16578#       发表于 2026-10-16 22:19
+
+<img src="https://img.stage1st.com/forum/202610/16/221949wollykttloz26fff.jpg" referrerpolicy="no-referrer">
+
+<strong>93F5F6616EEC070EC7DF6D2043DDEE5D.jpg</strong> (325.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 22:19 上传
+
