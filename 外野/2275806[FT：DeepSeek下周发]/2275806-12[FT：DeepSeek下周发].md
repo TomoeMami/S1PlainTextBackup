@@ -3450,3 +3450,17 @@ OpenCode上了个LL Alpha，疑似kimi
 
 9月份谈了啥哪里能看啊，有靠谱的信源吗
 
+
+*****
+
+####  neptunehs  
+##### 16608#       发表于 2026-10-17 07:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70385157&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-17 00:39</a>
+OpenCode上了个LL Alpha，疑似kimi</blockquote>
+有免费ds4.1f 哪怕是自部署的假货 都懒得看其他的stealth模型了 真心的
+
+姑且让他找个地方跑只读check看看效果
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
