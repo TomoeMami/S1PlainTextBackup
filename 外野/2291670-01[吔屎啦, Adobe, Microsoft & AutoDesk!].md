@@ -2105,3 +2105,13 @@ https://support.microsoft.com/zh-cn/windows/apps/change-default-apps-in-windows<
 你通过" ...</blockquote>
 都试了，还问了ds，按他的推荐用了便携应用注册PortableRegistrator_v1.5，添加1%,也不成功。看起来只能装安装版，可能能解决这个问题
 
+
+*****
+
+####  棍机凹升龙  
+##### 181#       发表于 2026-10-16 12:34
+
+能快速打开200m的excel不，塞满公式和引用的那种，wps开一次要5分钟
+
+—— 来自 samsung SM-F9460, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -2376,3 +2376,11 @@ kimi还出1399套餐了……说来推上ChrisGPT（这人至少和Kimi蛮熟的
 
 梁圣退了我五十块，他永远都是我的兄弟<img src="https://static.stage1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森田美位子  
+##### 16515#       发表于 2026-10-16 12:30
+
+gemini 崩了？发送了几次都是 somthing went wrong
+
