@@ -1213,3 +1213,21 @@ BanGDream! bilibili官方：@BanGDream_CN
 ✦・━━━━━━━━━━━━━━━ ・✦⁡⁡</blockquote>
       [https://www.bilibili.com/video/BV1MDJX6mEoQ](https://www.bilibili.com/video/BV1MDJX6mEoQ)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42122#       发表于 2026-10-16 17:38
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/16/173816t5x4j58ukktyoaae.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-16_17-37-32.png</strong> (316.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 17:38 上传
+
+       [https://x.com/bang_dream_info/status/2111021328316989867](https://x.com/bang_dream_info/status/2111021328316989867)
+
