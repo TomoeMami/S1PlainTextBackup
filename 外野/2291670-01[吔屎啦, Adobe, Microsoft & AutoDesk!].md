@@ -2138,3 +2138,15 @@ QQ 珊瑚虫的年代没有经历过吗？
 
 我如果搞个内置agent的SMS软件，像Pi一样可以高度定制化UI和各种功能，生态做起来之后用户就都到我这边来了，腾子不就炸了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 184#       发表于 2026-10-16 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382298&amp;ptid=2291670" target="_blank">hugosol 发表于 2026-10-16 15:12</a>
+你换壳微信直接用腾子的服务器肯定不行啊，要搞就自己搭服务器来
+
+我如果搞个内置agent的SMS软件，像Pi一样 ...</blockquote>
+社交软件的用户搞事情，运营商要背锅的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
