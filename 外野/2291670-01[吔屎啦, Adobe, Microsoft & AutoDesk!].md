@@ -2068,3 +2068,14 @@ DesignCraft可以设置ICC, 我试了下:
 
 关键是要有cmyk自定义模式，如网点大小，分色类型，黒版产生，油墨总量限制等设置，有这些的话，那DesignCraft在印刷这块儿就能用一用了。潘通色不支持问题还不是太大。
 
+
+*****
+
+####  O小不点0  
+##### 178#       发表于 2026-10-16 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377387&amp;ptid=2291670" target="_blank">WiiGe 发表于 2026-10-15 17:46</a>
+
+https://support.microsoft.com/zh-cn/windows/apps/change-default-apps-in-windows</blockquote>
+便携版好像没办法。可以设置成默认，设置完，双击pdf只会打开软件，没办法打开pdf文件
+
