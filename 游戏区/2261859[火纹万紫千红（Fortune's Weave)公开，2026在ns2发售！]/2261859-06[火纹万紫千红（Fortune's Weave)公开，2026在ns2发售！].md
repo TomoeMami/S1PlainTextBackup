@@ -3459,3 +3459,42 @@ dlc武器啥水平啊
 
 —— 来自 realme RMX5062, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  纪寞  
+##### 7745#       发表于 2026-10-16 16:20
+
+目前大苏的斧子我觉得合理的猜想是当初大苏处决完霸罗尔后就没洗斧子，直接让沾满霸罗尔血的斧子给霸罗尔陪葬了，之后斧子被霸罗尔的血污染成赤红斧，在德雷克盗墓的时候被一同带出<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jabeck  
+##### 7746#       发表于 2026-10-16 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382552&amp;ptid=2261859" target="_blank">喵咪咪格勒 发表于 2026-10-16 15:50</a>
+
+dlc武器啥水平啊</blockquote>
+弓很强，斧子没救了，另两个要升级后才能用。
+
+*****
+
+####  Jabeck  
+##### 7747#       发表于 2026-10-16 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382583&amp;ptid=2261859" target="_blank">fireadol 发表于 2026-10-16 15:57</a>
+
+我触发了这个事件但连新娘干嘛去的都不知道</blockquote>
+新娘应该去所罗门那里当王了。
+
+*****
+
+####  星花  
+##### 7748#       发表于 2026-10-16 16:23
+
+<blockquote>未熟串烧 发表于 2026-10-16 16:04
+如果给君子兰的病娇属性拉到顶的不是没可能，我的意思是和神威法王殉情然后灵魂融合，这样自捏可男可女也算 ...</blockquote>
+
+那还真成火纹朱紫了。
+

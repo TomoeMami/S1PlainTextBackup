@@ -238,3 +238,24 @@ ico倒是早有了
 
 挺费token的。。。说实话不便宜<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风夏  
+##### 78#         楼主| 发表于 2026-10-16 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382704&amp;ptid=2289851" target="_blank">汤浅比吕美 发表于 2026-10-16 16:12</a>
+
+挺费token的。。。说实话不便宜</blockquote>
+薅qoder或者workbuddy的羊毛吧, 目前这俩工具都有免费的模型可以用....
+
+自己花钱从0开始干的话, 可能花了100块打了水漂, 无事发生<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  汤浅比吕美  
+##### 79#       发表于 2026-10-16 16:22
+
+我搞了两个SFC老游戏HD2D化，从bin开始到构建PC源码大概200刀<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
