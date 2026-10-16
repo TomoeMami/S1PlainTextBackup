@@ -3391,3 +3391,11 @@ toa是本质2d战斗系统的都来了，战场自由移动前期就解锁了，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">杉果居然能比挂刀还便宜，本来看到138有点萎了的
 
+
+*****
+
+####  天才八嘎  
+##### 311#       发表于 2026-10-16 10:19
+
+杉果已经下架了，不会是临时工吧
+

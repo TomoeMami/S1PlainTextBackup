@@ -2931,3 +2931,43 @@ DLC竟然不是全区的<img src="https://static.stage1st.com/image/smiley/face2
 ----发送自 STAGE1 App for Android.</blockquote>
 听了个响
 
+
+*****
+
+####  蓮華  
+##### 7696#       发表于 2026-10-16 10:20
+
+<img src="https://img.stage1st.com/forum/202610/16/102022l2yb2zb0l28zv0yn.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EF9C966B-BD7E-4EEF-BDF4-741010FD1549.jpeg</strong> (218.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-16 10:20 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/102026iwck4j97ul3hozyl.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6171.jpeg</strong> (380.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-16 10:20 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/102031urv2jrbojowavajv.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6172.jpeg</strong> (194.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-16 10:20 上传
+
+*****
+
+####  星花  
+##### 7697#       发表于 2026-10-16 10:23
+
+大刀的问题是太真实了。
+
