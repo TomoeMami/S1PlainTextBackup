@@ -2615,3 +2615,14 @@ muse spark open 开源权重版和闭源版本，据说差距挺大的，加上m
 难道说算力真是天上掉下来的?</blockquote>
 超级infra神力，断了几个小时，转走的流量能把其他一些低价模型都挤满，一家顶几家的流量
 
+
+*****
+
+####  nxmonitor  
+##### 16537#       发表于 2026-10-16 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381759&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-16 13:59</a>
+
+鲸鱼4.1 Pro有那么快吗？ 如果和4.1 Flash一样是新构架的话那得很早就开始炼了，4.0 Pro也许不是炼炸了，是 ...</blockquote>
+从七八月灰测看flash可能练得比pro还晚，尤其是flash里会偶尔出现只有灰测才有的i'm doing思维链，看上去就是蒸馏的产物
+

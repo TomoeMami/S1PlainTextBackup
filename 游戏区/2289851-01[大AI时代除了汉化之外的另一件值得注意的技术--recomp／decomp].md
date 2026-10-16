@@ -163,3 +163,21 @@ PS2战神recomp, 貌似是第一个ps2游戏的recomp成品, 中午跑一下看�
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  风夏  
+##### 72#         楼主| 发表于 2026-10-16 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381904&amp;ptid=2289851" target="_blank">彩虹肥宅 发表于 2026-10-16 14:23</a>
+
+我还在等ps2的旺达
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+[https://github.com/Fantaskink/SOTC](https://github.com/Fantaskink/SOTC)
+
+有人在做, 不过已经大半年没动静了
+
+可以关注一下这个awesome列表
+[https://github.com/SubmitGame/awesome-decomp-games/](https://github.com/SubmitGame/awesome-decomp-games/)
+

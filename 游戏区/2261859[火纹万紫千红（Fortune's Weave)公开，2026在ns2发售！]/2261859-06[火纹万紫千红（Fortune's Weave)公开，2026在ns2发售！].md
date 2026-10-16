@@ -3235,3 +3235,27 @@ A少跟猫猫头，两个魅力最高的男女角色，但是感觉性格都很�
 
 我迪线初音妹和巨人一比，同等级力防加起来差了15点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 7724#       发表于 2026-10-16 14:26
+
+<blockquote>fireadol 发表于 2026-10-16 14:11
+这豹子说着要反水干死大姐我还以为主线，结果一个隐藏剧情人就没了啊，大姐也是彩笔奶龙这都拿不下更废物了 ...</blockquote>
+豹子离黄油主角就差一点点~
+
+*****
+
+####  hsyg  
+##### 7725#       发表于 2026-10-16 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381833&amp;ptid=2261859" target="_blank">fireadol 发表于 2026-10-16 14:11</a>
+
+这豹子说着要反水干死大姐我还以为主线，结果一个隐藏剧情人就没了啊，大姐也是彩笔奶龙这都拿不下更废物了 ...</blockquote>
+全点亲亲上了，别的作品秘密组织总得有点说法或者崇拜什么邪神
+
+结果到三姐妹这啥大饼都没有，就你进来就给你钱和权力甚至还送大力水保命。
+
+没有大姐苦练亲亲，这破组织真的屁用没用。
+
