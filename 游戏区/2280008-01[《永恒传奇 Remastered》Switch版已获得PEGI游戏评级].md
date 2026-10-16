@@ -3439,3 +3439,16 @@ toa是本质2d战斗系统的都来了，战场自由移动前期就解锁了，
 杉果临时工结束了，已恢复原价138和248。不知道会不会反激活，后续可以跟进一下。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是sony 哪有什么反激活  隔壁xhh终极临时工都没做过什么回收 只可惜我只买了个ff7
 
+
+*****
+
+####  trow233  
+##### 316#       发表于 2026-10-16 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380470&amp;ptid=2280008" target="_blank">空洞骑士 发表于 2026-10-16 10:36</a>
+
+杉果临时工结束了，已恢复原价138和248。不知道会不会反激活，后续可以跟进一下。 ...</blockquote>
+啊？？咋回事
+
+南梦宫：有内鬼！
+
