@@ -3682,3 +3682,31 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 凯伊外传打力竭了，爽是真的爽
 
+
+*****
+
+####  Jabeck  
+##### 7766#       发表于 2026-10-16 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384495&amp;ptid=2261859" target="_blank">bingo0716 发表于 2026-10-16 21:53</a>
+
+不是这个第二部怎么一直动我装备啊，每局都要调整一次是不是有什么大病</blockquote>
+第一章结束时让你确认好的装备配置应该不会变。
+
+*****
+
+####  bingo0716  
+##### 7767#       发表于 2026-10-16 22:43
+
+锻造师这个神秘职业，玩了三条线也没看到一个需要用斧和黑魔法的人，职业技能也是微妙的没啥用
+
+*****
+
+####  bwsusaga  
+##### 7768#       发表于 2026-10-16 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384724&amp;ptid=2261859" target="_blank">bingo0716 发表于 2026-10-16 22:43</a>
+
+锻造师这个神秘职业，玩了三条线也没看到一个需要用斧和黑魔法的人，职业技能也是微妙的没啥用 ...</blockquote>
+鲁大师<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

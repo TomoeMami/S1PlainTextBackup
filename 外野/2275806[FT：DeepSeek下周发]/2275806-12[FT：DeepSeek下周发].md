@@ -3125,3 +3125,47 @@ Gemini 4的推理能力非常差，感觉还不如DeepSeek v4.1f。普通难度�
 未来非FLASH肯定没法开源了</blockquote>
 在境内平台开源应该不算出口，不过Kimi卖国外的商业许可证模式估计不好做了
 
+
+*****
+
+####  andychen  
+##### 16580#       发表于 2026-10-16 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384596&amp;ptid=2275806" target="_blank">novem 发表于 2026-10-16 22:13</a>
+新的LLM限制出口条件很严啊
+
+未来非FLASH肯定没法开源了</blockquote>
+到明年Flash模型也会达到这个规模
+
+我个人觉得挺蠢的，Openrouter的流量显然贡献了惊人的训练数据。本来蒸馏这条路已经被堵了，现在又自砍一刀
+
+
+*****
+
+####  novem  
+##### 16581#       发表于 2026-10-16 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384715&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-16 22:41</a>
+
+到明年Flash模型也会达到这个规模
+
+我个人觉得挺蠢的，Openrouter的流量显然贡献了惊人的训练数据。本来 ...</blockquote>
+好像开源的可以自动豁免
+
+但是依然影响很大
+
+未来参数大到一定程度估计大家都很难开源了
+
+*****
+
+####  andychen  
+##### 16582#       发表于 2026-10-16 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384736&amp;ptid=2275806" target="_blank">novem 发表于 2026-10-16 22:46</a>
+好像开源的可以自动豁免
+
+但是依然影响很大
+
+未来参数大到一定程度估计大家都很难开源了 ...</blockquote>
+已开源的自动豁免而已
+
