@@ -1022,3 +1022,33 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
        [https://www.doco-tick-experience.net/avemujica/lp/](https://www.doco-tick-experience.net/avemujica/lp/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42117#       发表于 2026-10-16 14:06
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/16/140636x7wzld1ht6htqkbw.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-16_14-01-50.png</strong> (619.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 14:06 上传
+
+       [https://x.com/bang_dream_info/status/2110943823215853800](https://x.com/bang_dream_info/status/2110943823215853800)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/16/140636rbmy524223mbeb23.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-16_14-04-39.png</strong> (342.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 14:06 上传
+
+       [https://t.bilibili.com/1259648626610667524](https://t.bilibili.com/1259648626610667524)
+

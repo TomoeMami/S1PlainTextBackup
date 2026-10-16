@@ -2595,3 +2595,23 @@ luminabench还算是舅舅的
 luminabench还算是舅舅的</blockquote>
 说在测的部分应该还是对的，DS有时候会抽到一个140TPS的模型，但是什么时候出就不知道了
 
+
+*****
+
+####  JasonBourne  
+##### 16535#       发表于 2026-10-16 14:11
+
+muse spark open 开源权重版和闭源版本，据说差距挺大的，加上meta的这个开源license限制极大……
+
+不想开源可以不开<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 16536#       发表于 2026-10-16 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381812&amp;ptid=2275806" target="_blank">绿色食品 发表于 2026-10-16 14:06</a>
+
+难道说算力真是天上掉下来的?</blockquote>
+超级infra神力，断了几个小时，转走的流量能把其他一些低价模型都挤满，一家顶几家的流量
+
