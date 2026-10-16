@@ -856,3 +856,27 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥啊，祥子又勾引谁了吗
 
+
+*****
+
+####  达达葱2  
+##### 42107#       发表于 2026-10-16 10:13
+
+微博看到的
+
+<img src="https://img.stage1st.com/forum/202610/16/101303wczqz3kc1ccq7ci3.jpg" referrerpolicy="no-referrer">
+
+<strong>30947.jpg</strong> (148.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 10:13 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/101314bgt1n6xl6x1tt129.jpg" referrerpolicy="no-referrer">
+
+<strong>30946.jpg</strong> (192.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 10:13 上传
+

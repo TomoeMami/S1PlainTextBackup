@@ -2918,3 +2918,16 @@ DLC竟然不是全区的<img src="https://static.stage1st.com/image/smiley/face2
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  caps洛奇  
+##### 7695#       发表于 2026-10-16 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380242&amp;ptid=2261859" target="_blank">黑上シグマ 发表于 2026-10-16 10:07</a>
+
+这不就是“已阅”吗
+
+----发送自 STAGE1 App for Android.</blockquote>
+听了个响
+
