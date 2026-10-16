@@ -2944,3 +2944,79 @@ Re:Source</blockquote>
 我再也不黑哈基米了，哈基米是唯一一个会用ps画画的大模型</blockquote>
 这个具体是怎么操作的？
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 16565#       发表于 2026-10-16 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382471&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-16 15:35</a>
+日常写公文，大家推荐那个模型？
+
+我现在尝试用dsh调用一次性子代理，用干净提示词出文，今天没设置好跑了6 ...</blockquote>
+K3，kimiwork和kimi客户端带了不少写公文的skill
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  大肥鱼  
+##### 16566#       发表于 2026-10-16 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383808&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-16 19:25</a>
+ChatGPT-6 Sol Instant （即时推理强度）：</blockquote>
+把这个问题问了一下大肥鱼，结果没回答出来，把水给忽略掉了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qwased  
+##### 16567#       发表于 2026-10-16 20:21
+
+ 本帖最后由 qwased 于 2026-10-16 20:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383808&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-16 19:25</a>
+ChatGPT-6 Sol Instant （即时推理强度）：</blockquote>
+argon低强度好像是路由给3.8f了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/16/202314d7ja7fhchx50ij79.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792153393859_2.webp</strong> (25.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 20:23 上传
+
+*****
+
+####  Promeus  
+##### 16568#       发表于 2026-10-16 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384054&amp;ptid=2275806" target="_blank">大肥鱼 发表于 2026-10-16 20:19</a>
+把这个问题问了一下大肥鱼，结果没回答出来，把水给忽略掉了。
+
+—— 来自 S1Fun ...</blockquote>
+4pmax把两个都答了，4.1f坚决不承认有两个水选项<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  果壳中的松鼠  
+##### 16569#       发表于 2026-10-16 20:22
+
+不愧是鱼<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/d17b80bd92e4463234bd65c69f4ad556/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  大肥鱼  
+##### 16570#       发表于 2026-10-16 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384064&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-16 20:21</a>
+4pmax把两个都答了，4.1f坚决不承认有两个水选项</blockquote>
+还真是，只问了免费的网页端；倒是没用上现在已经只有收费才用得到的付费端专家模式了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
