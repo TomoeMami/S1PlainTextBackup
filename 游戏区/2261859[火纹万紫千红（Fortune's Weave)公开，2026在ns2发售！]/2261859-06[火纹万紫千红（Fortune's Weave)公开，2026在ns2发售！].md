@@ -3615,3 +3615,37 @@ dlc武器啥水平啊</blockquote>
 
 而且这次的枪战技明明有弑骑连击，就偏偏不给西提斯
 
+
+*****
+
+####  lbj5454  
+##### 7761#       发表于 2026-10-16 21:38
+
+document.getElementById('flv_cdd').innerHTML=("");
+
+用积木搭了个机娘给大伙跳支拉丁舞助助兴
+
+<img src="https://img.stage1st.com/forum/202610/16/213841d54zjin48vufl8yk.jpg" referrerpolicy="no-referrer">
+
+<strong>横版封面.jpg</strong> (405.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 21:38 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/213842wbckzb6b1xzkq5tb.jpg" referrerpolicy="no-referrer">
+
+<strong>竖版封面.jpg</strong> (436.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 21:38 上传
+
+
+*****
+
+####  u2deack  
+##### 7762#       发表于 2026-10-16 21:44
+
+本来就不想买的人看到这个dlc更不想买了，跟本体加起来快一万五日元了都，现在没买的就算要买也是等dlc出了本体便宜了再买
+

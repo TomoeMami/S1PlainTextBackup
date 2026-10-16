@@ -188,3 +188,13 @@
 
 其实看设定集的话，小崎画的角色本来就很少，主要是露露在内的一部分重要npc和极少数普通冒险者。绝大多数设计的画师是两个叫古城（所有传说角色和绝大多数普通冒险者以及所有普通怪物）和依都（小崎以外的npc似乎都是他）的，大概是dre的员工。
 
+
+*****
+
+####  Flechette  
+##### 937#       发表于 2026-10-16 21:41
+
+[https://x.com/kymg/status/2110728410914046408](https://x.com/kymg/status/2110728410914046408)
+
+新角色还就是小崎祐介设计的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
