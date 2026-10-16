@@ -3710,3 +3710,24 @@ document.getElementById('flv_cdd').innerHTML=("");
 锻造师这个神秘职业，玩了三条线也没看到一个需要用斧和黑魔法的人，职业技能也是微妙的没啥用 ...</blockquote>
 鲁大师<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1wq1  
+##### 7769#       发表于 2026-10-16 22:48
+
+鲁大师一个远疗比斧头和黑魔加起来都好用吧
+
+
+*****
+
+####  ナルバレック  
+##### 7770#       发表于 2026-10-16 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384263&amp;ptid=2261859" target="_blank">牛奶笛 发表于 2026-10-16 21:04</a>
+
+上周fami销量崩了，后劲甚至比engage都差不少，这次日本销量应该没救了。
+
+突然宣布DLC感觉也是想要挽回热 ...</blockquote>
+中国这边是普遍好评的，欧美主要是价格党在喊，日本是阴阳怪气最多的，不过上代结合在日本外算是大失利，虽然在日本也不算特别成功就是了....
+

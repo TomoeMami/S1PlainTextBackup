@@ -3169,3 +3169,58 @@ Gemini 4的推理能力非常差，感觉还不如DeepSeek v4.1f。普通难度�
 未来参数大到一定程度估计大家都很难开源了 ...</blockquote>
 已开源的自动豁免而已
 
+
+*****
+
+####  smiths146  
+##### 16583#       发表于 2026-10-16 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384715&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-16 22:41</a>
+
+到明年Flash模型也会达到这个规模
+
+我个人觉得挺蠢的，Openrouter的流量显然贡献了惊人的训练数据。本来 ...</blockquote>
+的确，不止这个，还有好多其他，没法商业化的技术只能看着，还是国内这个鬼市场
+
+*****
+
+####  ycjiang1337  
+##### 16584#       发表于 2026-10-16 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384715&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-16 22:41</a>
+
+到明年Flash模型也会达到这个规模
+
+我个人觉得挺蠢的，Openrouter的流量显然贡献了惊人的训练数据。本来 ...</blockquote>
+只传modelscope开源就行了，出口管制管不了境内开源，而不经过额外立法就对大模型开源设置门槛本身就违反了行政许可法
+
+
+*****
+
+####  misuzu0723  
+##### 16585#       发表于 2026-10-16 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384715&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-16 22:41</a>
+到明年Flash模型也会达到这个规模
+
+我个人觉得挺蠢的，Openrouter的流量显然贡献了惊人的训练数据。本来 ...</blockquote>
+openrouter 的大部分都是走的第三方自部署，这些数据国内也拿不到
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  ycjiang1337  
+##### 16586#       发表于 2026-10-16 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384715&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-16 22:41</a>
+
+到明年Flash模型也会达到这个规模
+
+我个人觉得挺蠢的，Openrouter的流量显然贡献了惊人的训练数据。本来 ...</blockquote>
+实际上你这个论调反而证明了必须得出口管制，因为OpenRouter上的三方托管，境内企业是拿不到任何数据和钱的，等于让境外白嫖境内的成果。
+
+然后这次的官方解释明确说了，境内对境外提供API不算出口
+
+[https://www.mofcom.gov.cn/zwgk/z ... _source=chatgpt.com](https://www.mofcom.gov.cn/zwgk/zcjd/art/2026/art_b11d5c1e9374421e93e85dc87eba6e38.html?utm_source=chatgpt.com)
+
