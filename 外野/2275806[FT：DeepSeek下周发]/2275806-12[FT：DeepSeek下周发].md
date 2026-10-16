@@ -2421,3 +2421,19 @@ Gemini4 写文真不错，昨天用了不到三次五小时额度写了五万多
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">退了30，上午做了个论坛搬屎报告就蹬掉十块
 
+
+*****
+
+####  eno_emos  
+##### 16520#       发表于 2026-10-16 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380797&amp;ptid=2275806" target="_blank">梁皇无忌 发表于 2026-10-16 11:21</a>
+
+等等，那我在wb用的岂不是都退给腾子了
+
+—— 来自 vivo V2547DA, Android 16, 鹅球 v4.0.100-alpha ...</blockquote><blockquote>【WorkBuddy：针对此前DeepSeek模型服务异常，将对受影响用户返还期间所消耗的积分】金十数据10月16日讯，WorkBuddy发布《关于DeepSeek模型服务异常说明及补偿公告》。针对此前DeepSeek模型服务异常，将对受影响用户返还其10月8日至14日期间使用DeepSeek所消耗的积分；同时，面向WorkBuddy国内版全量用户每人额外赠送500积分。
+
+(来自金十数据APP)</blockquote>
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
