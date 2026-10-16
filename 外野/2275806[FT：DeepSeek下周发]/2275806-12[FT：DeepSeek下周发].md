@@ -2305,3 +2305,15 @@ Unavailable · Gemini 4 Argon is currently available to Ultra and paid Pro plan 
 
 —— 来自 vivo V2547DA, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  overflowal  
+##### 16509#       发表于 2026-10-16 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380797&amp;ptid=2275806" target="_blank">梁皇无忌 发表于 2026-10-16 11:21</a>
+等等，那我在wb用的岂不是都退给腾子了
+
+—— 来自 vivo V2547DA, Android 16, 鹅球 v4.0.100-alpha ...</blockquote>
+workbuddy的价格是藤子补贴过的，自然是藤子赚这个钱<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+

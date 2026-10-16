@@ -2079,3 +2079,16 @@ DesignCraft可以设置ICC, 我试了下:
 https://support.microsoft.com/zh-cn/windows/apps/change-default-apps-in-windows</blockquote>
 便携版好像没办法。可以设置成默认，设置完，双击pdf只会打开软件，没办法打开pdf文件
 
+
+*****
+
+####  WiiGe  
+##### 179#         楼主| 发表于 2026-10-16 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70379857&amp;ptid=2291670" target="_blank">O小不点0 发表于 2026-10-16 09:15</a>
+
+便携版好像没办法。可以设置成默认，设置完，双击pdf只会打开软件，没办法打开pdf文件 ...</blockquote>
+便携版可能是注册表或系统关联问题, 通常不会自动追加传递文件路径的参数, 所以只开界面不开文件
+
+你通过"右键属性, 更改默认打开方式"的办法设置默认 PDF 打开方式的吗?
+

@@ -3077,3 +3077,31 @@ dlc出来最危险的可能是迪耶哥吧，想了想他大概是唯一一个�
 
 噫，我们就是要看艹大嫂啊
 
+
+*****
+
+####  蓮華  
+##### 7710#       发表于 2026-10-16 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380756&amp;ptid=2261859" target="_blank">caps洛奇 发表于 2026-10-16 11:15</a>
+
+大概是女同圈的黑话</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/16/112707rs7fsza8syrf8uiw.png" referrerpolicy="no-referrer">
+
+<strong>76cb3e6c-b61f-4968-908a-4bc7c1f25088.png</strong> (440.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 11:27 上传
+
+问了下豆包
+
+
+*****
+
+####  a3a4sc  
+##### 7711#       发表于 2026-10-16 11:32
+
+我玩大刀就是为了让他加进女王那个队，好让高山南和山口胜平两个CV凑一起。
+

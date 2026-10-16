@@ -908,3 +908,58 @@ BanGDream! bilibili官方：@BanGDream_CN   
 微博看到的</blockquote>
 不到一个小时的剧场版，你说给老登中登十几分钟独白？我不信。
 
+
+*****
+
+####  堀内爱里衣  
+##### 42111#       发表于 2026-10-16 11:28
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/16/112830mgghssamgh4s8gss.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-16_11-26-01.png</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 11:28 上传
+
+       [https://x.com/bang_dream_info/status/2110901061259239885](https://x.com/bang_dream_info/status/2110901061259239885)
+
+       [https://avemujica-movie.bang-dream.com/theater/](https://avemujica-movie.bang-dream.com/theater/)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42112#       发表于 2026-10-16 11:30
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/16/113051nirn5fwn85i5w3y3.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-16_11-29-00.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 11:30 上传
+
+       [https://x.com/bang_dream_info/status/2110913736462795180](https://x.com/bang_dream_info/status/2110913736462795180)
+
+*****
+
+####  堀内爱里衣  
+##### 42113#       发表于 2026-10-16 11:31
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/16/113150rfx5f947v3js8bxj.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-16_11-31-19.png</strong> (509.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 11:31 上传
+
+       [https://x.com/bang_dream_info/status/2110917738420228097](https://x.com/bang_dream_info/status/2110917738420228097)
+

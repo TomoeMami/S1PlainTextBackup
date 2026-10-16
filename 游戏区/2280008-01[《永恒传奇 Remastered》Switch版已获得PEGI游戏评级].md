@@ -3452,3 +3452,14 @@ toa是本质2d战斗系统的都来了，战场自由移动前期就解锁了，
 
 南梦宫：有内鬼！
 
+
+*****
+
+####  放大镜  
+##### 317#       发表于 2026-10-16 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70378702&amp;ptid=2280008" target="_blank">Xenor 发表于 2026-10-15 23:35</a>
+
+tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感觉类似tor三线战斗，tos也类似，只是隐藏的还 ...</blockquote>
+没记错的话TOA自由移动要占个被动格子，得自己装
+
