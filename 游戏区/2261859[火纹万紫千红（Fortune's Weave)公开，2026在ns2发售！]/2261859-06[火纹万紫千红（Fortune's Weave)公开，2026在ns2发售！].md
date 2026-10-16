@@ -2830,3 +2830,13 @@ DLC竟然不是全区的<img src="https://static.stage1st.com/image/smiley/face2
 
 是该尝试一下25分钟速通单线的玩法了？
 
+
+*****
+
+####  白昼梦DD  
+##### 7688#       发表于 2026-10-16 09:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在斧子比三角克制时期还下位无疑是绷不住的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
