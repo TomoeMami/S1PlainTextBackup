@@ -181,3 +181,34 @@ PS2战神recomp, 貌似是第一个ps2游戏的recomp成品, 中午跑一下看�
 可以关注一下这个awesome列表
 [https://github.com/SubmitGame/awesome-decomp-games/](https://github.com/SubmitGame/awesome-decomp-games/)
 
+
+*****
+
+####  德德德德德古拉  
+##### 73#       发表于 2026-10-16 15:26
+
+PS4的古车也有了
+[https://github.com/GetLostIn/CTR-NitroFueled-PC](https://github.com/GetLostIn/CTR-NitroFueled-PC)
+
+*****
+
+####  彩虹肥宅  
+##### 74#       发表于 2026-10-16 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381971&amp;ptid=2289851" target="_blank">风夏 发表于 2026-10-16 14:30</a>
+https://github.com/Fantaskink/SOTC
+
+有人在做, 不过已经大半年没动静了</blockquote>
+ico倒是早有了
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  断翼  
+##### 75#       发表于 2026-10-16 15:29
+
+幻魔鬼武者也有了，作者说考虑搞御伽
+
+【全球首发！幻魔鬼武者PC反编译版本！首发中文！-哔哩哔哩】 https://b23.tv/yM9s41M
+
