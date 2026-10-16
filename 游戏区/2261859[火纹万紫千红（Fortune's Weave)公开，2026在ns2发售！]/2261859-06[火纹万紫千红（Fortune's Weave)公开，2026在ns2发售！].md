@@ -3159,3 +3159,11 @@ dlc出来最危险的可能是迪耶哥吧，想了想他大概是唯一一个�
 
 粉毛好纯真啊，西洛可都撩不动她<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Horusddt  
+##### 7717#       发表于 2026-10-16 12:42
+
+这游戏职业解锁之后重开居然依然是解锁的，我第三部重开之后的最上级职业不用做任务就是直接开的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

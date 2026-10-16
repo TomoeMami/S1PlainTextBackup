@@ -2115,3 +2115,16 @@ https://support.microsoft.com/zh-cn/windows/apps/change-default-apps-in-windows<
 
 —— 来自 samsung SM-F9460, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  zyuco  
+##### 182#       发表于 2026-10-16 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377728&amp;ptid=2291670" target="_blank">绕指流光 发表于 2026-10-15 03:07</a>
+
+QQ 珊瑚虫的年代没有经历过吗？
+
+当然以现在这个环境和技术，我也觉得不大可能做出来，南山必胜客会使用爆 ...</blockquote>
+那就是魔改微信客户端嘛，现在早就有好一些例子了（我理解的话主要是做灰产的那些），然后时不时能刷到谁谁的微信号被封了的po。
+
