@@ -2840,3 +2840,58 @@ DLC竟然不是全区的<img src="https://static.stage1st.com/image/smiley/face2
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ParukiaMKII  
+##### 7689#       发表于 2026-10-16 09:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是，拿的动斧子的，技巧都低，本身武器命中还低，这下叠加后低的没法看了都
+
+*****
+
+####  yangchunsiyue  
+##### 7690#       发表于 2026-10-16 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70379883&amp;ptid=2261859" target="_blank">苍蓝之枪 发表于 2026-10-16 09:19</a>
+麻了，一查发现漏掉的隐藏事件还有前置，那又是重开整线的节奏
+
+是该尝试一下25分钟速通单线的玩法了？ ...</blockquote>
+他这个漏掉了隐藏事件，主线对话还有差分。那是不是还要故意漏掉打一遍<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  caps洛奇  
+##### 7691#       发表于 2026-10-16 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70377291&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-10-15 17:27</a>
+
+本体四个主角对应狐狮狼鹫
+
+4个dlc主角对应的动物会是什么</blockquote>
+感觉他们这个设定糊弄了 
+
+凯伊跟狐看不出有什么关系
+
+迪托是狮 队徽又是一匹马……
+
+
+*****
+
+####  caps洛奇  
+##### 7692#       发表于 2026-10-16 09:57
+
+<img src="https://img.stage1st.com/forum/202610/16/095554twtjh5t6thtcx8zo.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20261016095546.png</strong> (159.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 09:55 上传
+
+没指望他们能回复 结果还真回复了
+
+不过大意还是嗯嗯好的收到 敬语占一半字数
+

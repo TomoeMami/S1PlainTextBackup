@@ -2254,3 +2254,24 @@ muse spark open  斩杀 k3 glm5.3
 
 这一波梁圣发出去多少钱，几个亿总有吧？
 
+
+*****
+
+####  我被骗了五块钱  
+##### 16505#       发表于 2026-10-16 09:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">这么大的事，怎么不提前说！
+
+
+*****
+
+####  needagf  
+##### 16506#       发表于 2026-10-16 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70379876&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-10-16 09:18</a>
+
+Unavailable · Gemini 4 Argon is currently available to Ultra and paid Pro plan subscribers.
+
+我们今 ...</blockquote>
+同jio用户，这价钱，万一哪天真给了gemini 4呢。
+
