@@ -2394,3 +2394,30 @@ gemini 崩了？发送了几次都是 somthing went wrong
 Gemini4 写文真不错，昨天用了不到三次五小时额度写了五万多字一篇完整的同人文，甚至还能再写两个番外，AI ...</blockquote>
 真是，除了额度消耗快没有缺点了。
 
+
+*****
+
+####  来都来了  
+##### 16517#       发表于 2026-10-16 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70379841&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-10-16 09:12</a>
+梁子崩了以后不管是cline还是opencode还是commandcode，甚至workbuddy，全都是爆满拥挤
+
+足以证明梁子自己 ...</blockquote>
+无卡野人的算力魔法<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 16518#       发表于 2026-10-16 12:56
+
+刚看到蜥蜴人开源的这个，这参数和激活数量也能拿出手的？真以为不知道muse spark有多拉？
+
+*****
+
+####  Cloude_L  
+##### 16519#       发表于 2026-10-16 12:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">退了30，上午做了个论坛搬屎报告就蹬掉十块
+

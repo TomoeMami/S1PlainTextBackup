@@ -3167,3 +3167,14 @@ dlc出来最危险的可能是迪耶哥吧，想了想他大概是唯一一个�
 
 这游戏职业解锁之后重开居然依然是解锁的，我第三部重开之后的最上级职业不用做任务就是直接开的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarkDawn  
+##### 7718#       发表于 2026-10-16 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380882&amp;ptid=2261859" target="_blank">a3a4sc 发表于 2026-10-16 11:32</a>
+
+我玩大刀就是为了让他加进女王那个队，好让高山南和山口胜平两个CV凑一起。 ...</blockquote>
+其实游戏里还有山口胜平的女儿（穆）<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
