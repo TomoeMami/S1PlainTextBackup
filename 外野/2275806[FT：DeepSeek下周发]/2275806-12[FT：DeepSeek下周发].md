@@ -2933,3 +2933,14 @@ Re:Source</blockquote>
 
 用了下gemini4 argon惊了，pro用户提三个问题就76%了
 
+
+*****
+
+####  雷猴雷猴  
+##### 16564#       发表于 2026-10-16 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383253&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-10-16 17:29</a>
+
+我再也不黑哈基米了，哈基米是唯一一个会用ps画画的大模型</blockquote>
+这个具体是怎么操作的？
+
