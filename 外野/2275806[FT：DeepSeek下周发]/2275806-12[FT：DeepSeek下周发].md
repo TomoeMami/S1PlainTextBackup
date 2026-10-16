@@ -2626,3 +2626,40 @@ muse spark open 开源权重版和闭源版本，据说差距挺大的，加上m
 鲸鱼4.1 Pro有那么快吗？ 如果和4.1 Flash一样是新构架的话那得很早就开始炼了，4.0 Pro也许不是炼炸了，是 ...</blockquote>
 从七八月灰测看flash可能练得比pro还晚，尤其是flash里会偶尔出现只有灰测才有的i'm doing思维链，看上去就是蒸馏的产物
 
+
+*****
+
+####  startraveller  
+##### 16538#       发表于 2026-10-16 14:35
+
+<img src="https://img.stage1st.com/forum/202610/16/143500h7jjxjhv9jot9zpe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (234.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 14:35 上传
+
+Chris至少是真·Kimi舅舅
+
+*****
+
+####  startraveller  
+##### 16539#       发表于 2026-10-16 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381485&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-16 13:12</a>
+
+kimi真用不起，我今天让dsh用干净的子代理调用一次k3写一篇文章，直接炸了我2块钱，输出太贵了
+
+ ...</blockquote>
+Kimi输入缓存也很贵感觉，希望3.1能降降价吧。现在Opus 5.5 才4/20刀，Sonnet 5.5/6.1Sol/Gemeni 4才 2/10刀，kimi还卖3/15刀谁买啊。
+
+*****
+
+####  andychen  
+##### 16540#       发表于 2026-10-16 14:39
+
+我个人比较期待K3.1和GLM5.5
+
+DSV4.1P我认为提升恐怕有限，深度求索下次能力大提升恐怕要等到使用ENGRAM把模型规模大幅提升以后
+
