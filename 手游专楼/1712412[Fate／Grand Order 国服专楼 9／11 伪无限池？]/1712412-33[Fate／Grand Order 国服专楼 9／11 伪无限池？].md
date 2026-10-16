@@ -151,3 +151,13 @@ qp不够点树了，弓树慢慢来吧，现在最烦的还是杀冠人选问题
 
 不能再刷了，再打下去，杀狐很快就满十五绊了
 
+
+*****
+
+####  Kon-El  
+##### 48265#       发表于 2026-10-16 17:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">杀狐已经满15绊了
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
