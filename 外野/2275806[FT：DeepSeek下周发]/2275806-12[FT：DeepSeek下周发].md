@@ -3442,3 +3442,11 @@ OpenCode上了个LL Alpha，疑似kimi
 好消息，哈基米跟Opus5.5 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">中转站肥鱼皮套opus 降智astra 棋逢对手
 
+
+*****
+
+####  knnknn  
+##### 16607#       发表于 2026-10-17 06:19
+
+9月份谈了啥哪里能看啊，有靠谱的信源吗
+
