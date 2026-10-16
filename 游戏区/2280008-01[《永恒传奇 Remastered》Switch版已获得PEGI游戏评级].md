@@ -3307,3 +3307,16 @@ TOA其实已经可以自由移动了 TOS才是本质2D 有时候被两拨怪挤�
 
 早早塞了抹布保护我的眼睛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qiyu1234  
+##### 303#         楼主| 发表于 2026-10-16 08:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70379509&amp;ptid=2280008" target="_blank">空洞骑士 发表于 2026-10-16 07:55</a>
+
+总感觉贵了点，还以为按推荐价格等比换算应该118。而且豪华版DLC还是卖148比本体都贵。
+
+ ...</blockquote>
+可以去杉果看看，豪华版126比STEAM标准版便宜，而且能带其他折扣
+
