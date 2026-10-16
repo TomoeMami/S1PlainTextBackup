@@ -3020,3 +3020,15 @@ argon低强度好像是路由给3.8f了<img src="https://static.stage1st.com/ima
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  大肥鱼  
+##### 16571#       发表于 2026-10-16 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384067&amp;ptid=2275806" target="_blank">果壳中的松鼠 发表于 2026-10-16 20:22</a>
+不愧是鱼</blockquote>
+我操，我愤怒了！为什么我这边的大肥鱼回答的是喝尿？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
