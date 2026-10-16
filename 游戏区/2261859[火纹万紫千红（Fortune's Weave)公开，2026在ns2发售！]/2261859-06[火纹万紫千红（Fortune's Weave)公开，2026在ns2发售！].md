@@ -3739,3 +3739,22 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 11区那边已经在**上看到不少差评了，反正几个月后财报见真章，影响本作销量的最大因素肯定是价格，一张任亏券比朱紫贵1000日元，但能买结合和三房2个游戏了，也不知道为啥价格设置的那么强势
 
+
+*****
+
+####  duraa  
+##### 7772#       发表于 2026-10-16 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384724&amp;ptid=2261859" target="_blank">bingo0716 发表于 2026-10-16 22:43</a>
+
+锻造师这个神秘职业，玩了三条线也没看到一个需要用斧和黑魔法的人，职业技能也是微妙的没啥用 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">合计5点技速运的神秘双刀，还没最上级
+
+
+*****
+
+####  Jabeck  
+##### 7773#       发表于 2026-10-16 23:13
+
+价格装机量都影响销量，不过朱紫电子版销量还排在日服前十呢。
+
