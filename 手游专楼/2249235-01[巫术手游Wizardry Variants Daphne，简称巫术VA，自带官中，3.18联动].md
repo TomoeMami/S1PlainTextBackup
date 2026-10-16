@@ -154,3 +154,25 @@
 
 230黎明骨头，16个ssr，好消息是王女终于克9了，坏消息是一堆用不上的冷门角色（大狗忍者、狮樱、宵藏、狼叔、黑兽sp、黛博拉sp、男娘）<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 935#       发表于 2026-10-16 16:48
+
+<img src="https://img.stage1st.com/forum/202610/16/164201zwvh3329ro1k7cov.png" referrerpolicy="no-referrer">
+
+<strong>38.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 16:42 上传
+
+人气三巨头，比其他人多了一位数
+
+虽说考虑到算法，这个榜更像是玩家总体练度排名
+
+传奇角里没进前50的有红胡子，家暴男，男娘法师，NTR武士，感觉红胡子有点冤，其他三个真一点用没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哲鲁夫12名，知道什么叫高人气角色了吗drecom，知道下一个SP该出谁了吗drecom
+

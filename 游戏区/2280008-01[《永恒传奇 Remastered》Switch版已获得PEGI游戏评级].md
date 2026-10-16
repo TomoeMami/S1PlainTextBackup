@@ -3624,3 +3624,48 @@ tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感
 不慌 我一怒直接不买了 等真打折到80再见</blockquote>
 感觉小黑盒也会很快降价的样子
 
+
+*****
+
+####  bk_201  
+##### 332#       发表于 2026-10-16 16:49
+
+有没有完美全收集流程攻略<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 333#       发表于 2026-10-16 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382934&amp;ptid=2280008" target="_blank">chaosp 发表于 2026-10-16 16:45</a>
+
+感觉小黑盒也会很快降价的样子</blockquote>
+不一定 感觉是临时工 就算要打折 也不可能首发这么搞<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火红之眼  
+##### 334#       发表于 2026-10-16 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382601&amp;ptid=2280008" target="_blank">新條直輝 发表于 2026-10-16 15:59</a>
+
+小时候第一次玩的美版，xo键位对调的，看的日版攻略导致按不出极光波一直通关不了，后面重打日版才爽打
+
+ ...</blockquote>
+这次战斗还是原本的键位，不过对调也不影响极光波发动吧，都是口XO按住（小时候我也经常失败
+
+*****
+
+####  新條直輝  
+##### 335#       发表于 2026-10-16 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382996&amp;ptid=2280008" target="_blank">火红之眼 发表于 2026-10-16 16:52</a>
+
+这次战斗还是原本的键位，不过对调也不影响极光波发动吧，都是口XO按住（小时候我也经常失败
+
+ ...</blockquote>
+我咋记得当年看的是按住三键再连打O，大概记错了
+
+不影响就好！
+
