@@ -2887,3 +2887,23 @@ DeepSeek有一点发模型的征兆，在往官方群里拉人了…</blockquote
 Re:Source</blockquote>
 0813忘了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 16559#       发表于 2026-10-16 19:34
+
+0813没记错是半夜上的？
+
+*****
+
+####  andychen  
+##### 16560#       发表于 2026-10-16 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383746&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-10-16 19:09</a>
+
+只是针对4argon还是连3.8flash也一样加强风控？</blockquote>
+4和3.8f都会出现
+
+我自用的翻译工具和文档编译工具可以正常调用，应该是通过提示词发现是第三方Harness调用才会触发
+
