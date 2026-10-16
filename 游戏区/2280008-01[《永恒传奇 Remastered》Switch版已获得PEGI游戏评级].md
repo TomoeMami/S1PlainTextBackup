@@ -3669,3 +3669,18 @@ tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感
 
 不影响就好！
 
+
+*****
+
+####  Xenor  
+##### 336#       发表于 2026-10-16 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380562&amp;ptid=2280008" target="_blank">shcmzzj 发表于 2026-10-16 10:46</a>
+
+永恒是真的爽，这玩意能在ps上做出来是真的天才。我都不用todr那个水平的重置，就把光影啊特效啊模型啊做 ...</blockquote>
+可能要做这些成本太高还很怕改多了费力不讨好，多人那个技术没问题，记得幻想那会也要买手柄和电波才能双人搓招，设了门槛的估计是考虑实用性不大，当时用得最多也就协力出招连击999，实际还是1人操作2个手柄，有指令2p发招了大用途也没了吧，传说这种战斗布局1个人独享还是最爽的，真要多个人出来一起玩再激烈一些感觉画面也跟不上了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看重制这作画还是有良心的
+<img src="https://p.sda1.dev/35/c2eb940e29dece6a04a9ee712d5c199a/b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/19f72a0ed0f75667845f676c95c537f8/a.jpg" referrerpolicy="no-referrer">
+
