@@ -3480,3 +3480,16 @@ tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还有临时工环节吗
 
+
+*****
+
+####  火红之眼  
+##### 320#       发表于 2026-10-16 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70379564&amp;ptid=2280008" target="_blank">eilot 发表于 2026-10-16 08:11</a>
+
+他們2人的裝飾品是否能無限掉出來?
+
+其實最想都是2周目能永久用某位便當騎士... ...</blockquote>
+应该不掉了，再打了一遍normal的没给头巾
+
