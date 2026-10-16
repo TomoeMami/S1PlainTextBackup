@@ -3318,3 +3318,20 @@ A少跟猫猫头，两个魅力最高的男女角色，但是感觉性格都很�
 
 至于为什么三房这一系要取消，可能就是为了扩圈时降低点新人上手难度吧，顺便减轻点枪山猪打斧秋裤时的拉偏架不公平感（当年手游bkd可没少拿猪小弟拿枪永远是斧皇女腐乳这套说辞飞扬跋扈）
 
+
+*****
+
+####  milky658  
+##### 7731#       发表于 2026-10-16 14:51
+
+我困难战争篇，迪托还有脸黑不暴击，挨远程暴毙的风险，初音是真的稳，没有两发投矛扎不死的。最后几个BOSS双重投掷稳定一条命
+
+*****
+
+####  HazukiShion  
+##### 7732#       发表于 2026-10-16 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70376444&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-10-15 15:02</a>
+要说故事没讲清楚，还偷工减料但是体量大让我想起了法环。</blockquote>
+那会像法环 dlc 一样让一众纹学家大翻车吗？<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

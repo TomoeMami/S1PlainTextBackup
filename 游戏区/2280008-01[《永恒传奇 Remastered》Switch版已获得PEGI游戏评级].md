@@ -3529,3 +3529,41 @@ tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感
 
 记得旧版是弓箭手切露西、召唤师库拉斯、大剑克雷门特
 
+
+*****
+
+####  kokyou  
+##### 324#       发表于 2026-10-16 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381613&amp;ptid=2280008" target="_blank">火红之眼 发表于 2026-10-16 13:35</a>
+
+白金了，要不是TOE被研究得够透彻，白金难度在系列里也算高的了，得亏有内挂没啥作业量，难的全是小游戏 ...</blockquote>
+你这也太快了，我昨天下班回去打到睡前才刚收水的大晶灵。可以4传5秒白吗？
+
+顺便我 上+ 的特技有点难按出来，经常原地上跳。前一阵子刷TOS也没这个问题啊……
+
+
+*****
+
+####  火红之眼  
+##### 325#       发表于 2026-10-16 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381638&amp;ptid=2280008" target="_blank">寺胖 发表于 2026-10-16 13:39</a>
+
+还没玩，出来问题目的角色换了没？
+
+记得旧版是弓箭手切露西、召唤师库拉斯、大剑克雷门特 ...</blockquote>
+没换，还是那几位
+
+*****
+
+####  火红之眼  
+##### 326#       发表于 2026-10-16 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382101&amp;ptid=2280008" target="_blank">kokyou 发表于 2026-10-16 14:47</a>
+
+你这也太快了，我昨天下班回去打到睡前才刚收水的大晶灵。可以4传5秒白吗？
+
+顺便我 上+ 的特技有点难按出 ...</blockquote>
+可以4传5秒白，上+特技按不出是因为调成全手动了吧
+
