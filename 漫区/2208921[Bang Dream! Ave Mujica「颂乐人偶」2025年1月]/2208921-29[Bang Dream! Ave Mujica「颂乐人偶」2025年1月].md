@@ -963,3 +963,62 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
        [https://x.com/bang_dream_info/status/2110917738420228097](https://x.com/bang_dream_info/status/2110917738420228097)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42114#       发表于 2026-10-16 11:36
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/16/113614ar9foimz6fjdm82o.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-16_11-32-18.png</strong> (672.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 11:36 上传
+
+       [https://x.com/bang_dream_info/status/2110928731011518712](https://x.com/bang_dream_info/status/2110928731011518712)
+
+       [https://avemujica-movie.bang-dream.com/theater/](https://avemujica-movie.bang-dream.com/theater/)
+
+       [https://www.youtube.com/shorts/Mc8-6gDsVxQ](https://www.youtube.com/shorts/Mc8-6gDsVxQ)
+
+*****
+
+####  堀内爱里衣  
+##### 42115#       发表于 2026-10-16 11:38
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/16/113807iz1pye5pez9sh9e1.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-16_11-36-47.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 11:38 上传
+
+       [https://x.com/bang_dream_info/status/2110930757799866545](https://x.com/bang_dream_info/status/2110930757799866545)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42116#       发表于 2026-10-16 11:40
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/16/114027q6i992hlbbbd9el9.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-16_11-39-10.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 11:40 上传
+
+       [https://x.com/bang_dream_info/status/2110936268116992141](https://x.com/bang_dream_info/status/2110936268116992141)
+
+       [https://www.doco-tick-experience.net/avemujica/lp/](https://www.doco-tick-experience.net/avemujica/lp/)
+

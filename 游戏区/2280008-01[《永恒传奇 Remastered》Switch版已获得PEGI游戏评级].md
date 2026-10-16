@@ -3463,3 +3463,20 @@ toa是本质2d战斗系统的都来了，战场自由移动前期就解锁了，
 tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感觉类似tor三线战斗，tos也类似，只是隐藏的还 ...</blockquote>
 没记错的话TOA自由移动要占个被动格子，得自己装
 
+
+*****
+
+####  黒長直姫  
+##### 318#       发表于 2026-10-16 11:39
+
+错过临时工了，不买了tmd
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lighttt  
+##### 319#       发表于 2026-10-16 11:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还有临时工环节吗
+

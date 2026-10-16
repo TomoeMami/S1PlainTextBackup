@@ -3105,3 +3105,21 @@ dlc出来最危险的可能是迪耶哥吧，想了想他大概是唯一一个�
 
 我玩大刀就是为了让他加进女王那个队，好让高山南和山口胜平两个CV凑一起。
 
+
+*****
+
+####  纪寞  
+##### 7712#       发表于 2026-10-16 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380721&amp;ptid=2261859" target="_blank">1wq1 发表于 2026-10-16 11:10</a>
+
+dlc出来最危险的可能是迪耶哥吧，想了想他大概是唯一一个有可能和猫猫头a支援的男人（真要有双人结局也肯定 ...</blockquote>
+怎么可能，她是八主角之一，其他4个男主角和她肯定也有支援A的，而且队里西提司肯定也是有A的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，另外目前波拿和她也是有B，估计到时候就是揭露幽法斯真身的5年后也会有A
+
+*****
+
+####  freedom12  
+##### 7713#       发表于 2026-10-16 11:43
+
+准备在人森里捏三房+朱紫的主角团啦
+
