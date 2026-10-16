@@ -3052,3 +3052,13 @@ argon低强度好像是路由给3.8f了<img src="https://static.stage1st.com/ima
 
 sol用gimp也行吧
 
+
+*****
+
+####  蛋黄酱Release  
+##### 16573#       发表于 2026-10-16 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384030&amp;ptid=2275806" target="_blank">雷猴雷猴 发表于 2026-10-16 20:14</a>
+这个具体是怎么操作的？</blockquote>
+直接让它用那个开源ps的接口画<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
