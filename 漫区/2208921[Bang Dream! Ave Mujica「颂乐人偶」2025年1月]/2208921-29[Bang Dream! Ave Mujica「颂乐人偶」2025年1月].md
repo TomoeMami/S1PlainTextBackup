@@ -897,3 +897,14 @@ BanGDream! bilibili官方：@BanGDream_CN   
 时间已经让我释怀了，我现在恨不得穿越回1月再看一次母鸡卡
 当年我在局中破防没办法享受，如今同样的机会摆在我的眼前，我一定要好好享受这场狂欢盛宴<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜游宫  
+##### 42110#       发表于 2026-10-16 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380288&amp;ptid=2208921" target="_blank">达达葱2 发表于 2026-10-16 10:13</a>
+
+微博看到的</blockquote>
+不到一个小时的剧场版，你说给老登中登十几分钟独白？我不信。
+

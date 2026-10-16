@@ -141,3 +141,15 @@ https://github.com/keepvaibin/nebula
 那假如我想做一个PCE-CD游戏的重编译（汉化、加原创BGM，高清化等等），请问从哪里开始第一步呢？ ...</blockquote>
 花钱买glm或者kimi，在编程cli中直接讲就行了
 
+
+*****
+
+####  风夏  
+##### 70#         楼主| 发表于 2026-10-16 10:44
+
+[https://github.com/YYOzcan/Tobiichi-Port](https://github.com/YYOzcan/Tobiichi-Port)
+
+PS2战神recomp, 貌似是第一个ps2游戏的recomp成品, 中午跑一下看看实力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这玩意儿硬件要求可真高啊... 至少8G内存了
+
