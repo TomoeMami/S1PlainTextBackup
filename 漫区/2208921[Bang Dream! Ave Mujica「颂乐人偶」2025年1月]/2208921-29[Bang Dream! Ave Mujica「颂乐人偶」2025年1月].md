@@ -848,3 +848,11 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
 听说初音还是初华捅了祥子？
 
+
+*****
+
+####  osore  
+##### 42106#       发表于 2026-10-16 09:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥啊，祥子又勾引谁了吗
+
