@@ -2092,3 +2092,16 @@ https://support.microsoft.com/zh-cn/windows/apps/change-default-apps-in-windows<
 
 你通过"右键属性, 更改默认打开方式"的办法设置默认 PDF 打开方式的吗?
 
+
+*****
+
+####  O小不点0  
+##### 180#       发表于 2026-10-16 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70380898&amp;ptid=2291670" target="_blank">WiiGe 发表于 2026-10-16 11:34</a>
+
+便携版可能是注册表或系统关联问题, 通常不会自动追加传递文件路径的参数, 所以只开界面不开文件
+
+你通过" ...</blockquote>
+都试了，还问了ds，按他的推荐用了便携应用注册PortableRegistrator_v1.5，添加1%,也不成功。看起来只能装安装版，可能能解决这个问题
+

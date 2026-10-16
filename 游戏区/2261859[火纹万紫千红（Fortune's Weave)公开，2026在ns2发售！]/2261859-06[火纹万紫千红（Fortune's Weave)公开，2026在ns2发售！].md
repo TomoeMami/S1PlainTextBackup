@@ -3151,3 +3151,11 @@ dlc出来最危险的可能是迪耶哥吧，想了想他大概是唯一一个�
 
 很多角色凯伊线上马也一般 除了飞马  各方面加成比较优秀
 
+
+*****
+
+####  lelouchwang  
+##### 7716#       发表于 2026-10-16 12:22
+
+粉毛好纯真啊，西洛可都撩不动她<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
