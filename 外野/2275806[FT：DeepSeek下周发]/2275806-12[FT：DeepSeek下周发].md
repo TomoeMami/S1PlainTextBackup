@@ -2835,3 +2835,55 @@ DeepSeek有一点发模型的征兆，在往官方群里拉人了…
 Google收紧了第三方Harness通过反代调用Antigravity端口的风控，现在两三个请求就会触发429 ...</blockquote>
 只是针对4argon还是连3.8flash也一样加强风控？
 
+
+*****
+
+####  pure_liquid  
+##### 16556#       发表于 2026-10-16 19:25
+
+ChatGPT-6 Sol Instant （即时推理强度）：
+
+<img src="https://img.stage1st.com/forum/202610/16/192227fyuxww2wujkww62w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20261016_191535.jpg</strong> (147.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 19:22 上传
+
+Gemini 4 Argon Low （低推理强度）：
+
+<img src="https://img.stage1st.com/forum/202610/16/192331w94cl3xsyqft2bci.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20261016_191525.jpg</strong> (138.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 19:23 上传
+
+也就是说，是Argon赢了！胜利铭刻于沙漠！
+
+（有人能测一下Opus 5.5的最低思考强度吗？）
+
+*****
+
+####  云卷花开  
+##### 16557#       发表于 2026-10-16 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383738&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-16 19:07</a>
+DeepSeek有一点发模型的征兆，在往官方群里拉人了…</blockquote>
+没那么晚发过，可能性极小
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  Promeus  
+##### 16558#       发表于 2026-10-16 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383815&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-10-16 19:26</a>
+没那么晚发过，可能性极小
+
+Re:Source</blockquote>
+0813忘了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
