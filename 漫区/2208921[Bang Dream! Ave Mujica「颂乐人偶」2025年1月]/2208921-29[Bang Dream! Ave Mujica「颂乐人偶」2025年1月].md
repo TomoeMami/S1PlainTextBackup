@@ -880,3 +880,20 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
 2026-10-16 10:13 上传
 
+
+*****
+
+####  osore  
+##### 42108#       发表于 2026-10-16 10:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都被老登买通还行
+再也没有这么好的集美了
+
+*****
+
+####  阿卡拉兰斯  
+##### 42109#       发表于 2026-10-16 10:35
+
+时间已经让我释怀了，我现在恨不得穿越回1月再看一次母鸡卡
+当年我在局中破防没办法享受，如今同样的机会摆在我的眼前，我一定要好好享受这场狂欢盛宴<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
