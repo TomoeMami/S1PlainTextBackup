@@ -1092,3 +1092,124 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
 可能重点在LIVE吧
 
+
+*****
+
+####  堀内爱里衣  
+##### 42120#       发表于 2026-10-16 17:19
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/16/171924vjjvv0xp0pz2815j.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-16_17-18-24.png</strong> (842.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 17:19 上传
+
+       [https://x.com/bang_dream_info/status/2111019330288939069](https://x.com/bang_dream_info/status/2111019330288939069)
+
+       [https://bang-dream.com/discographies/4238/](https://bang-dream.com/discographies/4238/)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42121#       发表于 2026-10-16 17:21
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/16/172119jj434cyuuxoc6o88.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-16_17-19-39.png</strong> (534.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 17:21 上传
+
+       [https://x.com/bang_dream_info/status/2111020574030098542](https://x.com/bang_dream_info/status/2111020574030098542)
+
+       [https://www.youtube.com/watch?v=-dNVra3gwts](https://www.youtube.com/watch?v=-dNVra3gwts)
+
+       <strong>剧场版「BanG Dream! Ave Mujica prima aurora」主PV 第二弹</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/16/172216ohij4e586fmccm0q.png" referrerpolicy="no-referrer">
+
+<strong>86b6158cdeaf43924de0d438b3d694be02a43b6e.png</strong> (997.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 17:22 上传
+
+☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽
+
+ここはムジカ、美しき調べの世界
+
+这里是Mujica，美妙旋律的世界
+
+☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽
+
+剧场版「BanG Dream! Ave Mujica prima aurora」今日起正式公开。
+
+有机会的朋友们请不要错过！
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+剧场版「BanG Dream! Ave Mujica prima aurora」
+
+详情请见：[https://avemujica-movie.bang-dream.com/](https://avemujica-movie.bang-dream.com/)
+
+※香港、澳门地区将于10月22日起上映。
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica 7th LIVE「Virtus」@ 京王アリーナ TOKYO
+
+DAY1　2026年10月24日(周六)
+
+DAY2　2026年10月25日(周日)
+
+详情请见：[https://bang-dream.com/events/avemujica_7th/](https://bang-dream.com/events/avemujica_7th/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica Mini Album「神の名を」
+
+2026年10月21日(周三)发售
+
+将会收录2026年10月16日公开的剧场版「BanG Dream! Ave Mujica prima aurora」插入曲。
+
+详情请见：[https://bang-dream.com/discographies/4238/](https://bang-dream.com/discographies/4238/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica Best Album「Ave Música」
+
+Streaming/DL：[https://bmu.lnk.to/AveMujica_BestALid](https://bmu.lnk.to/AveMujica_BestALid)
+
+数量限定生产特装盘・Blu-ray附生产限定盘中将会收录Ave Mujica 6th LIVE「Ulterius Procedere」东京公演的影像。
+
+详情请见：[https://bang-dream.com/discographies/4192/](https://bang-dream.com/discographies/4192/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+「BanG Dream! It's MyGO!!!!! / Ave Mujica」续篇TV动画
+
+将于2027年1月起在日本电视台系全国30家电视台播出。
+
+详情请见：[https://anime.bang-dream.com/mygo-avemujica/](https://anime.bang-dream.com/mygo-avemujica/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+✦・━━━━━━━━━━━━━━━ ・✦⁡⁡
+
+◇BanG Dream!
+
+官方网站：[https://bang-dream.com/](https://bang-dream.com/)
+
+BanGDream! bilibili官方：@BanGDream_CN
+
+✦・━━━━━━━━━━━━━━━ ・✦⁡⁡</blockquote>
+      [https://www.bilibili.com/video/BV1MDJX6mEoQ](https://www.bilibili.com/video/BV1MDJX6mEoQ)
+
