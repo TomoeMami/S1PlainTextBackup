@@ -3225,3 +3225,20 @@ TOA其实已经可以自由移动了 TOS才是本质2D 有时候被两拨怪挤�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3个等级的问答游戏全换成新的了，只在TOS TOG TOX TOB这几个已经出了冷饭的上面出题
 
+
+*****
+
+####  空洞骑士  
+##### 298#       发表于 2026-10-16 07:55
+
+总感觉贵了点，还以为按推荐价格等比换算应该118。而且豪华版DLC还是卖148比本体都贵。
+
+<img src="https://img.stage1st.com/forum/202610/16/075303uiuu8jj71tiwu187.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20261016_065106.jpg</strong> (103.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-16 07:53 上传
+
