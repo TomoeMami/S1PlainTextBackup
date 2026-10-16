@@ -3567,3 +3567,14 @@ tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感
 顺便我 上+ 的特技有点难按出 ...</blockquote>
 可以4传5秒白，上+特技按不出是因为调成全手动了吧
 
+
+*****
+
+####  kokyou  
+##### 327#       发表于 2026-10-16 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382168&amp;ptid=2280008" target="_blank">火红之眼 发表于 2026-10-16 14:55</a>
+
+可以4传5秒白，上+特技按不出是因为调成全手动了吧</blockquote>
+哦哦 确实 我是全手动，回去改成半自动看看 谢啦~
+

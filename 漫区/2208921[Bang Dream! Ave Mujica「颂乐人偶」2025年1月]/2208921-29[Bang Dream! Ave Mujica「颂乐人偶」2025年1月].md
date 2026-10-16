@@ -1052,3 +1052,33 @@ BanGDream! bilibili官方：@BanGDream_CN   
 
        [https://t.bilibili.com/1259648626610667524](https://t.bilibili.com/1259648626610667524)
 
+
+*****
+
+####  梅杜莎  
+##### 42118#       发表于 2026-10-16 15:00
+
+<img src="https://img.stage1st.com/forum/202610/16/150021hiq8winxzfchhhpp.png" referrerpolicy="no-referrer">
+
+<strong>ReSource_1792128376735.png</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 15:00 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/150026sll84xtzh9lxwjex.png" referrerpolicy="no-referrer">
+
+<strong>ReSource_1792132228662.png</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 15:00 上传
+
+<img src="https://img.stage1st.com/forum/202610/16/150029dlb6rg5ddltdgotf.png" referrerpolicy="no-referrer">
+
+<strong>ReSource_1792128376772.png</strong> (100.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-16 15:00 上传
+
