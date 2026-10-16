@@ -3613,3 +3613,14 @@ tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感
 
 突然想到现在ps都是x确认了，这次不会有这个问题了吧
 
+
+*****
+
+####  chaosp  
+##### 331#       发表于 2026-10-16 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382493&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-10-16 15:38</a>
+
+不慌 我一怒直接不买了 等真打折到80再见</blockquote>
+感觉小黑盒也会很快降价的样子
+
