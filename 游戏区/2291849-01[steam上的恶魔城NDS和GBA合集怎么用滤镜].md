@@ -412,3 +412,19 @@ NDS：肖像&gt;苍月&gt;&gt;刻印</blockquote>
 
 至少白夜修正各种问题后还是好玩的
 
+
+*****
+
+####  helix  
+##### 42#       发表于 2026-10-17 10:20
+
+ 本帖最后由 helix 于 2026-10-17 10:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70385672&amp;ptid=2291849" target="_blank">syndrome2032 发表于 2026-10-17 08:18</a>
+内置倒带和sl，外置图鉴所以月轮知道什么怪掉卡。苍月的魔法阵触摸变成限时按键游戏。
+
+但是原汁原味所以 ...</blockquote>
+当时我就手抖拿boss魂升级了武器，气得差点没继续玩下去
+现在rom倒是有修正幸运bug的补丁，不知道有没有人移植到steam版
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

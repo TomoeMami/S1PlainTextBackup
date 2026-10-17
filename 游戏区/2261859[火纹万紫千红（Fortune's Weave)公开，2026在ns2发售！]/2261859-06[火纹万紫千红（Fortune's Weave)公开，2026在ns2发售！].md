@@ -3879,3 +3879,34 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 具体要花费什么 属性是如何改变的这种
 
+
+*****
+
+####  纯夏  
+##### 7786#       发表于 2026-10-17 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70385980&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-10-17 09:53</a>
+
+现在有没有关于单线融合和多线融合的攻略？
+
+具体要花费什么 属性是如何改变的这种 ...</blockquote>
+单线融合是要求你打通一个主角的第1部+第2部 因为4位主角在各自的第2部战争篇通关后会自动进行因果融合
+
+融合时每项能力取两边最高的数值 习得的技能 战技 特技也会继承
+
+主角以外的角色在因果祭坛选“同伴的因果融合”来合并培养结果 
+
+多线融合是说在第3部救世篇可以在方尖塔之间进行因果结合 
+
+这个会消耗你完成伟业获得的因果碎片 可以把前面4条线里练过的角色的能力值 特技 战技取最高值合并
+
+具体继承关系如图：
+
+<img src="https://img.stage1st.com/forum/202610/17/101400gm4f6d4krm7h8iv6.png" referrerpolicy="no-referrer">
+
+<strong>因果融合继承关系.png</strong> (234.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 10:14 上传
+

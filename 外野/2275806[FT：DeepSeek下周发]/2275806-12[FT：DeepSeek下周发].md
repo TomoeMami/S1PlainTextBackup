@@ -3514,3 +3514,29 @@ GPT 和哈基米都有跨会话的记忆
 你还真信opencode能自己部署V4 Pro级别的模型并且做到官方价格啊？它根本没这个本事，之前吹了半天的复现V ...</blockquote>
 不是，Open Code就是自己部署的。前几天Deepseek中断了四五个小时你知道吧？当时Open Code的deepseek是可以正常用的。
 
+
+*****
+
+####  qwased  
+##### 16613#       发表于 2026-10-17 10:13
+
+官方api的df41模型换了，谁在用说说有没有变化
+
+
+*****
+
+####  飞剪号  
+##### 16614#       发表于 2026-10-17 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70385837&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-17 09:17</a>
+
+不是，Open Code就是自己部署的。前几天Deepseek中断了四五个小时你知道吧？当时Open Code的deepseek是可 ...</blockquote>
+当时API显示的是“部分中断”，全断的是网页端
+
+*****
+
+####  love4aids  
+##### 16615#       发表于 2026-10-17 10:23
+
+Astra这个过渡防御性编程有点影响观感了，怪不得评价不如5.5
+

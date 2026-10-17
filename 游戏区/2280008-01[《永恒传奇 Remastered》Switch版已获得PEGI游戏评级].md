@@ -3714,3 +3714,11 @@ QQ图片20261017100639.png
 
 <img src="https://img.stage1st.com/forum/202610/17/100734nmribiiub18enqb1.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tsubasa9  
+##### 339#       发表于 2026-10-17 10:23
+
+手贱开了困难，上来被村长家剧情boss的各种高级魔法干傻了
+
