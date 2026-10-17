@@ -6052,3 +6052,20 @@ DSH特地给1017版本做了一个图标，以后是不是小版本更新是常�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一开始她只是一个友善的人工智能
 
+
+*****
+
+####  买码！注册！  
+##### 16854#       发表于 2026-10-18 02:55
+
+远古先民从对自然现象产生崇拜到最终将神灵形象拟人化，用了约300世纪
+
+蓝色大肥鱼只用了3年
+
+*****
+
+####  chuchoselph  
+##### 16855#       发表于 2026-10-18 02:59
+
+自我实现的预言是这样的，AI其实只会长成人类希望他成为的样子，至于AI在西方人眼里是啥样我就不说了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
