@@ -5229,3 +5229,11 @@ ds新的模型视觉识别还行，写了个demo，反推nsfw提示词够用
 
 感觉秦始皇北极熊鹈鹕测试结果也还过得去    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  阿刚  
+##### 16781#       发表于 2026-10-17 19:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">我觉的文笔其实有点提升的？感觉思路更有人味儿了
+

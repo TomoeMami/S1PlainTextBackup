@@ -169,3 +169,11 @@ qp不够点树了，弓树慢慢来吧，现在最烦的还是杀冠人选问题
 
 杀狐越早满15越好吧 我好久没用过双杀狐了 基本都是借好友的
 
+
+*****
+
+####  khxooo  
+##### 48267#       发表于 2026-10-17 19:58
+
+大号杀狐,是10/11，小号是11/12，都不想用<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

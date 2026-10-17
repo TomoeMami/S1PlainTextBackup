@@ -4259,3 +4259,18 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 还真带了。   
 
+
+*****
+
+####  纯夏  
+##### 7819#       发表于 2026-10-17 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386795&amp;ptid=2261859" target="_blank">Gmlazy 发表于 2026-10-17 12:51</a>
+
+还没进第3章，看攻略网站说角色在不同路线都练了，可以选择进入第三章使用的路线数值。
+
+结合第一第二章可以 ...</blockquote>
+当然可以 不过这作即便是困难经典也不用使劲刷数值 敌人真没那么强
+
+第3部只是难在机制上 顺着机制解基本上等于没啥难度
+
