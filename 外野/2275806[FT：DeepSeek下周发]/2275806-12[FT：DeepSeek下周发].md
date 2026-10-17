@@ -5992,3 +5992,29 @@ DSH特地给1017版本做了一个图标，以后是不是小版本更新是常�
 
 这个？
 
+
+*****
+
+####  pure_liquid  
+##### 16849#       发表于 2026-10-18 02:04
+
+<blockquote>黄泉川此方 发表于 2026-10-18 01:56
+这个？</blockquote>
+没有...
+
+<img src="https://img.stage1st.com/forum/202610/18/020355c2gn2s1zxn7m02mv.png" referrerpolicy="no-referrer">
+
+<strong>ds1017_logo_missing.png</strong> (8.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 02:03 上传
+
+
+*****
+
+####  木水风铃  
+##### 16850#       发表于 2026-10-18 02:11
+
+啊？用ccswitch把codex切到ds的好像没看到推理等级max<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">按理高就是high？
+
