@@ -5406,3 +5406,33 @@ workbuddy跑了300多积分吧。提示词就是根据本地的数据库（扒�
 
 fable现在即使出了大部分人也用不上
 
+
+*****
+
+####  tillnight  
+##### 16798#       发表于 2026-10-17 21:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">现在事实就是前端比后端还好追，疑似qwen4也是前端大能。
+
+*****
+
+####  mitzvah  
+##### 16799#       发表于 2026-10-17 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388851&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-17 21:28</a>
+
+现在事实就是前端比后端还好追，疑似qwen4也是前端大能。</blockquote>
+老dsv4.1后端很强的，能根据我的需求修改ds4服务器，fork出完全能用的版本这还不强？
+
+恰恰是前端差得比较远
+
+
+*****
+
+####  lactone  
+##### 16800#       发表于 2026-10-17 21:33
+
+无机酸前端盲测里qwen4内测版本都世界第二了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
