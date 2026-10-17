@@ -5619,3 +5619,81 @@ gemini太容易发情了吧 之前写一些抽象文学gpt6写的还挺好的 �
 Anthropic的模型再怎么指示写出来的东西都带有一种同样的风格。有人喜欢这种调调，我个人觉得看多了有点单调
 Argon的可塑性要强得多
 
+
+*****
+
+####  andychen  
+##### 16818#       发表于 2026-10-17 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389132&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-17 22:31</a>
+思路上确实有提升，但是ai固化的那些遣词用句，我感觉他们是根本没打算训练这块，就是，你能感觉出来他在 ...</blockquote>
+后训练过程本身就是让模型的能力特化，如果集中训练一种能力，其他能力就会下降
+尤其是Agentic Coding会要求模型输出简洁，准确和可量化的结果，人类阅读就会感觉生硬
+
+*****
+
+####  阿刚  
+##### 16819#       发表于 2026-10-17 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389159&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-17 22:38</a>
+
+后训练过程本身就是让模型的能力特化，如果集中训练一种能力，其他能力就会下降
+
+尤其是Agentic Coding会 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">但是这次更新之后，他写作思路有提升了是最奇怪的，之前无论写啥你都能看出来他有一套模板思路去套，这次虽然还有点ai味儿但是明显感觉出来是有新的思路了
+
+*****
+
+####  jojog  
+##### 16820#       发表于 2026-10-17 22:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">agron有什么好用的破甲提示词么
+
+清水的可以写，但是稍微特殊一点的都会被拒
+
+比如女骑士和绿皮这种的
+
+*****
+
+####  冤枉呐  
+##### 16821#       发表于 2026-10-17 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389071&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-17 22:19</a>
+
+https://github.com/petrel-cn/prompt-generator
+
+觉得好用请给一颗星！</blockquote>
+看着就很好用，给星一个
+
+问：api还是有甲的吧，我弄个本地模型还好使啊，老R1
+
+
+*****
+
+####  来都来了  
+##### 16822#       发表于 2026-10-17 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389183&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-10-17 22:44</a>
+
+看着就很好用，给星一个
+
+问：api还是有甲的吧，我弄个本地模型还好使啊，老R1 ...</blockquote>
+该工具自带破甲
+
+*****
+
+####  qwased  
+##### 16823#       发表于 2026-10-17 22:47
+
+<img src="https://img.stage1st.com/forum/202610/17/224654t2892asgp7g8a24u.png" referrerpolicy="no-referrer">
+
+<strong>D42D6D7923E5C2DA20E52280563CA6D6.png</strong> (81.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 22:46 上传
+
+旧事重提，DS R1没出之前，OAI觉得这个定价才匹配他们的模型
+
+没有超级溢价，OA二畜都已经是期货死人了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
