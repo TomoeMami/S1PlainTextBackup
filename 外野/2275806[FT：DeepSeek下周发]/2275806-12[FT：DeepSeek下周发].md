@@ -4759,3 +4759,88 @@ pro憋着伏击fable5.5呢<img src="https://static.stage1st.com/image/smiley/fac
 
 在这个点还在复读0813的我希望都是在玩梗。都应该看明白无印4pro其实是被放弃了，4.1才是原定V4架构的完整版，显然4pro的后训练做一半被放弃了，而且肯定是匆忙放弃的，因为正好碰到疑似新架构（7月灰测）预训练完毕，加上0731定价失误导致算力严重占用，所以只能选择没达到原来的后训练目标就停止了。说白了就是后训练不充分，但是训了一点，所以有时候会神。和最初猜测的什么过拟合完全是相反的。
 
+
+*****
+
+####  Hattle  
+##### 16741#       发表于 2026-10-17 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387679&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-10-17 16:53</a>
+DSH 更新到版本 V0.2.1-rc.1后，更新不了版本 V0.2.1-rc.2，请问该怎么更新？</blockquote>
+现在最新的就是rc1啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qwased  
+##### 16742#       发表于 2026-10-17 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387944&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-17 17:47</a>
+在这个点还在复读0813的我希望都是在玩梗。都应该看明白无印4pro其实是被放弃了，4.1才是原定V4架构的完整 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/17/174941grzz3md4qm7mtdfq.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792230581491_1.webp</strong> (12.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 17:49 上传
+
+ds员工先串的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Penelope  
+##### 16743#       发表于 2026-10-17 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387719&amp;ptid=2275806" target="_blank">KylianMbappe 发表于 2026-10-17 17:03</a>
+
+以后搜索也要单独收费啊</blockquote>
+以前也收费啊。插件的网页搜索里全部留空的情况下，就算用别家的模型，任务完成时偶尔也会扣我个几分一毛的
+
+*****
+
+####  静哮苍穹  
+##### 16744#       发表于 2026-10-17 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387947&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-10-17 17:48</a>
+
+现在最新的就是rc1啊
+
+—— 来自 S1Fun</blockquote>
+最新是rc2，你再看一眼
+
+*****
+
+####  lactone  
+##### 16745#       发表于 2026-10-17 17:51
+
+4.1系最可怕的就是速度。这个速度能用的只有v41flash。如果pro的性能能打astra，哪怕速度是flash砍半，都要斩杀人
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qwased  
+##### 16746#       发表于 2026-10-17 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387939&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-17 17:45</a>
+有一个观察，好像现在思维链会根据任务变化？我让他生成XXX的one shot任务的时候就是we need思维链，我让他 ...</blockquote>
+dsv4是执行模式和规划模式脑裂了，这个版本算是治好了
+
+*****
+
+####  Promeus  
+##### 16747#       发表于 2026-10-17 17:52
+
+说到后训练梁子他们之前搞了个后训练神器Dsec，看起来是发威了
+
+
+*****
+
+####  novem  
+##### 16748#       发表于 2026-10-17 17:55
+
+B站有人宣传deepseek新版本被拿下了，被认为是商业宣传
+

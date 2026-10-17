@@ -4178,3 +4178,43 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 我打完才知道需要破盾。
 
+
+*****
+
+####  tachikoma27  
+##### 7812#       发表于 2026-10-17 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387935&amp;ptid=2261859" target="_blank">星花 发表于 2026-10-17 17:44</a>
+我打完才知道需要破盾。</blockquote>
+不破盾伤害都没有怎么打完
+
+*****
+
+####  无知的小鼠人  
+##### 7813#       发表于 2026-10-17 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387948&amp;ptid=2261859" target="_blank">tachikoma27 发表于 2026-10-17 17:48</a>
+
+不破盾伤害都没有怎么打完</blockquote>
+一个人打一下一层盾，四个人敲完，剩下一半盾就能打出伤害了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 星花 + 1就是这样。
+
+查看全部评分
+
+*****
+
+####  无知的小鼠人  
+##### 7814#       发表于 2026-10-17 17:51
+
+牢霸主要是缺乏给玩家主动上压力的手段，唯一的主动 AOE 太弱了，没有压力
+
