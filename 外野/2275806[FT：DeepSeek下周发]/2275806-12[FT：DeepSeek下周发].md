@@ -3643,3 +3643,29 @@ astra对于脑袋空空只想一句话许愿的用户来说不友好<img src="ht
 个人使用：astra的防御编程相对于5.6sol大幅度改进了，并且智力非常高，用来给屎山擦屁股，非常之牛逼，从 ...</blockquote>
 问题贵啊.  
 
+
+*****
+
+####  startraveller  
+##### 16626#       发表于 2026-10-17 11:12
+
+我Pro呢！ Flash如果能干掉慢成狗的6.1 Sol也行
+
+*****
+
+####  lactone  
+##### 16627#       发表于 2026-10-17 11:16
+
+是不是本来打算14号发然后整崩了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  andychen  
+##### 16628#       发表于 2026-10-17 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386136&amp;ptid=2275806" target="_blank">med 发表于 2026-10-17 10:35</a>
+个人使用：astra的防御编程相对于5.6sol大幅度改进了，并且智力非常高，用来给屎山擦屁股，非常之牛逼，从 ...</blockquote>
+astra使用需要引导，最差也得先让他出个计划自己看一眼再开工
+
