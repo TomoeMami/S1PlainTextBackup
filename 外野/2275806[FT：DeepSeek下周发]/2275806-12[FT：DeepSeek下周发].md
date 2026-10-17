@@ -4234,3 +4234,48 @@ kimi抓人是kimi报警了，而且大概率法务第一时间响应固定证据
 
 不对啊，我的dsv4.1f没变，这也能灰测的吗
 
+
+*****
+
+####  nxmonitor  
+##### 16685#       发表于 2026-10-17 15:45
+
+测了一下，怎么看都是从更大的模型里又蒸了一波…
+
+*****
+
+####  7776169  
+##### 16686#       发表于 2026-10-17 15:46
+
+想问一下，想用那些给开源绘画模型出提示词，然后自己的图片是NSFW的，是不是应该找个智能体接DS再装个破甲上去？
+
+*****
+
+####  lactone  
+##### 16687#       发表于 2026-10-17 15:50
+
+确实已经是新md5指纹了，很神奇
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  阿刚  
+##### 16688#       发表于 2026-10-17 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387434&amp;ptid=2275806" target="_blank">7776169 发表于 2026-10-17 15:46</a>
+
+想问一下，想用那些给开源绘画模型出提示词，然后自己的图片是NSFW的，是不是应该找个智能体接DS再装个破甲 ...</blockquote>
+开源绘画模型看情况的啊，有的压根没有nsfw的数据，你哪怕过了审核他出来的也是不可名状物……需要额外加lora补
+
+
+*****
+
+####  7776169  
+##### 16689#       发表于 2026-10-17 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387451&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-17 15:51</a>
+
+开源绘画模型看情况的啊，有的压根没有nsfw的数据，你哪怕过了审核他出来的也是不可名状物……需要额外加 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">或者这么说，我只想要他们给来的自然语言反推，虽然可以用自己搭的，但是自己显存不够切来切去很烦。。。。。
+
