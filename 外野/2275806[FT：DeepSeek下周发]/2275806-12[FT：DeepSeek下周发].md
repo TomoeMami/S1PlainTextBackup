@@ -5048,3 +5048,62 @@ workbuddy也有个5.8.3的更新，不过它那边好像没有特别强调现在
 速度快还有足够的智商 ...</blockquote>
 luna现在的评价基本就是口水横流，降智降得还不如本地QWEN
 
+
+*****
+
+####  燕山雪  
+##### 16766#       发表于 2026-10-17 19:08
+
+<img src="https://img.stage1st.com/forum/202610/17/190853lj4frxisvx7ld45j.jpg" referrerpolicy="no-referrer">
+
+<strong>1000024691.jpg</strong> (181.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 19:08 上传
+
+*****
+
+####  cscbzcbz  
+##### 16767#       发表于 2026-10-17 19:09
+
+月底还会有pro吗<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Mirathel  
+##### 16768#       发表于 2026-10-17 19:10
+
+<blockquote>hugosol 发表于 2026-10-17 17:09
+虽然看不懂你在说啥但我觉得6.1-sol特别好用，和DS-flash完全不同方向的一种好用
+
+GPT家的模型有一种“无 ...</blockquote>
+爬楼的时候看到有楼友表示对模型性能满意，然后跟帖开始出现astra用不好用户如何如何的评论，这就偏离模型讨论的目的了（而且莫名让我想起v2ex很招人烦的一类群体，让技术交流变成立场和视角上的自我满足），忍不住留个言提示下别被带进去；论坛专楼这种风格的讨论区已经很难找了，我很珍视。
+
+用gpt的模型总有一种我在开凰呀/用JAVA的感觉，手头活儿多起来之后用起来非常压抑，处理这玩意儿发明的黑话+口癖太难受了，强制约束它名词解释还有副作用（调用决策模型都敢把一个“吃了吗”扩展成杰诺斯分析琦玉吃海带的长度……）；另外你一说我才发现我的子代理全都从sol变成astra了，我说这两天额度怎么掉的这么快🫠。
+
+工作性质原因我非常喜欢大肥鱼简练的代码实现，还有可见思维链；如果不需要直接和GPT的代码交互而是使用它的产出成果，不管是合成数据还是环境搭建，应该也不会这么难受，它家这一代的游戏开发能力还是非常不错的。
+
+*****
+
+####  unrealMeeSeeks  
+##### 16769#       发表于 2026-10-17 19:13
+
+原来dsh的工作区读写会给工作区加上低完整性，导致exe可能打不开<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  Litccc  
+##### 16770#       发表于 2026-10-17 19:16
+
+<img src="https://img.stage1st.com/forum/202610/17/191604m4gvri33s549ii0v.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (85.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 19:16 上传
+
+是的，我们有一个孩子<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
