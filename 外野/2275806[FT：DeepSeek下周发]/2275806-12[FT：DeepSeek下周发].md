@@ -4874,3 +4874,79 @@ B站有人宣传deepseek新版本被拿下了，被认为是商业宣传
 
 今天这两次客户端的更新，自动更新不能，只是让dsh手搓脚本自己给自己更新。。。。。。。。。。。。。
 
+
+*****
+
+####  cscbzcbz  
+##### 16752#       发表于 2026-10-17 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388063&amp;ptid=2275806" target="_blank">sennheiser 发表于 2026-10-17 18:18</a>
+今天这两次客户端的更新，自动更新不能，只是让dsh手搓脚本自己给自己更新。。。。。。。。。。。。。 ...</blockquote>
+自动更新有滞后，现在可以了
+
+*****
+
+####  LANGWANG  
+##### 16753#       发表于 2026-10-17 18:31
+
+<img src="https://img.stage1st.com/forum/202610/17/183141wv3h3xb382r383ao.jpg" referrerpolicy="no-referrer">
+
+<strong>img_6442.jpg</strong> (386.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 18:31 上传
+
+这图靠谱吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  lly778  
+##### 16754#       发表于 2026-10-17 18:32
+
+rc2好像有问题
+
+*****
+
+####  Promeus  
+##### 16755#       发表于 2026-10-17 18:32
+
+<img src="https://img.stage1st.com/forum/202610/17/183242zbfybceveicvmtzc.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3477.jpeg</strong> (16.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 18:32 上传
+
+<img src="https://img.stage1st.com/forum/202610/17/183242yb654i6z9ib3r9r3.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3478.jpeg</strong> (33.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 18:32 上传
+
+<img src="https://img.stage1st.com/forum/202610/17/183242xtxststehs8trrs0.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3479.jpeg</strong> (59.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 18:32 上传
+
+*****
+
+####  wandeeees  
+##### 16756#       发表于 2026-10-17 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388106&amp;ptid=2275806" target="_blank">LANGWANG 发表于 2026-10-17 18:31</a>
+
+这图靠谱吗
+
+论坛助手,iPhone</blockquote>
+图靠谱，但是这个榜单不太行，不如看其他榜单了，类似AA，野榜了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">比如看看HLE啥的
+
