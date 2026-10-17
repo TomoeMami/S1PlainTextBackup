@@ -5260,3 +5260,21 @@ opencode的免费ds拉到1m的做法被迅速封印了（
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  gzGaryC  
+##### 16784#       发表于 2026-10-17 20:17
+
+对比上个版本在没额外约束下的表达更符合中文阅读习惯了
+
+*****
+
+####  BarricadeMKXX  
+##### 16785#       发表于 2026-10-17 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388509&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-10-17 20:06</a>
+
+不至于那么夸张，继续压成本是很有戏的，但估计擅长的领域会进一步压缩 ...</blockquote>
+压缩到极限之后把它们打包然后添加路由层，称之为MoMoE<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
