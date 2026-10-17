@@ -1993,3 +1993,15 @@ ULt武装真完蛋，还是4格射程
 
 首先第一波不洗澡就已经很硬了，00F的机体去打的话，要么5射，要么有回避，第一波好歹还能靠NPC去送死。第2波基本硬的离谱，打不死
 
+
+*****
+
+####  blue321  
+##### 4890#       发表于 2026-10-17 09:59
+
+运气好免费十连出了再生，可惜没资源拉突破了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+监牢队这下算是成型了，看看再队里塞哪个蓝机好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
