@@ -6079,3 +6079,158 @@ DSH特地给1017版本做了一个图标，以后是不是小版本更新是常�
 
 — from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  andychen  
+##### 16857#       发表于 2026-10-18 01:00
+
+话说我发现没人讨论随模型更新的搜索API，这东西才是真的便宜啊
+
+已经接到我的环境里了，用几天看看质量如何
+
+*****
+
+####  moekyo  
+##### 16858#       发表于 2026-10-18 01:14
+
+<img src="https://img.stage1st.com/forum/202610/18/011416wkikqe72ulgti2ut.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (94.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 01:14 上传
+
+*****
+
+####  qwased  
+##### 16859#       发表于 2026-10-18 01:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389607&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-18 01:14</a></blockquote>
+就是切推理强度不掉缓存<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  pure_liquid  
+##### 16860#       发表于 2026-10-18 01:54
+
+<blockquote>zack1999 发表于 2026-10-17 22:55
+DSH特地给1017版本做了一个图标，以后是不是小版本更新是常态了？</blockquote>
+看了一下，我这里没有这个图标
+
+我的dsh版本0.2.0-rc.2
+
+模型system_fingerprint进行MD5反推确实是1017
+
+你的这个图标会不会是某个插件产生的？
+
+*****
+
+####  黄泉川此方  
+##### 16861#       发表于 2026-10-18 01:56
+
+<img src="https://img.stage1st.com/forum/202610/18/015556gn16rz5j6k97nu7z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 01:55 上传
+
+这个？
+
+*****
+
+####  pure_liquid  
+##### 16862#       发表于 2026-10-18 02:04
+
+<blockquote>黄泉川此方 发表于 2026-10-18 01:56
+这个？</blockquote>
+没有...
+
+<img src="https://img.stage1st.com/forum/202610/18/020355c2gn2s1zxn7m02mv.png" referrerpolicy="no-referrer">
+
+<strong>ds1017_logo_missing.png</strong> (8.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 02:03 上传
+
+*****
+
+####  木水风铃  
+##### 16863#       发表于 2026-10-18 02:11
+
+啊？用ccswitch把codex切到ds的好像没看到推理等级max<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">按理高就是high？
+
+*****
+
+####  moekyo  
+##### 16864#       发表于 2026-10-18 02:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389664&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-18 01:54</a>
+
+看了一下，我这里没有这个图标
+
+我的dsh版本0.2.0-rc.2</blockquote>
+一开始我的也是，就是要升级到 0.2.1-rc.2 才有
+
+*****
+
+####  moekyo  
+##### 16865#       发表于 2026-10-18 02:26
+
+<img src="https://img.stage1st.com/forum/202610/18/022630mh9n44ay64xwhw9n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (252.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 02:26 上传
+
+*****
+
+####  黄泉川此方  
+##### 16866#       发表于 2026-10-18 02:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一开始她只是一个友善的人工智能
+
+*****
+
+####  买码！注册！  
+##### 16867#       发表于 2026-10-18 02:55
+
+远古先民从对自然现象产生崇拜到最终将神灵形象拟人化，用了约300世纪
+
+蓝色大肥鱼只用了3年
+
+*****
+
+####  chuchoselph  
+##### 16868#       发表于 2026-10-18 02:59
+
+自我实现的预言是这样的，AI其实只会长成人类希望他成为的样子，至于AI在西方人眼里是啥样我就不说了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  astrayveller  
+##### 16869#       发表于 2026-10-18 03:47
+
+笑死 search/fetch api终于把自己家harness也限免了
+
+— from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  lactone  
+##### 16870#       发表于 2026-10-18 05:27
+
+感觉1017把一波人打破防了
+
+空口鉴蒸已经开始了
+
+前几天还是美国模型都防蒸了这下国模完蛋了，今天就变成蒸astra了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
