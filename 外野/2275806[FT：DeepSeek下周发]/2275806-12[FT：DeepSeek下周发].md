@@ -5363,3 +5363,16 @@ opencode的免费ds拉到1m的做法被迅速封印了（
 
 我怎么感觉6.1sol这两天突然聪明了
 
+
+*****
+
+####  BISSBISS  
+##### 16794#       发表于 2026-10-17 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388679&amp;ptid=2275806" target="_blank">nukejoker 发表于 2026-10-17 20:46</a>
+
+用deepseek做了个网页版的大航海时代ol  https://voyage-log.app.workbuddy.host/
+
+欢迎测试和批评。 ...</blockquote>
+花了多少，提示词是啥<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
