@@ -2013,3 +2013,38 @@ ULt武装真完蛋，还是4格射程
 
 免费能出货的吗<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  captoon  
+##### 4892#       发表于 2026-10-17 10:47
+
+<img src="https://img.stage1st.com/forum/202610/17/104621yf4pkdhr6ip6rfhq.png" referrerpolicy="no-referrer">
+
+<strong>00F65576488E10E0EB3C5CAB6436B1EC.png</strong> (423.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 10:46 上传
+
+<img src="https://img.stage1st.com/forum/202610/17/104622ops9js9fy0wzszh0.png" referrerpolicy="no-referrer">
+
+<strong>DD3E84BDD041C7D4B2B3775AC22CBD8C.png</strong> (427.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 10:46 上传
+
+白狗活动，BUFF加满后，我方数据，第一次打这么富裕的战斗
+
+2队3台先解决钢坦克，然后下面1队就是摧枯拉朽了
+
+C5E423D38F92CAD2C205BB6430E7B5DF.jpg
+(435.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 10:46 上传
+
+<img src="https://img.stage1st.com/forum/202610/17/104622bqne0kvi7o2quyuq.jpg" referrerpolicy="no-referrer">
+

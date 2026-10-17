@@ -3600,3 +3600,26 @@ astra对于脑袋空空只想一句话许愿的用户来说不友好<img src="ht
 不过我这里看是beam free啊</blockquote>
 好像很拉，应该不是kimi
 
+
+*****
+
+####  FACS  
+##### 16622#       发表于 2026-10-17 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386136&amp;ptid=2275806" target="_blank">med 发表于 2026-10-17 10:35</a>
+个人使用：astra的防御编程相对于5.6sol大幅度改进了，并且智力非常高，用来给屎山擦屁股，非常之牛逼，从 ...</blockquote>
+对于plus用户二十分钟不到就挂机了，根本用不起<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 16623#       发表于 2026-10-17 10:57
+
+<img src="https://img.stage1st.com/forum/202610/17/105737yl5odlalx6hpzzuw.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>522ba3da1d88c565d6ba2ba9f687ea55.jpeg</strong> (160.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 10:57 上传
+

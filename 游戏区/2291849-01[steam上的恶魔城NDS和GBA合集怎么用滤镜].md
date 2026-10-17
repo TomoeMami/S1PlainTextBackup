@@ -428,3 +428,14 @@ NDS：肖像&gt;苍月&gt;&gt;刻印</blockquote>
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  syndrome2032  
+##### 43#       发表于 2026-10-17 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386083&amp;ptid=2291849" target="_blank">helix 发表于 2026-10-17 10:20</a>
+当时我就手抖拿boss魂升级了武器，气得差点没继续玩下去
+现在rom倒是有修正幸运bug的补丁，不知道有没有 ...</blockquote>
+n网有人做了mod，修幸运bug，还有别的mod，强化j叔，让鞭子攻击带圣和火属性。不过都是老东西所以不知道还能用不，还有可能互相冲突。
+
