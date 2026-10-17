@@ -4493,3 +4493,61 @@ DeepSeek V4.1 Flash 新版本：许愿式编程一键成真<img src="https://sta
 
 —— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  2017.05.04  
+##### 16713#       发表于 2026-10-17 16:35
+
+这俩api接口如果好使可是个不错的生意
+
+—— 来自 HUAWEI CMM-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  zy450  
+##### 16714#       发表于 2026-10-17 16:36
+
+什么时候DS FLASH能超过OPS5.5
+
+*****
+
+####  cscbzcbz  
+##### 16715#       发表于 2026-10-17 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387628&amp;ptid=2275806" target="_blank">zy450 发表于 2026-10-17 16:36</a>
+什么时候DS FLASH能超过OPS5.5</blockquote>
+等千呼万唤没出来的4.1pro<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 16716#       发表于 2026-10-17 16:37
+
+一个闪电一样速度的还便宜的5.6sol<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 16717#       发表于 2026-10-17 16:39
+
+我现在真的怀疑本来应该是周四推出来的，结果把服务器玩炸了，被梁子抓起来周六加班<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 16718#       发表于 2026-10-17 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387636&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-17 16:39</a>
+
+我现在真的怀疑本来应该是周四推出来的，结果把服务器玩炸了，被梁子抓起来周六加班 ...</blockquote>
+基本就是这样，然后正好返一波钱测新模型……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zy450  
+##### 16719#       发表于 2026-10-17 16:43
+
+好像DS这个版本很便宜，之前画个黑洞花了几块钱，这次才7毛
+
