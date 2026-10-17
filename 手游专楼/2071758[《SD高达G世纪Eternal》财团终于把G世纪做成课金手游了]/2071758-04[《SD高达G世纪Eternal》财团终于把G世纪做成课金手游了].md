@@ -2048,3 +2048,11 @@ C5E423D38F92CAD2C205BB6430E7B5DF.jpg
 
 <img src="https://img.stage1st.com/forum/202610/17/104622bqne0kvi7o2quyuq.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ドロロ  
+##### 4893#       发表于 2026-10-17 18:15
+
+法克了，怒氪了100抽就出来个力天使，没抽到再生<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

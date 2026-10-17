@@ -4854,3 +4854,15 @@ B站有人宣传deepseek新版本被拿下了，被认为是商业宣传
 
 速度快还有足够的智商秒杀，并行跑方案就是快，luna 根本无法用
 
+
+*****
+
+####  Hattle  
+##### 16750#       发表于 2026-10-17 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387955&amp;ptid=2275806" target="_blank">静哮苍穹 发表于 2026-10-17 17:50</a>
+最新是rc2，你再看一眼</blockquote>
+擦，还真是。怎么更新这么快<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

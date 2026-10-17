@@ -1327,3 +1327,150 @@ BanGDream! bilibili官方：@BanGDream_CN
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">父母之爱子，则为之计深远
 
+
+*****
+
+####  堀内爱里衣  
+##### 42129#       发表于 2026-10-17 18:09
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/17/180911zvkq7i190kobb9ii.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-17_18-08-09.png</strong> (1000.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 18:09 上传
+
+       [https://x.com/bang_dream_info/status/2111390935896719412](https://x.com/bang_dream_info/status/2111390935896719412)
+
+       [https://avemujica-movie.bang-dream.com](https://avemujica-movie.bang-dream.com)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42130#       发表于 2026-10-17 18:12
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/17/181201o9mf6eisrh954be9.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-17_18-09-30.png</strong> (789.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 18:12 上传
+
+       [https://x.com/bang_dream_info/status/2111397053620490264](https://x.com/bang_dream_info/status/2111397053620490264)
+
+       [https://www.youtube.com/watch?v=Y3c9mlyyKFM](https://www.youtube.com/watch?v=Y3c9mlyyKFM)
+
+       <strong>「神の名を（God's Blood）」（剧场版「BanG Dream! Ave Mujica prima aurora」插曲）Short ver.</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/17/181200lfsvvbd4ff16xb74.png" referrerpolicy="no-referrer">
+
+<strong>46f3798be998bf48caa60fd296e9b60dd98465b7.png</strong> (925.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 18:12 上传
+
+╋━━━━━━━
+
+ここはムジカ、美しき調べの世界
+
+这里是Mujica，美妙旋律的世界
+
+　　　　━━━━━━━╋
+
+剧场版「BanG Dream! Ave Mujica prima aurora」
+
+插曲「神の名を（God's Blood）」Short ver. 公开。
+
+「神の名を」
+
+Produced by Diggy-MO’
+
+作词 : Diggy-MO’
+
+作曲 : Diggy-MO’, hisakuni(SUPA LOVE)
+
+编曲 : Diggy-MO’
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+剧场版「BanG Dream! Ave Mujica prima aurora」
+
+好评上映中。
+
+详情：[https://avemujica-movie.bang-dream.com/](https://avemujica-movie.bang-dream.com/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica 7th LIVE「Virtus」@ 京王アリーナ TOKYO
+
+DAY1　2026年10月24日(周六)
+
+DAY2　2026年10月25日(周日)
+
+详情：[https://bang-dream.com/events/avemujica_7th/](https://bang-dream.com/events/avemujica_7th/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica「A Song Of Romance」
+
+各大音乐平台先行上线。
+
+链接：[https://bmu.lnk.to/AveMujica_A_Song_Of_Romanceid](https://bmu.lnk.to/AveMujica_A_Song_Of_Romanceid)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica ミニAlbum「神の名を」
+
+2026年10月21日(周三)发售
+
+收录剧场版「BanG Dream! Ave Mujica prima aurora」的插曲。
+
+详情：[https://bang-dream.com/discographies/4238/](https://bang-dream.com/discographies/4238/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica Best Album「Ave Música」
+
+Streaming/DL：[https://bmu.lnk.to/AveMujica_BestALid](https://bmu.lnk.to/AveMujica_BestALid)
+
+「数量限定生産特装盤」・「Blu-ray付生産限定盤」将会收录
+
+Ave Mujica 6th LIVE「Ulterius Procedere」东京公演的影像。
+
+详情：[https://bang-dream.com/discographies/4192/](https://bang-dream.com/discographies/4192/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+「BanG Dream! It's MyGO!!!!! / Ave Mujica」续篇TV动画
+
+2027年1月正式播出。
+
+详情：[https://anime.bang-dream.com/mygo-avemujica/](https://anime.bang-dream.com/mygo-avemujica/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+✦・━━━━━━━━━━━━━━━ ・✦⁡⁡
+
+◇バンドリ！
+
+公式サイト：[https://bang-dream.com/](https://bang-dream.com/)
+
+公式X：[https://x.com/bang_dream_info](https://x.com/bang_dream_info)
+
+◇Ave Mujica
+
+公式YouTubeチャンネル：[https://www.youtube.com/channel/UCrWC59UUMETuCp9IYUdjVbg](https://www.youtube.com/channel/UCrWC59UUMETuCp9IYUdjVbg)
+
+公式X：[https://x.com/BDP_AveMujica](https://x.com/BDP_AveMujica)
+
+✦・━━━━━━━━━━━━━━━ ・✦⁡⁡"</blockquote>
+       [https://www.bilibili.com/video/BV1g5Je68EPa](https://www.bilibili.com/video/BV1g5Je68EPa)
+
