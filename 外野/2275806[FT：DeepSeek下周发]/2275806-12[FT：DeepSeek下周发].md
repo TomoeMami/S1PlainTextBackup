@@ -3477,3 +3477,16 @@ OpenCode上了个LL Alpha，疑似kimi</blockquote>
 </blockquote>
 大概率又是公然路由器换数据，要规避风险。
 
+
+*****
+
+####  neptunehs  
+##### 16610#       发表于 2026-10-17 08:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70385651&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-17 08:09</a>
+大概率又是公然路由器换数据，要规避风险。</blockquote>
+如果真是路由反而值得试一试
+做几个check没有明显问题就直接接入现在的主要项目看看效果 万一跟上次exo free一样路由的是ao呢（虽然初看起来不像
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
