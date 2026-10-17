@@ -5589,3 +5589,33 @@ mimo2.6是个啥货色还值得讨论吗
 workbuddy跑了300多积分吧。提示词就是根据本地的数据库（扒了个大航海时代ol的资料库下来），然后让AI照 ...</blockquote>
 哪路或多！
 
+
+*****
+
+####  绿色食品  
+##### 16815#       发表于 2026-10-17 22:30
+
+gemini太容易发情了吧 之前写一些抽象文学gpt6写的还挺好的 给哈基米写**就狂发情 公式 写正经的真不如gpt有意思 之前写了篇卡尔维诺和科塔萨尔杂交主角卡拉马佐夫的卡嘉标题叫711的小说 gpt真的牛批 写的非常好.
+
+*****
+
+####  阿刚  
+##### 16816#       发表于 2026-10-17 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389014&amp;ptid=2275806" target="_blank">绿色食品 发表于 2026-10-17 22:04</a>
+
+写文怎么样 有人测了吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">思路上确实有提升，但是ai固化的那些遣词用句，我感觉他们是根本没打算训练这块，就是，你能感觉出来他在思路上有进步，但是文笔上丝毫没提升
+
+*****
+
+####  andychen  
+##### 16817#       发表于 2026-10-17 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389111&amp;ptid=2275806" target="_blank">Anarkia 发表于 2026-10-17 22:27</a>
+感觉新4.1文笔比Argon在线，就是脑子有限幻觉还是严重，不容易遵守设定
+
+用来用去写东西还是Opus最好 ...</blockquote>
+Anthropic的模型再怎么指示写出来的东西都带有一种同样的风格。有人喜欢这种调调，我个人觉得看多了有点单调
+Argon的可塑性要强得多
+

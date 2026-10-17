@@ -3108,3 +3108,14 @@ FF16那个demo你们能看得出来行，也是厉害，光开头的不死鸟打
 
 又不能选主角性别啊，难道se还不清楚女性主人公的游戏更好卖吗？
 
+
+*****
+
+####  FBC档案部专员  
+##### 313#       发表于 2026-10-17 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389030&amp;ptid=2283081" target="_blank">asikies 发表于 2026-10-17 22:08</a>
+
+又不能选主角性别啊，难道se还不清楚女性主人公的游戏更好卖吗？</blockquote>
+对SE来说还真不是
+
