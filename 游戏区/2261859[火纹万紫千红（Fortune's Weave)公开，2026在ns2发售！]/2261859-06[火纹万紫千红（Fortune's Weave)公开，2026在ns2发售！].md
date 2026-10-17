@@ -4080,3 +4080,30 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 有什么网站可以看全部人物可学技能的吗 
 
+
+*****
+
+####  无知的小鼠人  
+##### 7803#       发表于 2026-10-17 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387313&amp;ptid=2261859" target="_blank">oniwarud 发表于 2026-10-17 15:08</a>
+
+初音拿到体格10之后就可以转飞兵了吗，第三部是转天马还是龙骑</blockquote>
+天马，龙骑将领的成长被下毒了，去掉魅力和魔力，天马最上级职业有效成长有70，龙骑只有55
+
+虽然初音追不了人，但也能防一下被勇士追
+
+而且圣天马好抓，第一章就可以抓
+
+*****
+
+####  无知的小鼠人  
+##### 7804#       发表于 2026-10-17 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387371&amp;ptid=2261859" target="_blank">任毒瘤 发表于 2026-10-17 15:24</a>
+
+有什么网站可以看全部人物可学技能的吗</blockquote>
+[https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?tab=ps06wo&amp;nlc=1](https://docs.qq.com/sheet/DV0N0VUZLSXRmUWFq?tab=ps06wo&amp;nlc=1)
+
+国内最全的就这个吧，我感觉这个是够用了
+

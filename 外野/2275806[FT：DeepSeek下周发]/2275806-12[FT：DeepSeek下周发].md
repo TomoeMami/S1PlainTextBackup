@@ -4279,3 +4279,46 @@ kimi抓人是kimi报警了，而且大概率法务第一时间响应固定证据
 开源绘画模型看情况的啊，有的压根没有nsfw的数据，你哪怕过了审核他出来的也是不可名状物……需要额外加 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">或者这么说，我只想要他们给来的自然语言反推，虽然可以用自己搭的，但是自己显存不够切来切去很烦。。。。。
 
+
+*****
+
+####  很久就在那边l  
+##### 16690#       发表于 2026-10-17 15:56
+
+opencode免费的ds和glm反代出来也是1m上下文，他的限制在客户端写的
+
+*****
+
+####  阿刚  
+##### 16691#       发表于 2026-10-17 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387466&amp;ptid=2275806" target="_blank">7776169 发表于 2026-10-17 15:53</a>
+
+或者这么说，我只想要他们给来的自然语言反推，虽然可以用自己搭的，但是自己显存不够切来切去很烦。。。 ...</blockquote>
+那你直接让ds给你反推提示词不就行了？还是说你是想要图形重绘，开源在线的哪怕是api也加不上破甲，他们图形识别了nsfw就直接截断了好像
+
+
+*****
+
+####  ov_efly  
+##### 16692#       发表于 2026-10-17 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387380&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-17 15:27</a>
+
+不是，怎么昨天微博上一堆财经大v传梁子润了
+
+这套路都不换一换吗</blockquote>
+不刷微博的很好奇传的理由是什么？是什么触发了这群大 V 的底层认知开关，认为梁需要润的？
+
+*****
+
+####  宅男的爱  
+##### 16693#       发表于 2026-10-17 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387466&amp;ptid=2275806" target="_blank">7776169 发表于 2026-10-17 15:53</a>
+
+或者这么说，我只想要他们给来的自然语言反推，虽然可以用自己搭的，但是自己显存不够切来切去很烦。。。 ...</blockquote>
+显存不够拆workflow吧，其实现在all in one的workflow思路很没必要
+
+折腾破甲 ≈ 折腾酒馆
+
