@@ -5891,3 +5891,30 @@ workbuddy 的域名是咋搞的，开了个云服务器吗还是运行在你自�
 —— 来自 OnePlus PYB110, An ...</blockquote>
 不是，全部交给workbuddy了，我甚至连原理都没搞清楚问了它一下该怎么生成个网页去哪里搞域名它就pia地给我生成个网页了~
 
+
+*****
+
+####  大暴死  
+##### 16841#       发表于 2026-10-17 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387434&amp;ptid=2275806" target="_blank">7776169 发表于 2026-10-17 15:46</a>
+想问一下，想用那些给开源绘画模型出提示词，然后自己的图片是NSFW的，是不是应该找个智能体接DS再装个破甲 ...</blockquote>
+如果是qwen image2.1的话，本体模型和提示词增强的pe模型hf上都有不少uc/heretic版可以直接用，非特殊场景的nsfw不用lora都可以直出<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  千秋难诉  
+##### 16842#       发表于 2026-10-17 23:46
+
+靠1017把移植的战神3的繁中挖出来了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/17/234559p832182724dvzddz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (260.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 23:45 上传
+

@@ -4282,3 +4282,13 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 被第三章满地瘴气和数值打了初见杀，大鸟确实离谱。第一个boss一下一个小朋友吓了一跳，猫猫头血少扛不住，重开以后靠初音和尼涅堵桥耗死了
 
+
+*****
+
+####  月华刹那  
+##### 7821#       发表于 2026-10-17 23:41
+
+第三部加入的另外那4个主角数值都被砍了吧，特别白发鬼
+
+得要等DLC补完了再打第三部才是完全体<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
