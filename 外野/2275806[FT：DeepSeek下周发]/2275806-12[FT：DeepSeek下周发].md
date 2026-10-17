@@ -5376,3 +5376,33 @@ opencode的免费ds拉到1m的做法被迅速封印了（
 欢迎测试和批评。 ...</blockquote>
 花了多少，提示词是啥<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nukejoker  
+##### 16795#       发表于 2026-10-17 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388788&amp;ptid=2275806" target="_blank">BISSBISS 发表于 2026-10-17 21:13</a>
+
+花了多少，提示词是啥</blockquote>
+workbuddy跑了300多积分吧。提示词就是根据本地的数据库（扒了个大航海时代ol的资料库下来），然后让AI照着资料库和地图一步步做。中途还去解包了下官方的客户端扒了音乐和部分图片文件下来，可惜文本看样子是在服务端的，没找到。
+
+
+*****
+
+####  Vneeto  
+##### 16796#       发表于 2026-10-17 21:24
+
+<blockquote>Lucario 发表于 2026-10-17 20:27
+不可能啦 不然岂不是官方认证这个二创形象了，现在唯一官方形象还是logo的蓝色鲸鱼 ...</blockquote>
+鲸鱼本体fumo也行:D
+
+*****
+
+####  jojog  
+##### 16797#       发表于 2026-10-17 21:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">前端审美要是这么好训的话那opus5.5其实没啥护城河啊
+
+fable现在即使出了大部分人也用不上
+
