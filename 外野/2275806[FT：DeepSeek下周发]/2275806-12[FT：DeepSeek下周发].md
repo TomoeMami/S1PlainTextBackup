@@ -3669,3 +3669,34 @@ astra对于脑袋空空只想一句话许愿的用户来说不友好<img src="ht
 个人使用：astra的防御编程相对于5.6sol大幅度改进了，并且智力非常高，用来给屎山擦屁股，非常之牛逼，从 ...</blockquote>
 astra使用需要引导，最差也得先让他出个计划自己看一眼再开工
 
+
+*****
+
+####  cscbzcbz  
+##### 16629#       发表于 2026-10-17 11:18
+
+思维链变成we need了，基本看不到let me
+速度还是250t/s
+结果还没有跑出来
+
+
+*****
+
+####  lactone  
+##### 16630#       发表于 2026-10-17 11:21
+
+0910这个checkpoint才一个月出头吧，难道dsflash以后打算一个月一迭代
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  andychen  
+##### 16631#       发表于 2026-10-17 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386343&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-17 11:21</a>
+0910这个checkpoint才一个月出头吧，难道dsflash以后打算一个月一迭代
+
+—— 来自 vivo V2505A, Android 16 ...</blockquote>
+应该不会，ds模型一般只会更新一个checkpoint
+
