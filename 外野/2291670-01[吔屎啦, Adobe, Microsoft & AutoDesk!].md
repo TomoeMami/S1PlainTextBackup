@@ -2235,3 +2235,25 @@ S1这点体量管理员就三天两头喝茶了，你要做个有人用的开源
 
 2026-10-18 03:52 上传
 
+
+*****
+
+####  WiiGe  
+##### 190#         楼主| 发表于 2026-10-18 03:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70369754&amp;ptid=2291670" target="_blank">Glaceon丶 发表于 2026-10-14 11:15</a>
+
+有点强，能不能来个SimCraft把仿真软件也整一手（ansys，abaqus这些）
+
+—— 来自 vivo V2303A, Android 15 ...</blockquote>
+已加入猎杀名单:
+https://github.com/tangency-labs/fieldcraft
+
+<img src="https://img.stage1st.com/forum/202610/18/035846uo4w6w5ee8bpewee.png" referrerpolicy="no-referrer">
+
+<strong>0fc6a35b-ddf5-451e-96c8-35be399c7309.png</strong> (808.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 03:58 上传
+
