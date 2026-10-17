@@ -2210,3 +2210,28 @@ S1这点体量管理员就三天两头喝茶了，你要做个有人用的开源
 都试了，还问了ds，按他的推荐用了便携应用注册PortableRegistrator_v1.5，添加1%,也不成功。看起来只能 ...</blockquote>
 无端猜想，会不会和权限有关？
 
+
+*****
+
+####  WiiGe  
+##### 189#         楼主| 发表于 2026-10-18 03:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70367765&amp;ptid=2291670" target="_blank">KDConan 发表于 2026-10-13 22:55</a>
+
+中文支持咋样？
+
+想要project平替</blockquote>
+已加入猎杀名单:
+[https://github.com/UCS-Care-Group/projectcraft](https://github.com/UCS-Care-Group/projectcraft)
+
+和
+[https://github.com/rallegretti/PlanCraft](https://github.com/rallegretti/PlanCraft)
+
+<img src="https://img.stage1st.com/forum/202610/18/035247vffbtg9sg395fe8q.png" referrerpolicy="no-referrer">
+
+<strong>gantt.png</strong> (327.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 03:52 上传
+
