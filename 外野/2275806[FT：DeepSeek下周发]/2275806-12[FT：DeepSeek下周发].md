@@ -5697,3 +5697,79 @@ https://github.com/petrel-cn/prompt-generator
 
 没有超级溢价，OA二畜都已经是期货死人了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RobinEatCorn  
+##### 16824#       发表于 2026-10-17 22:48
+
+这个版本思考强度是推荐high还是max？
+
+*****
+
+####  BarricadeMKXX  
+##### 16825#       发表于 2026-10-17 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389204&amp;ptid=2275806" target="_blank">RobinEatCorn 发表于 2026-10-17 22:48</a>
+
+这个版本思考强度是推荐high还是max？</blockquote>
+看起来可以开max了
+
+*****
+
+####  qwased  
+##### 16826#       发表于 2026-10-17 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389204&amp;ptid=2275806" target="_blank">RobinEatCorn 发表于 2026-10-17 22:48</a>
+
+这个版本思考强度是推荐high还是max？</blockquote>
+DSH可以随时调强度不掉缓存
+
+用max就行
+
+*****
+
+####  冤枉呐  
+##### 16827#       发表于 2026-10-17 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389191&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-17 22:45</a>
+
+该工具自带破甲</blockquote>
+试了一下
+
+效果很牛逼
+
+建议，未来针对不同的生图模型范式做个适配？比如我用的anima，据说得符合它习惯的提示词效果更好
+
+*****
+
+####  来都来了  
+##### 16828#       发表于 2026-10-17 22:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389221&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-10-17 22:52</a>
+
+试了一下
+
+效果很牛逼
+
+建议，未来针对不同的生图模型范式做个适配？比如我用的anima，据说得符合它习惯的 ...</blockquote>
+额外指令后面加一句话：用自然语言生成。
+
+工具通过大语言模型来理解你的输入，所以你可以开动脑筋来输入各种不同的指令，工具都能理解。
+
+
+*****
+
+####  zack1999  
+##### 16829#       发表于 2026-10-17 22:55
+
+<img src="https://img.stage1st.com/forum/202610/17/225443mehqhhqk91ke4h2h.png" referrerpolicy="no-referrer">
+
+<strong>IMG20261017-225425312.png</strong> (15.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 22:54 上传
+
+DSH特地给1017版本做了一个图标，以后是不是小版本更新是常态了？
+
