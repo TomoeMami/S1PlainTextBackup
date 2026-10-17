@@ -5278,3 +5278,14 @@ opencode的免费ds拉到1m的做法被迅速封印了（
 不至于那么夸张，继续压成本是很有戏的，但估计擅长的领域会进一步压缩 ...</blockquote>
 压缩到极限之后把它们打包然后添加路由层，称之为MoMoE<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lucario  
+##### 16786#       发表于 2026-10-17 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388357&amp;ptid=2275806" target="_blank">千秋难诉 发表于 2026-10-17 19:36</a>
+
+梁圣什么时候出个正版大肥鱼fumo吧，求求了</blockquote>
+不可能啦 不然岂不是官方认证这个二创形象了，现在唯一官方形象还是logo的蓝色鲸鱼
+
