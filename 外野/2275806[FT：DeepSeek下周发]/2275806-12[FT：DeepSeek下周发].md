@@ -4950,3 +4950,50 @@ rc2好像有问题
 论坛助手,iPhone</blockquote>
 图靠谱，但是这个榜单不太行，不如看其他榜单了，类似AA，野榜了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">比如看看HLE啥的
 
+
+*****
+
+####  大肥鱼  
+##### 16757#       发表于 2026-10-17 18:38
+
+对了，说起来有个事情得和大家分享一下：好像每一次大肥鱼的更新，都会在更新一段时间以后，没什么甲。
+这个事情我还是刚才刷贴吧的时候，看到有人提到，才突然想起来的。
+有兴趣的朋友也可以趁现在这个时候好好玩一玩。我刚才尝试了一下，的确甲一下子变得薄了很多。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  eno_emos  
+##### 16758#       发表于 2026-10-17 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387719&amp;ptid=2275806" target="_blank">KylianMbappe 发表于 2026-10-17 17:03</a>
+
+以后搜索也要单独收费啊</blockquote>
+搜索一直是收费的
+
+之前如果用response或者message接口的ds，模型会自己调用内置的搜索工具，结果类似网页版那个搜索
+
+显然搜索返回的结果不可能命中缓存，所以一定是按照未命中计token费用，返回的内容多的话那就费用起飞了
+
+chat接口没这个工具所以模型会说它无法搜索网络
+
+梁圣给单独拎出来1000次搜索五块钱，已经是大降价了
+
+*****
+
+####  龙骑士尹志平  
+##### 16759#       发表于 2026-10-17 18:44
+
+等屎山代码和玩游戏测试
+
+*****
+
+####  startraveller  
+##### 16760#       发表于 2026-10-17 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388117&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-10-17 18:33</a>
+图靠谱，但是这个榜单不太行，不如看其他榜单了，类似AA，野榜了比如看看HLE啥的 ...</blockquote>
+7月份DeepSWE还是金标准，饱和得太快了
+
