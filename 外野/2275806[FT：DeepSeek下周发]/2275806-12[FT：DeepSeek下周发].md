@@ -4997,3 +4997,41 @@ chat接口没这个工具所以模型会说它无法搜索网络
 图靠谱，但是这个榜单不太行，不如看其他榜单了，类似AA，野榜了比如看看HLE啥的 ...</blockquote>
 7月份DeepSWE还是金标准，饱和得太快了
 
+
+*****
+
+####  qwased  
+##### 16761#       发表于 2026-10-17 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388168&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-17 18:45</a>
+
+7月份DeepSWE还是金标准，饱和得太快了</blockquote>
+TB4.0比较符合真实任务差距
+
+*****
+
+####  lactone  
+##### 16762#       发表于 2026-10-17 18:56
+
+这次特化前端审美，屎山代码不一定有多少进步
+
+而如果屎山代码也有大进步，那说明梁子挖到史前文明了
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  绕指流光  
+##### 16763#         楼主| 发表于 2026-10-17 18:56
+
+有种这榜那榜都快到天花板的感觉，模型能力增长太快，benchmark都快跟不上了
+
+等X上老外嚎叫一波，A\上市计划又被猛捶<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cyberalogo  
+##### 16764#       发表于 2026-10-17 18:57
+
+workbuddy也有个5.8.3的更新，不过它那边好像没有特别强调现在已经是1017版本的DS Flash了。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
