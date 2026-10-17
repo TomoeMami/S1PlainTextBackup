@@ -6018,3 +6018,37 @@ DSH特地给1017版本做了一个图标，以后是不是小版本更新是常�
 
 啊？用ccswitch把codex切到ds的好像没看到推理等级max<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">按理高就是high？
 
+
+*****
+
+####  moekyo  
+##### 16851#       发表于 2026-10-18 02:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389664&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-18 01:54</a>
+
+看了一下，我这里没有这个图标
+
+我的dsh版本0.2.0-rc.2</blockquote>
+一开始我的也是，就是要升级到 0.2.1-rc.2 才有
+
+*****
+
+####  moekyo  
+##### 16852#       发表于 2026-10-18 02:26
+
+<img src="https://img.stage1st.com/forum/202610/18/022630mh9n44ay64xwhw9n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (252.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 02:26 上传
+
+
+*****
+
+####  黄泉川此方  
+##### 16853#       发表于 2026-10-18 02:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一开始她只是一个友善的人工智能
+
