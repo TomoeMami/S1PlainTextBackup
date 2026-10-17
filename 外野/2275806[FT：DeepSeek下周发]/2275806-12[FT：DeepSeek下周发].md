@@ -5237,3 +5237,26 @@ ds新的模型视觉识别还行，写了个demo，反推nsfw提示词够用
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">我觉的文笔其实有点提升的？感觉思路更有人味儿了
 
+
+*****
+
+####  秦南心  
+##### 16782#       发表于 2026-10-17 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388420&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-17 19:48</a>
+
+后训练的上限到底在哪儿
+
+未来真的有可能出现27b的fable级吗</blockquote>
+不至于那么夸张，继续压成本是很有戏的，但估计擅长的领域会进一步压缩
+
+
+*****
+
+####  neptunehs  
+##### 16783#       发表于 2026-10-17 20:13
+
+opencode的免费ds拉到1m的做法被迅速封印了（
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
