@@ -3540,3 +3540,32 @@ GPT 和哈基米都有跨会话的记忆
 
 Astra这个过渡防御性编程有点影响观感了，怪不得评价不如5.5
 
+
+*****
+
+####  qwased  
+##### 16616#       发表于 2026-10-17 10:31
+
+好像前端变强了，默认思维链变we need了
+
+
+*****
+
+####  med  
+##### 16617#       发表于 2026-10-17 10:35
+
+个人使用：astra的防御编程相对于5.6sol大幅度改进了，并且智力非常高，用来给屎山擦屁股，非常之牛逼，从没见过这么厉害的模型。
+
+个人评价：astra除了额度消耗太快，现阶段对我就没有缺点。配合ds4.1f既快又快。
+
+网上全是做前端的吗，难以置信astra这个评价。
+
+*****
+
+####  qwased  
+##### 16618#       发表于 2026-10-17 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386136&amp;ptid=2275806" target="_blank">med 发表于 2026-10-17 10:35</a>
+个人使用：astra的防御编程相对于5.6sol大幅度改进了，并且智力非常高，用来给屎山擦屁股，非常之牛逼，从 ...</blockquote>
+astra对于脑袋空空只想一句话许愿的用户来说不友好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
