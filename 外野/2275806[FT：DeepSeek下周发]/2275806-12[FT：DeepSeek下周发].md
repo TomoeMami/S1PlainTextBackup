@@ -3920,3 +3920,57 @@ e72d3c7f663d3e138360063884cb4501
 
 现在Let me和没有Let me两种思维连，都能刷出来。没有Let me的大概200多Tok每秒；没有Let me思维连的，大概170~190
 
+
+*****
+
+####  李少卿  
+##### 16654#       发表于 2026-10-17 13:07
+
+Astra 的聪明还是在编程上，让他搞洪水参数率定，结果不尽人意
+
+—— 来自 OnePlus PYB110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  cscbzcbz  
+##### 16655#       发表于 2026-10-17 13:09
+
+这是DS第一次周末更新模型吧，人设崩了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eroneko  
+##### 16656#       发表于 2026-10-17 13:10
+
+dsh 标准模式 high，依旧let me
+
+—— 来自 vivo V2436A, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  startraveller  
+##### 16657#       发表于 2026-10-17 13:10
+
+Astra 还是后端王者，但是用起来额度如流水。 而且Claude Code Desktop现在体验甩开ChatGPT几条街
+
+*****
+
+####  misuzu0723  
+##### 16658#       发表于 2026-10-17 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386881&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-17 13:09</a>
+这是DS第一次周末更新模型吧，人设崩了</blockquote>
+周四捅了那么大的篓子，周末不得加加班么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  lactone  
+##### 16659#       发表于 2026-10-17 13:12
+
+睿站评论区说这个新模型one-shot很强
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
