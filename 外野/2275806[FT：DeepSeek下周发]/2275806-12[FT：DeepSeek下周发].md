@@ -5107,3 +5107,35 @@ GPT家的模型有一种“无 ...</blockquote>
 
 是的，我们有一个孩子<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BarricadeMKXX  
+##### 16771#       发表于 2026-10-17 19:18
+
+ 本帖最后由 BarricadeMKXX 于 2026-10-17 19:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388284&amp;ptid=2275806" target="_blank">unrealMeeSeeks 发表于 2026-10-17 19:13</a>
+
+原来dsh的工作区读写会给工作区加上低完整性，导致exe可能打不开</blockquote>
+刚在群里聊完就搬到这里了
+
+（其实本楼#15549我也说过一次，可能是太久了后来人都没刷到）<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/17/191926u5owwvw5jpw4o464.png" referrerpolicy="no-referrer">
+
+<strong>下载.png</strong> (530.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 19:19 上传
+
+*****
+
+####  neptunehs  
+##### 16772#       发表于 2026-10-17 19:20
+
+在x看外国（尤其是日本）震惊部的人对ds震惊真开心（？
+明明因为我是opencode免费党暂时跟我无关
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
