@@ -5189,3 +5189,43 @@ GPT家的模型有一种“无 ...</blockquote>
 公告里提到对针对wb cb优化了，应该是同步更新了</blockquote>
 workbuddy有一部分是自部署的
 
+
+*****
+
+####  lactone  
+##### 16778#       发表于 2026-10-17 19:48
+
+后训练的上限到底在哪儿<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+未来真的有可能出现27b的fable级吗
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  aimbot  
+##### 16779#       发表于 2026-10-17 19:49
+
+ 本帖最后由 aimbot 于 2026-10-17 19:50 编辑 
+
+ds新的模型视觉识别还行，写了个demo，反推nsfw提示词够用
+
+反推了五张图1分钱
+
+那不考虑grok了
+
+*****
+
+####  gp1390  
+##### 16780#       发表于 2026-10-17 19:50
+
+<img src="https://img.stage1st.com/forum/202610/17/194844fj9lldchnciiyz8y.jpg" referrerpolicy="no-referrer">
+
+<strong>1000090686.jpg</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 19:48 上传
+
+感觉秦始皇北极熊鹈鹕测试结果也还过得去    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
