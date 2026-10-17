@@ -4214,3 +4214,23 @@ flash的代码能力已经没啥好提升的了，我比较想它提升说人话
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tillnight  
+##### 16683#       发表于 2026-10-17 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387380&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-17 15:27</a>
+
+不是，怎么昨天微博上一堆财经大v传梁子润了
+
+这套路都不换一换吗</blockquote>
+kimi抓人是kimi报警了，而且大概率法务第一时间响应固定证据和线索。造谣任正非的抓了吗。同理。
+
+*****
+
+####  拯救节操希灵宅  
+##### 16684#       发表于 2026-10-17 15:37
+
+不对啊，我的dsv4.1f没变，这也能灰测的吗
+
