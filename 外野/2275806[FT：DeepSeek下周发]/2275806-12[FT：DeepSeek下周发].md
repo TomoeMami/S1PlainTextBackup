@@ -3464,3 +3464,16 @@ OpenCode上了个LL Alpha，疑似kimi</blockquote>
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  tillnight  
+##### 16609#       发表于 2026-10-17 08:09
+
+<blockquote>neptunehs 发表于 2026-10-17 07:43
+有免费ds4.1f 哪怕是自部署的假货 都懒得看其他的stealth模型了 真心的
+
+不过我这里看是beam free啊
+</blockquote>
+大概率又是公然路由器换数据，要规避风险。
+
