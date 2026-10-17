@@ -4135,3 +4135,66 @@ flash的代码能力已经没啥好提升的了，我比较想它提升说人话
 
 啊，已经撤了吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  misuzu0723  
+##### 16676#       发表于 2026-10-17 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387332&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-17 15:13</a>
+现在这个1017到底啥情况？有人说已经撤下去了
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+没啊，指纹还是新的
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  苇原雪道  
+##### 16677#       发表于 2026-10-17 15:17
+
+我的思维链比一个月前强多了，之前全是雷霆大思考，现在有意义多了
+
+*****
+
+####  cscbzcbz  
+##### 16678#       发表于 2026-10-17 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387302&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-17 15:05</a>
+都说有提升，有人说提升很大，但是没跑分
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+跑分还是等官方更新吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一般市民  
+##### 16679#       发表于 2026-10-17 15:19
+
+我把之前自己测试的oneshot小游戏重跑了一遍，45分钟，细节和完成度提升明显。<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hugosol  
+##### 16680#       发表于 2026-10-17 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387238&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-17 14:47</a>
+
+确实有提升啊。</blockquote>
+可能有改善，但依然不是那种适合做规划的模型，还是以前那种“没时间解释了先动手干活”的风格
+
+只能等pro了呀
+
+
+*****
+
+####  唠叨  
+##### 16681#       发表于 2026-10-17 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387132&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-17 14:17</a>
+
+你叫他改配置文件能改到800k</blockquote>
+速度和智力怎么样?
+
