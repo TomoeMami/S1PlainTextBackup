@@ -5520,3 +5520,11 @@ mimo2.6是个啥货色还值得讨论吗
 
 写文就不用测了吧，现在各家小模型都是编程特化了，越来越不说人话了
 
+
+*****
+
+####  FACS  
+##### 16808#       发表于 2026-10-17 22:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">写文唯一指定Gemini了吧
+
