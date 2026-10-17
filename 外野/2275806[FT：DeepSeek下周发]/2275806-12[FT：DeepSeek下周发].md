@@ -4080,3 +4080,20 @@ OpenCode上的免费DS和免费GLM都是200k上下文
 
 flash的代码能力已经没啥好提升的了，我比较想它提升说人话的能力<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  love4aids  
+##### 16670#       发表于 2026-10-17 14:24
+
+意思是可以用max了吗？
+
+*****
+
+####  CCauchy  
+##### 16671#       发表于 2026-10-17 14:29
+
+opencode现在免费模型要求太严格，只换标头骗不过了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
