@@ -4006,3 +4006,11 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 丹提只能说可用，但因为入队晚数值不如圣吸姐和fbo
 
+
+*****
+
+####  passgan  
+##### 7795#       发表于 2026-10-17 12:33
+
+这剧情无语了，不愧是日本人，又搞原谅这一套<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

@@ -3837,3 +3837,43 @@ e72d3c7f663d3e138360063884cb4501
 —— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99 ...</blockquote>
 再等等，更新日志都没更新<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tillnight  
+##### 16646#       发表于 2026-10-17 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386613&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-17 12:17</a>
+
+没发新的跑分，应该提升不大，主要是效率提升？
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+现在的情况可没那么简单。如果是当1017发，按照以前的惯例是要发新权重的，这样就算新模型，那么你分高了，按照新规可能被出口管制，目前没人知道开源豁免包不包括新开源，还是以后分到了开源就得先审批。当然规定还在征求意见，但任何人都知道不可能在这个点故意去试探。所以换成检查点方式发，那就可能根本不会有官方跑分。
+
+*****
+
+####  cscbzcbz  
+##### 16647#       发表于 2026-10-17 12:32
+
+思维链好像稳定we need和let’s了。不会像之前一会i’m doing，一会let me
+
+思维链很像当时50tok/s的灰测风格，但是速度很快
+
+*****
+
+####  tillnight  
+##### 16648#       发表于 2026-10-17 12:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 16649#       发表于 2026-10-17 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386685&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-17 12:32</a>
+思维链好像稳定we need和let’s了。不会像之前一会i’m doing，一会let me
+
+思维链很像当时50tok/s的灰测风 ...</blockquote>
+我在dsh里跑出来的还都是letme
+
