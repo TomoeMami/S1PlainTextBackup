@@ -4449,3 +4449,47 @@ DeepSeek V4.1 Flash 新版本：许愿式编程一键成真<img src="https://sta
 
 所以现在推荐用max还是high?
 
+
+*****
+
+####  Promeus  
+##### 16708#       发表于 2026-10-17 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387595&amp;ptid=2275806" target="_blank">Sunyalche 发表于 2026-10-17 16:27</a>
+所以现在推荐用max还是high?</blockquote>
+看上面的图max完爆
+
+*****
+
+####  →熙←  
+##### 16709#       发表于 2026-10-17 16:29
+
+这次是flash max焊死
+
+*****
+
+####  lly778  
+##### 16710#       发表于 2026-10-17 16:32
+
+应该是把灰测蒸馏到flash了
+
+*****
+
+####  zhongjie  
+##### 16711#       发表于 2026-10-17 16:33
+
+跑分全面超过5.6 sol，部分超过 5 opus了
+
+*****
+
+####  cody198879  
+##### 16712#       发表于 2026-10-17 16:33
+
+最近在尝试移植y700 4代的amdaos，也就是steamos的arm64版本构建，参考了一些源码仓库。
+
+结果同样的案子，用workbuddy挂了个专家团，全程大肥鱼跑出来了，引导跑通了
+
+用zocde开团队， gpt-sol-6.1指挥大肥鱼的子智能体，一直在死循环，不愿意上实机测试，完全性编程，不愿意出错，愿意浪费时间吃白饭。
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

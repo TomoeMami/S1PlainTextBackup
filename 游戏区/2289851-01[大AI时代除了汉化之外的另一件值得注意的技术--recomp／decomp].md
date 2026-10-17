@@ -259,3 +259,15 @@ ico倒是早有了
 
 我搞了两个SFC老游戏HD2D化，从bin开始到构建PC源码大概200刀<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风夏  
+##### 80#         楼主| 发表于 2026-10-17 16:34
+
+[https://www.reddit.com/r/decomps ... aisen_z_ps2_static/](https://www.reddit.com/r/decomps/comments/1x37frv/wip_srwznative_super_robot_taisen_z_ps2_static/)
+
+[https://github.com/SloppyWyn/SRWZ-native](https://github.com/SloppyWyn/SRWZ-native)
+
+机战Z有国外玩家开坑了， 刚刚起步
+
