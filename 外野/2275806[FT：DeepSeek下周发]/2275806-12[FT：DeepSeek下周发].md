@@ -4714,3 +4714,48 @@ DS-flash根本就没有这种能力，以前的DS-pro有一点这种能力但不
 
 这次flash更新大发神威，pro真别再复刻0813了吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 16736#       发表于 2026-10-17 17:37
+
+pro憋着伏击fable5.5呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nxmonitor  
+##### 16737#       发表于 2026-10-17 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387874&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-17 17:30</a>
+
+这次flash更新大发神威，pro真别再复刻0813了吧</blockquote>
+这个很像是蒸馏自己大模型的结果，4.1P不会差到哪里去的
+
+
+*****
+
+####  cscbzcbz  
+##### 16738#       发表于 2026-10-17 17:45
+
+有一个观察，好像现在思维链会根据任务变化？我让他生成XXX的one shot任务的时候就是we need思维链，我让他去收集资料整理信息的时候，就是let me思维链
+
+*****
+
+####  天气雨  
+##### 16739#       发表于 2026-10-17 17:46
+
+这次更新算是治好了大肥鱼注意力涣散的**病，以前经常思考到一半就跑偏了，虽然用户觉得挺可爱的，但这也是实打实的影响性能。
+1017版本变成了人狠话不多，不再吃白饭的精英女仆。
+
+—— 来自 Xiaomi M2102J2SC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tillnight  
+##### 16740#       发表于 2026-10-17 17:47
+
+在这个点还在复读0813的我希望都是在玩梗。都应该看明白无印4pro其实是被放弃了，4.1才是原定V4架构的完整版，显然4pro的后训练做一半被放弃了，而且肯定是匆忙放弃的，因为正好碰到疑似新架构（7月灰测）预训练完毕，加上0731定价失误导致算力严重占用，所以只能选择没达到原来的后训练目标就停止了。说白了就是后训练不充分，但是训了一点，所以有时候会神。和最初猜测的什么过拟合完全是相反的。
+
