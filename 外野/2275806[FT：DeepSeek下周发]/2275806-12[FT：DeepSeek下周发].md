@@ -4676,3 +4676,33 @@ DS-flash根本就没有这种能力，以前的DS-pro有一点这种能力但不
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  浪子龙飞z  
+##### 16732#       发表于 2026-10-17 17:20
+
+<blockquote>lactone 发表于 2026-10-17 17:13
+我感觉v41f是一个内部强大教师模型教出来的
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+目前所有头部模型都是吧
+
+*****
+
+####  脸宽  
+##### 16733#       发表于 2026-10-17 17:20
+
+现在这个空闲时段价格是当初最低价的时候一个价格了吗
+
+*****
+
+####  misuzu0723  
+##### 16734#       发表于 2026-10-17 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387829&amp;ptid=2275806" target="_blank">脸宽 发表于 2026-10-17 17:20</a>
+现在这个空闲时段价格是当初最低价的时候一个价格了吗</blockquote>
+不是，输出比涨价前贵了一倍，输入和缓存命中是之前的涨价前价格
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
