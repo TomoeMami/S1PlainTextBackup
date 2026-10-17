@@ -4097,3 +4097,14 @@ opencode现在免费模型要求太严格，只换标头骗不过了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  tillnight  
+##### 16672#       发表于 2026-10-17 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387152&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-17 14:23</a>
+
+flash的代码能力已经没啥好提升的了，我比较想它提升说人话的能力</blockquote>
+确实有提升啊。
+
