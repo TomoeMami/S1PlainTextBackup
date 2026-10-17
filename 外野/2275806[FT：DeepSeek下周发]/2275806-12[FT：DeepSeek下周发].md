@@ -5827,3 +5827,24 @@ DSH可以随时调强度不掉缓存
 这什么原理？新版训练的思维强度提示词后置了？</blockquote>
 是的zsbd
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 16835#       发表于 2026-10-17 23:07
+
+新会话头几次回复质量高很多，老会话依然很智障。以后得改流程了。
+
+
+*****
+
+####  冤枉呐  
+##### 16836#       发表于 2026-10-17 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389259&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-17 23:02</a>
+
+对，pony模型要求的格式不一样</blockquote>
+让grok写了个生成anima提示词的技能（字还挺多），配套了一下
+
+效果很牛逼啊
+
