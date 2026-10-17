@@ -3971,3 +3971,30 @@ document.getElementById('flv_cdd').innerHTML=("");
 比如一条线50级30力 另一条线35级29力 这种我是不是要把 ...</blockquote>
 等级和属性只取最高值，另外每融合一线角色就花费300因果碎片，想要四线都合并就要花900碎片。
 
+
+*****
+
+####  苍蓝之枪  
+##### 7792#       发表于 2026-10-17 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386058&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-10-17 10:14</a>
+
+单线融合是要求你打通一个主角的第1部+第2部 因为4位主角在各自的第2部战争篇通关后会自动进行因果融合
+
+ ...</blockquote>
+因为第二部可以跳过，其实约等于反复刷第一部，跳过第二部代价就是有5级强制升级不可控
+
+但是巨刷的话也不在乎这五级了
+
+*****
+
+####  苍蓝之枪  
+##### 7793#       发表于 2026-10-17 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386253&amp;ptid=2261859" target="_blank">Horusddt 发表于 2026-10-17 10:59</a>
+
+还有个坑的点，因果融合是直接跟你第三部最新存档上的融，而且重开章节不返还碎片 ...</blockquote>
+对，这是个明显设计失误，所以我的看法是在is改之前
+
+不要使用多线融合功能
+

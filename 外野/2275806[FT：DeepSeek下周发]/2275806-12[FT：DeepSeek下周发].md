@@ -3758,3 +3758,26 @@ jev好像更新视觉输入了
 
 新模型应该是优化了token效率，现在的思考时间和长度明显下降了很多<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冤枉呐  
+##### 16638#       发表于 2026-10-17 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384963&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-16 23:38</a>
+本地部署满足保密和监管要求也是很重要的一点，OA肯定恨死开源模型让他们拿不到各大公司内部的保密数据了 ...</blockquote>
+开源的主要作用就是堵oa的路
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  misuzu0723  
+##### 16639#       发表于 2026-10-17 11:49
+
+fp_dsv41f_1017_prod0820_fp8_kvcache_20260402_fp
+e72d3c7f663d3e138360063884cb4501
+根据撞出来的 md5 应该就是新的检查点了
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
