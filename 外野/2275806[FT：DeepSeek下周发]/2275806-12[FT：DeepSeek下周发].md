@@ -4366,3 +4366,86 @@ opencode免费的ds和glm反代出来也是1m上下文，他的限制在客户�
 想问一下，想用那些给开源绘画模型出提示词，然后自己的图片是NSFW的，是不是应该找个智能体接DS再装个破甲 ...</blockquote>
 如果只考虑破甲，酒馆就是目前最好用的工具，嫌麻烦直接用tt酒馆也不折腾
 
+
+*****
+
+####  cscbzcbz  
+##### 16698#       发表于 2026-10-17 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387521&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-10-17 16:08</a></blockquote>
+总结一下，性能轻微提升，同时缩短时间和费用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 16699#       发表于 2026-10-17 16:20
+
+官方直接开吹究极特化前端了。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">真是冲哈基米去的啊
+
+*****
+
+####  nxmonitor  
+##### 16700#       发表于 2026-10-17 16:23
+
+哈基米显然是个大参数的玩意，甚至有说法Bel级别的模型赔本卖
+
+*****
+
+####  qwased  
+##### 16701#       发表于 2026-10-17 16:23
+
+感觉ds真是flash仙人，第一个能用又便宜的flash也是0731
+
+
+*****
+
+####  Promeus  
+##### 16702#       发表于 2026-10-17 16:25
+
+看发的跑分全面超越5.6sol了啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 16703#       发表于 2026-10-17 16:25
+
+那么狂的吗,ds自己画的斩杀线
+
+<img src="https://img.stage1st.com/forum/202610/17/162444mzux28756d2x84w4.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (92.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 16:24 上传
+
+*****
+
+####  Lorraine_Kinney  
+##### 16704#       发表于 2026-10-17 16:26
+
+astra风味的ds，1017难道才是真正的6sol？
+
+*****
+
+####  cscbzcbz  
+##### 16705#       发表于 2026-10-17 16:27
+
+DeepSeek V4.1 Flash 新版本：许愿式编程一键成真<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+
+*****
+
+####  Mirathel  
+##### 16706#       发表于 2026-10-17 16:27
+
+爬楼感觉味道不对啊，什么时候对Astra模型特性的批判在某些楼友那儿变成对使用人的批判了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，这种“方案迭代几次把形式化和防御性本身当作进度目标”的向上对齐（甩锅）风格，就不是任何任务通用也不是所有人都接受的；如同之前需要anchored-standard或者极简模式来引导大肥鱼一样，当不同的人对同一个事物评价差异巨大的时候，本身就需要引起注意。
+
+更别提O家不同账号能不能拿到宣称的模型本身都不怎么可靠，我的个人账号在人工客服介入前后就tm是两个表现<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Sunyalche  
+##### 16707#       发表于 2026-10-17 16:27
+
+所以现在推荐用max还是high?
+
