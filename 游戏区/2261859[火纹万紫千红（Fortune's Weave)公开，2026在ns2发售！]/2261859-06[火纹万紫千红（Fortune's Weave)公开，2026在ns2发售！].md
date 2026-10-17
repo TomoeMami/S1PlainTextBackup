@@ -4152,3 +4152,13 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 不是，那个分灵被夺舍了。但复古的只是分灵。
 
+
+*****
+
+####  酒红色的存在  
+##### 7809#       发表于 2026-10-17 17:33
+
+162h四线全通+蕾达女王第二章，最后一关天风+雷暴远程破门直接顶着50%减伤给牢霸送走了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，
+
+—— 来自 vivo V2307A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

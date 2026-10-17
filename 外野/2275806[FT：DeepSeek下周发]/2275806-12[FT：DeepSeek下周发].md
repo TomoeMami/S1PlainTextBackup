@@ -4706,3 +4706,11 @@ DS-flash根本就没有这种能力，以前的DS-pro有一点这种能力但不
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  qz66618  
+##### 16735#       发表于 2026-10-17 17:30
+
+这次flash更新大发神威，pro真别再复刻0813了吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
