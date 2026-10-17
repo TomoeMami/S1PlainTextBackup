@@ -4292,3 +4292,42 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 得要等DLC补完了再打第三部才是完全体<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParukiaMKII  
+##### 7822#       发表于 2026-10-17 23:56
+
+剩下4个被砍得角色，第三章来说，猫猫头3发大狙打完安心奶人，还有群疗，非常好用；商人战略角色，战斗力不行，但是算比较好用得；白发鬼叔叔，太弱了，魔防还低，速度也低，开了BUFF都不一定扛得住，斧子又自带debuff，练其他武器基本上练不出来，有点区；新娘有沉默能打手枪拳，暴气了还有aoe，也算是挺好用的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1wq1  
+##### 7823#       发表于 2026-10-17 23:57
+
+<blockquote>月华刹那 发表于 2026-10-17 23:41
+第三部加入的另外那4个主角数值都被砍了吧，特别白发鬼
+
+得要等DLC补完了再打第三部才是完全体 ...</blockquote>
+白发鬼我记得还没第二部强，新娘练起来不差，商人光是圣焰技就强，猫猫头圣焰技可以大范围清瘴气，白发鬼备战dlc
+
+
+*****
+
+####  milky658  
+##### 7824#       发表于 2026-10-18 00:02
+
+还以为要修神殿才能用加护，原来只是没装（）
+
+*****
+
+####  mull132  
+##### 7825#       发表于 2026-10-18 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389424&amp;ptid=2261859" target="_blank">ParukiaMKII 发表于 2026-10-17 23:56</a>
+剩下4个被砍得角色，第三章来说，猫猫头3发大狙打完安心奶人，还有群疗，非常好用；商人战略角色，战斗力不 ...</blockquote>
+白发鬼剑斧拳擅长，初始熟练度也给得差不多，其实是练得起来的，高速职业补速度，再拿上刃辉神将给的速10也能追大部分敌人
+就是回报率不高，想要练出来花在他身上的精力拿去练传统强者收益更大
+
+—— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
