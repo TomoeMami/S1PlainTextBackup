@@ -3700,3 +3700,21 @@ astra使用需要引导，最差也得先让他出个计划自己看一眼再开
 —— 来自 vivo V2505A, Android 16 ...</blockquote>
 应该不会，ds模型一般只会更新一个checkpoint
 
+
+*****
+
+####  neptunehs  
+##### 16632#       发表于 2026-10-17 11:27
+
+是的 应该这个才是4.1正式版 下一个就4.2了（猜的
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  qwased  
+##### 16633#       发表于 2026-10-17 11:32
+
+DS的web search也按次数收费了，可以放开用
+

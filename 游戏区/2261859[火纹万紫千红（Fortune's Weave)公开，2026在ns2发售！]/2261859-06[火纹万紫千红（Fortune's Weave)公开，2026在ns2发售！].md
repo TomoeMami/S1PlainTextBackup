@@ -3957,3 +3957,17 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 比如一条线50级30力 另一条线35级29力 这种我是不是要把这个35级29力的选手练到50级 不然前面练的都完全没意义
 
+
+*****
+
+####  陆久舟  
+##### 7791#       发表于 2026-10-17 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386348&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-10-17 11:22</a>
+感谢
+
+顺便问下这个属性融合只是单纯的取最高值吗
+
+比如一条线50级30力 另一条线35级29力 这种我是不是要把 ...</blockquote>
+等级和属性只取最高值，另外每融合一线角色就花费300因果碎片，想要四线都合并就要花900碎片。
+
