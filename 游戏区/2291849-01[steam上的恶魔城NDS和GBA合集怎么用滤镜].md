@@ -590,3 +590,20 @@ gba+nds 6作我没觉得哪作不行
 
 — from Google Pixel 9 Pro, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  アヘ顔  
+##### 55#       发表于 2026-10-17 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386924&amp;ptid=2291849" target="_blank">nukacolamania 发表于 2026-10-17 13:20</a>
+gba+nds 6作我没觉得哪作不行
+
+不管哪作垫底，都远强过所有后来贴银河城标签的游戏</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">事实上我觉得所有帖银河城标签的游戏的重点都在银河这部分
+而恶魔城吸引我的要素却是它的美术和音乐
+玩法这部分不是说一点不重要，但是确实不占主要要素
+所以大部分银河城其实都只是银河战士模仿，没有恶魔城的美术和音乐，能玩下去的真没多少
+
+虽然说到底月下城的玩法也是照着银河战士来的吧
+

@@ -3996,3 +3996,46 @@ qoder好像是完全转发官方的，试了下已经是we need+lets了
 
 感觉工具调用之间的思考缩的很短，真正需要思考的地方也能想完，效果不错
 
+
+*****
+
+####  tillnight  
+##### 16662#       发表于 2026-10-17 13:55
+
+oneshot仅次于opus5.5，哈基米鳖半天又白努力了。
+
+*****
+
+####  lactone  
+##### 16663#       发表于 2026-10-17 13:57
+
+flash真能打5.5这就不是梁圣了是梁神<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cscbzcbz  
+##### 16664#       发表于 2026-10-17 13:59
+
+oneshot 跑了一个小时<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">，比其他人用Astra做的还是差点意思，不过也不错了。
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/17/135523m5c7c71us2bvpb8u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (150.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 13:55 上传
+
+
+*****
+
+####  pure_liquid  
+##### 16665#       发表于 2026-10-17 14:03
+
+OpenCode上的免费DS和免费GLM都是200k上下文
+
+不知道有没有坛友测过，这个200k上下文有多大影响？
+
