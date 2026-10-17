@@ -3490,3 +3490,17 @@ OpenCode上了个LL Alpha，疑似kimi</blockquote>
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  土星魔豆  
+##### 16611#       发表于 2026-10-17 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383808&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-16 19:25</a>
+ChatGPT-6 Sol Instant （即时推理强度）：</blockquote>
+网页端不同会话也是有记忆的
+GPT 和哈基米都有跨会话的记忆
+你得用 API 试
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
