@@ -4640,3 +4640,39 @@ Fetch        每 1,000 次成功请求        5元
 
 以后搜索也要单独收费啊
 
+
+*****
+
+####  hugosol  
+##### 16729#       发表于 2026-10-17 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387593&amp;ptid=2275806" target="_blank">Mirathel 发表于 2026-10-17 16:27</a>
+
+爬楼感觉味道不对啊，什么时候对Astra模型特性的批判在某些楼友那儿变成对使用人的批判了，这种“方案迭代 ...</blockquote>
+虽然看不懂你在说啥但我觉得6.1-sol特别好用，和DS-flash完全不同方向的一种好用<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+GPT家的模型有一种“无论如何我就是要过度抽象”的毛病，但是只要能驾驭这种毛病时刻提醒它“把问题限定在某些范围/不需要考虑太复杂的边界情况，先把happy folow做出来”，就能整出一个我还挺满意的框架（尽管细节可能还是很多问题）
+
+而且在我不熟悉的领域能帮我努力识别出模式某种意义上也是一种省心
+
+DS-flash根本就没有这种能力，以前的DS-pro有一点这种能力但不太明显，我还是很期待4.1-pro端出来是什么样子的，应该会跟GPT这些完全不一样的风格，无论如何能用上这些各式各样的超级大脑帮我干活实在是太幸福了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 16730#       发表于 2026-10-17 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387719&amp;ptid=2275806" target="_blank">KylianMbappe 发表于 2026-10-17 17:03</a>
+
+以后搜索也要单独收费啊</blockquote>
+搜索一直是计费的。这个实际上是降价，因为之前不单独计价的时候，搜索是按没有缓存计价的，很贵的。
+
+*****
+
+####  lactone  
+##### 16731#       发表于 2026-10-17 17:13
+
+我感觉v41f是一个内部强大教师模型教出来的
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
