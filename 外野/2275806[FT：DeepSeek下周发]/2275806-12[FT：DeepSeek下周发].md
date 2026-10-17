@@ -5462,3 +5462,61 @@ adb连接手机，探针测图片各种环节的解码延迟，然后根据结�
 
 既然你也知道原版4.1f的前端不太行，那就更应该认同前端更好追，因为这一把直接几乎前端追平6.1sol了，甚至只谈审美的话已经超了。
 
+
+*****
+
+####  qz66618  
+##### 16803#       发表于 2026-10-17 21:56
+
+<img src="https://img.stage1st.com/forum/202610/17/215635a3lrh35czlllh562.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (219.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 21:56 上传
+
+<img src="https://img.stage1st.com/forum/202610/17/215646j0pwfn50lfpqaffa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (236.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 21:56 上传
+
+猫榜
+
+*****
+
+####  qz66618  
+##### 16804#       发表于 2026-10-17 21:58
+
+感觉我的预测应该没问题，4.1pro出来应该也是在fable5-gpt6之间，赶上gpt6有点难
+
+
+*****
+
+####  mitzvah  
+##### 16805#       发表于 2026-10-17 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388967&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-17 21:56</a>
+
+猫榜</blockquote>
+老4.1弱于mimo2.6，这个榜基本已经没价值了
+
+mimo2.6是个啥货色还值得讨论吗
+
+*****
+
+####  绿色食品  
+##### 16806#       发表于 2026-10-17 22:04
+
+写文怎么样 有人测了吗
+
+*****
+
+####  love4aids  
+##### 16807#       发表于 2026-10-17 22:05
+
+写文就不用测了吧，现在各家小模型都是编程特化了，越来越不说人话了
+
