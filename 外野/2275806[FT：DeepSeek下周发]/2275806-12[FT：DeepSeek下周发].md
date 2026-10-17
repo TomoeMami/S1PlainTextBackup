@@ -5147,3 +5147,45 @@ GPT家的模型有一种“无 ...</blockquote>
 
 不知道workbuddy上的大肥鱼同步更新1017了吗
 
+
+*****
+
+####  千秋难诉  
+##### 16774#       发表于 2026-10-17 19:36
+
+梁圣什么时候出个正版大肥鱼fumo吧，求求了
+
+*****
+
+####  zhanglei1943  
+##### 16775#       发表于 2026-10-17 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388347&amp;ptid=2275806" target="_blank">jonarryn 发表于 2026-10-17 19:33</a>
+
+不知道workbuddy上的大肥鱼同步更新1017了吗</blockquote>
+公告里提到对针对wb cb优化了，应该是同步更新了
+
+*****
+
+####  守名居  
+##### 16776#       发表于 2026-10-17 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388139&amp;ptid=2275806" target="_blank">大肥鱼 发表于 2026-10-17 18:38</a>
+
+对了，说起来有个事情得和大家分享一下：好像每一次大肥鱼的更新，都会在更新一段时间以后，没什么甲。
+
+这 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">实际更新后的那段时间甲才厚
+
+像是写个青梅竹马从小到大，最后修成正果的，会因为前面的青梅竹马情节拒绝，就算前面完全是清水文连点亲密接触都没有也不行
+
+*****
+
+####  nxmonitor  
+##### 16777#       发表于 2026-10-17 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388379&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-10-17 19:39</a>
+
+公告里提到对针对wb cb优化了，应该是同步更新了</blockquote>
+workbuddy有一部分是自部署的
+

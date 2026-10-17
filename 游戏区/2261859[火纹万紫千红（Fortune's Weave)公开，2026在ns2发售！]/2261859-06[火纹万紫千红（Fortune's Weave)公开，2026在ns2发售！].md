@@ -4226,3 +4226,28 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 这作的外传，你挖了外传队伍的角色后有对话也太搞了，不挖你们你们就摸鱼是吧
 
+
+*****
+
+####  索非亚  
+##### 7816#       发表于 2026-10-17 19:38
+
+牢霸好像还不吃动态等级，看贴吧90+级别的属性还不如杂兵
+
+*****
+
+####  真田源次郎信繁  
+##### 7817#       发表于 2026-10-17 19:38
+
+<img src="https://img.stage1st.com/forum/202610/17/193801ub888bxlh98y8j2h.jpg" referrerpolicy="no-referrer">
+
+<strong>1000047526.jpg</strong> (317.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 19:38 上传
+
+[https://tieba.baidu.com/p/111132 ... FF2F4A05052EEBC2038](https://tieba.baidu.com/p/11113247777?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=22.12.1.0&amp;st=1792237060&amp;is_video=false&amp;unique=6AD224D136621FF2F4A05052EEBC2038)
+
+太地狱了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
