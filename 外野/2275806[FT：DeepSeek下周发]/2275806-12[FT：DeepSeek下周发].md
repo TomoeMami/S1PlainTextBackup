@@ -4322,3 +4322,47 @@ opencode免费的ds和glm反代出来也是1m上下文，他的限制在客户�
 
 折腾破甲 ≈ 折腾酒馆
 
+
+*****
+
+####  zhanglei1943  
+##### 16694#       发表于 2026-10-17 16:08
+
+<img src="https://img.stage1st.com/forum/202610/17/160806h44oks4es54r4sg6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (334.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 16:08 上传
+
+*****
+
+####  tillnight  
+##### 16695#       发表于 2026-10-17 16:10
+
+权重开源了。
+
+
+*****
+
+####  7776169  
+##### 16696#       发表于 2026-10-17 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387499&amp;ptid=2275806" target="_blank">宅男的爱 发表于 2026-10-17 16:04</a>
+
+显存不够拆workflow吧，其实现在all in one的workflow思路很没必要
+
+折腾破甲 ≈ 折腾酒馆 ...</blockquote>
+拆可以拆，我自己也下载的无审查的QWEN来反推，就是用起来好难用（
+
+*****
+
+####  zfy1989  
+##### 16697#       发表于 2026-10-17 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387434&amp;ptid=2275806" target="_blank">7776169 发表于 2026-10-17 15:46</a>
+
+想问一下，想用那些给开源绘画模型出提示词，然后自己的图片是NSFW的，是不是应该找个智能体接DS再装个破甲 ...</blockquote>
+如果只考虑破甲，酒馆就是目前最好用的工具，嫌麻烦直接用tt酒馆也不折腾
+
