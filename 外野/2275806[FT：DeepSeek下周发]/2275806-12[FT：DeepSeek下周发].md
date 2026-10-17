@@ -5528,3 +5528,64 @@ mimo2.6是个啥货色还值得讨论吗
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">写文唯一指定Gemini了吧
 
+
+*****
+
+####  ff2077  
+##### 16809#       发表于 2026-10-17 22:18
+
+写文当然是我哈基咪了 世界知识这块
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  来都来了  
+##### 16810#       发表于 2026-10-17 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387434&amp;ptid=2275806" target="_blank">7776169 发表于 2026-10-17 15:46</a>
+
+想问一下，想用那些给开源绘画模型出提示词，然后自己的图片是NSFW的，是不是应该找个智能体接DS再装个破甲 ...</blockquote>
+[https://github.com/petrel-cn/prompt-generator](https://github.com/petrel-cn/prompt-generator)
+
+觉得好用请给一颗星！
+
+
+*****
+
+####  andychen  
+##### 16811#       发表于 2026-10-17 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389014&amp;ptid=2275806" target="_blank">绿色食品 发表于 2026-10-17 22:04</a>
+写文怎么样 有人测了吗</blockquote>
+用argon吧，现在唯一能用的
+
+*****
+
+####  来都来了  
+##### 16812#       发表于 2026-10-17 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387719&amp;ptid=2275806" target="_blank">KylianMbappe 发表于 2026-10-17 17:03</a>
+
+以后搜索也要单独收费啊</blockquote>
+这是降价了，因为以前搜索也收费，搜回来的内容越多，费用越高。现在每次搜索 5 厘钱，跟免费有什么区别
+
+*****
+
+####  Anarkia  
+##### 16813#       发表于 2026-10-17 22:27
+
+感觉新4.1文笔比Argon在线，就是脑子有限幻觉还是严重，不容易遵守设定
+
+用来用去写东西还是Opus最好
+
+*****
+
+####  BISSBISS  
+##### 16814#       发表于 2026-10-17 22:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388814&amp;ptid=2275806" target="_blank">nukejoker 发表于 2026-10-17 21:20</a>
+
+workbuddy跑了300多积分吧。提示词就是根据本地的数据库（扒了个大航海时代ol的资料库下来），然后让AI照 ...</blockquote>
+哪路或多！
+
