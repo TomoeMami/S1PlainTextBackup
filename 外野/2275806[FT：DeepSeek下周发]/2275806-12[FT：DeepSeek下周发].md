@@ -5035,3 +5035,16 @@ TB4.0比较符合真实任务差距
 
 workbuddy也有个5.8.3的更新，不过它那边好像没有特别强调现在已经是1017版本的DS Flash了。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绕指流光  
+##### 16765#         楼主| 发表于 2026-10-17 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387988&amp;ptid=2275806" target="_blank">ov_efly 发表于 2026-10-17 17:58</a>
+
+我基本主力 ds flash 了，有时候方案也是它出，astra 基本只 review ，给点 idea 。
+
+速度快还有足够的智商 ...</blockquote>
+luna现在的评价基本就是口水横流，降智降得还不如本地QWEN
+
