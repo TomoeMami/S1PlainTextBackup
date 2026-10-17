@@ -5289,3 +5289,22 @@ opencode的免费ds拉到1m的做法被迅速封印了（
 梁圣什么时候出个正版大肥鱼fumo吧，求求了</blockquote>
 不可能啦 不然岂不是官方认证这个二创形象了，现在唯一官方形象还是logo的蓝色鲸鱼
 
+
+*****
+
+####  moekyo  
+##### 16787#       发表于 2026-10-17 20:39
+
+标题是不是有语病啊，不是应该一键许愿式编程成真吗
+
+*****
+
+####  Milarvoz  
+##### 16788#       发表于 2026-10-17 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388652&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-17 20:39</a>
+标题是不是有语病啊，不是应该一键许愿式编程成真吗</blockquote>
+标题是deepseek新闻稿原话
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
