@@ -4039,3 +4039,44 @@ OpenCode上的免费DS和免费GLM都是200k上下文
 
 不知道有没有坛友测过，这个200k上下文有多大影响？
 
+
+*****
+
+####  qwased  
+##### 16666#       发表于 2026-10-17 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387081&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-17 14:03</a>
+OpenCode上的免费DS和免费GLM都是200k上下文
+
+不知道有没有坛友测过，这个200k上下文有多大影响？ ...</blockquote>
+你叫他改配置文件能改到800k
+
+*****
+
+####  ycjiang1337  
+##### 16667#       发表于 2026-10-17 14:18
+
+ 本帖最后由 ycjiang1337 于 2026-10-17 14:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386678&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-17 12:30</a>
+现在的情况可没那么简单。如果是当1017发，按照以前的惯例是要发新权重的，这样就算新模型，那么你分高了 ...</blockquote>
+昨天还有个配套的新闻发布会，明确说了技术开源的出口许可证适用于自动审批，主要卡的是类似Manus那样的闭源产品
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  pure_liquid  
+##### 16668#       发表于 2026-10-17 14:22
+
+<blockquote>qwased 发表于 2026-10-17 14:17
+你叫他改配置文件能改到800k</blockquote>
+震惊，还有这种羊毛
+
+*****
+
+####  hugosol  
+##### 16669#       发表于 2026-10-17 14:23
+
+flash的代码能力已经没啥好提升的了，我比较想它提升说人话的能力<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
