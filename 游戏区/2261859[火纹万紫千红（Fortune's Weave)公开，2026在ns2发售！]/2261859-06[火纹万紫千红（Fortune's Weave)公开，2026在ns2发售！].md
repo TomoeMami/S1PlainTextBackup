@@ -4043,3 +4043,16 @@ document.getElementById('flv_cdd').innerHTML=("");
 还没进第3章，看攻略网站说角色在不同路线都练了，可以选择进入第三章使用的路线数值。
 结合第一第二章可以不停通关自行融合的玩法，是不是可以不同路线分开埋头练主力角色，在第三章为每个角色单独选用最强练度的路线？
 
+
+*****
+
+####  jockeyjoestar  
+##### 7799#       发表于 2026-10-17 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70385980&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-10-17 09:53</a>
+
+现在有没有关于单线融合和多线融合的攻略？
+
+具体要花费什么 属性是如何改变的这种 ...</blockquote>
+翻一下我之前的回复。近战每条线分别培养力速防就够了。
+
