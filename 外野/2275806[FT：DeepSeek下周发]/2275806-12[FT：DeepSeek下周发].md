@@ -4551,3 +4551,65 @@ DeepSeek V4.1 Flash 新版本：许愿式编程一键成真<img src="https://sta
 
 好像DS这个版本很便宜，之前画个黑洞花了几块钱，这次才7毛
 
+
+*****
+
+####  Promeus  
+##### 16720#       发表于 2026-10-17 16:47
+
+https://www.zhihu.com/question/2094825372521178603/answer/2094826662458402091?utm_psn=2094831585275154791
+
+看这位答主的测试oneshot至少半步astra了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Shih0_Matsuri  
+##### 16721#       发表于 2026-10-17 16:48
+
+有玩酒馆的评价下新flash的水平吗，我的体验dsflash远远不如glmflash
+
+
+*****
+
+####  德尔惠净水器  
+##### 16722#       发表于 2026-10-17 16:51
+
+<blockquote>Shih0_Matsuri 发表于 2026-10-17 16:48
+有玩酒馆的评价下新flash的水平吗，我的体验dsflash远远不如glmflash</blockquote>
+flash主打coding，酒馆估计也不会有提升
+
+*****
+
+####  lactone  
+##### 16723#       发表于 2026-10-17 16:52
+
+这下真廉价高速fable5了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zack1999  
+##### 16724#       发表于 2026-10-17 16:53
+
+DSH 更新到版本 V0.2.1-rc.1后，更新不了版本 V0.2.1-rc.2，请问该怎么更新？
+
+
+*****
+
+####  Sontag  
+##### 16725#       发表于 2026-10-17 16:56
+
+酒馆rp还是去用gemini4a吧，正好今天aistudio的playground反代活了，pro会员一天50条，jio三哥号可用还可以拉家庭组，虽然智商低点但在rp这块还是薄纱其它模型
+
+*****
+
+####  tillnight  
+##### 16726#       发表于 2026-10-17 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70387663&amp;ptid=2275806" target="_blank">Shih0_Matsuri 发表于 2026-10-17 16:48</a>
+
+有玩酒馆的评价下新flash的水平吗，我的体验dsflash远远不如glmflash</blockquote>
+不行，文字能力是唯一几乎零提升的。
+
