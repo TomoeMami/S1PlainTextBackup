@@ -5938,3 +5938,17 @@ o/最近更新的chat界面图文并茂的风格和自动提示词感觉都挺�
 
 已经接到我的环境里了，用几天看看质量如何
 
+
+*****
+
+####  moekyo  
+##### 16845#       发表于 2026-10-18 01:14
+
+<img src="https://img.stage1st.com/forum/202610/18/011416wkikqe72ulgti2ut.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (94.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 01:14 上传
+
