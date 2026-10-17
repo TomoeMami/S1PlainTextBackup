@@ -1268,3 +1268,38 @@ BanGDream! bilibili官方：@BanGDream_CN
 我运行如天堂！</blockquote>
        [https://www.bilibili.com/video/BV1HBJb6BEvU](https://www.bilibili.com/video/BV1HBJb6BEvU)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42125#       发表于 2026-10-17 11:40
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/17/113958xipllc1ehhz2ll2y.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-17_11-38-10.png</strong> (336.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 11:39 上传
+
+       [https://x.com/official_hibiki/status/2111276011509756285](https://x.com/official_hibiki/status/2111276011509756285)
+
+*****
+
+####  堀内爱里衣  
+##### 42126#       发表于 2026-10-17 11:40
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/17/114051kr6pckbrrpvzur31.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-17_11-38-41.png</strong> (323.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 11:40 上传
+
+       [https://x.com/bang_dream_info/status/2111276195367264414](https://x.com/bang_dream_info/status/2111276195367264414)
+

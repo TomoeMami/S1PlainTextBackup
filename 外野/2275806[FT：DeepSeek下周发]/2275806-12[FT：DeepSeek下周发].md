@@ -3718,3 +3718,43 @@ astra使用需要引导，最差也得先让他出个计划自己看一眼再开
 
 DS的web search也按次数收费了，可以放开用
 
+
+*****
+
+####  jojog  
+##### 16634#       发表于 2026-10-17 11:34
+
+jev好像更新视觉输入了
+
+*****
+
+####  cscbzcbz  
+##### 16635#       发表于 2026-10-17 11:35
+
+各路oneshot测评最爱的鹈鹕骑车，max思考，跑了20分钟
+
+<img src="https://img.stage1st.com/forum/202610/17/113303oriqx46min6ptn4f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 11:33 上传
+
+感觉是有进步，也有可能是运气好抽到好的卡了
+
+*****
+
+####  andychen  
+##### 16636#       发表于 2026-10-17 11:38
+
+简单测试了下，这个新checkpoint翻译能力还是和以前一样，比较拉
+
+
+*****
+
+####  qz66618  
+##### 16637#       发表于 2026-10-17 11:41
+
+新模型应该是优化了token效率，现在的思考时间和长度明显下降了很多<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
