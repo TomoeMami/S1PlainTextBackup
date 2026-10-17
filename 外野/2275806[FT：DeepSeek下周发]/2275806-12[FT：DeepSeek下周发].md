@@ -5773,3 +5773,57 @@ DSH可以随时调强度不掉缓存
 
 DSH特地给1017版本做了一个图标，以后是不是小版本更新是常态了？
 
+
+*****
+
+####  serj005  
+##### 16830#       发表于 2026-10-17 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389218&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-17 22:51</a>
+
+DSH可以随时调强度不掉缓存
+
+用max就行</blockquote>
+这什么原理？新版训练的思维强度提示词后置了？
+
+*****
+
+####  cscbzcbz  
+##### 16831#       发表于 2026-10-17 23:00
+
+把梁子赔我的钱全部花完了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+现在到X上去看老外的反应，也挺有意思<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 16832#       发表于 2026-10-17 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389224&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-17 22:53</a>
+
+额外指令后面加一句话：用自然语言生成。
+
+工具通过大语言模型来理解你的输入，所以你可以开动脑筋来输入 ...</blockquote>
+我看了一下教程，请教一下，pony mode是针对那个pony v6模型吗
+
+
+*****
+
+####  来都来了  
+##### 16833#       发表于 2026-10-17 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389254&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-10-17 23:00</a>
+
+我看了一下教程，请教一下，pony mode是针对那个pony v6模型吗</blockquote>
+对，pony模型要求的格式不一样
+
+*****
+
+####  qwased  
+##### 16834#       发表于 2026-10-17 23:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389249&amp;ptid=2275806" target="_blank">serj005 发表于 2026-10-17 23:00</a>
+
+这什么原理？新版训练的思维强度提示词后置了？</blockquote>
+是的zsbd
+
