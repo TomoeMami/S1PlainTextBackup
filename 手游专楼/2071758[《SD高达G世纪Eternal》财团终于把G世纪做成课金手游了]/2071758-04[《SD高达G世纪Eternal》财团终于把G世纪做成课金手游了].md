@@ -2056,3 +2056,11 @@ C5E423D38F92CAD2C205BB6430E7B5DF.jpg
 
 法克了，怒氪了100抽就出来个力天使，没抽到再生<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schw  
+##### 4894#       发表于 2026-10-17 21:38
+
+伤透了梦回抽一击必杀，那次0星强自0星船直接把我整退坑了，这次充了一百抽还好监牢船和洛叔2破，但是最后还是没出再生，200换了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
