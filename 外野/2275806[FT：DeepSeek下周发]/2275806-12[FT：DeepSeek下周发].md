@@ -4198,3 +4198,19 @@ flash的代码能力已经没啥好提升的了，我比较想它提升说人话
 你叫他改配置文件能改到800k</blockquote>
 速度和智力怎么样?
 
+
+*****
+
+####  lactone  
+##### 16682#       发表于 2026-10-17 15:27
+
+ 本帖最后由 lactone 于 2026-10-17 15:30 编辑 
+
+不是，怎么昨天微博上一堆财经大v传梁子润了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这套路都不换一换吗
+
+之前传kimi被喝茶的已经进去了，这波还是得抓几个
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
