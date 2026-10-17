@@ -3815,3 +3815,25 @@ e72d3c7f663d3e138360063884cb4501
 各路oneshot测评最爱的鹈鹕骑车，max思考，跑了20分钟</blockquote>
 现在鹈鹕是稳定这个风格的。和gpt6一样画鹈鹕风格化了。
 
+
+*****
+
+####  lactone  
+##### 16644#       发表于 2026-10-17 12:17
+
+没发新的跑分，应该提升不大，主要是效率提升？
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  cscbzcbz  
+##### 16645#       发表于 2026-10-17 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386613&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-17 12:17</a>
+没发新的跑分，应该提升不大，主要是效率提升？
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+再等等，更新日志都没更新<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
