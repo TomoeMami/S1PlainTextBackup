@@ -578,3 +578,15 @@ gba它的数值只能通过图鉴作弊的方式看
 
 这个bug也可以用于二周目速杀螃蟹
 
+
+*****
+
+####  nukacolamania  
+##### 54#       发表于 2026-10-17 13:20
+
+gba+nds 6作我没觉得哪作不行
+
+不管哪作垫底，都远强过所有后来贴银河城标签的游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 9 Pro, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
