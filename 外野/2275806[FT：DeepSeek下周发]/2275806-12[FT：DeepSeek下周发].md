@@ -5848,3 +5848,46 @@ DSH可以随时调强度不掉缓存
 
 效果很牛逼啊
 
+
+*****
+
+####  洛拉斯  
+##### 16837#       发表于 2026-10-17 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389108&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-17 22:26</a>
+
+这是降价了，因为以前搜索也收费，搜回来的内容越多，费用越高。现在每次搜索 5 厘钱，跟免费有什么区别 ...</blockquote>
+现在搜索出来的东西也要进输入吧
+
+*****
+
+####  李少卿  
+##### 16838#       发表于 2026-10-17 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388679&amp;ptid=2275806" target="_blank">nukejoker 发表于 2026-10-17 20:46</a>
+用deepseek做了个网页版的大航海时代ol  https://voyage-log.app.workbuddy.host/
+
+欢迎测试和批评。 ...</blockquote>
+workbuddy 的域名是咋搞的，开了个云服务器吗还是运行在你自己的服务器上
+
+—— 来自 OnePlus PYB110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  nxmonitor  
+##### 16839#       发表于 2026-10-17 23:30
+
+测下来最大的感受就是脑裂现象大幅减少了
+
+*****
+
+####  nukejoker  
+##### 16840#       发表于 2026-10-17 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389352&amp;ptid=2275806" target="_blank">李少卿 发表于 2026-10-17 23:29</a>
+
+workbuddy 的域名是咋搞的，开了个云服务器吗还是运行在你自己的服务器上
+
+—— 来自 OnePlus PYB110, An ...</blockquote>
+不是，全部交给workbuddy了，我甚至连原理都没搞清楚问了它一下该怎么生成个网页去哪里搞域名它就pia地给我生成个网页了~
+
