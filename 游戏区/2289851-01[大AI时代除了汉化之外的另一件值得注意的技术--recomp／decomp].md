@@ -271,3 +271,15 @@ ico倒是早有了
 
 机战Z有国外玩家开坑了， 刚刚起步
 
+
+*****
+
+####  qwjhb  
+##### 81#       发表于 2026-10-18 03:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382778&amp;ptid=2289851" target="_blank">汤浅比吕美 发表于 2026-10-16 16:22</a>
+我搞了两个SFC老游戏HD2D化，从bin开始到构建PC源码大概200刀</blockquote>
+hd2d？  什么效果了？
+
+—— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
