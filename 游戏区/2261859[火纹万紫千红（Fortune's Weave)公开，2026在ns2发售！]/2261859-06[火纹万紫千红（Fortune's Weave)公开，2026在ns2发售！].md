@@ -3802,3 +3802,39 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 长得实在太好看了，不忍心不玩
 
+
+*****
+
+####  真田源次郎信繁  
+##### 7779#       发表于 2026-10-17 08:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70385681&amp;ptid=2261859" target="_blank">a3a4sc 发表于 2026-10-17 08:20</a>
+
+有人养过丹提吗，狂堆魅力当输出大哥的必杀挂件可以成型吗
+
+长得实在太好看了，不忍心不玩 ...</blockquote>
+有远程治疗没个人技都能玩，但是圣吸姐又漂亮又强，神将还是给圣吸姐了
+
+*****
+
+####  superlink  
+##### 7780#       发表于 2026-10-17 08:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">日本不一直都是遗老么
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+*****
+
+####  厄斯沃穆  
+##### 7781#       发表于 2026-10-17 08:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70385681&amp;ptid=2261859" target="_blank">a3a4sc 发表于 2026-10-17 08:20</a>
+有人养过丹提吗，狂堆魅力当输出大哥的必杀挂件可以成型吗
+
+长得实在太好看了，不忍心不玩 ...</blockquote>
+法表很不错，有圣吸有托隆有雷暴，速成长在法师里也是靠前的
+可堪一用
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
