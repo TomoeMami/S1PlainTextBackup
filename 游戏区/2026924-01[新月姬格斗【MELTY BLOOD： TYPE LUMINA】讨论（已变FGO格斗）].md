@@ -25,3 +25,16 @@ mbtw找咕哒小动画带货宣传顺带擦边球透露有五月先是挺惊喜�
 
 2026-10-17 18:31 上传
 
+
+*****
+
+####  ナルバレック  
+##### 583#       发表于 2026-10-17 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388118&amp;ptid=2026924" target="_blank">岸浪白野 发表于 2026-10-17 18:34</a>
+
+mbtw找咕哒小动画带货宣传顺带擦边球透露有五月先是挺惊喜又想的通
+
+本来无印mb不就是五月线普通结局的后续 ...</blockquote>
+MBTL我记得设定是本篇的平行世界前传，本作就不知道是个啥了，感觉可能是平行世界歌月
+

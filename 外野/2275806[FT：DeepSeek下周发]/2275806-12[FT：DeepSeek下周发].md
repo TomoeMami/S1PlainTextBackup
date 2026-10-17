@@ -5308,3 +5308,37 @@ opencode的免费ds拉到1m的做法被迅速封印了（
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  nukejoker  
+##### 16789#       发表于 2026-10-17 20:46
+
+用deepseek做了个网页版的大航海时代ol  [https://voyage-log.app.workbuddy.host/](https://voyage-log.app.workbuddy.host/)
+
+欢迎测试和批评。
+
+*****
+
+####  moekyo  
+##### 16790#       发表于 2026-10-17 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388671&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-10-17 20:43</a>
+
+标题是deepseek新闻稿原话
+
+—— 来自 samsung SM-S9380, Android 16, 鹅球 v4.0</blockquote>
+我知道那个微信的，但是读起来还是很奇怪，只是我的问题吗<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mitzvah  
+##### 16791#       发表于 2026-10-17 20:51
+
+ 本帖最后由 mitzvah 于 2026-10-17 20:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388509&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-10-17 20:06</a>
+
+不至于那么夸张，继续压成本是很有戏的，但估计擅长的领域会进一步压缩 ...</blockquote>
+现代模型能力提升依赖的rl训练的解决问题的过程，包括内化使用工具的本能，不说啥，就是qwen3.8 27b这种水平上的模型，用上梁的压缩注意力把有效注意力推到500k，然后把静态工具与dap动态工具完全内化，大型项目能力起码能再进一大步，现成的方向都在这里了，想想代理每一步的编码都在鸟瞰整个设计基础上进行落码该强大到什么程度？进步空间还大的很呢
+
