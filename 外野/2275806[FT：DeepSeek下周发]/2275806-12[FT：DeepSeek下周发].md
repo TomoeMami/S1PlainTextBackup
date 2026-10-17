@@ -3797,3 +3797,21 @@ e72d3c7f663d3e138360063884cb4501
 
 随便用了几个旧大纲试了试写作水平似乎好很多<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bartholo4  
+##### 16642#       发表于 2026-10-17 12:09
+
+这个版本意思是可以开max了么
+
+*****
+
+####  tillnight  
+##### 16643#       发表于 2026-10-17 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386407&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-17 11:35</a>
+
+各路oneshot测评最爱的鹈鹕骑车，max思考，跑了20分钟</blockquote>
+现在鹈鹕是稳定这个风格的。和gpt6一样画鹈鹕风格化了。
+

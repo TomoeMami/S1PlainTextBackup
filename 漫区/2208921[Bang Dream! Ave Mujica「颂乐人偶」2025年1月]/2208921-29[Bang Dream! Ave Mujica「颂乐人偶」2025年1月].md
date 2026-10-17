@@ -1319,3 +1319,11 @@ BanGDream! bilibili官方：@BanGDream_CN
 
 显得中登是纯脑缺圣母 婊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 42128#       发表于 2026-10-17 12:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">父母之爱子，则为之计深远
+

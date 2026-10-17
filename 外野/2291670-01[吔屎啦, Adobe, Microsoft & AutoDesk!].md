@@ -2200,3 +2200,13 @@ S1这点体量管理员就三天两头喝茶了，你要做个有人用的开源
 
 2026-10-16 18:49 上传
 
+
+*****
+
+####  WiiGe  
+##### 188#         楼主| 发表于 2026-10-17 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381189&amp;ptid=2291670" target="_blank">O小不点0 发表于 2026-10-16 12:19</a>
+都试了，还问了ds，按他的推荐用了便携应用注册PortableRegistrator_v1.5，添加1%,也不成功。看起来只能 ...</blockquote>
+无端猜想，会不会和权限有关？
+
