@@ -5952,3 +5952,12 @@ o/最近更新的chat界面图文并茂的风格和自动提示词感觉都挺�
 
 2026-10-18 01:14 上传
 
+
+*****
+
+####  qwased  
+##### 16846#       发表于 2026-10-18 01:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389607&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-18 01:14</a></blockquote>
+就是切推理强度不掉缓存<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
