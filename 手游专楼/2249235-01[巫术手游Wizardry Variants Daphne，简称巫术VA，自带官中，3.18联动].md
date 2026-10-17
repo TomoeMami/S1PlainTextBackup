@@ -198,3 +198,11 @@
 
 新角色还就是小崎祐介设计的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UnknownRei  
+##### 938#       发表于 2026-10-17 09:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无法接受的雷霆设计，AI大人快来绞死这群老登
+

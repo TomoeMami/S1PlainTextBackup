@@ -3504,3 +3504,13 @@ GPT 和哈基米都有跨会话的记忆
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  来都来了  
+##### 16612#       发表于 2026-10-17 09:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70384808&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-10-16 23:02</a>
+你还真信opencode能自己部署V4 Pro级别的模型并且做到官方价格啊？它根本没这个本事，之前吹了半天的复现V ...</blockquote>
+不是，Open Code就是自己部署的。前几天Deepseek中断了四五个小时你知道吧？当时Open Code的deepseek是可以正常用的。
+

@@ -3858,3 +3858,14 @@ document.getElementById('flv_cdd').innerHTML=("");
 圣吸姐是奥琳琵娅吗</blockquote>
 是的 zsbd
 
+
+*****
+
+####  UltramanPain  
+##### 7784#       发表于 2026-10-17 09:20
+
+坏掉的武器居然要先修复才能锻造。
+早知道不把长弓用坏了，还得浪费一个碎晶
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
