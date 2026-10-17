@@ -687,3 +687,15 @@ gba+nds 6作我没觉得哪作不行
 
 虽然内森，苍真，乔纳桑和夏诺雅都可以练功到99级，但他们在99级下的面板也可能会被魔物打死，只有阿祖是完全作弊级的强悍。我怀疑他这个能力是开发者用来测试游戏的
 
+
+*****
+
+####  adretyu67.  
+##### 61#       发表于 2026-10-18 01:55
+
+ 本帖最后由 adretyu67. 于 2026-10-18 01:56 编辑 
+
+夏诺亚还有256级模式，不过刻印真正需要刷的不是256级而是刷满65535全属性熟练度<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。这个熟练度哪怕hard lv1模式也是能屠城的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+对应的lv1阿鲁巴斯进城后就开始刮的不行了。
+

@@ -5961,3 +5961,34 @@ o/最近更新的chat界面图文并茂的风格和自动提示词感觉都挺�
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389607&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-18 01:14</a></blockquote>
 就是切推理强度不掉缓存<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pure_liquid  
+##### 16847#       发表于 2026-10-18 01:54
+
+<blockquote>zack1999 发表于 2026-10-17 22:55
+DSH特地给1017版本做了一个图标，以后是不是小版本更新是常态了？</blockquote>
+看了一下，我这里没有这个图标
+
+我的dsh版本0.2.0-rc.2
+
+模型system_fingerprint进行MD5反推确实是1017
+
+你的这个图标会不会是某个插件产生的？
+
+*****
+
+####  黄泉川此方  
+##### 16848#       发表于 2026-10-18 01:56
+
+<img src="https://img.stage1st.com/forum/202610/18/015556gn16rz5j6k97nu7z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 01:55 上传
+
+这个？
+
