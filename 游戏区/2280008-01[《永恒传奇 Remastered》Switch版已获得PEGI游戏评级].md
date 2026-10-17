@@ -3692,3 +3692,25 @@ tov是3d战斗，因为都有辅助移动键了，toa走动的地方有限，感
 
 我对法拉最大的印象就是她一脚能踢飞熊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南戸唯  
+##### 338#       发表于 2026-10-17 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70381638&amp;ptid=2280008" target="_blank">寺胖 发表于 2026-10-16 13:39</a>
+
+还没玩，出来问题目的角色换了没？
+
+记得旧版是弓箭手切露西、召唤师库拉斯、大剑克雷门特 ...</blockquote>
+但是题库换了
+
+QQ图片20261017100639.png
+(990 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 10:07 上传
+
+<img src="https://img.stage1st.com/forum/202610/17/100734nmribiiub18enqb1.png" referrerpolicy="no-referrer">
+
