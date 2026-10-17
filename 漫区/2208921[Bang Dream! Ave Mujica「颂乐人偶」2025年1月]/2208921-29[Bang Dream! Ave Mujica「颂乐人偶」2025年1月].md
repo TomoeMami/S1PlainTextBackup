@@ -1303,3 +1303,19 @@ BanGDream! bilibili官方：@BanGDream_CN
 
        [https://x.com/bang_dream_info/status/2111276195367264414](https://x.com/bang_dream_info/status/2111276195367264414)
 
+
+*****
+
+####  cxj649  
+##### 42127#       发表于 2026-10-17 12:02
+
+<img src="https://img.stage1st.com/forum/202610/17/120145gpjpjrxnnnn2ub0z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 12:01 上传
+
+显得中登是纯脑缺圣母 婊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
