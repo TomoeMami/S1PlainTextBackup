@@ -3877,3 +3877,14 @@ e72d3c7f663d3e138360063884cb4501
 思维链很像当时50tok/s的灰测风 ...</blockquote>
 我在dsh里跑出来的还都是letme
 
+
+*****
+
+####  cscbzcbz  
+##### 16650#       发表于 2026-10-17 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386706&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-17 12:35</a>
+我在dsh里跑出来的还都是letme</blockquote>
+那就奇怪了，我也是dsh桌面端，直接用的deepseek官方账号登陆
+也可能我刷得不够多吧，反正我测了几个都是we need棋手，没看到let me
+

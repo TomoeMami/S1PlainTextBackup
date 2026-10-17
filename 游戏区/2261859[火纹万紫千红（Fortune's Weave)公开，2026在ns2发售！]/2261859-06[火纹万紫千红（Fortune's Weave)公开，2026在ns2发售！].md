@@ -4014,3 +4014,23 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 这剧情无语了，不愧是日本人，又搞原谅这一套<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北条早苗  
+##### 7796#       发表于 2026-10-17 12:38
+
+丹提已经算勉强能用的了，真正地雷的是绯亚娜这种，又脆又慢，空有魔力成长用起来难受
+
+
+*****
+
+####  a3a4sc  
+##### 7797#       发表于 2026-10-17 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70385681&amp;ptid=2261859" target="_blank">a3a4sc 发表于 2026-10-17 08:20</a>
+有人养过丹提吗，狂堆魅力当输出大哥的必杀挂件可以成型吗
+
+长得实在太好看了，不忍心不玩 ...</blockquote>
+收到了，打算拉起来当暴击挂件用
+
