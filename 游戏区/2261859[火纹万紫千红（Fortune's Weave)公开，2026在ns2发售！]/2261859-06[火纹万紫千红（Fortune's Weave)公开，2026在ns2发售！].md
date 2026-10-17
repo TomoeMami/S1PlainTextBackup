@@ -3910,3 +3910,15 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 2026-10-17 10:14 上传
 
+
+*****
+
+####  Horusddt  
+##### 7787#       发表于 2026-10-17 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70385980&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-10-17 09:53</a>
+现在有没有关于单线融合和多线融合的攻略？
+
+具体要花费什么 属性是如何改变的这种 ...</blockquote>
+还有个坑的点，因果融合是直接跟你第三部最新存档上的融，而且重开章节不返还碎片
+

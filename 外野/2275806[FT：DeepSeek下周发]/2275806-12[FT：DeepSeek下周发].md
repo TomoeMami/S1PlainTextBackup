@@ -3623,3 +3623,23 @@ astra对于脑袋空空只想一句话许愿的用户来说不友好<img src="ht
 
 2026-10-17 10:57 上传
 
+
+*****
+
+####  cscbzcbz  
+##### 16624#       发表于 2026-10-17 11:01
+
+还是flash吗，pro何时来
+周末没啥人讨论啊，都在休息<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RookieTnT  
+##### 16625#       发表于 2026-10-17 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386136&amp;ptid=2275806" target="_blank">med 发表于 2026-10-17 10:35</a>
+
+个人使用：astra的防御编程相对于5.6sol大幅度改进了，并且智力非常高，用来给屎山擦屁股，非常之牛逼，从 ...</blockquote>
+问题贵啊.  
+
