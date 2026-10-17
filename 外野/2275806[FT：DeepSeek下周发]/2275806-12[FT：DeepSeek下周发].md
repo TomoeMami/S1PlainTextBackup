@@ -4613,3 +4613,30 @@ DSH 更新到版本 V0.2.1-rc.1后，更新不了版本 V0.2.1-rc.2，请问该�
 有玩酒馆的评价下新flash的水平吗，我的体验dsflash远远不如glmflash</blockquote>
 不行，文字能力是唯一几乎零提升的。
 
+
+*****
+
+####  Litccc  
+##### 16727#       发表于 2026-10-17 16:58
+
+rp还是用唯一指定模型argon吧，其他模型比不了一点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KylianMbappe  
+##### 16728#       发表于 2026-10-17 17:03
+
+<blockquote>Search 和 Fetch 按请求次数计费，不按 token 或返回结果条数计费：
+
+API        计费单位        价格
+
+Search        每 1,000 次成功请求        5元
+
+Fetch        每 1,000 次成功请求        5元
+
+只有返回 HTTP 200 且产生结果的请求才会计费（Search 的 results 必须非空，Fetch 必须返回网页正文）。请求失败、搜索无结果或超时不计费。count 只控制返回的结果条数，不影响单次请求的价格。
+
+请注意，当前用户在 DeepSeek Harness/Claude Code/Codex 中使用 DeepSeek API 时，已经会通过 Server 端工具调用访问到 Search/Fetch 接口，这部分 Search/Fetch 接口调用目前未计费，并将于北京时间 2026 年 11 月 1 日 00:00 起按次收取调用费用。</blockquote>
+
+以后搜索也要单独收费啊
+
