@@ -4108,3 +4108,30 @@ opencode现在免费模型要求太严格，只换标头骗不过了
 flash的代码能力已经没啥好提升的了，我比较想它提升说人话的能力</blockquote>
 确实有提升啊。
 
+
+*****
+
+####  lactone  
+##### 16673#       发表于 2026-10-17 15:05
+
+都说有提升，有人说提升很大，但是没跑分
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  lactone  
+##### 16674#       发表于 2026-10-17 15:13
+
+现在这个1017到底啥情况？有人说已经撤下去了
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cscbzcbz  
+##### 16675#       发表于 2026-10-17 15:15
+
+啊，已经撤了吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
