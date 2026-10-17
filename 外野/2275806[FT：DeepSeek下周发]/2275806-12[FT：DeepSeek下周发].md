@@ -3974,3 +3974,25 @@ Astra 还是后端王者，但是用起来额度如流水。 而且Claude Code D
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zhongjie  
+##### 16660#       发表于 2026-10-17 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70386136&amp;ptid=2275806" target="_blank">med 发表于 2026-10-17 10:35</a>
+个人使用：astra的防御编程相对于5.6sol大幅度改进了，并且智力非常高，用来给屎山擦屁股，非常之牛逼，从 ...</blockquote>
+如何配合ds4.1f？skill还是插件？
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  qwased  
+##### 16661#       发表于 2026-10-17 13:30
+
+qoder好像是完全转发官方的，试了下已经是we need+lets了
+
+感觉工具调用之间的思考缩的很短，真正需要思考的地方也能想完，效果不错
+
