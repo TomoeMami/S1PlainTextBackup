@@ -3569,3 +3569,34 @@ Astra这个过渡防御性编程有点影响观感了，怪不得评价不如5.5
 个人使用：astra的防御编程相对于5.6sol大幅度改进了，并且智力非常高，用来给屎山擦屁股，非常之牛逼，从 ...</blockquote>
 astra对于脑袋空空只想一句话许愿的用户来说不友好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aimbot  
+##### 16619#       发表于 2026-10-17 10:39
+
+有人知道grok根据图片反推nsfw提示词的能力怎么样吗？
+
+*****
+
+####  zhanglei1943  
+##### 16620#       发表于 2026-10-17 10:42
+
+<img src="https://img.stage1st.com/forum/202610/17/104243pokbarep88ta8o6u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-17 10:42 上传
+
+*****
+
+####  startraveller  
+##### 16621#       发表于 2026-10-17 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70385589&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-10-17 07:43</a>
+有免费ds4.1f 哪怕是自部署的假货 都懒得看其他的stealth模型了 真心的
+不过我这里看是beam free啊</blockquote>
+好像很拉，应该不是kimi
+
