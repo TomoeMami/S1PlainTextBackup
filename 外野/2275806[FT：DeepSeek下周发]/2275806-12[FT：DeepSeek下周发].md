@@ -5436,3 +5436,29 @@ fable现在即使出了大部分人也用不上
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  serj005  
+##### 16801#       发表于 2026-10-17 21:43
+
+今天用workbuddy2api接出的dsv4.1跑了半天的安卓图片查看器项目，太有灵性了。
+
+adb连接手机，探针测图片各种环节的解码延迟，然后根据结果尝试各种优化方案，把avif60帧动图解码从播放卡顿优化到丝般顺滑<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tillnight  
+##### 16802#       发表于 2026-10-17 21:51
+
+ 本帖最后由 tillnight 于 2026-10-17 21:52 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388861&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-17 21:29</a>
+
+老dsv4.1后端很强的，能根据我的需求修改ds4服务器，fork出完全能用的版本这还不强？
+
+恰恰是前端差得比 ...</blockquote>
+现在讨论的是各家模型实际后端的平均水平上已经超过一般路过普通程序员的情况下，OA都一转去吹oneshot前端，尤其是opus5.5，后端能力其实并没有达到统治级，实际上和astra有明显差距，但是因为这前端直出商业级建模的能力让海内外都吹成了世一模，并且因为前端是肉眼可视所以直接认定A/的领先差距又扩大了。我可以这么说，最近一个月的速败党大多数不是因为看到astra，而是因为各种社交网站流传的opus5.5的oneshot。
+
+既然你也知道原版4.1f的前端不太行，那就更应该认同前端更好追，因为这一把直接几乎前端追平6.1sol了，甚至只谈审美的话已经超了。
+
