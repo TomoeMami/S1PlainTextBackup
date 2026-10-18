@@ -3891,3 +3891,14 @@ QQ图片20261017100639.png
 重制版是不是把战斗画面插桢补帧搞到60帧了，印象中原版的战斗没这么丝滑 ...</blockquote>
 战斗60帧 和 部分角色贴图改绘 基本是沿用的PSP版
 
+
+*****
+
+####  xiaohao123  
+##### 351#       发表于 2026-10-18 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391413&amp;ptid=2280008" target="_blank">阿菠萝13 发表于 2026-10-18 16:13</a>
+
+重制版是不是把战斗画面插桢补帧搞到60帧了，印象中原版的战斗没这么丝滑 ...</blockquote>
+PSP版就是60帧了
+

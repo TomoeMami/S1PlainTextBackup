@@ -7270,3 +7270,11 @@ Luna是真的只能干傻活
 
 luna和haiku不是野狗，但是能说出Deepseek不如Luna和Haiku的，绝对是百分百的野狗。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 16966#       发表于 2026-10-18 19:39
+
+让dsh给我做个游戏ui做参考，做了一小时花了六千万token，一看发现在努力做游戏素材。难道是one shot训练做多了觉得我是想直接做个游戏？
+

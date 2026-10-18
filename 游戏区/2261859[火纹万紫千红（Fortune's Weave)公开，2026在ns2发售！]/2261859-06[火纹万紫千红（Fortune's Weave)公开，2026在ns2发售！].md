@@ -4513,3 +4513,14 @@ document.getElementById('flv_cdd').innerHTML=("");
 蕾达队估计是为了队长打不了输出故意平衡的队友强度，结果加过头了
 初始队里最菜的巴卡尼亚放凯队也是大爹级别的前排了，白送的金天马也是全能的高速天马/法师模子，古神也是前期可以招募
 
+
+*****
+
+####  ParukiaMKII  
+##### 7844#       发表于 2026-10-18 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391821&amp;ptid=2261859" target="_blank">-マユ‐ 发表于 2026-10-18 18:26</a>
+
+终于把蕾达战争篇打完了，一流姐原来这么强，一开始我还以为就是个高速肌无力，没想到特技这么吊蕾达这队主 ...</blockquote>
+一流姐和露露2个顶尖天马，养起来那真的无敌<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
