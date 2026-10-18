@@ -7519,3 +7519,24 @@ ds新的模型视觉识别还行，写了个demo，反推nsfw提示词够用
 
 当前您在Deepseek-V4.1-Flash模型的使用量已超出频率限制，可在2026-10-19 07:50:14重置后使用。您可先切换至其他模型。workbuddy每个模型居然还有使用限制的吗？我以为我积分没用完就没有限制的 这个限制是多少，在哪里能看啊？
 
+
+*****
+
+####  飞剪号  
+##### 16989#       发表于 2026-10-18 21:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392435&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-10-18 21:21</a>
+
+当前您在Deepseek-V4.1-Flash模型的使用量已超出频率限制，可在2026-10-19 07:50:14重置后使用。您可先切换 ...</blockquote>
+好家伙，本来还想下个wb，看到这个立马放弃
+
+*****
+
+####  squallx  
+##### 16990#       发表于 2026-10-18 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392320&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-18 20:48</a>
+
+字节没审美但是有数据啊。seedance现在还是孤独求败，就是因为字节有一大堆视频数据，不知道能不能拿来练 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">顶头老板是个撒比 数据再多有何用
+
