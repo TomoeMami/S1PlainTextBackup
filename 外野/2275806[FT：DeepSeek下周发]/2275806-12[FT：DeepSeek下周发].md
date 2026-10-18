@@ -6302,3 +6302,27 @@ DSH特地给1017版本做了一个图标，以后是不是小版本更新是常�
 1017梁子投机选了和a畜一样的流量打法，优化前端能力。op5.5在屎山代码里一直被gpt系压一头，最新那期都和g ...</blockquote>
 后端也变强了，但是因为原来已经不错了所以幅度小，前端起点更低看上去提升很明显
 
+
+*****
+
+####  mitzvah  
+##### 16878#       发表于 2026-10-18 09:15
+
+ 本帖最后由 mitzvah 于 2026-10-18 09:18 编辑 
+
+cot长度实际上跟工具使用直接相关的，原则上工具注入的越多cot就被抑制得越厉害，这叫认知卸载，为什么像4.1这种模型会有雷霆大思考？我个人认为就是这些面向ai代理训练出来的llm，在很多关键步骤上rl后训练的还不够，这一步该注入什么工具他是知道的，但是没有被rl本能内化，无法本能使用工具就会陷入焦虑开始自问自答循环，因为面相ai代理训练的llm本能的基于外部工具推进任务，没有工具返回就会焦虑的不可救药，所以这个时候直接注入工具使用指令就可以了
+
+*****
+
+####  xuanwu_lei  
+##### 16879#       发表于 2026-10-18 09:16
+
+ 本帖最后由 xuanwu_lei 于 2026-10-18 09:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390038&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-18 08:56</a>
+忽然感觉这样对豆包很不公平</blockquote>
+不要慌，豆奶宇宙与肥鱼宇宙已经开始融合了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+【防火于未燃【AI全民制作人】-哔哩哔哩】 https://b23.tv/LuIkKvz
+
+众所周知豆奶宇宙的豆姐每天都是迪士尼在逃公主<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
