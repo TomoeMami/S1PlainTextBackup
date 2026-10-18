@@ -7122,3 +7122,60 @@ ao两家不太一样
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  lactone  
+##### 16954#       发表于 2026-10-18 18:05
+
+怎么可能不如luna和haiku<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  空き地卯木  
+##### 16955#       发表于 2026-10-18 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391387&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-18 16:04</a>
+不是，怎么不少评测yygq的，直接掏出opus5.5和astra的好例子对比，然后说有进步还有差距
+
+那不当然还有差距 ...</blockquote>
+Astra6前端确实是弱项，实际项目的前端跑下来感觉也跟1017拉不开多少差距了，看看6.1能挤出多少牙膏吧
+屎山挑战赛不知道1017老师表现得怎么样，新版本的测瘾开始涨上来了，对vibe这种需求来说也是个好兆头
+
+*****
+
+####  noneoneone  
+##### 16956#       发表于 2026-10-18 18:08
+
+ 本帖最后由 noneoneone 于 2026-10-18 18:10 编辑 
+
+转自贴吧
+
+<img src="https://img.stage1st.com/forum/202610/18/180823c9dy0z9y8tijq7j5.jpg" referrerpolicy="no-referrer">
+
+<strong>8b82b9014a90f603a7b642417f12b31bb051edb7.jpg</strong> (136.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 18:08 上传
+
+<img src="https://img.stage1st.com/forum/202610/18/180822a9rrjzzs9l9znlze.jpg" referrerpolicy="no-referrer">
+
+<strong>4b90f603738da977ef29582df651f8198618e3b7.jpg</strong> (67.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 18:08 上传
+
+<img src="https://img.stage1st.com/forum/202610/18/180820jerj71ej00v90v77.jpg" referrerpolicy="no-referrer">
+
+<strong>728da9773912b31b686a132fc018367adab4e1b7.jpg</strong> (142.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 18:08 上传
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
