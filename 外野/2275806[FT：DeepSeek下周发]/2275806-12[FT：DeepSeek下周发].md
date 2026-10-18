@@ -7896,3 +7896,146 @@ glm是玩酒馆最好的国产ai了啊，甲薄文笔好，还能写雌小鬼</b
 
 希望DS能给我面子。
 
+
+*****
+
+####  bartholo4  
+##### 17026#       发表于 2026-10-18 23:41
+
+wb 现在的羊毛多，中转站用号池反代出来收费，周末 4 块多蹬了 6 亿的 1017
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nxmonitor  
+##### 17027#       发表于 2026-10-18 23:43
+
+ 本帖最后由 nxmonitor 于 2026-10-19 00:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392968&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-18 23:38</a>
+
+【[GPT-6 Astra VS deep seekV4.1flash]同一套提示词动画创作审美对比-哔哩哔哩】 [https://b23.tv/BV1zpn36](https://b23.tv/BV1zpn36) ...</blockquote>
+真的很难评论说蒸馏GPT的人是怎么想的，前端提升最大但是这部分蒸GPT干什么
+
+*****
+
+####  neptunehs  
+##### 17028#       发表于 2026-10-18 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392996&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-18 23:43</a>
+真的很难评论蒸馏GPT是怎么想的，前端蒸GPT干什么</blockquote>
+喜欢喊蒸馏的能不能分清前端后端 有没有哪个前端更牛的审美 都难说呢
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nxmonitor  
+##### 17029#       发表于 2026-10-19 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393026&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-10-18 23:50</a>
+
+喜欢喊蒸馏的能不能分清前端后端 有没有哪个前端更牛的审美 都难说呢
+
+—— 来自 vivo V2561A, Android 1 ...</blockquote>
+这些人都是因为鹈鹕像所以才这么说的，其实其他例子看审美风格是完全不一样的，估计网上语料里Astra鹈鹕最多所以鹈鹕就像了，全是前端时间测降智出来的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 17030#       发表于 2026-10-19 00:32
+
+<img src="https://img.stage1st.com/forum/202610/19/003202kbdaw6pk8znkwr8s.jpg" referrerpolicy="no-referrer">
+
+<strong>18205CF836DA2F1F0CCDB0AF6E33D9DD.jpg</strong> (146.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 00:32 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">我怎么就没有512G内存呢
+
+*****
+
+####  bixinhaner  
+##### 17031#       发表于 2026-10-19 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392423&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-10-18 21:17</a>
+好激动，deepseek 4.1flash 1017 mxfp4，我本地居然可以部署了，马上下载520G权重。。。 ...</blockquote>
+大佬什么配置，能跑起来4.1 flash?
+
+*****
+
+####  泰坦失足  
+##### 17032#       发表于 2026-10-19 02:53
+
+机器能跑起来推理才是第一关，后面要折腾的事情多了去了。现在闲着没事就让Fable/Opus优化推理和训练。
+
+*****
+
+####  AraTurambar  
+##### 17033#       发表于 2026-10-19 02:58
+
+我手里现在8条DDR4 128GB，Xeon8380，W7900 Pro，等一下试试看能不能跑起来。
+
+*****
+
+####  Shih0_Matsuri  
+##### 17034#       发表于 2026-10-19 04:10
+
+glm是玩酒馆最好的国产ai了啊，甲薄文笔好，还能写雌小鬼
+
+*****
+
+####  Shih0_Matsuri  
+##### 17035#       发表于 2026-10-19 04:19
+
+128g跑隔壁qwen flash next吧，那个更强
+
+*****
+
+####  tillnight  
+##### 17036#       发表于 2026-10-19 05:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392852&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-10-18 23:05</a>
+
+关键没有一个地方看余量，我现在干到一半，换其他模型就怕前后不一致，还以为积分有能一直用下去，还是我 ...</blockquote>
+有人测过41f大概一天2e左右tokens，正常办公是碰不到的。wb付费以后本身是没有任何5h/周限的（包括免费送的积分），要求单独给免费用户开一个还剩多少白嫖限额的统计池就有些苛责了。
+
+*****
+
+####  squallx  
+##### 17037#       发表于 2026-10-19 05:01
+
+ 本帖最后由 squallx 于 2026-10-19 05:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393349&amp;ptid=2275806" target="_blank">Shih0_Matsuri 发表于 2026-10-19 04:10</a>
+
+glm是玩酒馆最好的国产ai了啊，甲薄文笔好，还能写雌小鬼</blockquote>
+没玩过 不是有甲吗？ 能有哈基米几成功力
+
+现在1017的铜甲有点离谱了 读图读到个稍微脸圆一些但是前凸后翘的二次元画风就非得说是铜疯狂拒绝<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer"> 🌿了这是蒸的时候把甲给一起蒸过来了吗 以前DS根本没这么离谱的过度防御
+
+*****
+
+####  AraTurambar  
+##### 17038#       发表于 2026-10-19 05:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393352&amp;ptid=2275806" target="_blank">Shih0_Matsuri 发表于 2026-10-19 04:19</a>
+
+128g跑隔壁qwen flash next吧，那个更强</blockquote>
+八条128G，一个T来的，8380八通道。
+
+希望DS能给我面子。
+
+*****
+
+####  Shih0_Matsuri  
+##### 17039#       发表于 2026-10-19 05:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393362&amp;ptid=2275806" target="_blank">squallx 发表于 2026-10-19 05:01</a>
+
+没玩过 不是有甲吗？ 能有哈基米几成功力
+
+现在1017的铜甲有点离谱了 读图读到个稍微脸圆一些但是前凸后翘 ...</blockquote>
+国产就是甲最薄的啊，哈基米那属于过于奔放了，glm还挺好，能写雌小鬼。glm就是速度和ds没法比，不过现在有个glm5.3flashx应该速度快一些
+
