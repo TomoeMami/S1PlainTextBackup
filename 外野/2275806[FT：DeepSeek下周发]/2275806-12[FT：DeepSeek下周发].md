@@ -7540,3 +7540,55 @@ ds新的模型视觉识别还行，写了个demo，反推nsfw提示词够用
 字节没审美但是有数据啊。seedance现在还是孤独求败，就是因为字节有一大堆视频数据，不知道能不能拿来练 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">顶头老板是个撒比 数据再多有何用
 
+
+*****
+
+####  andychen  
+##### 16991#       发表于 2026-10-18 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392320&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-18 20:48</a>
+
+字节没审美但是有数据啊。seedance现在还是孤独求败，就是因为字节有一大堆视频数据，不知道能不能拿来练 ...</blockquote>
+字节就是中国meta，各方面都一模一样的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有鱼  
+##### 16992#       发表于 2026-10-18 21:39
+
+<img src="https://img.stage1st.com/forum/202610/18/213913xb7eozk9jhu1mvue.png" referrerpolicy="no-referrer">
+
+<strong>d0646389c18b6007e6ee9c30aa3e7c5b.png</strong> (334.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 21:39 上传
+
+企业文化，，，
+
+*****
+
+####  knnknn  
+##### 16993#       发表于 2026-10-18 21:41
+
+<blockquote>有鱼 发表于 2026-10-18 21:39
+企业文化，，，</blockquote>
+这是哪位啊，有前景提要吗
+
+
+*****
+
+####  tk553521  
+##### 16994#       发表于 2026-10-18 21:43
+
+这应该是多个ds员工言论汇总
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  来都来了  
+##### 16995#       发表于 2026-10-18 21:46
+
+智谱已经是达利特待遇了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
