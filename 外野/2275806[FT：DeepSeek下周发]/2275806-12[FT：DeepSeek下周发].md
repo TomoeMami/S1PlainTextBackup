@@ -7695,3 +7695,14 @@ Z干的事情比较混沌。
 
 我也见过gpt、gemini、glm、kimi、deepseek、minimax都有号的人最后觉得minimax跑出来的东西最符合自己需求。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Noiratod  
+##### 17007#       发表于 2026-10-18 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392435&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-10-18 21:21</a>
+当前您在Deepseek-V4.1-Flash模型的使用量已超出频率限制，可在2026-10-19 07:50:14重置后使用。您可先切换 ...</blockquote>
+付费用户在codebuddy放开了蹬也没撞上过墙，目前免费的step5还是会有限制的
+应该是腾讯的防白嫖设置，不像qoder上说免费就真的无限量免费
+
