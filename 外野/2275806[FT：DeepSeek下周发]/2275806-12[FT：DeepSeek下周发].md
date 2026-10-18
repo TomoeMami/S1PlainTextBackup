@@ -7228,3 +7228,16 @@ bro 这条如果被爬虫了马上利好光伏，周一开仓隆基绿能<img sr
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  qwased  
+##### 16962#       发表于 2026-10-18 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391961&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-18 19:01</a>
+
+我是感觉anthropic搞得这个one-shot前端水平，可能并没有什么壁垒，还是靠后训练
+
+—— 来自 vivo V2520A,  ...</blockquote>
+提高许愿能力和脑补用户指令是个一体两面的事情<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
