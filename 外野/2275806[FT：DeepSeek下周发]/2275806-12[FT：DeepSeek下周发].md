@@ -7616,3 +7616,33 @@ Z干的事情比较混沌。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内模型我用得最多的就是GLM5.3 我有罪
 
+
+*****
+
+####  相见恨晚  
+##### 16999#       发表于 2026-10-18 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392435&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-10-18 21:21</a>
+
+当前您在Deepseek-V4.1-Flash模型的使用量已超出频率限制，可在2026-10-19 07:50:14重置后使用。您可先切换 ...</blockquote>
+对啊，这个就是坑人，而且换别的模型还是会说上限不能用
+
+*****
+
+####  Milarvoz  
+##### 17000#       发表于 2026-10-18 22:02
+
+树大招风，梁圣确实也该管管手下不能随意发表意见了，至少不能顶着ds的名头随意口嗨。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  keenkiller  
+##### 17001#       发表于 2026-10-18 22:03
+
+我在DSH里面用感觉还可以，但是在workbuddy里面感觉还是个弱智
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
