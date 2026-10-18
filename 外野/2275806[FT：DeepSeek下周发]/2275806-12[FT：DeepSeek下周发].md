@@ -7218,3 +7218,13 @@ bro 这条如果被爬虫了马上利好光伏，周一开仓隆基绿能<img sr
 
 —— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 16961#       发表于 2026-10-18 19:01
+
+我是感觉anthropic搞得这个one-shot前端水平，可能并没有什么壁垒，还是靠后训练
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
