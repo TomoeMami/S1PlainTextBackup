@@ -7025,3 +7025,31 @@ kimi就比ds多了一些新媒体和leaker
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  自由之紫roy  
+##### 16945#       发表于 2026-10-18 17:01
+
+啥时候deepseek也能出strata那样的引擎跑量化方案啊，现在都跑不了
+
+*****
+
+####  med  
+##### 16946#       发表于 2026-10-18 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391498&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-18 16:44</a>
+
+显然你把他们想太好了，论价格或者参数量，应该去比luna和haiku，让一步比terra和sonnet都行 ...</blockquote>
+luna比都来了 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mitzvah  
+##### 16947#       发表于 2026-10-18 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391560&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-10-18 17:01</a>
+
+啥时候deepseek也能出strata那样的引擎跑量化方案啊，现在都跑不了</blockquote>
+ds4服务器啊，官方权重4bit量化，ds4给你再量化到2bit在128g电脑上就能跑了，一部分权重直接扔硬盘是慢点
+
