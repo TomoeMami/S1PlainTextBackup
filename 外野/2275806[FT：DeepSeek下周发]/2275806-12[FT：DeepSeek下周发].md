@@ -7804,3 +7804,19 @@ wb 现在的羊毛多，中转站用号池反代出来收费，周末 4 块多�
 —— 来自 vivo V2561A, Android 1 ...</blockquote>
 这些人都是因为鹈鹕像所以才这么说的，其实其他例子看审美风格是完全不一样的，估计网上语料里Astra鹈鹕最多所以鹈鹕就像了，全是前端时间测降智出来的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 17017#       发表于 2026-10-19 00:32
+
+<img src="https://img.stage1st.com/forum/202610/19/003202kbdaw6pk8znkwr8s.jpg" referrerpolicy="no-referrer">
+
+<strong>18205CF836DA2F1F0CCDB0AF6E33D9DD.jpg</strong> (146.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 00:32 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">我怎么就没有512G内存呢
+
