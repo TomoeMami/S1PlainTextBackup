@@ -7007,3 +7007,21 @@ flash能和这两模型比，已经赢了。等pro端出来吧<img src="https://
 flash能和这两模型比，已经赢了。等pro端出来吧</blockquote>
 显然你把他们想太好了，论价格或者参数量，应该去比luna和haiku，让一步比terra和sonnet都行
 
+
+*****
+
+####  lactone  
+##### 16944#       发表于 2026-10-18 16:50
+
+我是觉得现在ai时代这几个厂商保密反而好了
+
+ds基本是都不知道在干啥，连leaker都很少
+anthropic基本靠x上的leaker预告
+kimi就比ds多了一些新媒体和leaker
+
+只有openai和智谱还和科技媒体有联系
+
+谷歌和qwen倒是走大厂的媒体信息链路
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

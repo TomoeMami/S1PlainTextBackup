@@ -3862,3 +3862,14 @@ QQ图片20261017100639.png
 
 重制版是不是把战斗画面插桢补帧搞到60帧了，印象中原版的战斗没这么丝滑
 
+
+*****
+
+####  river1981  
+##### 348#       发表于 2026-10-18 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382493&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-10-16 15:38</a>
+
+不慌 我一怒直接不买了 等真打折到80再见</blockquote>
+同错过临时工，先放心愿单，最近反正也没空玩
+
