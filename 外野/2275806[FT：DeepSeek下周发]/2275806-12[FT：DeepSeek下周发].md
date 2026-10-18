@@ -7862,3 +7862,24 @@ glm是玩酒馆最好的国产ai了啊，甲薄文笔好，还能写雌小鬼
 
 128g跑隔壁qwen flash next吧，那个更强
 
+
+*****
+
+####  tillnight  
+##### 17023#       发表于 2026-10-19 05:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392852&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-10-18 23:05</a>
+
+关键没有一个地方看余量，我现在干到一半，换其他模型就怕前后不一致，还以为积分有能一直用下去，还是我 ...</blockquote>
+有人测过41f大概一天2e左右tokens，正常办公是碰不到的。wb付费以后本身是没有任何5h/周限的（包括免费送的积分），要求单独给免费用户开一个还剩多少白嫖限额的统计池就有些苛责了。
+
+*****
+
+####  squallx  
+##### 17024#       发表于 2026-10-19 05:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393349&amp;ptid=2275806" target="_blank">Shih0_Matsuri 发表于 2026-10-19 04:10</a>
+
+glm是玩酒馆最好的国产ai了啊，甲薄文笔好，还能写雌小鬼</blockquote>
+没玩过 不是有甲吗？ 能有哈基米几成功力
+
