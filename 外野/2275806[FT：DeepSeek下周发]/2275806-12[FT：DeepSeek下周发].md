@@ -6951,3 +6951,22 @@ ds两天跑了我60块，赠金都跑完了，我就一句话，还是💩
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  andychen  
+##### 16939#       发表于 2026-10-18 16:02
+
+OpenAI的API有新的测试模型了，不知道是不是Astra 6.1
+
+*****
+
+####  lactone  
+##### 16940#       发表于 2026-10-18 16:04
+
+不是，怎么不少评测yygq的，直接掏出opus5.5和astra的好例子对比，然后说有进步还有差距
+
+那不当然还有差距，这要没差距你梁叔叔直接封神了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
