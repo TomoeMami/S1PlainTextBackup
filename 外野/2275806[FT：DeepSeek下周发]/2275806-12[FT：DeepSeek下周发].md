@@ -7206,3 +7206,15 @@ luna和haiku连910都差得远
 
 仔细想想5.6sol其实是三个月前的旗舰<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绕指流光  
+##### 16960#         楼主| 发表于 2026-10-18 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390598&amp;ptid=2275806" target="_blank">夜游宫 发表于 2026-10-18 11:43</a>
+个人感觉更像是太阳能板。</blockquote>
+bro 这条如果被爬虫了马上利好光伏，周一开仓隆基绿能<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

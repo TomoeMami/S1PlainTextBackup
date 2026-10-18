@@ -4504,3 +4504,12 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 女王是最容易挖萌萌哒的，最后四条线我是女王队最强，但是除了女王之外都是挖角的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北条早苗  
+##### 7843#       发表于 2026-10-18 18:48
+
+蕾达队估计是为了队长打不了输出故意平衡的队友强度，结果加过头了
+初始队里最菜的巴卡尼亚放凯队也是大爹级别的前排了，白送的金天马也是全能的高速天马/法师模子，古神也是前期可以招募
+

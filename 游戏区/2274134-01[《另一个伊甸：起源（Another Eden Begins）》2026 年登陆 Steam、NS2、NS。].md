@@ -346,3 +346,16 @@ OK，打开游戏找到了，在这个版本里莉卡只有两个地属性技能
 
 手游里比较精髓的剧情都在外传了
 
+
+*****
+
+####  新HGCG  
+##### 109#       发表于 2026-10-18 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70373584&amp;ptid=2274134" target="_blank">椎名mahuyo 发表于 2026-10-15 02:00</a>
+
+钱用不完的，稍微后面点加入的任务，好感任务做一次就是30w，最多的到70w
+
+—— 来自 realme RMX3708, An ...</blockquote>
+通马桶太漫长了
+
