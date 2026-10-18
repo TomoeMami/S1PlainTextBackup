@@ -6234,3 +6234,71 @@ DSH特地给1017版本做了一个图标，以后是不是小版本更新是常�
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  mitzvah  
+##### 16871#       发表于 2026-10-18 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390017&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-10-18 08:49</a>
+
+1017梁子投机选了和a畜一样的流量打法，优化前端能力。op5.5在屎山代码里一直被gpt系压一头，最新那期都和g ...</blockquote>
+屎山代码现在用静态工具逐个拉清单，dap动态补盲区与状态迁移矩阵那套工具卸载认知的搞法，就是老的4.1flash我都觉得几乎无敌，视觉和视觉相关的前端问题那才是老4.1怎么努力都不行的
+
+集中精力在前端oneshot上没有问题
+
+*****
+
+####  lactone  
+##### 16872#       发表于 2026-10-18 09:08
+
+我其实觉得，coding逻辑现在的ai能力提升已经到边际了
+
+十倍coding能力能把代码性能提升5%吗？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  mitzvah  
+##### 16873#       发表于 2026-10-18 09:08
+
+说真的我用下来真不觉得老4.1的max有雷霆大思考的问题，凡是出现了这种过度思考，就是缺少工具使用注入的特征，直接问他你这个时候应该用什么工具，然后以后在类似的情况直接注入工具使用的prompt，甚至直接流程固化让其拉清单逐个基于工具分析问题，处理后端真的几爽，最多就是一堆黑话不说人话了点
+
+*****
+
+####  nxmonitor  
+##### 16874#       发表于 2026-10-18 09:09
+
+1017总算是DSH比其他harness强了，这个才是正常的，原来贼code最好真是服了
+
+*****
+
+####  绝地潜兵  
+##### 16875#       发表于 2026-10-18 09:09
+
+这版大肥鱼发现有不读skill的毛病，跑任务原地碰壁好几圈，只好把注意事项写入了AGENTS.md
+
+*****
+
+####  zhongjie  
+##### 16876#       发表于 2026-10-18 09:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390052&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-18 09:08</a>
+我其实觉得，coding逻辑现在的ai能力提升已经到边际了
+
+十倍coding能力能把代码性能提升5%吗？</blockquote>
+可以吧，现在还是老是返修，不能无bug一次过
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nxmonitor  
+##### 16877#       发表于 2026-10-18 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390017&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-10-18 08:49</a>
+
+1017梁子投机选了和a畜一样的流量打法，优化前端能力。op5.5在屎山代码里一直被gpt系压一头，最新那期都和g ...</blockquote>
+后端也变强了，但是因为原来已经不错了所以幅度小，前端起点更低看上去提升很明显
+
