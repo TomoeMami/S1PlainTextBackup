@@ -7198,3 +7198,11 @@ Astra6前端确实是弱项，实际项目的前端跑下来感觉也跟1017拉�
 
 luna和haiku连910都差得远
 
+
+*****
+
+####  Promeus  
+##### 16959#       发表于 2026-10-18 18:45
+
+仔细想想5.6sol其实是三个月前的旗舰<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4494,3 +4494,13 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 终于把蕾达战争篇打完了，一流姐原来这么强，一开始我还以为就是个高速肌无力，没想到特技这么吊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蕾达这队主角强的很平均感觉很好，接下来试试用女王
 
+
+*****
+
+####  真田源次郎信繁  
+##### 7842#       发表于 2026-10-18 18:41
+
+雷达队自带的角色是四个线路里最牛逼的
+
+女王是最容易挖萌萌哒的，最后四条线我是女王队最强，但是除了女王之外都是挖角的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
