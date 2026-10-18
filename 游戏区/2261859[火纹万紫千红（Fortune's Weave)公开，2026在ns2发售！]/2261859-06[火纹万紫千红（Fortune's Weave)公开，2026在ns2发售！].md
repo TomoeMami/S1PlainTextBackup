@@ -4486,3 +4486,11 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 感觉带点小巧思，亚拉格国王血量55，觉醒后的贝特兰一斧头27，砍两下剩1血亚丝望美美收头（
 
+
+*****
+
+####  -マユ‐  
+##### 7841#       发表于 2026-10-18 18:26
+
+终于把蕾达战争篇打完了，一流姐原来这么强，一开始我还以为就是个高速肌无力，没想到特技这么吊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蕾达这队主角强的很平均感觉很好，接下来试试用女王
+

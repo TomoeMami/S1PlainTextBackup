@@ -7179,3 +7179,22 @@ Astra6前端确实是弱项，实际项目的前端跑下来感觉也跟1017拉�
 
 ——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  静哮苍穹  
+##### 16957#       发表于 2026-10-18 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391771&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-10-18 18:08</a>
+转自贴吧
+
+</blockquote>
+多少带点恨在的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  lly778  
+##### 16958#       发表于 2026-10-18 18:29
+
+luna和haiku连910都差得远
+
