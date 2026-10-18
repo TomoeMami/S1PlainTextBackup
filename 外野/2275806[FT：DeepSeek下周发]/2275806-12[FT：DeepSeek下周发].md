@@ -6762,3 +6762,24 @@ mimo2.6是个啥货色还值得讨论吗</blockquote>
 
 要是放去年底token卖不出去的时候还好说，现在每家厂都把算力大部分放到训练上了，要想多赚钱只要提供更多推理服务就可以
 
+
+*****
+
+####  来都来了  
+##### 16922#       发表于 2026-10-18 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390485&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-10-18 11:11</a>
+现在最低成本部署4.1flash大概是什么价位？mac studio, dgx spark, 还是nv算力卡？
+现在百万成本以下本地部 ...</blockquote>
+10万只是门槛，勉强能跑起来。单并发，100来K上下文，每秒几十Tokens这样的。这钱拿去蹬官方的API能够你蹬10年。想要摸到官方API的性能边上，基本上是50万美元起的。
+
+
+*****
+
+####  requiem116  
+##### 16923#       发表于 2026-10-18 14:12
+
+这个argon怎么在网页端聊几句都把额度用完了
+
+还是说之前那个便宜pro就这样？
+
