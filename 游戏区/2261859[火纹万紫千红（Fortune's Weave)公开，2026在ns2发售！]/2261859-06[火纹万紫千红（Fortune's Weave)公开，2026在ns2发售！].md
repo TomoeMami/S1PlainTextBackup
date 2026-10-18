@@ -4652,3 +4652,16 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 还是说其实每段开头都是黑屏？我怎么记得应该是直接出地图的。
 
+
+*****
+
+####  lmclmc2  
+##### 7857#       发表于 2026-10-19 02:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392950&amp;ptid=2261859" target="_blank">5ew47 发表于 2026-10-18 23:34</a>
+
+除了优化剧情锁外，希望把救世主的味蕾也强化一下，这人吃啥都是一般般带他吃饭真的很没劲。
+
+虽然贝老师也 ...</blockquote>
+不光是这样,3个人如果都喜欢的话应该是出perfect的
+
