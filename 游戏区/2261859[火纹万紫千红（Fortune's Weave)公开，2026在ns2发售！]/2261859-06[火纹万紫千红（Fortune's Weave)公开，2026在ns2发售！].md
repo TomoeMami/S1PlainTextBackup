@@ -4535,3 +4535,14 @@ document.getElementById('flv_cdd').innerHTML=("");
 一流姐和露露2个顶尖天马，养起来那真的无敌</blockquote>
 露露原来要转天马吗？？？我转勇士了……
 
+
+*****
+
+####  ParukiaMKII  
+##### 7846#       发表于 2026-10-18 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392163&amp;ptid=2261859" target="_blank">廖化 发表于 2026-10-18 20:00</a>
+
+露露原来要转天马吗？？？我转勇士了……</blockquote>
+我是第三章直接转的最上级天马，前面也在土匪坐冷板凳，第三章打着打着一看属性，速度50+，力量35+，就转天马了，自己还有技能加回避
+

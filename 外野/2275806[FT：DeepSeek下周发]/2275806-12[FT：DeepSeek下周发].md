@@ -7286,3 +7286,39 @@ luna和haiku不是野狗，但是能说出Deepseek不如Luna和Haiku的，绝对
 
 不算国庆假期的话，0910到1017正好一个月，后续还能一个月迭代一版Flash就有乐子了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  phorcys02  
+##### 16968#       发表于 2026-10-18 20:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390286&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-10-18 10:23</a>
+
+也有人说1017长任务表现很糟糕，看来神鬼二象性依然还在</blockquote>
+多长的任务，我这一个任务从昨天到今天跑了超过24h了，烧了3B+了，
+
+目前是第 237轮，我看完成的还可以啊， 估计400轮可以全部完成了。
+
+除了上下文快满的那几轮会摸鱼，没什么太大问题
+
+我设置的是 55%就压缩。
+
+*****
+
+####  nxmonitor  
+##### 16969#       发表于 2026-10-18 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391624&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-18 17:21</a>
+
+和luna比就真的完了，看评价基本都是说超过5.6sol的</blockquote>
+luna从有开始从来没赢过同期的Flash，这说的是有些评测故意装傻拿Astra和Opus5.5出来比
+
+*****
+
+####  lactone  
+##### 16970#       发表于 2026-10-18 20:13
+
+1017的例子满天飞，觉得不如luna 和haiku的可以跑一个试试
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
