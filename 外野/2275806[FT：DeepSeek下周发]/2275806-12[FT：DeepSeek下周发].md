@@ -7278,3 +7278,11 @@ luna和haiku不是野狗，但是能说出Deepseek不如Luna和Haiku的，绝对
 
 让dsh给我做个游戏ui做参考，做了一小时花了六千万token，一看发现在努力做游戏素材。难道是one shot训练做多了觉得我是想直接做个游戏？
 
+
+*****
+
+####  一般市民  
+##### 16967#       发表于 2026-10-18 19:52
+
+不算国庆假期的话，0910到1017正好一个月，后续还能一个月迭代一版Flash就有乐子了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
