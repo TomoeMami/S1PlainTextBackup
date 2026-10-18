@@ -6735,3 +6735,30 @@ wb是官转。即使有自部署也是最纯净的，全球只有这家从9月�
 
 Ai的进步是为了极大发展生产力，从而跑步进入**，而不是为了几个逼人在那里坐地圈钱<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">单纯从生产力发展来看，我们国家无论有没有利润都会全力投入AI的
 
+
+*****
+
+####  卡普空  
+##### 16920#       发表于 2026-10-18 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389011&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-17 22:03</a>
+老4.1弱于mimo2.6，这个榜基本已经没价值了
+
+mimo2.6是个啥货色还值得讨论吗</blockquote>
+刷分专业户也正常
+
+—— 来自 HUAWEI VDE-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  andychen  
+##### 16921#       发表于 2026-10-18 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390717&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-10-18 12:12</a>
+
+如果价格低到这种地步，还会有像现在这样飞快迭代AI模型的需求吗。没有巨额利润支持美国那一堆AI全都药丸 ...</blockquote>
+推理服务的利润高得要命
+
+要是放去年底token卖不出去的时候还好说，现在每家厂都把算力大部分放到训练上了，要想多赚钱只要提供更多推理服务就可以
+
