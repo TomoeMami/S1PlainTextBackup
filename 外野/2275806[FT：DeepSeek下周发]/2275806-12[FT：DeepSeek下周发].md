@@ -7592,3 +7592,27 @@ ds新的模型视觉识别还行，写了个demo，反推nsfw提示词够用
 
 智谱已经是达利特待遇了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 16996#       发表于 2026-10-18 21:48
+
+Z干的事情比较混沌。
+
+我只用过OASG四家加上DS、Kimi、Qwen, 完全没考虑过GLM就是了。
+
+*****
+
+####  有鱼  
+##### 16997#       发表于 2026-10-18 21:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这位“不知何许人”当时zcode事件在某个群聊里面直接骑脸智谱员工的，看起来是真的很性情了
+
+*****
+
+####  andychen  
+##### 16998#       发表于 2026-10-18 21:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内模型我用得最多的就是GLM5.3 我有罪
+
