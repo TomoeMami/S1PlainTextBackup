@@ -7392,3 +7392,51 @@ ds 这个级别的模型整天跟 O/A 两家旗舰对比，还不够赢么<img s
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Sunyalche  
+##### 16978#       发表于 2026-10-18 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392308&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-18 20:45</a>
+
+就看现在这种后训练魔法，我真有点期待字节的传说中的大模型了。字节的审美对齐数据应该很充足吧
+
+—— 来 ...</blockquote>
+字节这个公司的产品真有审美吗? 
+
+*****
+
+####  nxmonitor  
+##### 16979#       发表于 2026-10-18 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392308&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-18 20:45</a>
+
+就看现在这种后训练魔法，我真有点期待字节的传说中的大模型了。字节的审美对齐数据应该很充足吧
+
+—— 来 ...</blockquote>
+先预训练搞出来吧，要知道传说Argon是个Bel级别也是10T的模型……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 16980#       发表于 2026-10-18 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392312&amp;ptid=2275806" target="_blank">Sunyalche 发表于 2026-10-18 20:47</a>
+字节这个公司的产品真有审美吗?</blockquote>
+字节没审美但是有数据啊。seedance现在还是孤独求败，就是因为字节有一大堆视频数据，不知道能不能拿来练大模型的多模态
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  zhongjie  
+##### 16981#       发表于 2026-10-18 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392202&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-10-18 20:11</a>
+
+多长的任务，我这一个任务从昨天到今天跑了超过24h了，烧了3B+了，
+
+目前是第 237轮，我看完成的还可以啊， ...</blockquote>
+是自动压缩吗，还是用了什么压缩插件？
+
