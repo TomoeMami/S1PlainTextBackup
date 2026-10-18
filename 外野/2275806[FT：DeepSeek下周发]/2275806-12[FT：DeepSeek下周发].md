@@ -6450,3 +6450,27 @@ codex重置不要钱的啊 真的是在爽用
 
 突然想到鹈鹕特别像GPT，是不是因为网上鹈鹕的语料基本都是GPT出来的？不像才是要花功夫的……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhanglei1943  
+##### 16892#       发表于 2026-10-18 10:52
+
+<img src="https://img.stage1st.com/forum/202610/18/105220n1o9g7lseu9ho1hl.jpg" referrerpolicy="no-referrer">
+
+<strong>8959c6ea35f376020bb801a266d4a1f1.jpg</strong> (191.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 10:52 上传
+
+<img src="https://img.stage1st.com/forum/202610/18/105229t86yg486kcgevrm8.jpg" referrerpolicy="no-referrer">
+
+<strong>8293b78f60747d0ecb6d9d42ac5cbefb_720.jpg</strong> (112.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 10:52 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
