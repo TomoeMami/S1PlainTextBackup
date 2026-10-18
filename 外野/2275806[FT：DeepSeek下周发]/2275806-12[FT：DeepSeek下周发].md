@@ -6423,3 +6423,30 @@ workbuddy不太行，功能和skill还有mcp全关的情况下初始提示词直
 
 2026-10-18 10:37 上传
 
+
+*****
+
+####  绿色食品  
+##### 16889#       发表于 2026-10-18 10:42
+
+codex重置不要钱的啊 真的是在爽用
+
+*****
+
+####  空き地卯木  
+##### 16890#       发表于 2026-10-18 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389811&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-18 05:27</a>
+感觉1017把一波人打破防了
+
+空口鉴蒸已经开始了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最搞笑的还是指纹鉴路由到Astra的，梁叔叔路由了实验室版3倍速Astra是吧
+想蒸谁就蒸谁，想路由谁就路由谁，地上最自由的男人来了
+
+*****
+
+####  nxmonitor  
+##### 16891#       发表于 2026-10-18 10:45
+
+突然想到鹈鹕特别像GPT，是不是因为网上鹈鹕的语料基本都是GPT出来的？不像才是要花功夫的……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

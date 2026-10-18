@@ -4395,3 +4395,24 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  milky658  
+##### 7832#       发表于 2026-10-18 10:36
+
+第三部火气玩上来了，数值机制探索全摆烂，不想做了可以不做<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真田源次郎信繁  
+##### 7833#       发表于 2026-10-18 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390334&amp;ptid=2261859" target="_blank">UltramanPain 发表于 2026-10-18 10:33</a>
+
+感觉万缕千丝有个问题，剧情越往后，剧情播片越少。
+
+感觉是成本越来越高，缺经费了 </blockquote>
+很明显第一部先做的，后面是后补的，所以差别很大
+
