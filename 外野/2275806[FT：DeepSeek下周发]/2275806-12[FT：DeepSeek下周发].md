@@ -7053,3 +7053,17 @@ luna比都来了 <img src="https://static.stage1st.com/image/smiley/face2017/044
 啥时候deepseek也能出strata那样的引擎跑量化方案啊，现在都跑不了</blockquote>
 ds4服务器啊，官方权重4bit量化，ds4给你再量化到2bit在128g电脑上就能跑了，一部分权重直接扔硬盘是慢点
 
+
+*****
+
+####  andychen  
+##### 16948#       发表于 2026-10-18 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391523&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-18 16:50</a>
+我是觉得现在ai时代这几个厂商保密反而好了
+
+ds基本是都不知道在干啥，连leaker都很少</blockquote>
+Anthropic和OpenAI有很多leak啊，三天两头说要AGI了工作要没了世界要毁灭了消息源都是这两家的匿名工程师。信不信随你咯
+
+国内的话估计和半导体相关一样，有规矩不能出来乱说
+

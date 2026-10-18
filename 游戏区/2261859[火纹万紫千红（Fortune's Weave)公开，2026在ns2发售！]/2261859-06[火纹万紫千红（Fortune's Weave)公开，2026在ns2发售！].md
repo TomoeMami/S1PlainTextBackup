@@ -4464,3 +4464,17 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 —— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  燃烧的石头  
+##### 7839#       发表于 2026-10-18 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391552&amp;ptid=2261859" target="_blank">chiziru 发表于 2026-10-18 16:57</a>
+第三部开头，拉了一下综合能力，贝特兰倒数第十，还有必要练吗
+
+—— 来自 Xiaomi 2510DRK44C, Android 16, ...</blockquote>
+可以，第一时间转游侠补技敏，去玩剑就行，抛弃斧头
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
