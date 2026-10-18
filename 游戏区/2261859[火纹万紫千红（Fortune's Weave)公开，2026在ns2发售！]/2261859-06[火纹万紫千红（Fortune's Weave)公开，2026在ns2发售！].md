@@ -4579,3 +4579,13 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  5ew47  
+##### 7850#       发表于 2026-10-18 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70372642&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-10-14 20:34</a>
+原来IS你知道是奶龙的问题啊</blockquote>
+我今天也刚好看到这段支援了，全游戏对奶龙最温柔的人，给奶龙自己都说不好意思了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

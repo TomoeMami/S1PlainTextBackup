@@ -7646,3 +7646,20 @@ Z干的事情比较混沌。
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  当光停止  
+##### 17002#       发表于 2026-10-18 22:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">智谱主要是4代的时候只开源小的，旗舰啥的都闭源。
+
+*****
+
+####  phorcys02  
+##### 17003#       发表于 2026-10-18 22:07
+
+<blockquote>zhongjie 发表于 2026-10-18 20:48
+是自动压缩吗，还是用了什么压缩插件？</blockquote>
+就dsh的自动压缩，不过我做了个新profile,只改了下压缩阈值，继承自PTC
+
