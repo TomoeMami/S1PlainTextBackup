@@ -6608,3 +6608,33 @@ wb是官转。即使有自部署也是最纯净的，全球只有这家从9月�
 现在百万成本以下本地部 ...</blockquote>
 个人感觉更像是太阳能板。
 
+
+*****
+
+####  love4aids  
+##### 16906#       发表于 2026-10-18 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390576&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-10-18 11:34</a>
+
+现在Luna和Haiku的表现证明OA二畜自己蒸自己都蒸不明白，这还是在能用OPD的前提下 ...</blockquote>
+还有个，luna和haiku要是太强了，谁用Astra和fable啊。o出a出能搞好也不会搞的
+
+*****
+
+####  飞剪号  
+##### 16907#       发表于 2026-10-18 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390561&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-18 11:31</a>
+
+下周a/可能会发fable5.5，相比opus前端和one-shot肯定提升不少，到时候又可以咩鳖了
+
+—— 来自 vivo V2520 ...</blockquote>
+我相信梁圣的4.1pro会大杀四方的<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wandeeees  
+##### 16908#       发表于 2026-10-18 11:49
+
+等国内半导体突破，硬件价格下降，以及DS无卡野人的神级降成本技术，未来可期啊，想想缓存0.005的缓存0.5的输入 1的输出价格的flash模型甚至更低<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，如果算力卡和硬件价格更低，电费更低，真的就能成基础设施了
+
