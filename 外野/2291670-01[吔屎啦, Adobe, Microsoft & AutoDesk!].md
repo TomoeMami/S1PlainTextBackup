@@ -2257,3 +2257,19 @@ https://github.com/tangency-labs/fieldcraft
 
 2026-10-18 03:58 上传
 
+
+*****
+
+####  两个路人  
+##### 191#       发表于 2026-10-18 12:05
+
+<blockquote>hugosol 发表于 2026-10-16 18:01
+不知道额，大概跟S1性质差不多，要ICP备案之类的吧，顶多三天两头被人请去喝茶什么的
+
+不过有私信功能的AP ...</blockquote>
+**、telegram、line等等也不是一开始就被干的，黑灰产可是真的有
+
+https://a.vmall.com/commentList/C100427405
+
+<[img src="https://i.ibb.co/tw9k0V5c/aa9bi-lzbdw.webp" referrerpolicy="no-referrer">
+

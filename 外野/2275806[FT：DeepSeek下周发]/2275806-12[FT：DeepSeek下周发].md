@@ -6638,3 +6638,44 @@ wb是官转。即使有自部署也是最纯净的，全球只有这家从9月�
 
 等国内半导体突破，硬件价格下降，以及DS无卡野人的神级降成本技术，未来可期啊，想想缓存0.005的缓存0.5的输入 1的输出价格的flash模型甚至更低<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，如果算力卡和硬件价格更低，电费更低，真的就能成基础设施了
 
+
+*****
+
+####  nxmonitor  
+##### 16909#       发表于 2026-10-18 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390630&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-10-18 11:49</a>
+
+等国内半导体突破，硬件价格下降，以及DS无卡野人的神级降成本技术，未来可期啊，想想缓存0.005的缓存0.5的 ...</blockquote>
+但是这个方向会毁灭目前AI的估值，虽然通信和云计算照样有巨头，但是还是比不上的……
+
+*****
+
+####  cyberalogo  
+##### 16910#       发表于 2026-10-18 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390630&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-10-18 11:49</a>
+等国内半导体突破，硬件价格下降，以及DS无卡野人的神级降成本技术，未来可期啊，想想缓存0.005的缓存0.5的 ...</blockquote>
+如果价格低到这种地步，还会有像现在这样飞快迭代AI模型的需求吗。没有巨额利润支持美国那一堆AI全都药丸了。<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 16911#       发表于 2026-10-18 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390717&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-10-18 12:12</a>
+如果价格低到这种地步，还会有像现在这样飞快迭代AI模型的需求吗。没有巨额利润支持美国那一堆AI全都药丸 ...</blockquote>
+就等黑色星期五了现在
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nxmonitor  
+##### 16912#       发表于 2026-10-18 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390717&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-10-18 12:12</a>
+
+如果价格低到这种地步，还会有像现在这样飞快迭代AI模型的需求吗。没有巨额利润支持美国那一堆AI全都药丸 ...</blockquote>
+但是你不降本就和互联网时代开始时，几万一个电脑和几千一个月的宽带一样，根本没人能用
+
