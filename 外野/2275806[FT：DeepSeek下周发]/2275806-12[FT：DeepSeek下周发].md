@@ -7330,3 +7330,38 @@ luna从有开始从来没赢过同期的Flash，这说的是有些评测故意�
 
 怎么说得那么不清楚吗？不是某些评测故意拿Astra和Opus5.5出来说事吗？也不考虑这都不是一个量级的模型了，OA两家参数或者价格相近的模型实际都一塌糊涂。
 
+
+*****
+
+####  lactone  
+##### 16972#       发表于 2026-10-18 20:32
+
+qwen4快发了吧？希望max和27b一起来
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  qwased  
+##### 16973#       发表于 2026-10-18 20:32
+
+<img src="https://img.stage1st.com/forum/202610/18/203245jlimg7lm8yoqrm0z.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792326764764_1.webp</strong> (34.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 20:32 上传
+
+疯狂跳脸<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  R.I.P  
+##### 16974#       发表于 2026-10-18 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391098&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-10-18 14:21</a>
+
+介于ds 4.1p 0813和gem3.1p的不尽人意和后续难产，以及闭三家都开始拽词了。我觉得pro不太吉利，4.1说不定 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">屈原才是最早进行深度求索的！
+
