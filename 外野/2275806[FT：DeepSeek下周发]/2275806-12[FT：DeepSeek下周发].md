@@ -7067,3 +7067,13 @@ Anthropic和OpenAI有很多leak啊，三天两头说要AGI了工作要没了世�
 
 国内的话估计和半导体相关一样，有规矩不能出来乱说
 
+
+*****
+
+####  cscbzcbz  
+##### 16949#       发表于 2026-10-18 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391498&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-18 16:44</a>
+显然你把他们想太好了，论价格或者参数量，应该去比luna和haiku，让一步比terra和sonnet都行 ...</blockquote>
+和luna比就真的完了，看评价基本都是说超过5.6sol的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
