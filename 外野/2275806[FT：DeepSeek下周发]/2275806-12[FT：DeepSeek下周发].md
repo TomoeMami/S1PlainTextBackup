@@ -7365,3 +7365,30 @@ qwen4快发了吧？希望max和27b一起来
 介于ds 4.1p 0813和gem3.1p的不尽人意和后续难产，以及闭三家都开始拽词了。我觉得pro不太吉利，4.1说不定 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">屈原才是最早进行深度求索的！
 
+
+*****
+
+####  88316756  
+##### 16975#       发表于 2026-10-18 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392270&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-18 20:32</a>
+疯狂跳脸</blockquote>
+我记得当初梁就点名了，说他们家开源是非常不情愿的。
+
+
+*****
+
+####  jinuzuktII  
+##### 16976#       发表于 2026-10-18 20:45
+
+ds 这个级别的模型整天跟 O/A 两家旗舰对比，还不够赢么<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 16977#       发表于 2026-10-18 20:45
+
+就看现在这种后训练魔法，我真有点期待字节的传说中的大模型了。字节的审美对齐数据应该很充足吧
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
