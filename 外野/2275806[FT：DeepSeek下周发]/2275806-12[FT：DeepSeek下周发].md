@@ -7737,3 +7737,16 @@ qoder也有限额，而且连付费都会被限<img src="https://static.stage1st
 
 1017的后训练感觉效果不错，现在遇到网页反爬会主动通知用户手动操作了，之前都是一言不合开始反反爬
 
+
+*****
+
+####  空き地卯木  
+##### 17011#       发表于 2026-10-18 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392609&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-10-18 22:02</a>
+
+树大招风，梁圣确实也该管管手下不能随意发表意见了，至少不能顶着ds的名头随意口嗨。
+
+—— 来自 samsung  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">兴许员工福利就是新版本发布以后一个星期允许随地大小串呢 上次爆炒智谱员工也是0910老师发布一周左右的事情
+
