@@ -699,3 +699,14 @@ gba+nds 6作我没觉得哪作不行
 
 对应的lv1阿鲁巴斯进城后就开始刮的不行了。
 
+
+*****
+
+####  Xenor  
+##### 62#       发表于 2026-10-18 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389373&amp;ptid=2291849" target="_blank">yuy 发表于 2026-10-17 23:34</a>
+
+我觉得白夜是跑城最轻松的一作，难度最低完全不用练级，主角上来就能连续前冲刺，整部游戏节奏极快，200% ...</blockquote>
+想起白夜里面的怪还挺有意思的boss战打起来确实很轻松，要是能取消月球漫步通关速度应该还能更快<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主角的腰可真好全系列都没人能像它这样前后狂扭的
+
