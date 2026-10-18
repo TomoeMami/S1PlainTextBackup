@@ -7440,3 +7440,43 @@ ds 这个级别的模型整天跟 O/A 两家旗舰对比，还不够赢么<img s
 目前是第 237轮，我看完成的还可以啊， ...</blockquote>
 是自动压缩吗，还是用了什么压缩插件？
 
+
+*****
+
+####  moekyo  
+##### 16982#       发表于 2026-10-18 20:57
+
+今天看到傻逼的公众号原话：我怀疑（不负责任的猜测，我没有证据）它蒸馏了 Astra。没办法，只能直球**了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lambl  
+##### 16983#       发表于 2026-10-18 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388357&amp;ptid=2275806" target="_blank">千秋难诉 发表于 2026-10-17 19:36</a>
+
+梁圣什么时候出个正版大肥鱼fumo吧，求求了</blockquote>
+出了我必买啊。
+
+*****
+
+####  飞剪号  
+##### 16984#       发表于 2026-10-18 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392202&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-10-18 20:11</a>
+
+多长的任务，我这一个任务从昨天到今天跑了超过24h了，烧了3B+了，
+
+目前是第 237轮，我看完成的还可以啊， ...</blockquote>
+不知道，只是知乎有人这么说，不排除是黑子
+
+
+*****
+
+####  qz66618  
+##### 16985#       发表于 2026-10-18 21:03
+
+感觉DS应该是在后训练上做出了很大的突破，前段时间发的那个论文应该就是成果之一，梁文锋之前也只看好OAI和谷歌，所以搞出来个mini gpt6没什么意外的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
