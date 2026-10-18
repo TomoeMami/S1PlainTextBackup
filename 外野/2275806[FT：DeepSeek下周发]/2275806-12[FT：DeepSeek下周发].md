@@ -7480,3 +7480,27 @@ ds 这个级别的模型整天跟 O/A 两家旗舰对比，还不够赢么<img s
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lambl  
+##### 16986#       发表于 2026-10-18 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388429&amp;ptid=2275806" target="_blank">aimbot 发表于 2026-10-17 19:49</a>
+
+ds新的模型视觉识别还行，写了个demo，反推nsfw提示词够用
+
+反推了五张图1分钱
+
+那不考虑grok了 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/18/210542vx4yucbtt64646bp.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20261018210507.png</strong> (393.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 21:05 上传
+
+我直接让它用PIXAI的写了个界面啊，直接丢进去就可以批量打标，还可以顺便裁切，本地的都不用花一分钱。
+
