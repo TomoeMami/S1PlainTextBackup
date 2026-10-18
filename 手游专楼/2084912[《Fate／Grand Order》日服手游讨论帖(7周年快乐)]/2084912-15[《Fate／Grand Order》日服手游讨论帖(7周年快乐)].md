@@ -158,3 +158,75 @@
 然后就是上面那样了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zore  
+##### 21660#       发表于 2026-10-16 17:42
+
+不给特攻？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 21661#       发表于 2026-10-16 17:44
+
+ 本帖最后由 exiaexa 于 2026-10-16 18:09 编辑 
+
+抠抠搜搜的30充+3次B（西哥：第一次？
+
+好处是自己宝具OC效果非常猛，OC+2直接多了30宝具威力，双冠呆直接多一个黑杯
+
+这个数值卡得就非常WYS了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+试了下，100级3宝戴冠，双冠呆，羁绊礼装+30宝威，
+
+全buff一炮160W，宝QB打不掉，评价为不如西哥
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 21662#       发表于 2026-10-16 17:51
+
+ 本帖最后由 Jamaisvu 于 2026-10-16 17:58 编辑 
+
+Miss.datalost终于有自充了，不过强化幅度一般啊：一次性OC，红魔放三次，打个宝具红红就一回合用掉了...
+
+定位还是刷柱子和冠位战的1T选手，如果哪天三技能强化加个锁卡就好了，那么强的蓝卡性能现在纯浪费...
+
+*****
+
+####  qixinno1  
+##### 21663#       发表于 2026-10-16 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383344&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-10-16 17:44</a>
+
+抠抠搜搜的30充+3次B（西哥：第一次？
+
+好处是自己宝具OC效果非常猛，OC+2直接多了30宝具威力，双冠呆直接 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在剑冠最简单的还是双棉被吧 任意一个发出两张卡直接三连EX带走
+
+*****
+
+####  exiaexa  
+##### 21664#       发表于 2026-10-17 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70383583&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-10-16 18:32</a>
+
+现在剑冠最简单的还是双棉被吧 任意一个发出两张卡直接三连EX带走</blockquote>
+应该是吧
+
+我提西哥主要是我看有了强化本，把西哥换下来
+
+然后就是上面那样了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 21665#       发表于 2026-10-19 00:42
+
+CTM的，黑花池歪船长，所以狗屎UP率能不能改成0.9<img src="https://static.stage1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
