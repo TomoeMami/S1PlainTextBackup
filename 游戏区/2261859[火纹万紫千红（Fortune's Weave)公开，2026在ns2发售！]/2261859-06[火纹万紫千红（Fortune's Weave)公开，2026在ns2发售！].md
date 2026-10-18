@@ -4416,3 +4416,11 @@ document.getElementById('flv_cdd').innerHTML=("");
 感觉是成本越来越高，缺经费了 </blockquote>
 很明显第一部先做的，后面是后补的，所以差别很大
 
+
+*****
+
+####  ParukiaMKII  
+##### 7834#       发表于 2026-10-18 13:47
+
+180小时通关，体量这么大，还能让人一口气打通的游戏，此生少有啊。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
