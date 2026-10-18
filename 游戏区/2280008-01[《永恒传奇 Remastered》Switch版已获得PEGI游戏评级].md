@@ -3902,3 +3902,11 @@ QQ图片20261017100639.png
 重制版是不是把战斗画面插桢补帧搞到60帧了，印象中原版的战斗没这么丝滑 ...</blockquote>
 PSP版就是60帧了
 
+
+*****
+
+####  Xenor  
+##### 352#       发表于 2026-10-18 22:19
+
+觉得奥义特效有阉割回去看了下PSP版震惊了，PSP版比这重制高清多了，再切回来各种马赛克好不适应，前面说的都是幻觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在想着要是有人把PSP版汉化就香了
+

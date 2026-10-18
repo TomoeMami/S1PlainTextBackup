@@ -7663,3 +7663,27 @@ Z干的事情比较混沌。
 是自动压缩吗，还是用了什么压缩插件？</blockquote>
 就dsh的自动压缩，不过我做了个新profile,只改了下压缩阈值，继承自PTC
 
+
+*****
+
+####  Promeus  
+##### 17004#       发表于 2026-10-18 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392609&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-10-18 22:02</a>
+树大招风，梁圣确实也该管管手下不能随意发表意见了，至少不能顶着ds的名头随意口嗨。
+
+—— 来自 samsung  ...</blockquote>
+其实ds员工已经不咋说话了，上次z/跳脸这次被叼也正常
+
+
+*****
+
+####  cscbzcbz  
+##### 17005#       发表于 2026-10-18 22:24
+
+ 本帖最后由 cscbzcbz 于 2026-10-18 22:26 编辑 
+
+看得出来是真性情<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+快把pro端出来吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
