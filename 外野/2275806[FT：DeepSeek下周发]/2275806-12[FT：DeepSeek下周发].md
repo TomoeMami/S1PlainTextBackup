@@ -6326,3 +6326,17 @@ cot长度实际上跟工具使用直接相关的，原则上工具注入的越�
 
 众所周知豆奶宇宙的豆姐每天都是迪士尼在逃公主<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发呆的龙虾  
+##### 16880#       发表于 2026-10-18 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390040&amp;ptid=2275806" target="_blank">shimotsuki14 发表于 2026-10-18 08:57</a>
+才用上gemini4试了试，怎么同样类型的文字用app的3.7随便写这边动不动就不给过……
+
+—— 来自 OPPO PKJ110 ...</blockquote>
+从3.6到4，甲是越来越厚的。3.6到3.8还没什么感觉，反正文字能力差不多，到4就很烦了，回去用3.6就写不出4的那种感觉。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
