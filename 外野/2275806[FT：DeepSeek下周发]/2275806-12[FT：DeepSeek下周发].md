@@ -6984,3 +6984,26 @@ ds两天跑了我60块，赠金都跑完了，我就一句话，还是💩
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  cscbzcbz  
+##### 16942#       发表于 2026-10-18 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391387&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-18 16:04</a>
+不是，怎么不少评测yygq的，直接掏出opus5.5和astra的好例子对比，然后说有进步还有差距
+
+那不当然还有差距 ...</blockquote>
+flash能和这两模型比，已经赢了。等pro端出来吧<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 16943#       发表于 2026-10-18 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391490&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-18 16:42</a>
+
+flash能和这两模型比，已经赢了。等pro端出来吧</blockquote>
+显然你把他们想太好了，论价格或者参数量，应该去比luna和haiku，让一步比terra和sonnet都行
+
