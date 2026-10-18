@@ -6474,3 +6474,47 @@ codex重置不要钱的啊 真的是在爽用
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  profr  
+##### 16893#       发表于 2026-10-18 10:59
+
+问个问题，workbuddy中的deepseek4.1-flash已经是1017版本了吗？
+
+
+*****
+
+####  阿刚  
+##### 16894#       发表于 2026-10-18 11:02
+
+<blockquote>空き地卯木 发表于 2026-10-18 10:43
+最搞笑的还是指纹鉴路由到Astra的，梁叔叔路由了实验室版3倍速Astra是吧
+
+想蒸谁就蒸谁，想路由谁就路由谁 ...</blockquote>
+说真的就獭马这个流量，这个价格，这个速度，flash要真是路由的那才是真的奇点觉醒了好吧
+
+*****
+
+####  飞剪号  
+##### 16895#       发表于 2026-10-18 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390382&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-10-18 10:43</a>
+
+最搞笑的还是指纹鉴路由到Astra的，梁叔叔路由了实验室版3倍速Astra是吧
+
+想蒸谁就蒸谁，想路由谁就路由谁 ...</blockquote>
+知乎还有人说GPT开放了企业付费蒸馏通道，国内AI企业都是吃GPT尾气发爱国财的，味大
+
+*****
+
+####  tillnight  
+##### 16896#       发表于 2026-10-18 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390442&amp;ptid=2275806" target="_blank">profr 发表于 2026-10-18 10:59</a>
+
+问个问题，workbuddy中的deepseek4.1-flash已经是1017版本了吗？</blockquote>
+wb是官转。即使有自部署也是最纯净的，全球只有这家从9月开始tps一直是官方api水平。
+
+何况ds和wb现在明显是深度合作关系，公告里直接说专门适配，哪怕腾讯真是自部署也是权重提前给了第一时间上的，火山和阿里都在大喇叭我们第一时间上了1017，腾讯这里没必要多问。
+
