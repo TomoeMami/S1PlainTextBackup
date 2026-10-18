@@ -6587,3 +6587,24 @@ wb是官转。即使有自部署也是最纯净的，全球只有这家从9月�
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ycjiang1337  
+##### 16904#       发表于 2026-10-18 11:34
+
+现在Luna和Haiku的表现证明OA二畜自己蒸自己都蒸不明白，这还是在能用OPD的前提下
+
+
+*****
+
+####  夜游宫  
+##### 16905#       发表于 2026-10-18 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390485&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-10-18 11:11</a>
+
+现在最低成本部署4.1flash大概是什么价位？mac studio, dgx spark, 还是nv算力卡？
+
+现在百万成本以下本地部 ...</blockquote>
+个人感觉更像是太阳能板。
+
