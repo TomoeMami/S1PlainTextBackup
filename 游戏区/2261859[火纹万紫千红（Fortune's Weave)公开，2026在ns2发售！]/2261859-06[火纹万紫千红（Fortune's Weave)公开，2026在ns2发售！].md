@@ -4424,3 +4424,11 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 180小时通关，体量这么大，还能让人一口气打通的游戏，此生少有啊。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  廖化  
+##### 7835#       发表于 2026-10-18 15:30
+
+第三章战况怎么急转直下啊，明明要做的事多如牛毛结果时间根本不给够，钱也不给够，一个最上职业证要8K，银武器1W，哪来这么多钱啊！<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

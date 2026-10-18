@@ -6898,3 +6898,15 @@ todo list的任务并不全都是严格按前后顺序的
 
 如果模型判断各任务间没有依赖关系用户又给了权限，一般会放出多个sub agent进行并行
 
+
+*****
+
+####  serj005  
+##### 16934#       发表于 2026-10-18 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391252&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-18 15:13</a>
+有几个问题：
+
+1. 关于dsh的To-dos：对于每个任务，dsh下方会自动生成一个TODO列表，似乎是模型自己做了一 ...</blockquote>
+所有todo类功能都会有的固有缺陷，模型自己上下文忘了就经常会不打勾，这个东西本质是给用户看的而不是给模型自己用的。
+
