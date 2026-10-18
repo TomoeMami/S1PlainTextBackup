@@ -7883,3 +7883,16 @@ glm是玩酒馆最好的国产ai了啊，甲薄文笔好，还能写雌小鬼
 glm是玩酒馆最好的国产ai了啊，甲薄文笔好，还能写雌小鬼</blockquote>
 没玩过 不是有甲吗？ 能有哈基米几成功力
 
+
+*****
+
+####  AraTurambar  
+##### 17025#       发表于 2026-10-19 05:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393352&amp;ptid=2275806" target="_blank">Shih0_Matsuri 发表于 2026-10-19 04:19</a>
+
+128g跑隔壁qwen flash next吧，那个更强</blockquote>
+八条128G，一个T来的，8380八通道。
+
+希望DS能给我面子。
+
