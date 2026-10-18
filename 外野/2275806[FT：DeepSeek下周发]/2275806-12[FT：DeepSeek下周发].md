@@ -6844,3 +6844,17 @@ mimo2.6是个啥货色还值得讨论吗</blockquote>
 </blockquote>
 但是AI公司要炸了，A÷这种试图给自己估值两万亿，但是美国电信加起来好像只有几千亿市值…
 
+
+*****
+
+####  Litccc  
+##### 16930#       发表于 2026-10-18 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391070&amp;ptid=2275806" target="_blank">requiem116 发表于 2026-10-18 14:12</a>
+这个argon怎么在网页端聊几句都把额度用完了
+
+还是说之前那个便宜pro就这样？ ...</blockquote>
+argon的网页额度就是低的可怜，等后面看看能不能放开吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
