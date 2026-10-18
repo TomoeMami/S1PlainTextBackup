@@ -6858,3 +6858,28 @@ argon的网页额度就是低的可怜，等后面看看能不能放开吧
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  pure_liquid  
+##### 16931#       发表于 2026-10-18 15:13
+
+有几个问题：
+
+1. 关于dsh的To-dos：对于每个任务，dsh下方会自动生成一个TODO列表，似乎是模型自己做了一个规划。但是，我看模型自己好像压根不care这个规划：它会把所有的后续工作压在第一步做完；后面几步每次都是秒过，因为重活全都压在第一步提前干完了。这到底是dsh的显示有bug，还是模型执行规划的方式或能力有问题？
+
+2. 记得workbuddy之前在楼里爆出过劫持文件扩展名的行为。现在还有类似动作吗？另外，大家使用workbuddy时，感觉选择哪种套餐比较合适呢？
+
+*****
+
+####  lactone  
+##### 16932#       发表于 2026-10-18 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391252&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-18 15:13</a>
+有几个问题：
+
+1. 关于dsh的To-dos：对于每个任务，dsh下方会自动生成一个TODO列表，似乎是模型自己做了一 ...</blockquote>
+是有的时候可以并行的直接并行了，所以显得todos不按顺序
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
