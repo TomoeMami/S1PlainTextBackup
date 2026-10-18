@@ -7241,3 +7241,32 @@ bro 这条如果被爬虫了马上利好光伏，周一开仓隆基绿能<img sr
 —— 来自 vivo V2520A,  ...</blockquote>
 提高许愿能力和脑补用户指令是个一体两面的事情<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 16963#       发表于 2026-10-18 19:30
+
+讲道理2026年10月的今天就算前端审美有壁垒，也没有任何意义了，因为工程上已经有解决方案了
+
+就跟有了人造钻石技术之后，天然钻石再怎么吹稀有性你也不会花大价钱去买吧
+
+*****
+
+####  andychen  
+##### 16964#       发表于 2026-10-18 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391712&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-10-18 17:49</a>
+
+楼里的人对4.1f 1017感觉怎么样？我看有的人说不如luna和haiku，指令遵循还是不行？ ...</blockquote>
+Luna是真的只能干傻活
+
+至于Haiku，一个上下文100k后价格直接翻五倍的模型我觉得和完全没法用没区别
+
+*****
+
+####  来都来了  
+##### 16965#       发表于 2026-10-18 19:34
+
+luna和haiku不是野狗，但是能说出Deepseek不如Luna和Haiku的，绝对是百分百的野狗。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
