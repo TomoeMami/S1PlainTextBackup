@@ -6567,3 +6567,23 @@ wb是官转。即使有自部署也是最纯净的，全球只有这家从9月�
 
 梁圣，我们敬爱你口牙
 
+
+*****
+
+####  startraveller  
+##### 16902#       发表于 2026-10-18 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390485&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-10-18 11:11</a>
+现在最低成本部署4.1flash大概是什么价位？mac studio, dgx spark, 还是nv算力卡？
+现在百万成本以下本地部 ...</blockquote>
+3 x DGX Spark，但是内存有点紧，速度5、60tps，现在市价15w。建议充给梁叔叔。
+
+*****
+
+####  lactone  
+##### 16903#       发表于 2026-10-18 11:31
+
+下周a/可能会发fable5.5，相比opus前端和one-shot肯定提升不少，到时候又可以咩鳖了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
