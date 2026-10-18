@@ -7791,3 +7791,16 @@ wb 现在的羊毛多，中转站用号池反代出来收费，周末 4 块多�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  nxmonitor  
+##### 17016#       发表于 2026-10-19 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393026&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-10-18 23:50</a>
+
+喜欢喊蒸馏的能不能分清前端后端 有没有哪个前端更牛的审美 都难说呢
+
+—— 来自 vivo V2561A, Android 1 ...</blockquote>
+这些人都是因为鹈鹕像所以才这么说的，其实其他例子看审美风格是完全不一样的，估计网上语料里Astra鹈鹕最多所以鹈鹕就像了，全是前端时间测降智出来的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
