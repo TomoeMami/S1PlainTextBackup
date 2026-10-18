@@ -6812,3 +6812,35 @@ mimo2.6是个啥货色还值得讨论吗</blockquote>
 新会话头几次回复质量高很多，老会话依然很智障。以后得改流程了。</blockquote>
 被老会话历史思考链污染了吧
 
+
+*****
+
+####  Geronimo  
+##### 16927#       发表于 2026-10-18 14:45
+
+推理价格要是白菜化了那需求不是更旺盛么？
+不说别的，追求cot正确率直接上best-of-N多简单粗暴啊。
+
+—— 来自 HUAWEI VYG-AL30, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  startraveller  
+##### 16928#       发表于 2026-10-18 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391067&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-18 14:11</a>
+15～20万rmb只是门槛，勉强能跑起来。单并发，100来K上下文，每秒几十Tokens这样的。这钱拿去蹬官方的API ...</blockquote>
+倒也没那么慢，现在Tensorfold等投机解码+针对优化的引擎 成熟了。 四台DGX Spark跑原版能有1.5M上下文池+ 单流45tps/6流合计150+tps。 不过现在也得20万了。[https://github.com/tonyd2wild/De ... uns/2026-10-17-1017](https://github.com/tonyd2wild/DeepSeek-V4.1-Flash-vLLM-DGX-Spark/tree/main/runs/2026-10-17-1017)
+
+*****
+
+####  nxmonitor  
+##### 16929#       发表于 2026-10-18 14:47
+
+<blockquote>Geronimo 发表于 2026-10-18 14:45
+推理价格要是白菜化了那需求不是更旺盛么？
+
+不说别的，追求cot正确率直接上best-of-N多简单粗暴啊。
+</blockquote>
+但是AI公司要炸了，A÷这种试图给自己估值两万亿，但是美国电信加起来好像只有几千亿市值…
+
