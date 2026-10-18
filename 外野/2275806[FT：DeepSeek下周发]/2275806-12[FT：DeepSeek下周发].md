@@ -7779,3 +7779,15 @@ wb 现在的羊毛多，中转站用号池反代出来收费，周末 4 块多�
 【[GPT-6 Astra VS deep seekV4.1flash]同一套提示词动画创作审美对比-哔哩哔哩】 https://b23.tv/BV1zpn36 ...</blockquote>
 真的很难评论蒸馏GPT是怎么想的，前端蒸GPT干什么
 
+
+*****
+
+####  neptunehs  
+##### 17015#       发表于 2026-10-18 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392996&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-18 23:43</a>
+真的很难评论蒸馏GPT是怎么想的，前端蒸GPT干什么</blockquote>
+喜欢喊蒸馏的能不能分清前端后端 有没有哪个前端更牛的审美 都难说呢
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
