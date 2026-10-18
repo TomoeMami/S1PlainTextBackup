@@ -6518,3 +6518,42 @@ wb是官转。即使有自部署也是最纯净的，全球只有这家从9月�
 
 何况ds和wb现在明显是深度合作关系，公告里直接说专门适配，哪怕腾讯真是自部署也是权重提前给了第一时间上的，火山和阿里都在大喇叭我们第一时间上了1017，腾讯这里没必要多问。
 
+
+*****
+
+####  lactone  
+##### 16897#       发表于 2026-10-18 11:08
+
+为了咩鳖已经不要脑子
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  bixinhaner  
+##### 16898#       发表于 2026-10-18 11:11
+
+现在最低成本部署4.1flash大概是什么价位？mac studio, dgx spark, 还是nv算力卡？
+现在百万成本以下本地部署都能冲一冲旗舰模型性能了，算力会不会有点像20年前的房子，个人也要考虑上不上车了。
+看最近海内外大厂都在算力紧缺和不计成本砸钱的感想。
+
+*****
+
+####  heemoon  
+##### 16899#       发表于 2026-10-18 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390254&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-10-18 10:13</a>
+这版 workbuddy 也强得可怕，体感已经比 6.1SOL 加 ChatGPT 桌面端更强了
+
+—— 来自 Xiaomi M332BF, And ...</blockquote>
+和sol比感觉还是有不少差距的（不过我做的都偏前端，其他地方我也分不出好赖
+
+*****
+
+####  tillnight  
+##### 16900#       发表于 2026-10-18 11:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">我不懂你们还在纠结蒸馏路由干啥。
+
+如果没有这一轮oa互杀，国模沉默，某些人过于跳的没法蒸馏咯我们赢咯的表现，那其实倒还好。但是这一个月上串下跳配合速败党的乌烟瘴气，导致现在直接反转了，是不是蒸馏重要吗，反正某些人意淫的护城河是肯定没有的。那现在这种烧钱模式的ao的结局就是注定的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
