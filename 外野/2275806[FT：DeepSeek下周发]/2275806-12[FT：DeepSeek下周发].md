@@ -7100,3 +7100,25 @@ ao两家不太一样
 
 楼里的人对4.1f 1017感觉怎么样？我看有的人说不如luna和haiku，指令遵循还是不行？
 
+
+*****
+
+####  mitzvah  
+##### 16952#       发表于 2026-10-18 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391712&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-10-18 17:49</a>
+
+楼里的人对4.1f 1017感觉怎么样？我看有的人说不如luna和haiku，指令遵循还是不行？ ...</blockquote>
+这俩是什么野狗
+
+*****
+
+####  流浪的翅膀  
+##### 16953#       发表于 2026-10-18 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390717&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-10-18 12:12</a>
+如果价格低到这种地步，还会有像现在这样飞快迭代AI模型的需求吗。没有巨额利润支持美国那一堆AI全都药丸 ...</blockquote>
+人类的需求是无上限的，工具足够好的前提下，价格再低也拉爆算力
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
