@@ -6970,3 +6970,17 @@ OpenAI的API有新的测试模型了，不知道是不是Astra 6.1
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 16941#       发表于 2026-10-18 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391355&amp;ptid=2275806" target="_blank">umamusume 发表于 2026-10-18 15:53</a>
+ds两天跑了我60块，赠金都跑完了，我就一句话，还是💩
+
+—— 来自 samsung SM-S9480, Android 16, 鹅球 v4. ...</blockquote>
+跑的啥活儿？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
