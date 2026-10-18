@@ -7706,3 +7706,26 @@ Z干的事情比较混沌。
 付费用户在codebuddy放开了蹬也没撞上过墙，目前免费的step5还是会有限制的
 应该是腾讯的防白嫖设置，不像qoder上说免费就真的无限量免费
 
+
+*****
+
+####  qwased  
+##### 17008#       发表于 2026-10-18 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392835&amp;ptid=2275806" target="_blank">Noiratod 发表于 2026-10-18 23:02</a>
+付费用户在codebuddy放开了蹬也没撞上过墙，目前免费的step5还是会有限制的
+应该是腾讯的防白嫖设置，不 ...</blockquote>
+qoder也有限额，而且连付费都会被限<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zack1999  
+##### 17009#       发表于 2026-10-18 23:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392835&amp;ptid=2275806" target="_blank">Noiratod 发表于 2026-10-18 23:02</a>
+
+付费用户在codebuddy放开了蹬也没撞上过墙，目前免费的step5还是会有限制的
+
+应该是腾讯的防白嫖设置，不 ...</blockquote>
+关键没有一个地方看余量，我现在干到一半，换其他模型就怕前后不一致，还以为积分有能一直用下去，还是我天真了
+
