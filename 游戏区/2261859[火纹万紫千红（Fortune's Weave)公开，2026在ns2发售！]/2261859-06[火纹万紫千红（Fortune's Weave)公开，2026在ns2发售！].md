@@ -4432,3 +4432,17 @@ document.getElementById('flv_cdd').innerHTML=("");
 
 第三章战况怎么急转直下啊，明明要做的事多如牛毛结果时间根本不给够，钱也不给够，一个最上职业证要8K，银武器1W，哪来这么多钱啊！<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  trotsky  
+##### 7836#       发表于 2026-10-18 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391289&amp;ptid=2261859" target="_blank">廖化 发表于 2026-10-18 15:30</a>
+第三章战况怎么急转直下啊，明明要做的事多如牛毛结果时间根本不给够，钱也不给够，一个最上职业证要8K，银 ...</blockquote>
+时间很够的<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">一个区分是分两个阶段，差不多三区分拉满主力替补最上职业，四区分解锁完神将+完成所有任务
+
+银武器不如木/铁武器强化
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

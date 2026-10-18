@@ -6910,3 +6910,34 @@ todo list的任务并不全都是严格按前后顺序的
 1. 关于dsh的To-dos：对于每个任务，dsh下方会自动生成一个TODO列表，似乎是模型自己做了一 ...</blockquote>
 所有todo类功能都会有的固有缺陷，模型自己上下文忘了就经常会不打勾，这个东西本质是给用户看的而不是给模型自己用的。
 
+
+*****
+
+####  mitzvah  
+##### 16935#       发表于 2026-10-18 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391067&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-18 14:11</a>
+
+15～20万rmb只是门槛，勉强能跑起来。单并发，100来K上下文，每秒几十Tokens这样的。这钱拿去蹬官方的API ...</blockquote>
+不至于不至于，只要能跑起来就能开起码500k上下文，因为ds4系列模型的压缩注意力kv缓存被优化得太小了
+
+*****
+
+####  drenched  
+##### 16936#       发表于 2026-10-18 15:39
+
+我试了下新版的DS跑团，虽然文笔还是没哈基米好，而且一些AI管用词，如指尖发白什么的，还是偶尔会出现，怎么都禁不掉。。但是行文逻辑比之前好太多了，总算是能根据上下文正常按逻辑推动故事了。。之前跑不下去的哈利波特跑团，总算能继续下去了
+
+
+*****
+
+####  asier  
+##### 16937#       发表于 2026-10-18 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391252&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-18 15:13</a>
+
+有几个问题：
+
+1. 关于dsh的To-dos：对于每个任务，dsh下方会自动生成一个TODO列表，似乎是模型自己做了一 ...</blockquote>
+workbuddy新版不劫持文件关联了
+
