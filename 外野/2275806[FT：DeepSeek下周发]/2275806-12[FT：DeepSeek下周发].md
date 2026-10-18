@@ -7687,3 +7687,11 @@ Z干的事情比较混沌。
 
 快把pro端出来吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  当光停止  
+##### 17006#       发表于 2026-10-18 22:28
+
+我也见过gpt、gemini、glm、kimi、deepseek、minimax都有号的人最后觉得minimax跑出来的东西最符合自己需求。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

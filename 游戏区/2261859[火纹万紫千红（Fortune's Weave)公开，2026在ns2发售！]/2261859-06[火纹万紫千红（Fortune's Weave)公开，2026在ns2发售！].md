@@ -4589,3 +4589,18 @@ document.getElementById('flv_cdd').innerHTML=("");
 原来IS你知道是奶龙的问题啊</blockquote>
 我今天也刚好看到这段支援了，全游戏对奶龙最温柔的人，给奶龙自己都说不好意思了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 7851#       发表于 2026-10-18 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392521&amp;ptid=2261859" target="_blank">gbjbb 发表于 2026-10-18 21:42</a>
+
+第三部第五区开始完全没事做只能刷职业经验了
+
+欧若拉神殿前的禁忌之森，进门路口左边小路重甲兵。</blockquote>
+第三部练了半天最后发现自己在和这种垃圾boss斗智斗勇真的很难绷
+
+哪怕做成鞑古扎那种呢
+
