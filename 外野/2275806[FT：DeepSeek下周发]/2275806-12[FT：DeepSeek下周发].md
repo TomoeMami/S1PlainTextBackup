@@ -7077,3 +7077,26 @@ Anthropic和OpenAI有很多leak啊，三天两头说要AGI了工作要没了世�
 显然你把他们想太好了，论价格或者参数量，应该去比luna和haiku，让一步比terra和sonnet都行 ...</blockquote>
 和luna比就真的完了，看评价基本都是说超过5.6sol的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 16950#       发表于 2026-10-18 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391599&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-18 17:13</a>
+Anthropic和OpenAI有很多leak啊，三天两头说要AGI了工作要没了世界要毁灭了消息源都是这两家的匿名工程师 ...</blockquote>
+ao两家不太一样
+
+虽然两家都有各种leaker，但是这些leaker都搞成生态了，真真假假不好说
+
+但是openai的altmann和科技媒体接触多一些，dario更喜欢在官网上发小作文
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  zhongjie  
+##### 16951#       发表于 2026-10-18 17:49
+
+楼里的人对4.1f 1017感觉怎么样？我看有的人说不如luna和haiku，指令遵循还是不行？
+
