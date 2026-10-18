@@ -6883,3 +6883,18 @@ argon的网页额度就是低的可怜，等后面看看能不能放开吧
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  andychen  
+##### 16933#       发表于 2026-10-18 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70391252&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-18 15:13</a>
+
+有几个问题：
+
+1. 关于dsh的To-dos：对于每个任务，dsh下方会自动生成一个TODO列表，似乎是模型自己做了一 ...</blockquote>
+todo list的任务并不全都是严格按前后顺序的
+
+如果模型判断各任务间没有依赖关系用户又给了权限，一般会放出多个sub agent进行并行
+
