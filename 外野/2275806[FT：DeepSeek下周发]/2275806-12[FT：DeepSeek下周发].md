@@ -7820,3 +7820,13 @@ wb 现在的羊毛多，中转站用号池反代出来收费，周末 4 块多�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">我怎么就没有512G内存呢
 
+
+*****
+
+####  bixinhaner  
+##### 17018#       发表于 2026-10-19 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392423&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-10-18 21:17</a>
+好激动，deepseek 4.1flash 1017 mxfp4，我本地居然可以部署了，马上下载520G权重。。。 ...</blockquote>
+大佬什么配置，能跑起来4.1 flash?
+
