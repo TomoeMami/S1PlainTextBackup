@@ -6376,3 +6376,50 @@ cot长度实际上跟工具使用直接相关的，原则上工具注入的越�
 
 也有人说1017长任务表现很糟糕，看来神鬼二象性依然还在
 
+
+*****
+
+####  serj005  
+##### 16885#       发表于 2026-10-18 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390254&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-10-18 10:13</a>
+这版 workbuddy 也强得可怕，体感已经比 6.1SOL 加 ChatGPT 桌面端更强了
+
+—— 来自 Xiaomi M332BF, And ...</blockquote>
+workbuddy不太行，功能和skill还有mcp全关的情况下初始提示词直接吃掉37k上下文，给我看麻了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+一堆废话和无用工具塞在提示词里面，每次出结果还要浪费一堆token来画它那屁用没有的图表可视化。
+用workbuddy2api接出来给dsh、pi用才是正解。
+
+*****
+
+####  nxmonitor  
+##### 16886#       发表于 2026-10-18 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390286&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-10-18 10:23</a>
+
+也有人说1017长任务表现很糟糕，看来神鬼二象性依然还在</blockquote>
+本来就是Flash模型，别看参数552B，按照4.1F的文档这个模型PD用的层是不对称的，换算原来常规结构可能参数要减半，等Pro出来再说吧，或者用Astra/6.1Sol做规划……
+
+
+*****
+
+####  nxmonitor  
+##### 16887#       发表于 2026-10-18 10:33
+
+这架构纯属无卡野人才能做出来的，当然真有卡以后优势还是很大，看4.1F的流量就知道了，其他公司根本扛不住……
+
+*****
+
+####  cyberalogo  
+##### 16888#       发表于 2026-10-18 10:37
+
+在微博看到说同样的任务argon做17分钟花了1.7美元，1017做40分钟花了0.6美元。
+
+<img src="https://img.stage1st.com/forum/202610/18/103711imrr76nbja6jamdh.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20261018_103433.jpg</strong> (229.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-18 10:37 上传
+
