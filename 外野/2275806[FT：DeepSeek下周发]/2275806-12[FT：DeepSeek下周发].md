@@ -6340,3 +6340,39 @@ cot长度实际上跟工具使用直接相关的，原则上工具注入的越�
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  bartholo4  
+##### 16881#       发表于 2026-10-18 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70390056&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-18 09:09</a>
+1017总算是DSH比其他harness强了，这个才是正常的，原来贼code最好真是服了</blockquote>
+这版 workbuddy 也强得可怕，体感已经比 6.1SOL 加 ChatGPT 桌面端更强了
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  startraveller  
+##### 16882#       发表于 2026-10-18 10:19
+
+如果蒸馏这么好蒸的话，为什么欧洲日本什么的模型这么拉呢？是他们心善吗？
+
+
+*****
+
+####  CCauchy  
+##### 16883#       发表于 2026-10-18 10:20
+
+是他们懦弱
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  飞剪号  
+##### 16884#       发表于 2026-10-18 10:23
+
+也有人说1017长任务表现很糟糕，看来神鬼二象性依然还在
+
