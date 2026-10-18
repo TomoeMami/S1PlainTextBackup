@@ -6783,3 +6783,32 @@ mimo2.6是个啥货色还值得讨论吗</blockquote>
 
 还是说之前那个便宜pro就这样？
 
+
+*****
+
+####  狭义文具爱好者  
+##### 16924#       发表于 2026-10-18 14:21
+
+介于ds 4.1p 0813和gem3.1p的不尽人意和后续难产，以及闭三家都开始拽词了。我觉得pro不太吉利，4.1说不定可以从屈原里找找词
+
+
+*****
+
+####  蜇灵  
+##### 16925#       发表于 2026-10-18 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70388300&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-10-17 19:18</a>
+刚在群里聊完就搬到这里了
+
+（其实本楼#15549我也说过一次，可能是太久了后来人都没刷到）</blockquote>
+这玩意很烦，还要求工作区有完全控制权限，我直接给关了
+
+*****
+
+####  蜇灵  
+##### 16926#       发表于 2026-10-18 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70389276&amp;ptid=2275806" target="_blank">巨魔已被忠诚 发表于 2026-10-17 23:07</a>
+新会话头几次回复质量高很多，老会话依然很智障。以后得改流程了。</blockquote>
+被老会话历史思考链污染了吧
+
