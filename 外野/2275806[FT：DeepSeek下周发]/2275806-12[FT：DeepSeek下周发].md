@@ -9093,3 +9093,39 @@ terminal bench 4虽然好，但是不成比例，也就是分数两倍不一定�
 都在关注wb，歪个楼，想问问有没有什么比较舒服能在VSCode内用pi的插件？（pi能注册多个提供商比较适合我这 ...</blockquote>
 我：Ctrl+~起一个终端然后把它拖到标签页上
 
+
+*****
+
+####  knnknn  
+##### 17143#       发表于 2026-10-19 17:02
+
+说起臃肿从opencode开始这些agent一个赛一个的卡，我workbuddy和Gemini网页端都经常卡的动弹不得。
+
+*****
+
+####  洛拉斯  
+##### 17144#       发表于 2026-10-19 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395915&amp;ptid=2275806" target="_blank">seedees3 发表于 2026-10-19 15:57</a>
+
+怎么现在都在讨论workbuddy，表现很不错吗，近两个月不太关注了，还在用opencode ...</blockquote>
+现在推广期，优惠力度大，可以白嫖
+
+而且不一定需要用换个，可以反代出来给DSH用
+
+*****
+
+####  lactone  
+##### 17145#       发表于 2026-10-19 17:02
+
+上次群里拉人后几天发的1017？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  awy002  
+##### 17146#       发表于 2026-10-19 17:06
+
+肥鱼的官方harness为啥我登录了用公司api没用啊，还是走的我的说要我充值，要么就是404调用失败
+
