@@ -9712,3 +9712,57 @@ dsh-workbuddy-connect ；国内版国际版的积分都能用
 
 4.1Pro呢？等着把这些模型一网打尽对吧？虽然又是有迹象了，周五四周看吧，当然也可能上次机房炸了一起解决了……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cankao  
+##### 17209#       发表于 2026-10-19 21:48
+
+M3.1Flash是不是wb那个匿名模型太空兔兔？
+
+不是，这个我觉得很一般啊，怎么就斩杀了4.1f1017<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 17210#       发表于 2026-10-19 21:49
+
+deepseek禁令来了，跑分更高的minimax给点力呀<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  tillnight  
+##### 17211#       发表于 2026-10-19 21:52
+
+minimax官宣Pro版本很快来。
+
+*****
+
+####  lactone  
+##### 17212#       发表于 2026-10-19 21:53
+
+感觉明天白天也会有国模发布
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  奈落的孤火花  
+##### 17213#       发表于 2026-10-19 21:55
+
+[https://www.chiphell.com/forum.p ... 30&amp;pid=60839725](https://www.chiphell.com/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2910030&amp;pid=60839725)
+ <blockquote>我的硬件：单路E5-2667v2，超微X9SRL-F主板，128G DDR3-1600服务器内存，RTX5060Ti 16G显卡，三星PM953 1.92T U.2固态硬盘。
+
+跑的模型：
+
+Qwen3.8-Flash-Next-GSQ-RCO-Strata-IQ3_S，内存占用58G。速度44tk/s
+
+Qwen3.8-Flash-Next-GSQ-RCO-Strata-IQ4_XS，内存占用75G。速度38tk/s
+
+有实用价值，智商很高。</blockquote>
+
+这怎么感觉这硬件还得再涨
+
