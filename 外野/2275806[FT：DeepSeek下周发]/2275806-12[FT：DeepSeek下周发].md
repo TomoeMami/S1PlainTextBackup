@@ -9781,3 +9781,18 @@ deepseek禁令来了，跑分更高的minimax给点力呀
 
 美国国土安全部（DHS）依据《联邦采购供应链安全法》（FASCSA）发布命令，将 DeepSeek 从美国联邦民用机构的采购和 IT 系统中排除
 
+
+*****
+
+####  空き地卯木  
+##### 17215#       发表于 2026-10-19 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397605&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-19 22:01</a>
+
+我去 真的 美国佬这就急了
+
+美国国土安全部（DHS）依据《联邦采购供应链安全法》（FASCSA）发布命令，将  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看美帝也是Claude和DeepSeek的CP厨子啊
+
+美国战争部依据《联邦采购供应链安全法》（FASCSA）将 Anthropic 及其产品列入供应链排除名单。
+
