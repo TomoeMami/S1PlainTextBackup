@@ -3910,3 +3910,13 @@ PSP版就是60帧了
 
 觉得奥义特效有阉割回去看了下PSP版震惊了，PSP版比这重制高清多了，再切回来各种马赛克好不适应，前面说的都是幻觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在想着要是有人把PSP版汉化就香了
 
+
+*****
+
+####  qiyu1234  
+##### 353#         楼主| 发表于 2026-10-19 12:09
+
+复刻版大学问答题目
+
+【永恒传说新版问答攻略-哔哩哔哩】 https://b23.tv/D2bcGeI
+

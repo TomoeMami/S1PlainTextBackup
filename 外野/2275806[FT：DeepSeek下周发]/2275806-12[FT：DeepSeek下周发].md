@@ -8434,3 +8434,15 @@ skill也要更新啊，我每次都会根据生成结果来反复更新skill，�
 
 WB的专家模式比skill更加好用，我看看AI能不能做个DSH插件复现
 
+
+*****
+
+####  schneehertz  
+##### 17077#       发表于 2026-10-19 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393673&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-10-19 08:52</a>
+一般不会吧，很多人做网站后台密码地址全都是一股脑给agent的</blockquote>
+一般这些都不会进上下文，进了就说明流程有问题
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
