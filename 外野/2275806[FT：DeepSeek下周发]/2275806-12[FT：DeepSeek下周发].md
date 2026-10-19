@@ -8400,3 +8400,29 @@ skill现在起到的作用其实就是「企业内部标准」吧
 现在dsh桌面版是不是没有办法直接升级第三方插件，非要要卸载了重新安装？ ...</blockquote>
 装个插件市场就行了吧？不然就直接在终端执行命令升级插件
 
+
+*****
+
+####  洛拉斯  
+##### 17074#       发表于 2026-10-19 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394428&amp;ptid=2275806" target="_blank">xuanwu_lei 发表于 2026-10-19 11:07</a>
+
+skill现在起到的作用其实就是「企业内部标准」吧
+
+当原生许愿的成果超过企业内部标准的时候，该被整改的就 ...</blockquote>
+skill也要更新啊，我每次都会根据生成结果来反复更新skill，哪里好哪里不好，告诉ai让ai自己改就是了
+
+不过多人合作最大问题是谁有排版更新skill的权限
+
+
+*****
+
+####  warlock228  
+##### 17075#       发表于 2026-10-19 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394431&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-10-19 11:08</a>
+
+装个wb然后喊dsh把wb的skill和模板都掏出来（</blockquote>
+谢谢思路 等梁文谷时间去试试
+
