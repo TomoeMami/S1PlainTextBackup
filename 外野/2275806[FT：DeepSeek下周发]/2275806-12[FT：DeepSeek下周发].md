@@ -9400,3 +9400,85 @@ muse超级刷分王，尤其one-shot水平还打不过0910，纯靠大参数堆�
 
 字节这家公司内斗太狠了, 之前还暴出来实习生给自己内部其他组投毒. 字节最后都没给他送进去, 往阴暗方向想,说不定不是偶然个人行为, 而是大家身上都不太干净
 
+
+*****
+
+####  云卷花开  
+##### 17175#       发表于 2026-10-19 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396763&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-19 18:28</a>
+北美第三有三家
+
+倒是闹钟实际上没有看出来谁是第二</blockquote>
+seed 技术力蛮强的，就是模型太烂了
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  lactone  
+##### 17176#       发表于 2026-10-19 18:34
+
+ 本帖最后由 lactone 于 2026-10-19 18:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396787&amp;ptid=2275806" target="_blank">Sunyalche 发表于 2026-10-19 18:33</a>
+第二不是kimi就是qwen了吧
+
+字节这家公司内斗太狠了, 之前还暴出来实习生给自己内部其他组投毒. 字节最后 ...</blockquote>
+kimi我没看出有多强的技术储备，好像就一个kda，qwen至少小模型能力sota，ds更是各种架构创新
+
+至于glm我是不知道有啥独有的技术，但是感觉后训练能力很强
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  qwased  
+##### 17177#       发表于 2026-10-19 18:38
+
+qwen在智力密度这一块走的很远，小模型很强
+
+*****
+
+####  宅男的爱  
+##### 17178#       发表于 2026-10-19 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396718&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-19 18:18</a>
+
+中国有14亿人，卡才多少就这还有个一边扫货抢卡一边拿90％算力去生产💩的牛逼巨头 ...</blockquote>
+同样的思路可以直接平移到阿美
+
+Grok，Muse，Gemini和GPT不要再浪费联邦电力了，钱全部上缴A/，滋油**煮的AGI不就可以降临神选之地了么
+
+剩下就是口水仗，究竟留几个AI才符合教义
+
+*****
+
+####  宅男的爱  
+##### 17179#       发表于 2026-10-19 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396709&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-10-19 18:15</a>
+
+Minimax m3.1 flash正式版官宣了</blockquote>
+Space Bunny？
+
+
+*****
+
+####  lactone  
+##### 17180#       发表于 2026-10-19 18:41
+
+ds至今的架构创新，r1，mla，nsa，ced，dsec
+
+glm基本都是在这个基础上工程优化
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 17181#       发表于 2026-10-19 18:43
+
+我看24年四月有篇文章里说国产大模型五虎：智谱，百川，月暗，零一万物，minimax<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时你梁叔叔都还没在这个范畴里
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
