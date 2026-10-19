@@ -9639,3 +9639,28 @@ minimax就搞h3就行，llm这边不弄也没啥了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">斩杀哥这么恨梁子么
 
+
+*****
+
+####  cscbzcbz  
+##### 17201#       发表于 2026-10-19 20:49
+
+太空兔什么水平， 限时免费不都测过了吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BISSBISS  
+##### 17202#       发表于 2026-10-19 20:52
+
+试用了腾讯的workbuddy ，原来是有送积分，难怪那么多人用，能不能使用DeepSeek Harness但是用wb的积分啊。
+
+*****
+
+####  nxmonitor  
+##### 17203#       发表于 2026-10-19 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397363&amp;ptid=2275806" target="_blank">BISSBISS 发表于 2026-10-19 20:52</a>
+
+试用了腾讯的workbuddy ，原来是有送积分，难怪那么多人用，能不能使用DeepSeek Harness但是用wb的积分啊。 ...</blockquote>
+好像有个什么插件的，能把workbuddy的API弄出来
+
