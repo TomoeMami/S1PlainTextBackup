@@ -9482,3 +9482,20 @@ glm基本都是在这个基础上工程优化
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  andychen  
+##### 17182#       发表于 2026-10-19 18:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论浪费算力，meta和xai一点都不比字节少啊
+
+*****
+
+####  Vneeto  
+##### 17183#       发表于 2026-10-19 18:57
+
+ 本帖最后由 Vneeto 于 2026-10-19 18:58 编辑 
+
+对大模型的印象是oa/两家在T0大乱斗，其他顶模混T1，ds坐稳T1守门员位置偶尔进化上升一点就好了。
+
