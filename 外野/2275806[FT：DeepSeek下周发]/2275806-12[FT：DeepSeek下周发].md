@@ -9926,3 +9926,39 @@ minimax就非常明显的蒸馏痕迹了，太空兔那会就有的背题倾向�
 
 这两家好像不仅没什么讨论度，而且好像也没有广泛接受的拟人形象
 
+
+*****
+
+####  bixinhaner  
+##### 17229#       发表于 2026-10-20 01:17
+
+minimax别搞M系列了，还是专心H系列造福群众吧，涩涩才是第一生产力
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17230#       发表于 2026-10-20 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398091&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-20 00:58</a>
+
+先不说3.1f的能力如何
+
+我比较好奇，为什么MiniMax这家平常好像没什么讨论度？
+
+还有腾讯的Hy也是</blockquote>
+minimax有个形象是卖报的海螺小姐
+
+
+*****
+
+####  QShen  
+##### 17231#       发表于 2026-10-20 01:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398091&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-20 00:58</a>
+先不说3.1f的能力如何
+
+我比较好奇，为什么MiniMax这家平常好像没什么讨论度？
+
+还有腾讯的Hy也是</blockquote>
+正面来看，没做出过SOTA模型，负面来说，没出过严重侵犯用户隐私的新闻
+
