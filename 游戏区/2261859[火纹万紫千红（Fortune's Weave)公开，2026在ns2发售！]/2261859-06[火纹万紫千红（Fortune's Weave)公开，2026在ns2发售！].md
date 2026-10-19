@@ -5103,3 +5103,26 @@ y1s1，除了第一章，后面其实是让你练两三队主力队一起打的�
 
 第一部通关时40级28速<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 7896#       发表于 2026-10-19 16:53
+
+<img src="https://img.stage1st.com/forum/202610/19/165136opomnyekkoyu2a70.png" referrerpolicy="no-referrer">
+
+<strong>1792386409266621.png</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 16:51 上传
+
+以这样的方式被玩家记住是好事吗？<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  索非亚  
+##### 7897#       发表于 2026-10-19 16:54
+
+至少不是饿死鬼<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

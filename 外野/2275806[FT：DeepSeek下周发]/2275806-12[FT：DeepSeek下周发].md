@@ -8992,3 +8992,104 @@ deepseekv4.1pro不可能翻车，我要吹爆梁文锋<img src="https://static.s
 
 吹死婊活，我估计也就比0813好一点吧
 
+
+*****
+
+####  zzzombie207  
+##### 17133#       发表于 2026-10-19 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394948&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-10-19 13:04</a>
+
+dsh有什么特殊的点吗？ 我是codex、claude code、opencode、kimiwork这些都用着，想问需不需要试试dsh ...</blockquote>
+原厂harness都有加成，所以看你用什么模型就用对应原厂harness。相比之下插件功能我反而没用过
+
+*****
+
+####  lactone  
+##### 17134#       发表于 2026-10-19 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396226&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-10-19 16:40</a>
+吹死婊活，我估计也就比0813好一点吧</blockquote>
+比0813好一点那还打不过flash了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+搞不好是新的小模型呢？游戏卡可以部署，coding任务媲美opus5
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  RookieTnT  
+##### 17135#       发表于 2026-10-19 16:47
+
+今天回退到5.6 sol 发现比 6.1sol  好用多了... 6.1sol 真的一言难尽.
+
+*****
+
+####  StrangerJ  
+##### 17136#       发表于 2026-10-19 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396275&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-19 16:47</a>
+今天回退到5.6 sol 发现比 6.1sol  好用多了... 6.1sol 真的一言难尽.</blockquote>
+这两玩意儿我就没用出来啥区别。。都是又慢又冗余
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  andychen  
+##### 17137#       发表于 2026-10-19 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395915&amp;ptid=2275806" target="_blank">seedees3 发表于 2026-10-19 15:57</a>
+
+怎么现在都在讨论workbuddy，表现很不错吗，近两个月不太关注了，还在用opencode ...</blockquote>
+因为推广得很厉害
+
+*****
+
+####  andychen  
+##### 17138#       发表于 2026-10-19 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396214&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-19 16:39</a>
+
+最野的野榜目前应该是AA榜吧，我感觉deepswe在他面前都显得有点道理了</blockquote>
+编程的话，terminal bench 4.0以外所有的榜都可以当作野榜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  frankCC  
+##### 17139#       发表于 2026-10-19 16:51
+
+WB除了小白容易上手之外，就只配反代出来白嫖，标准的国内互联网大厂风格，臃肿的要死，效果也没好到哪去。
+
+
+*****
+
+####  andychen  
+##### 17140#       发表于 2026-10-19 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396275&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-19 16:47</a>
+
+今天回退到5.6 sol 发现比 6.1sol  好用多了... 6.1sol 真的一言难尽.</blockquote>
+6.1sol就是个高级民工模型，相当于出错更少的flash。不能当作通用能力更强的模型使用
+
+不过价格摆在这了，也没啥好抱怨的
+
+*****
+
+####  lactone  
+##### 17141#       发表于 2026-10-19 16:54
+
+terminal bench 4虽然好，但是不成比例，也就是分数两倍不一定是模型能力有两倍了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  BarricadeMKXX  
+##### 17142#       发表于 2026-10-19 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396010&amp;ptid=2275806" target="_blank">乌桃内设格温 发表于 2026-10-19 16:12</a>
+
+都在关注wb，歪个楼，想问问有没有什么比较舒服能在VSCode内用pi的插件？（pi能注册多个提供商比较适合我这 ...</blockquote>
+我：Ctrl+~起一个终端然后把它拖到标签页上
+
