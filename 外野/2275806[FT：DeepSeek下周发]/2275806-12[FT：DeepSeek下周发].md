@@ -8782,3 +8782,16 @@ rumor说谷歌要发gemini4flash
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  剑影若兰  
+##### 17110#       发表于 2026-10-19 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394395&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-19 11:00</a>
+
+账号密码别给大模型，自己建立一个临时令牌就是，大模型可以调用令牌，但是不知道账号密码
+
+已经很成熟的 ...</blockquote>
+能讲讲具体怎么操作吗？问ds，他说让我通过环境变量传key，但是我问他那模型echo一下环境变量不还是能够拿到key？他又说没错<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
