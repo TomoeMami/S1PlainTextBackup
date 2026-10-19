@@ -8295,3 +8295,11 @@ skill就是一堆格式化的提示词
 
 你这个需要反复调整的需求，直接许愿
 
+
+*****
+
+####  warlock228  
+##### 17064#       发表于 2026-10-19 10:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">有什么好用的网站可以找找ppt和word文档的skill，个人审美能力低下只能去找找别人的模板
+
