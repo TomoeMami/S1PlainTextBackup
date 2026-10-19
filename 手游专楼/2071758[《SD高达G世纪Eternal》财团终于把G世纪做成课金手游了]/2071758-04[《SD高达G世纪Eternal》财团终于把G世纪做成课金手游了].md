@@ -2100,3 +2100,68 @@ C5E423D38F92CAD2C205BB6430E7B5DF.jpg
 
 2026-10-19 12:22 上传
 
+
+*****
+
+####  gpx234mqx  
+##### 4896#       发表于 2026-10-19 12:36
+
+太混帐了，系列芯片之前ssp用了不少，现在根本不够
+
+<img src="https://img.stage1st.com/forum/202610/19/123606c8nqk8knv37n0zvg.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9398.png</strong> (698.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 12:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/19/123606reu82e2ok59x9o3n.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9397.png</strong> (683.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 12:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/19/123606pgmadztpbsppmsbb.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9396.png</strong> (696.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 12:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/19/123607lg2qv7aezq2ew2gq.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9395.png</strong> (689.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 12:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/19/123608v2ob2a1fm7nmm7n1.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9394.png</strong> (684.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 12:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/19/123608uuuul2cuk9u68sms.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9393.png</strong> (691.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 12:36 上传
+
+*****
+
+####  ティグル  
+##### 4897#       发表于 2026-10-19 12:37
+
+其实元旦池明牌种自要搞一波大的情况下非厨没必要强抽的
+
+而且坚牢队太散了，缺F91或者百改的话也就那样
+
