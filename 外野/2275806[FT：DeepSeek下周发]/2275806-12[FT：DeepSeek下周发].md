@@ -8170,3 +8170,53 @@ workbubby的各个插件和skill大家有什么推荐的吗？有人将这些迁
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cscbzcbz  
+##### 17053#       发表于 2026-10-19 09:44
+
+周末试了下websearch的api，5分一次给agent用还是有点贵，不过似乎不用梯也可以直接搜国外？感觉查资料应该很方便
+
+*****
+
+####  AraTurambar  
+##### 17054#       发表于 2026-10-19 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393807&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-19 09:16</a>
+
+1017这个8B/16B就能这么强，有点出人意料了，还有个小道消息是Pro在灰测。</blockquote>
+灰测能解释为什么fireworks自己部署的表现也一样吗？
+
+*****
+
+####  tillnight  
+##### 17055#       发表于 2026-10-19 09:49
+
+<blockquote>cscbzcbz 发表于 2026-10-19 09:44
+周末试了下websearch的api，5分一次给agent用还是有点贵，不过似乎不用梯也可以直接搜国外？感觉查资料应该 ...</blockquote>
+各大厂商的搜索api都是企业专线通道
+
+
+*****
+
+####  lactone  
+##### 17056#       发表于 2026-10-19 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393933&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-19 09:44</a>
+周末试了下websearch的api，5分一次给agent用还是有点贵，不过似乎不用梯也可以直接搜国外？感觉查资料应该 ...</blockquote>
+5厘一次吧
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cscbzcbz  
+##### 17057#       发表于 2026-10-19 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393974&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-19 09:51</a>
+5厘一次吧
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99</blockquote>
+对，5离一次，算错了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

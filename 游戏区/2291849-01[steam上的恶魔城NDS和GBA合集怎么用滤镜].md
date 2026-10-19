@@ -743,3 +743,11 @@ gba+nds 6作我没觉得哪作不行
 白夜其实相当优秀，动作流畅度和内容丰富度上很让人满意，拉低评价的是机能限制导致辣眼睛的色彩和辣耳朵 ...</blockquote>
 这个画面和音乐的评价，我觉得给这个新作完全不带变的
 
+
+*****
+
+####  syndrome2032  
+##### 66#       发表于 2026-10-19 09:50
+
+我用我自己大电视玩的是真的很想要那个大果粒滤镜。原生滤镜真不太行<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
