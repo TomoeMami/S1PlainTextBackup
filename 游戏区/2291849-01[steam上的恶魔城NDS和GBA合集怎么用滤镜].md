@@ -784,3 +784,22 @@ gba+nds 6作我没觉得哪作不行
 
 白夜中期二次见死神后明白表里城以后还有大量的跑图收集老德尸块环节。
 
+
+*****
+
+####  白河响剑  
+##### 69#       发表于 2026-10-19 11:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然变成恶魔城六作体验楼了
+
+白夜是小时候唯一仅通过一次的 
+
+表里切换莫名其妙就找不到钥匙和门 屡屡搁置
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒是音乐因为每次都卡关来回跑所以印象很深 初听不行 音质缘故导致很“重”
+
+但诡异扭曲的氛围其实那时候就觉得挺好听
+
+参道 机械塔 礼拜堂 城中心都相当喜欢
+
+即便如此 唯独决战我是真受不了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是真的太吵了
+
