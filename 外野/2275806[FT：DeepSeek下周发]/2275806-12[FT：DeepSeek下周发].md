@@ -8583,3 +8583,14 @@ dsh有什么特殊的点吗？ 我是codex、claude code、opencode、kimiwork�
 但是我想知道，体现在哪？坛友们一般定制啥？ ...</blockquote>
 更多是按需求组装插件, 自己不需要不用安装, 然后定制专门的提示词和工作流方便
 
+
+*****
+
+####  qwased  
+##### 17090#       发表于 2026-10-19 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394963&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-19 13:08</a>
+
+你们对V4.1pro的期待太高了，我觉得能达到6.1sol的能力就很不错</blockquote>
+我是希望pro能靠着大参数量在非编程的任务表现好点，flash还是太编程特化了
+
