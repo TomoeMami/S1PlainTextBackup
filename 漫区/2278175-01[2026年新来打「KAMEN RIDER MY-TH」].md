@@ -166,3 +166,13 @@ QQ图片20261018092045.jpg
 
 火鼠蛋就加个红披风也太素了，好歹和P图一样换个色吧
 
+
+*****
+
+####  damian-wade  
+##### 257#       发表于 2026-10-19 11:08
+
+猫王变身帅的，数值也高，怕是可以撑到男主最终前了，但华武利大人能坚持几集不变谐星呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAG-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -8367,3 +8367,36 @@ workbuddy好像就有这些skill？</blockquote>
 qoder也有限额，而且连付费都会被限</blockquote>
 那可能是我蹬得还不够狠，之前日均1000出头
 
+
+*****
+
+####  xuanwu_lei  
+##### 17071#       发表于 2026-10-19 11:07
+
+skill现在起到的作用其实就是「企业内部标准」吧
+
+当原生许愿的成果超过企业内部标准的时候，该被整改的就是标准了
+
+至于企业内部数据其实放在硬盘里每次多花三块钱去读反而不会被旧版本生成的skill污染上下文
+
+*****
+
+####  eno_emos  
+##### 17072#       发表于 2026-10-19 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394348&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-10-19 10:53</a>
+
+不过好像也不用特意去找skill 找个合适好看的ppt模板发给哦鲸鲸要他自己整成skill好像也可以 ...</blockquote>
+装个wb然后喊dsh把wb的skill和模板都掏出来（
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dark_saber  
+##### 17073#       发表于 2026-10-19 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394345&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-19 10:52</a>
+
+现在dsh桌面版是不是没有办法直接升级第三方插件，非要要卸载了重新安装？ ...</blockquote>
+装个插件市场就行了吧？不然就直接在终端执行命令升级插件
+
