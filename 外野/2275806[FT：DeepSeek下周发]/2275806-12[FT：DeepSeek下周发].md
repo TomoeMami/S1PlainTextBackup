@@ -9499,3 +9499,37 @@ glm基本都是在这个基础上工程优化
 
 对大模型的印象是oa/两家在T0大乱斗，其他顶模混T1，ds坐稳T1守门员位置偶尔进化上升一点就好了。
 
+
+*****
+
+####  med  
+##### 17184#       发表于 2026-10-19 19:07
+
+第二名倾向于qwen，中小尺寸多模态，全球仅此一家了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我能微调的模型只剩qwen了
+
+glm参考ds实在太多了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  白日依山尽  
+##### 17185#       发表于 2026-10-19 19:09
+
+Qwen好啊，各种小模型，让我的笔记本显卡也能发挥余热
+
+*****
+
+####  tillnight  
+##### 17186#       发表于 2026-10-19 19:09
+
+其实上周三小助手就拉人了，但是也不好说规律不准，说不定真可能是原定周四发的。至少高频拉人后会发模型目前是个规律，但不一定是马上或者次日。
+
+
+*****
+
+####  蜇灵  
+##### 17187#       发表于 2026-10-19 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395861&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-10-19 15:49</a>
+opencode zen有代理手续费，这点得提一下</blockquote>
+不要用他自带那个汇率换算商家，直接用银行卡的，要便宜一些
+

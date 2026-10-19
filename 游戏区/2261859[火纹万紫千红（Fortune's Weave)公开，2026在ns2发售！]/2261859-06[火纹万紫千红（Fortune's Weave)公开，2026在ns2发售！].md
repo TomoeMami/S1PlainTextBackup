@@ -5136,3 +5136,13 @@ y1s1，除了第一章，后面其实是让你练两三队主力队一起打的�
 
 我开始怀疑是不是漏洞了
 
+
+*****
+
+####  jockeyjoestar  
+##### 7899#       发表于 2026-10-19 19:06
+
+ 本帖最后由 jockeyjoestar 于 2026-10-19 19:07 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 52级34力35速的迪哥    前期转土匪不加速 后期转游侠不加力 佛了  
+
