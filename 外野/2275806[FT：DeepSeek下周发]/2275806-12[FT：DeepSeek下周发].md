@@ -8594,3 +8594,50 @@ dsh有什么特殊的点吗？ 我是codex、claude code、opencode、kimiwork�
 你们对V4.1pro的期待太高了，我觉得能达到6.1sol的能力就很不错</blockquote>
 我是希望pro能靠着大参数量在非编程的任务表现好点，flash还是太编程特化了
 
+
+*****
+
+####  YaZ  
+##### 17091#       发表于 2026-10-19 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394431&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-10-19 11:08</a>
+
+装个wb然后喊dsh把wb的skill和模板都掏出来（</blockquote>
+我让大肥鱼去看看workbuddy里有没有好康的，大肥鱼去看了一下说：很丰富！<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/1c73c43ec911ad2c09f978dead94defb/wb.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oct71952  
+##### 17092#       发表于 2026-10-19 13:38
+
+求问大佬们，workbuddy国际班里的海外模型是不是仍然**才能用？
+
+*****
+
+####  泰坦失足  
+##### 17093#       发表于 2026-10-19 13:38
+
+发现本地部署的LLM打开投机解码速度快了约50%。这选项居然还不是VLLM的默认开启的选项
+
+
+*****
+
+####  andychen  
+##### 17094#       发表于 2026-10-19 13:40
+
+ 本帖最后由 andychen 于 2026-10-19 13:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395079&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-19 13:31</a>
+我是希望pro能靠着大参数量在非编程的任务表现好点，flash还是太编程特化了 ...</blockquote>
+pro参数量和sol opus差不多，我估计编程上pro能和这俩打平手甚至可能超过一些，通用性上大概率不如
+
+国产模型通用性我觉得暂时没指望，算力受限大背景下肯定是优先最赚钱的方向和最能辅助模型研究的方向
+
+*****
+
+####  Promeus  
+##### 17095#       发表于 2026-10-19 13:43
+
+<img src="https://p.sda1.dev/35/13144d515b591b922ae6a22ab5c0b086/image.jpg" referrerpolicy="no-referrer">
+有型的大手:字节wcnm
+

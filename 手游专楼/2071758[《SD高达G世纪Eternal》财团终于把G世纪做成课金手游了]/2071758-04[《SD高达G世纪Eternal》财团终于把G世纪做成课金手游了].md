@@ -2197,3 +2197,11 @@ C5E423D38F92CAD2C205BB6430E7B5DF.jpg
 坚牢队没啥问题啊，输出完全行</blockquote>
 我说了啊，缺F91或者百改这种主力输出就很难受，你又不缺
 
+
+*****
+
+####  arthes  
+##### 4900#       发表于 2026-10-19 13:34
+
+之前命运池子非了没抽到监牢船，没想到这次抽再生直接出了两个船，加上这次出的狼王，好像我监牢队突然变得挺能打的了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
