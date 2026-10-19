@@ -2165,3 +2165,35 @@ C5E423D38F92CAD2C205BB6430E7B5DF.jpg
 
 而且坚牢队太散了，缺F91或者百改的话也就那样
 
+
+*****
+
+####  gpx234mqx  
+##### 4898#       发表于 2026-10-19 12:47
+
+<blockquote>ティグル 发表于 2026-10-19 12:37
+其实元旦池明牌种自要搞一波大的情况下非厨没必要强抽的
+
+而且坚牢队太散了，缺F91或者百改的话也就那样 ...</blockquote>
+
+坚牢队没啥问题啊，输出完全行
+
+<img src="https://img.stage1st.com/forum/202610/19/124700wl663yehyrq6ljq9.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9399.png</strong> (807.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 12:47 上传
+
+
+*****
+
+####  ティグル  
+##### 4899#       发表于 2026-10-19 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394880&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-10-19 12:47</a>
+
+坚牢队没啥问题啊，输出完全行</blockquote>
+我说了啊，缺F91或者百改这种主力输出就很难受，你又不缺
+

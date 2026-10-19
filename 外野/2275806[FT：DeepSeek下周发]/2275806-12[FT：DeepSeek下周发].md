@@ -8459,3 +8459,23 @@ WB的专家模式比skill更加好用，我看看AI能不能做个DSH插件复�
 —— 来自 鹅球 v4.0-alpha ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我以为他们脱敏厉害捏，我之前都是写在TXT发给agent的虽然也是无聊学习用的案例无所谓罢了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17079#       发表于 2026-10-19 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393807&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-19 09:16</a>
+1017这个8B/16B就能这么强，有点出人意料了，还有个小道消息是Pro在灰测。</blockquote>
+Pro要是有这个速度更哈人了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  startraveller  
+##### 17080#       发表于 2026-10-19 12:53
+
+不过好像dsh最近有一些针对pro的修改，估计确实也快发了
+
