@@ -8233,3 +8233,65 @@ workbubby的各个插件和skill大家有什么推荐的吗？有人将这些迁
 有这么好的模型你们怎么不告诉我</blockquote>
 很区的，除了刷分啥也不行，而且疑似Flash打不过Pro
 
+
+*****
+
+####  startraveller  
+##### 17059#       发表于 2026-10-19 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393903&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-10-19 09:36</a>
+话说 ai 用到现在，skill 还有用吗？个人一直都是想到要做什么事情，都是开一个 chat 窗口，直接提要求—调 ...</blockquote>
+有用但是一般的流程没有什么用了，REA这种还是有用
+
+*****
+
+####  库德里尔  
+##### 17060#       发表于 2026-10-19 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393903&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-10-19 09:36</a>
+话说 ai 用到现在，skill 还有用吗？个人一直都是想到要做什么事情，都是开一个 chat 窗口，直接提要求—调 ...</blockquote>
+skill的本质是按需读取的文档（及其相关文件），目的是优化上下文，减少无关内容影响
+而且作为文档的优势是可以在多个agent进程间共享阅读 方便管理
+
+因此用不到（尤其是自己编写）skill的场合我认为有：
+- 单次执行的任务较为快速，不需要长期作业
+- 任务比较简单，不需要通过追加工具和规范的方式保证质量
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nxmonitor  
+##### 17061#       发表于 2026-10-19 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393943&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-10-19 09:46</a>
+
+灰测能解释为什么fireworks自己部署的表现也一样吗？</blockquote>
+当然是接在现在的Pro后面，一周前就有人抓到了模型信息，不过这消息也就是听一下，DeepSeek只有小道消息
+
+*****
+
+####  hollowd  
+##### 17062#       发表于 2026-10-19 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393903&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-10-19 09:36</a>
+
+话说 ai 用到现在，skill 还有用吗？个人一直都是想到要做什么事情，都是开一个 chat 窗口，直接提要求—调 ...</blockquote>
+我直接将skill变成了函数，严格限制llm的使用方法，llm只管传参数，具体的执行交给脚本
+
+欢迎体验
+[https://github.com/abc12524/shell-tool](https://github.com/abc12524/shell-tool)
+
+
+*****
+
+####  med  
+##### 17063#       发表于 2026-10-19 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393903&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-10-19 09:36</a>
+
+话说 ai 用到现在，skill 还有用吗？个人一直都是想到要做什么事情，都是开一个 chat 窗口，直接提要求—调 ...</blockquote>
+skill就是一堆格式化的提示词
+
+你这个需要反复调整的需求，直接许愿
+

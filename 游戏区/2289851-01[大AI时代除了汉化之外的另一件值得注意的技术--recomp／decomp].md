@@ -310,3 +310,13 @@ hd2d？  什么效果了？
 
 好奇有多彻底拿光荣的winback2试了下，没想到刷刷的疯狂推进，大跌眼镜，大跌眼镜<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 84#       发表于 2026-10-19 10:08
+
+有个国人搞的全新忍龙黑反编译，坐等
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
