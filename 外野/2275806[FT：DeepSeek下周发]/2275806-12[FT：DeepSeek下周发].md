@@ -9962,3 +9962,14 @@ minimax有个形象是卖报的海螺小姐
 还有腾讯的Hy也是</blockquote>
 正面来看，没做出过SOTA模型，负面来说，没出过严重侵犯用户隐私的新闻
 
+
+*****
+
+####  tonyunreal  
+##### 17232#       发表于 2026-10-20 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398136&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-10-20 01:21</a>
+
+minimax有个形象是卖报的海螺小姐</blockquote>
+这么说来，Minimax H3这代在开源界太火，以至于大家都忘了他家视频产品是叫 海螺 Hailuo 了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
