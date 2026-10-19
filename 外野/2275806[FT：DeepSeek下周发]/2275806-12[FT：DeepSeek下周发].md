@@ -8698,3 +8698,11 @@ pro参数量和sol opus差不多，我估计编程上pro能和这俩打平手甚
 写文跑团这些文创还是离不开skill的，读了skill他就知道之前的东西在哪按什么查而不是全盘给你翻一圈。。 ...</blockquote>
 那我感觉这个和我看前面说还不大一样，感觉是对的一些内容的归档和整理，类似记忆一样的东西？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  一般市民  
+##### 17101#       发表于 2026-10-19 14:31
+
+这游戏做的真不错：[https://ip-please.github.io/](https://ip-please.github.io/)  <img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

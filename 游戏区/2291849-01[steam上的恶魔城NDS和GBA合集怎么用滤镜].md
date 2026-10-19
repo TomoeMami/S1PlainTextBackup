@@ -814,3 +814,41 @@ gba+nds 6作我没觉得哪作不行
 我去年元旦到春节，把这两个合集全都100%成就了。以前很迷恋银河城游戏，unepic、axiom verge、空洞骑士、 ...</blockquote>
 你等一等，GBA三部曲合集根本没有成就的。DS三部曲才有。
 
+
+*****
+
+####  hamartia  
+##### 71#       发表于 2026-10-19 14:28
+
+<blockquote>lyt777 发表于 2026-10-19 14:10
+你等一等，GBA三部曲合集根本没有成就的。DS三部曲才有。</blockquote>
+?
+
+Advance合集有的，有奖杯或成就
+
+
+*****
+
+####  hamartia  
+##### 72#       发表于 2026-10-19 14:33
+
+https://www.psnine.com/psngame/25219
+
+成就48个，算白金49个奖杯
+
+基本上是让你把游戏要素和隐藏全领略一遍的配置，像boss rush这类研究要素都没算进去
+
+*****
+
+####  lyt777  
+##### 73#       发表于 2026-10-19 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395324&amp;ptid=2291849" target="_blank">hamartia 发表于 2026-10-19 14:28</a>
+
+?
+
+Advance合集有的，有奖杯或成就</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">我去看了一下真有，怎么会这样，去年konami刚回来的时候我就因为这个原因没重打gba三部曲…………
+
+难道是后来加的…………
+
