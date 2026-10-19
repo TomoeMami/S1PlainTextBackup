@@ -8446,3 +8446,16 @@ WB的专家模式比skill更加好用，我看看AI能不能做个DSH插件复�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  warlock228  
+##### 17078#       发表于 2026-10-19 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394745&amp;ptid=2275806" target="_blank">schneehertz 发表于 2026-10-19 12:12</a>
+
+一般这些都不会进上下文，进了就说明流程有问题
+
+—— 来自 鹅球 v4.0-alpha ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我以为他们脱敏厉害捏，我之前都是写在TXT发给agent的虽然也是无聊学习用的案例无所谓罢了
+

@@ -2064,3 +2064,39 @@ C5E423D38F92CAD2C205BB6430E7B5DF.jpg
 
 伤透了梦回抽一击必杀，那次0星强自0星船直接把我整退坑了，这次充了一百抽还好监牢船和洛叔2破，但是最后还是没出再生，200换了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gpx234mqx  
+##### 4895#       发表于 2026-10-19 12:19
+
+ 本帖最后由 gpx234mqx 于 2026-10-19 12:25 编辑 
+<blockquote>captoon 发表于 2026-10-17 10:47
+白狗活动，BUFF加满后，我方数据，第一次打这么富裕的战斗
+
+2队3台先解决钢坦克，然后下面1队就是摧枯拉 ...</blockquote>
+
+没必要5级强化
+
+3级就能2回合打通这关了
+
+小林-阿姆罗-凯的顺序打
+
+白色木马不用管
+
+<img src="https://img.stage1st.com/forum/202610/19/122222nudx1lub28ve6e6v.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9391.png</strong> (862.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 12:22 上传
+
+<img src="https://img.stage1st.com/forum/202610/19/122222wzps4wwepms46x3s.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9392.png</strong> (877.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 12:22 上传
+
