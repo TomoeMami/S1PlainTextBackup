@@ -9202,3 +9202,18 @@ polymarket上预测fable5.5最可能明天晚上发，这是真要打擂台啊
 我也遇到了更新后的dsh接ds自己的api（更新前的，而不是更新后dsh自己发行的那个，api提供者名称为deepseek ...</blockquote>
 不懂，咋解决啊，登录个新账号？
 
+
+*****
+
+####  qz66618  
+##### 17154#       发表于 2026-10-19 17:26
+
+拉人这个感觉很难算是发模型的信号<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过按照pro的进度来看确实快该发了，可能晚于kimi
+
+*****
+
+####  andychen  
+##### 17155#       发表于 2026-10-19 17:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们说的拉人是啥意思，看不懂啊
+
