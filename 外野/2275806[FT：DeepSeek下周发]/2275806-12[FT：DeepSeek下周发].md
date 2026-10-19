@@ -9533,3 +9533,42 @@ Qwen好啊，各种小模型，让我的笔记本显卡也能发挥余热
 opencode zen有代理手续费，这点得提一下</blockquote>
 不要用他自带那个汇率换算商家，直接用银行卡的，要便宜一些
 
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 17188#       发表于 2026-10-19 20:30
+
+MiniMax M3.1 Flash 直接斩杀了 1017
+
+*****
+
+####  overflowal  
+##### 17189#       发表于 2026-10-19 20:30
+
+minimax老刷子了，没什么好说的。风气很一般，之前做liner attention 做砸了，他们得到的经验竟然是退回full attention, 还说什么bitter lesson 云云。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  很久就在那边l  
+##### 17190#       发表于 2026-10-19 20:31
+
+改bug榜更新了
+<img src="https://p.sda1.dev/35/5ca00b4168198147c427a1a4036ad778/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 17191#       发表于 2026-10-19 20:32
+
+Spacebunny大家用了也有段时间了，几斤几两还是清楚的<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 17192#       发表于 2026-10-19 20:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397273&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-10-19 20:30</a>
+MiniMax M3.1 Flash 直接斩杀了 1017</blockquote>
+哪里斩了，一堆benchmark没出对比，一看就是临门还在训，想把benchmark刷好点。然而就算如此他选的几个benchmark都没法稳吃。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
