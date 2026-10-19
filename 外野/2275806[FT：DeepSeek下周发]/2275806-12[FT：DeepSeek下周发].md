@@ -9664,3 +9664,22 @@ minimax就搞h3就行，llm这边不弄也没啥了
 试用了腾讯的workbuddy ，原来是有送积分，难怪那么多人用，能不能使用DeepSeek Harness但是用wb的积分啊。 ...</blockquote>
 好像有个什么插件的，能把workbuddy的API弄出来
 
+
+*****
+
+####  谎称  
+##### 17204#       发表于 2026-10-19 20:56
+
+<blockquote>BISSBISS 发表于 2026-10-19 20:52
+试用了腾讯的workbuddy ，原来是有送积分，难怪那么多人用，能不能使用DeepSeek Harness但是用wb的积分啊。 ...</blockquote>
+workbuddy2api－hub
+
+*****
+
+####  cscbzcbz  
+##### 17205#       发表于 2026-10-19 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397283&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-10-19 20:31</a>
+改bug榜更新了</blockquote>
+看了下视频还没更新，很急了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
