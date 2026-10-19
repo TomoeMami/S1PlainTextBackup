@@ -803,3 +803,14 @@ gba+nds 6作我没觉得哪作不行
 
 即便如此 唯独决战我是真受不了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是真的太吵了
 
+
+*****
+
+####  lyt777  
+##### 70#       发表于 2026-10-19 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394146&amp;ptid=2291849" target="_blank">darksoul 发表于 2026-10-19 10:19</a>
+
+我去年元旦到春节，把这两个合集全都100%成就了。以前很迷恋银河城游戏，unepic、axiom verge、空洞骑士、 ...</blockquote>
+你等一等，GBA三部曲合集根本没有成就的。DS三部曲才有。
+
