@@ -5246,3 +5246,20 @@ y1s1，除了第一章，后面其实是让你练两三队主力队一起打的�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  gbjbb  
+##### 7906#       发表于 2026-10-19 23:48
+
+<img src="https://img.stage1st.com/forum/202610/19/234809p44jj1zepfnt88th.jpg" referrerpolicy="no-referrer">
+
+<strong>20261019234614-01M5ADDZZRBW1ZY4EGQ10A8RAB.jpg</strong> (434.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-19 23:48 上传
+
+也是有点离谱了
+
