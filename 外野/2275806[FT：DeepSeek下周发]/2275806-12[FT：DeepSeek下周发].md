@@ -9343,3 +9343,60 @@ Minimax m3.1 flash正式版官宣了
 中国有14亿人，卡才多少就这还有个一边扫货抢卡一边拿90％算力去生产💩的牛逼巨头 ...</blockquote>
 卡最多再有两年就可以解决了，多少要有一点长远眼光，不能八字还没一撇就鼠目寸光搞什么合并。
 
+
+*****
+
+####  lactone  
+##### 17170#       发表于 2026-10-19 18:28
+
+北美第三有三家<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+倒是闹钟实际上没有看出来谁是第二
+
+技术能力我觉得ds真的一骑绝尘了
+qwen可能技术上是第二
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  RyougiMikiya  
+##### 17171#       发表于 2026-10-19 18:28
+
+最近 Muse 的推广力度好大，Meta 这么有自信吗<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜇灵  
+##### 17172#       发表于 2026-10-19 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392435&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-10-18 21:21</a>
+当前您在Deepseek-V4.1-Flash模型的使用量已超出频率限制，可在2026-10-19 07:50:14重置后使用。您可先切换 ...</blockquote>
+一天200M吧
+
+
+*****
+
+####  lactone  
+##### 17173#       发表于 2026-10-19 18:30
+
+ 本帖最后由 lactone 于 2026-10-19 18:33 编辑 
+
+muse超级刷分王，尤其one-shot水平还打不过0910，纯靠大参数堆起来的长程能力，所以连测试都没几个
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Sunyalche  
+##### 17174#       发表于 2026-10-19 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396763&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-19 18:28</a>
+
+北美第三有三家
+
+倒是闹钟实际上没有看出来谁是第二</blockquote>
+第二不是kimi就是qwen了吧
+
+字节这家公司内斗太狠了, 之前还暴出来实习生给自己内部其他组投毒. 字节最后都没给他送进去, 往阴暗方向想,说不定不是偶然个人行为, 而是大家身上都不太干净
+
