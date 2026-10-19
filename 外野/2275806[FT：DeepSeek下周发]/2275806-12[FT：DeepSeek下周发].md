@@ -8970,3 +8970,25 @@ deepseekv4.1pro不可能翻车，我要吹爆梁文锋<img src="https://static.s
 
 可以开始竞猜4.1pro是神还是拉了
 
+
+*****
+
+####  qz66618  
+##### 17130#       发表于 2026-10-19 16:39
+
+最野的野榜目前应该是AA榜吧，我感觉deepswe在他面前都显得有点道理了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 17131#       发表于 2026-10-19 16:39
+
+即使只有0813不bug的增幅水平也大概率能一定程度赶上6.1sol去摸astra屁股了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crow_wine  
+##### 17132#       发表于 2026-10-19 16:40
+
+吹死婊活，我估计也就比0813好一点吧
+
