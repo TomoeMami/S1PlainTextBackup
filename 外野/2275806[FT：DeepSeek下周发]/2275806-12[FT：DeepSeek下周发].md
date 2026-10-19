@@ -8867,3 +8867,53 @@ workbuddy国内版现在实装1017没，怎么让他建模和老4.1差不多
 
 怎么现在都在讨论workbuddy，表现很不错吗，近两个月不太关注了，还在用opencode
 
+
+*****
+
+####  乌桃内设格温  
+##### 17119#       发表于 2026-10-19 16:12
+
+都在关注wb，歪个楼，想问问有没有什么比较舒服能在VSCode内用pi的插件？（pi能注册多个提供商比较适合我这种哪里便宜就打一竿子的人）<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lactone  
+##### 17120#       发表于 2026-10-19 16:12
+
+qwen4和k3.1还不发？真打算等fable5.5？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  洛拉斯  
+##### 17121#       发表于 2026-10-19 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395753&amp;ptid=2275806" target="_blank">剑影若兰 发表于 2026-10-19 15:33</a>
+
+能讲讲具体怎么操作吗？问ds，他说让我通过环境变量传key，但是我问他那模型echo一下环境变量不还是能够 ...</blockquote>
+举个例子，我的登录网址的令牌加密了，大模型无法直接访问，不过可以调用工具使用这个令牌访问网站，具体方法你可以自己问ai。也就是说大模型传给服务端的数据只有调用这个工具，而不知道你真实的访问密码，这个工具在你本地，你可以用你喜欢的办法加密他让他在其他地方无效化，我没找到这一步而已。
+
+*****
+
+####  心头小鹿撞  
+##### 17122#       发表于 2026-10-19 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396010&amp;ptid=2275806" target="_blank">乌桃内设格温 发表于 2026-10-19 16:12</a>
+
+都在关注wb，歪个楼，想问问有没有什么比较舒服能在VSCode内用pi的插件？（pi能注册多个提供商比较适合我这 ...</blockquote>
+把 pi 干掉，研究一下 magpie，无缝对接 vscode。
+
+*****
+
+####  洛拉斯  
+##### 17123#       发表于 2026-10-19 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395853&amp;ptid=2275806" target="_blank">RStocking 发表于 2026-10-19 15:47</a>
+
+昨天尝试让D4F从一款老手游里提取live2D再生成GIF，发现它还是不能正确理解图像，生成的GIF缺胳膊少腿，许 ...</blockquote>
+你要查一下是不是提取的资源文件不全导致的。要不你换个问法，问d老师有没有将live2d转化成循环gif的开源库现成工程文件
+

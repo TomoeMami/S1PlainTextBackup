@@ -1474,3 +1474,23 @@ Ave Mujica 6th LIVE「Ulterius Procedere」东京公演的影像。
 ✦・━━━━━━━━━━━━━━━ ・✦⁡⁡"</blockquote>
        [https://www.bilibili.com/video/BV1g5Je68EPa](https://www.bilibili.com/video/BV1g5Je68EPa)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42131#       发表于 2026-10-19 16:11
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/19/161146u96wf6wnq5e66qf9.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-19_16-10-16.png</strong> (1.37 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 16:11 上传
+
+       [https://x.com/bang_dream_info/status/2112038531011113143](https://x.com/bang_dream_info/status/2112038531011113143)
+
+       [https://www3.nhk.or.jp/nhkworld/ ... type=tvEpisode&amp;](https://www3.nhk.or.jp/nhkworld/en/shows/j-melo/?type=tvEpisode&amp;)
+
