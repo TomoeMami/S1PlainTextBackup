@@ -9796,3 +9796,55 @@ deepseek禁令来了，跑分更高的minimax给点力呀
 
 美国战争部依据《联邦采购供应链安全法》（FASCSA）将 Anthropic 及其产品列入供应链排除名单。
 
+
+*****
+
+####  阿刚  
+##### 17216#       发表于 2026-10-19 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397644&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-10-19 22:12</a>
+
+我看美帝也是Claude和DeepSeek的CP厨子啊
+
+美国战争部依据《联邦采购供应链安全法》（FASCSA）将 Anthropi ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是，怎么真把Claude也送走了
+
+
+*****
+
+####  YaZ  
+##### 17217#       发表于 2026-10-19 22:34
+
+大肥鱼又炸了？
+
+*****
+
+####  frankCC  
+##### 17218#       发表于 2026-10-19 22:34
+
+[https://gitee.com/iJetLi/deepseek-harness-codearts#buddy-provider](https://gitee.com/iJetLi/deepseek-harness-codearts#buddy-provider)
+
+薅反代羊毛的我推荐这个，国内所有agent的羊毛都有。
+
+*****
+
+####  lactone  
+##### 17219#       发表于 2026-10-19 22:35
+
+大的又要来了？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17220#       发表于 2026-10-19 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397644&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-10-19 22:12</a>
+我看美帝也是Claude和DeepSeek的CP厨子啊
+
+美国战争部依据《联邦采购供应链安全法》（FASCSA）将 Anthropi ...</blockquote>
+草 给愈发火热的肥鱼×claude又添了把火
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
