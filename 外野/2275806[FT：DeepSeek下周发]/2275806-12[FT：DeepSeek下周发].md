@@ -9766,3 +9766,18 @@ Qwen3.8-Flash-Next-GSQ-RCO-Strata-IQ4_XS，内存占用75G。速度38tk/s
 
 这怎么感觉这硬件还得再涨
 
+
+*****
+
+####  cscbzcbz  
+##### 17214#       发表于 2026-10-19 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397556&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-10-19 21:49</a>
+
+deepseek禁令来了，跑分更高的minimax给点力呀
+
+—— 来自 Xiaomi 25060RK16C, Android 16, 鹅球 v3.5.99 ...</blockquote>
+我去 真的 美国佬这就急了<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+美国国土安全部（DHS）依据《联邦采购供应链安全法》（FASCSA）发布命令，将 DeepSeek 从美国联邦民用机构的采购和 IT 系统中排除
+
