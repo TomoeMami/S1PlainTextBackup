@@ -5156,3 +5156,73 @@ y1s1，除了第一章，后面其实是让你练两三队主力队一起打的�
 
 为爱练的除外
 
+
+*****
+
+####  月华刹那  
+##### 7901#       发表于 2026-10-19 20:38
+
+什么时候能更新解决现阶段碎片资源不可再生的问题啊
+
+重玩一二部的话圣柜柜里会有一大堆必须用碎片兑换的武器和道具之类，每个都几百碎片就离谱
+
+*****
+
+####  蓮華  
+##### 7902#       发表于 2026-10-19 20:41
+
+<img src="https://img.stage1st.com/forum/202610/19/204056lei6yrovesirvzrv.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6254.jpeg</strong> (575.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-19 20:40 上传
+
+<img src="https://img.stage1st.com/forum/202610/19/204057z2xed27iwovdeoe6.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6255.jpeg</strong> (574.44 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-19 20:40 上传
+
+<img src="https://img.stage1st.com/forum/202610/19/204058k2yccbibbi42byii.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6256.jpeg</strong> (573.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-19 20:40 上传
+
+<img src="https://img.stage1st.com/forum/202610/19/204058qhtf7hfz4hfvej0i.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6257.jpeg</strong> (307.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-19 20:40 上传
+
+<img src="https://img.stage1st.com/forum/202610/19/204059gf2d92wa7olw2z7f.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6258.jpeg</strong> (325.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-19 20:40 上传
+
+迪哥真这么像？姐妹都认证了
+
+
+*****
+
+####  巴尔干炮  
+##### 7903#       发表于 2026-10-19 20:44
+
+看4个女儿颜值就知道巴洛尔肯定第一美男子。
+

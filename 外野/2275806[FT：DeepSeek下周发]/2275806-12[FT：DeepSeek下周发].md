@@ -9572,3 +9572,70 @@ Spacebunny大家用了也有段时间了，几斤几两还是清楚的<img src="
 MiniMax M3.1 Flash 直接斩杀了 1017</blockquote>
 哪里斩了，一堆benchmark没出对比，一看就是临门还在训，想把benchmark刷好点。然而就算如此他选的几个benchmark都没法稳吃。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 17193#       发表于 2026-10-19 20:36
+
+k3 glm5.3 都被m31斩杀了
+
+*****
+
+####  空き地卯木  
+##### 17194#       发表于 2026-10-19 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397287&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-10-19 20:33</a>
+哪里斩了，一堆benchmark没出对比，一看就是临门还在训，想把benchmark刷好点。然而就算如此他选的几个be ...</blockquote>
+别回他了，就是个斩杀复读机
+
+*****
+
+####  nxmonitor  
+##### 17195#       发表于 2026-10-19 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397287&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-10-19 20:33</a>
+
+哪里斩了，一堆benchmark没出对比，一看就是临门还在训，想把benchmark刷好点。然而就算如此他选的几个be ...</blockquote>
+还有些藏起来了，那个last exam就是典型，minimax还做了一张图呢，结果0910的分数都没到
+
+*****
+
+####  nxmonitor  
+##### 17196#       发表于 2026-10-19 20:38
+
+现在就Openai和DeeepSeek两家不喜欢刷分了，A÷照样刷得起劲
+
+
+*****
+
+####  lactone  
+##### 17197#       发表于 2026-10-19 20:40
+
+minimax就搞h3就行，llm这边不弄也没啥了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  tonyunreal  
+##### 17198#       发表于 2026-10-19 20:41
+
+<img src="https://p.sda1.dev/35/edd81f17d23f49d8a6f47dc018ebb3c0/640.webp" referrerpolicy="no-referrer">
+
+对的国模就是要这样，**方方跳脸，不要怂
+
+*****
+
+####  nxmonitor  
+##### 17199#       发表于 2026-10-19 20:44
+
+1017在矢山和找BUG里都超过GLM了，Arena网页制作都比过K3了，暂时的国模第一了
+
+*****
+
+####  有鱼  
+##### 17200#       发表于 2026-10-19 20:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">斩杀哥这么恨梁子么
+
