@@ -106,3 +106,21 @@
 
 你游真小气，四星BU从四水开始就不送升级笔记了。以前活动可以把四星BU升到2级的。
 
+
+*****
+
+####  wilkyway  
+##### 2151#       发表于 2026-10-20 05:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397787&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2026-10-19 23:01</a>
+你游真小气，四星BU从四水开始就不送升级笔记了。以前活动可以把四星BU升到2级的。 ...</blockquote>
+和那几个联动一样抽到才给吧 算减少翻页找人时间的便利性改动？
+
+<img src="https://img.stage1st.com/forum/202610/20/051943l6l1lb9s2s96k2kk.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792444782526_1.webp</strong> (45.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 05:19 上传
+
