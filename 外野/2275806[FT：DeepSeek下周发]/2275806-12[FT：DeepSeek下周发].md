@@ -8542,3 +8542,44 @@ PixPin_2026-10-19_13-08-49.png
 
 <img src="https://img.stage1st.com/forum/202610/19/131142nimvebx88pa86y6v.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overflowal  
+##### 17086#       发表于 2026-10-19 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394948&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-10-19 13:04</a>
+dsh有什么特殊的点吗？ 我是codex、claude code、opencode、kimiwork这些都用着，想问需不需要试试dsh ...</blockquote>
+特殊点就是是官方的，第一方支持    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  andychen  
+##### 17087#       发表于 2026-10-19 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394948&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-10-19 13:04</a>
+dsh有什么特殊的点吗？ 我是codex、claude code、opencode、kimiwork这些都用着，想问需不需要试试dsh ...</blockquote>
+相比你用的这些更轻量化，原生没有加载那么多东西，可定制性也更强
+
+
+*****
+
+####  zephyrus99  
+##### 17088#       发表于 2026-10-19 13:20
+
+我理解可定制性强，因为一切皆插件嘛
+
+但是我想知道，体现在哪？坛友们一般定制啥？
+
+*****
+
+####  →熙←  
+##### 17089#       发表于 2026-10-19 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395021&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-10-19 13:20</a>
+
+我理解可定制性强，因为一切皆插件嘛
+
+但是我想知道，体现在哪？坛友们一般定制啥？ ...</blockquote>
+更多是按需求组装插件, 自己不需要不用安装, 然后定制专门的提示词和工作流方便
+
