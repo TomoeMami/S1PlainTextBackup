@@ -5236,3 +5236,13 @@ y1s1，除了第一章，后面其实是让你练两三队主力队一起打的�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  trotsky  
+##### 7905#       发表于 2026-10-19 23:40
+
+看奶龙柯雷尔马兹卡拉这几个子辈的长相，鞑古扎年轻的时候应该也挺帅，只是后来喝肥宅快乐水喝成这样了<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

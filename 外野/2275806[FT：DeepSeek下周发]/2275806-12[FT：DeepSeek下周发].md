@@ -9882,3 +9882,14 @@ minimax就非常明显的蒸馏痕迹了，太空兔那会就有的背题倾向�
 
 推上都说 minimax 这个，那些旧题做得又快又好，还很省 token，但是新题就不行了。。
 
+
+*****
+
+####  tillnight  
+##### 17225#       发表于 2026-10-19 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397859&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-19 23:27</a>
+
+推上都说 minimax 这个，那些旧题做得又快又好，还很省 token，但是新题就不行了。。 ...</blockquote>
+哪有很多，不都是发的做Nao榜的那谁在群里嘲讽minimax的截图。我早说了nao榜早就失去意义了，这人看似嘲讽minimax，实际真正揭露的是现在很多所谓的私有bench，各厂想要炼化的话都早有数据了，只要测的多，题目更新的不勤快，任何benchmark对ai最终都是刷题。
+
