@@ -8741,3 +8741,44 @@ pro参数量和sol opus差不多，我估计编程上pro能和这俩打平手甚
 
 没有必要 max 啊，干活儿就用 high
 
+
+*****
+
+####  tonyunreal  
+##### 17106#       发表于 2026-10-19 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395344&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-19 14:31</a>
+这游戏做的真不错：https://ip-please.github.io/</blockquote>
+源码还是claude写的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  serj005  
+##### 17107#       发表于 2026-10-19 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394948&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-10-19 13:04</a>
+dsh有什么特殊的点吗？ 我是codex、claude code、opencode、kimiwork这些都用着，想问需不需要试试dsh ...</blockquote>
+dsh人无我有的东西主要是对ds自己接口和模型特性的适配。
+比如系统提示词后置相关的特性，切换模式、切换思维强度依然能维持缓存命中，都是通过ds模型能接受后置提示词加dsh适配实现。
+还有ds自家新的原生搜索接口以及图像上传自动转换至ds模型最适配分辨率等等。
+至于性能上我感觉各家都差不多。
+
+*****
+
+####  startraveller  
+##### 17108#       发表于 2026-10-19 15:04
+
+无人在意的角落： Minimax 3.1 Flash要发了
+
+*****
+
+####  lactone  
+##### 17109#       发表于 2026-10-19 15:06
+
+rumor说谷歌要发gemini4flash
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
