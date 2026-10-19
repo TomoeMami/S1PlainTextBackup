@@ -8151,3 +8151,22 @@ workbubby的各个插件和skill大家有什么推荐的吗？有人将这些迁
 —— 来自 v ...</blockquote>
 希望指令遵循能有Astra的程度，速度保持flash。
 
+
+*****
+
+####  chaoliu  
+##### 17051#       发表于 2026-10-19 09:36
+
+话说 ai 用到现在，skill 还有用吗？个人一直都是想到要做什么事情，都是开一个 chat 窗口，直接提要求—调整输出—结果这样，顶多发现重复几次后就让 ai 把对话工作固化成 skill 这样<img src="https://static.stage1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  此誓的守望  
+##### 17052#       发表于 2026-10-19 09:37
+
+看了下MIMO2.6pro的跑分，也和5.6sol打的有来有回
+
+有这么好的模型你们怎么不告诉我<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

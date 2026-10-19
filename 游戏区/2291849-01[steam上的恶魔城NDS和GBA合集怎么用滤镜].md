@@ -732,3 +732,14 @@ gba+nds 6作我没觉得哪作不行
 
 有没有边缘柔化的办法，原生分辨率强行拉大造成的满屏狗牙的效果实在是刺眼
 
+
+*****
+
+####  wthall  
+##### 65#       发表于 2026-10-19 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70382728&amp;ptid=2291849" target="_blank">czddxy 发表于 2026-10-16 16:17</a>
+
+白夜其实相当优秀，动作流畅度和内容丰富度上很让人满意，拉低评价的是机能限制导致辣眼睛的色彩和辣耳朵 ...</blockquote>
+这个画面和音乐的评价，我觉得给这个新作完全不带变的
+
