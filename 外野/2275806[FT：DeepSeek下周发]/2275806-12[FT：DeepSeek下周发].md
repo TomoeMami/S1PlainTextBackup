@@ -10009,3 +10009,21 @@ Mercury 3 证明文本扩散是可以规模化的。它的参数量比 Mercury 1
 
 <img src="https://framerusercontent.com/images/WZMdXlupAv536V3V2tdVU3udqw.png?lossless=1&amp;width=1296&amp;height=1298" height="801" id="aimg_Yi33a" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
+
+*****
+
+####  御坂MKII  
+##### 17235#       发表于 2026-10-20 02:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398072&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-20 00:48</a>
+
+看了下对比，感觉国模用的部分训练数据是同一处来的，然后加上各家自己搞的私有数据。 ...</blockquote>
+海对面也有核心人员出走，然后去做高质量数据的。数据这种有用到一样的倒是都正常
+
+*****
+
+####  御坂MKII  
+##### 17236#       发表于 2026-10-20 02:47
+
+回家试了试，这版确实还可以，注意力比以前好，可以做出之前从 5.6sol 才开始能解决的问题。没记错的话应该是国模第一个做出来的，其他家都会走偏
+
