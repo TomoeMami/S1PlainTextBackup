@@ -9973,3 +9973,25 @@ minimax有个形象是卖报的海螺小姐
 minimax有个形象是卖报的海螺小姐</blockquote>
 这么说来，Minimax H3这代在开源界太火，以至于大家都忘了他家视频产品是叫 海螺 Hailuo 了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浪子龙飞z  
+##### 17233#       发表于 2026-10-20 01:43
+
+<blockquote>cankao 发表于 2026-10-19 21:48
+M3.1Flash是不是wb那个匿名模型太空兔兔？
+
+不是，这个我觉得很一般啊，怎么就斩杀了4.1f1017
+
+ ...</blockquote>
+如斩，下面的小字实在让人难绷
+
+<img src="https://img.stage1st.com/forum/202610/20/014331mpl4797g0c9yl0h5.png" referrerpolicy="no-referrer">
+
+<strong>IMG_7542.png</strong> (179.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 01:43 上传
+
