@@ -9310,3 +9310,36 @@ glm5.3的api风格好像变了<img src="https://static.stage1st.com/image/smiley
 
 中国有14亿人，完全撑得起5~6家大模型公司，没有必要强求什么合并。
 
+
+*****
+
+####  买码！注册！  
+##### 17166#       发表于 2026-10-19 18:14
+
+御三家完全可以有四家或五家轮流转，就好像现在北美御三家还真不好说第三家是哪个
+
+*****
+
+####  tonyunreal  
+##### 17167#       发表于 2026-10-19 18:15
+
+Minimax m3.1 flash正式版官宣了
+
+*****
+
+####  Promeus  
+##### 17168#       发表于 2026-10-19 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396679&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-19 18:09</a>
+中国有14亿人，完全撑得起5~6家大模型公司，没有必要强求什么合并。</blockquote>
+中国有14亿人，卡才多少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 17169#       发表于 2026-10-19 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396718&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-19 18:18</a>
+中国有14亿人，卡才多少就这还有个一边扫货抢卡一边拿90％算力去生产💩的牛逼巨头 ...</blockquote>
+卡最多再有两年就可以解决了，多少要有一点长远眼光，不能八字还没一撇就鼠目寸光搞什么合并。
+
