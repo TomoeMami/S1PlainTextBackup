@@ -8641,3 +8641,13 @@ pro参数量和sol opus差不多，我估计编程上pro能和这俩打平手甚
 <img src="https://p.sda1.dev/35/13144d515b591b922ae6a22ab5c0b086/image.jpg" referrerpolicy="no-referrer">
 有型的大手:字节wcnm
 
+
+*****
+
+####  阿刚  
+##### 17096#       发表于 2026-10-19 13:44
+
+<blockquote>chaoliu 发表于 2026-10-19 09:36
+话说 ai 用到现在，skill 还有用吗？个人一直都是想到要做什么事情，都是开一个 chat 窗口，直接提要求—调 ...</blockquote>
+写文跑团这些文创还是离不开skill的，读了skill他就知道之前的东西在哪按什么查而不是全盘给你翻一圈。。。。
+
