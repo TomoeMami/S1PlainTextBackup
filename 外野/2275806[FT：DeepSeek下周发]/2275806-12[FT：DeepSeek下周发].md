@@ -8917,3 +8917,41 @@ qwen4和k3.1还不发？真打算等fable5.5？
 昨天尝试让D4F从一款老手游里提取live2D再生成GIF，发现它还是不能正确理解图像，生成的GIF缺胳膊少腿，许 ...</blockquote>
 你要查一下是不是提取的资源文件不全导致的。要不你换个问法，问d老师有没有将live2d转化成循环gif的开源库现成工程文件
 
+
+*****
+
+####  misuzu0723  
+##### 17124#       发表于 2026-10-19 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396011&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-19 16:12</a>
+
+qwen4和k3.1还不发？真打算等fable5.5？
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+没必要等fable5.5吧，现在能打赢opus5.5就很不错了
+
+
+*****
+
+####  nxmonitor  
+##### 17125#       发表于 2026-10-19 16:20
+
+用户群里又开始拉人了，不会4.1Pro快了吧？
+
+
+*****
+
+####  cscbzcbz  
+##### 17126#       发表于 2026-10-19 16:24
+
+大的又要来啦？哇
+
+deepseekv4.1pro不可能翻车，我要吹爆梁文锋<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 17127#       发表于 2026-10-19 16:25
+
+上次验证还是挺有效的，一拉人就有动作马上1017就有了
+

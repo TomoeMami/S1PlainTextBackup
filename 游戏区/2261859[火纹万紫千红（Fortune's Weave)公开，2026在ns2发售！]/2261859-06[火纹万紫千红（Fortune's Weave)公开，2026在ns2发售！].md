@@ -5047,3 +5047,59 @@ buff挺实用 但是牛逼法师太多了不差她一个 所以让她跳舞去�
 
 看好DLC里有完全版第三部。
 
+
+*****
+
+####  真田源次郎信繁  
+##### 7890#       发表于 2026-10-19 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396018&amp;ptid=2261859" target="_blank">duraa 发表于 2026-10-19 16:12</a>
+
+第三部最变态的就是合流后居然几乎一半的正经战旗出击才9人搞的第一部用心培养一堆人物和笑话一样 ...</blockquote>
+y1s1，除了第一章，后面其实是让你练两三队主力队一起打的，也算用的上
+
+*****
+
+####  dddyghr  
+##### 7891#       发表于 2026-10-19 16:17
+
+礼问坛友有没有全妹队养成攻略，目前只看到一个b站up还在打流程，这难道是什么小众赛道吗
+
+*****
+
+####  caps洛奇  
+##### 7892#       发表于 2026-10-19 16:20
+
+第三部我都是自限锁出击的<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 7893#       发表于 2026-10-19 16:21
+
+因为真焰将和冥将都有战前对话过场，等dlc出了也是在9人锁死救世主+8真焰将了
+
+*****
+
+####  真田源次郎信繁  
+##### 7894#       发表于 2026-10-19 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396068&amp;ptid=2261859" target="_blank">dddyghr 发表于 2026-10-19 16:17</a>
+
+礼问坛友有没有全妹队养成攻略，目前只看到一个b站up还在打流程，这难道是什么小众赛道吗 ...</blockquote>
+因为这作男的难看的多，全妹队反而差不多是主流吧<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+把大众攻略里迪托抛掉就可以了
+
+
+*****
+
+####  Humpy  
+##### 7895#       发表于 2026-10-19 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395969&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-10-19 16:06</a>
+我重打完了一遍凯伊线，然后打第三部我觉得自己在和空气斗智斗勇，凯伊线合成的人物基本都没用上，只有给妮 ...</blockquote>
+别的不说，我蕾妲线的穆是真养残了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第一部通关时40级28速<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
