@@ -8859,3 +8859,11 @@ dsh有什么特殊的点吗？ 我是codex、claude code、opencode、kimiwork�
 
 workbuddy国内版现在实装1017没，怎么让他建模和老4.1差不多
 
+
+*****
+
+####  seedees3  
+##### 17118#       发表于 2026-10-19 15:57
+
+怎么现在都在讨论workbuddy，表现很不错吗，近两个月不太关注了，还在用opencode
+
