@@ -9995,3 +9995,17 @@ M3.1Flash是不是wb那个匿名模型太空兔兔？
 
 2026-10-20 01:43 上传
 
+
+*****
+
+####  RookieTnT  
+##### 17234#       发表于 2026-10-20 02:24
+
+今天我们正式推出 Mercury 3——这是迄今发布的最强大的基于扩散的大语言模型（LLM）。在一系列基准测试中，Mercury 3 的表现优于 GPT-6 Luna 和 Claude Haiku 5.5，同时运行速度快 4–8 倍，每秒可处理 1,000+ token。
+
+Mercury 3 证明文本扩散是可以规模化的。它的参数量比 Mercury 1 大 40 倍以上，智能程度也大幅提升，但速度依旧同样快。
+
+[https://www.inceptionlabs.ai/blog/introducing-mercury-3](https://www.inceptionlabs.ai/blog/introducing-mercury-3)
+
+<img src="https://framerusercontent.com/images/WZMdXlupAv536V3V2tdVU3udqw.png?lossless=1&amp;width=1296&amp;height=1298" height="801" id="aimg_Yi33a" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
