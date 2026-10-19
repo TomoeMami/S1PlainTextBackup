@@ -860,3 +860,15 @@ Advance合集有的，有奖杯或成就</blockquote>
 
 gba版我之前玩ns版好像没有，现在打steam版有了。基本都是流程boss+各种结局来一遍。
 
+
+*****
+
+####  zfz4869  
+##### 75#       发表于 2026-10-19 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395687&amp;ptid=2291849" target="_blank">syndrome2032 发表于 2026-10-19 15:23</a>
+gba版我之前玩ns版好像没有，现在打steam版有了。基本都是流程boss+各种结局来一遍。 ...</blockquote>
+gba和nds合集都没有游戏内成就，ps有奖杯，ns就没办法啦
+
+—— 来自 vivo V2546A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

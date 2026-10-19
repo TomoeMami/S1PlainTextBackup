@@ -8795,3 +8795,18 @@ rumor说谷歌要发gemini4flash
 已经很成熟的 ...</blockquote>
 能讲讲具体怎么操作吗？问ds，他说让我通过环境变量传key，但是我问他那模型echo一下环境变量不还是能够拿到key？他又说没错<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  love4aids  
+##### 17111#       发表于 2026-10-19 15:43
+
+这个游戏有bug，证件上中文是休斯顿，英文是芝加哥，但是检查不到问题，我直接拘留是扣我token了
+
+*****
+
+####  JANs  
+##### 17112#       发表于 2026-10-19 15:44
+
+问一下有没有可以用国外ai的api的第三方平台，最好不会封号，可以走支付宝的那种。新人刚刚起步上手
+
