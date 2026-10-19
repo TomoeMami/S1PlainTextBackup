@@ -9292,3 +9292,21 @@ glm5.3的api风格好像变了<img src="https://static.stage1st.com/image/smiley
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  keamedes  
+##### 17164#       发表于 2026-10-19 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396567&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-19 17:45</a>
+
+某种意义上也许kimi和ds合并会是好事</blockquote>
+不可能合并的，两个公司的创始人风格完全不一样，但是都对模型的发展路线有强烈的控制欲，合并大概率一团乱麻
+
+*****
+
+####  来都来了  
+##### 17165#       发表于 2026-10-19 18:09
+
+中国有14亿人，完全撑得起5~6家大模型公司，没有必要强求什么合并。
+
