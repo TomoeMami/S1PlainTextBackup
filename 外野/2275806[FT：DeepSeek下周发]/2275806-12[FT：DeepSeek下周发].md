@@ -8651,3 +8651,50 @@ pro参数量和sol opus差不多，我估计编程上pro能和这俩打平手甚
 话说 ai 用到现在，skill 还有用吗？个人一直都是想到要做什么事情，都是开一个 chat 窗口，直接提要求—调 ...</blockquote>
 写文跑团这些文创还是离不开skill的，读了skill他就知道之前的东西在哪按什么查而不是全盘给你翻一圈。。。。
 
+
+*****
+
+####  冤枉呐  
+##### 17097#       发表于 2026-10-19 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395027&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-10-19 13:21</a>
+更多是按需求组装插件, 自己不需要不用安装, 然后定制专门的提示词和工作流方便 ...</blockquote>
+我最大的痛苦是他一升级插件就得全部重做
+烦死了
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  空き地卯木  
+##### 17098#       发表于 2026-10-19 14:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395128&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-19 13:43</a>
+有型的大手:字节wcnm</blockquote>
+世界未解之谜，字➗的算力都在干什么
+
+
+*****
+
+####  crow_wine  
+##### 17099#       发表于 2026-10-19 14:04
+
+<img src="https://img.stage1st.com/forum/202610/19/140201d8lnarlyfl746f6t.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (49.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 14:02 上传
+
+对于比较复杂的东西ds的建模能力还是比较弱。比如这个解耦式四球头双叉臂的建模。做得就不是很好，只能给60分。不知道是不是只用简单的html的缘故，没法做曲面建模，只能用简单的元素拼接
+
+*****
+
+####  chaoliu  
+##### 17100#       发表于 2026-10-19 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395134&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-19 13:44</a>
+写文跑团这些文创还是离不开skill的，读了skill他就知道之前的东西在哪按什么查而不是全盘给你翻一圈。。 ...</blockquote>
+那我感觉这个和我看前面说还不大一样，感觉是对的一些内容的归档和整理，类似记忆一样的东西？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
