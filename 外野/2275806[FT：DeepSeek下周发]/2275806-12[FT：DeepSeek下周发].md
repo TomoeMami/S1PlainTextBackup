@@ -9273,3 +9273,22 @@ kimi好像是租阿里云的
 
 某种意义上也许kimi和ds合并会是好事<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 17162#       发表于 2026-10-19 17:48
+
+实际上我认为国模保留御三家就好，qwen，ds，kimi或者glm <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 17163#       发表于 2026-10-19 17:50
+
+glm5.3的api风格好像变了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
