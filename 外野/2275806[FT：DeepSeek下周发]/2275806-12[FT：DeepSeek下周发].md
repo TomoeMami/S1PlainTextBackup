@@ -8049,3 +8049,18 @@ glm是玩酒馆最好的国产ai了啊，甲薄文笔好，还能写雌小鬼</b
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Promeus  
+##### 17041#       发表于 2026-10-19 09:14
+
+目前看很可能dsec是真强，让他们有把4.1p捏手里看风向的底气，反正能力自己涨<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 17042#       发表于 2026-10-19 09:16
+
+1017这个8B/16B就能这么强，有点出人意料了，还有个小道消息是Pro在灰测。
+
