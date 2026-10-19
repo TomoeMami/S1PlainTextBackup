@@ -8479,3 +8479,41 @@ Pro要是有这个速度更哈人了
 
 不过好像dsh最近有一些针对pro的修改，估计确实也快发了
 
+
+*****
+
+####  phorcys02  
+##### 17081#       发表于 2026-10-19 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393889&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-19 09:32</a>
+
+我觉得只要pro能在部分任务上打astra，保持这个价格和速度然后开源，就能再吃掉一块ant的估值
+
+—— 来自 v ...</blockquote>
+真有这么强那就不是掉估值的问题了
+
+怕不是要炸烟花了...
+
+梁子还要从花街捞钱呢，估计不能干这直接炸锅的事儿
+
+*****
+
+####  zephyrus99  
+##### 17082#       发表于 2026-10-19 13:04
+
+dsh有什么特殊的点吗？ 我是codex、claude code、opencode、kimiwork这些都用着，想问需不需要试试dsh
+
+*****
+
+####  吴怀在  
+##### 17083#       发表于 2026-10-19 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394946&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-10-19 13:03</a>
+真有这么强那就不是掉估值的问题了
+
+怕不是要炸烟花了...
+
+梁子还要从花街捞钱呢，估计不能干这直接炸锅的 ...</blockquote>
+提前做空不是也能赚钱？
+为啥他不能炸锅？梁子岂是如此无胆之人？
+
