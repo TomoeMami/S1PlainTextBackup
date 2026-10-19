@@ -9129,3 +9129,76 @@ terminal bench 4虽然好，但是不成比例，也就是分数两倍不一定�
 
 肥鱼的官方harness为啥我登录了用公司api没用啊，还是走的我的说要我充值，要么就是404调用失败
 
+
+*****
+
+####  Cloude_L  
+##### 17147#       发表于 2026-10-19 17:08
+
+我也遇到了更新后的dsh接ds自己的api（更新前的，而不是更新后dsh自己发行的那个，api提供者名称为deepseek-official）失效的问题，问了一下说是settings.yaml迁移有bug，只能发行新的接入
+
+*****
+
+####  Promeus  
+##### 17148#       发表于 2026-10-19 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396350&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-19 17:02</a>
+上次群里拉人后几天发的1017？
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+16号拉人17号发
+
+*****
+
+####  lactone  
+##### 17149#       发表于 2026-10-19 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396401&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-19 17:09</a>
+16号拉人17号发</blockquote>
+polymarket上预测fable5.5最可能明天晚上发，这是真要打擂台啊
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Milarvoz  
+##### 17150#       发表于 2026-10-19 17:11
+
+什么？大的又要来了吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  love4aids  
+##### 17151#       发表于 2026-10-19 17:14
+
+<img src="https://img.stage1st.com/forum/202610/19/171443k7on78ei3stl6ps1.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ba6577aa90ce4a0674ac7745337eb584.jpeg</strong> (140.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 17:14 上传
+
+*****
+
+####  schneehertz  
+##### 17152#       发表于 2026-10-19 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396010&amp;ptid=2275806" target="_blank">乌桃内设格温 发表于 2026-10-19 16:12</a>
+都在关注wb，歪个楼，想问问有没有什么比较舒服能在VSCode内用pi的插件？（pi能注册多个提供商比较适合我这 ...</blockquote>
+直接在vscode的集成终端中启动pi？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  awy002  
+##### 17153#       发表于 2026-10-19 17:18
+
+<blockquote>Cloude_L 发表于 2026-10-19 17:08
+我也遇到了更新后的dsh接ds自己的api（更新前的，而不是更新后dsh自己发行的那个，api提供者名称为deepseek ...</blockquote>
+不懂，咋解决啊，登录个新账号？
+
