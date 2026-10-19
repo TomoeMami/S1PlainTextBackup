@@ -5005,3 +5005,14 @@ buff挺实用 但是牛逼法师太多了不差她一个 所以让她跳舞去�
 
 凯伊线sl坐骑的体验还是太差了，不刷坐骑又觉得焦虑
 
+
+*****
+
+####  duraa  
+##### 7886#       发表于 2026-10-19 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395763&amp;ptid=2261859" target="_blank">紫菜粉丝煲 发表于 2026-10-19 15:35</a>
+凯伊线sl坐骑的体验还是太差了，不刷坐骑又觉得焦虑</blockquote>
+可以对着第三部出击人数提前确定最后哪些人是要上的，你想着这人只是第一部通关用下就不会焦虑了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+我自己是规划完一个烈骏神将，一个弓骑，两个飞马，就四个需要坐骑的，中间鸵鸟过渡一下就完了
+

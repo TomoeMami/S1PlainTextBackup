@@ -8810,3 +8810,52 @@ rumor说谷歌要发gemini4flash
 
 问一下有没有可以用国外ai的api的第三方平台，最好不会封号，可以走支付宝的那种。新人刚刚起步上手
 
+
+*****
+
+####  RStocking  
+##### 17113#       发表于 2026-10-19 15:47
+
+昨天尝试让D4F从一款老手游里提取live2D再生成GIF，发现它还是不能正确理解图像，生成的GIF缺胳膊少腿，许愿失败了<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17114#       发表于 2026-10-19 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395829&amp;ptid=2275806" target="_blank">JANs 发表于 2026-10-19 15:44</a>
+问一下有没有可以用国外ai的api的第三方平台，最好不会封号，可以走支付宝的那种。新人刚刚起步上手 ...</blockquote>
+Opencode zen咯
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  eno_emos  
+##### 17115#       发表于 2026-10-19 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395854&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-10-19 15:48</a>
+
+Opencode zen咯
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0</blockquote>
+opencode zen有代理手续费，这点得提一下
+
+
+*****
+
+####  qz66618  
+##### 17116#       发表于 2026-10-19 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394948&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-10-19 13:04</a>
+
+dsh有什么特殊的点吗？ 我是codex、claude code、opencode、kimiwork这些都用着，想问需不需要试试dsh ...</blockquote>
+首先自V4开始后的DS的新模型训练时都是会针对dsh进行专门的适配训练的，这一点ds后训练负责人也说过，dsh的负责人也说过，所以说用dsh来搭配ds模型在某些任务上是会有一定程度的提升的。只不过当时v4pro训练出现了过拟合现象，后来发布的模型也都吸取了这次教训，给出了不同harness下的性能表现，但是综合来说dsh依旧是各个harness中最适配ds的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  awy002  
+##### 17117#       发表于 2026-10-19 15:55
+
+workbuddy国内版现在实装1017没，怎么让他建模和老4.1差不多
+
