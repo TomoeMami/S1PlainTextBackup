@@ -8316,3 +8316,29 @@ skill就是一堆格式化的提示词
  ...</blockquote>
 workbuddy好像就有这些skill？
 
+
+*****
+
+####  小野賢章  
+##### 17066#       发表于 2026-10-19 10:52
+
+现在dsh桌面版是不是没有办法直接升级第三方插件，非要要卸载了重新安装？
+
+*****
+
+####  warlock228  
+##### 17067#       发表于 2026-10-19 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394251&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-10-19 10:33</a>
+workbuddy好像就有这些skill？</blockquote>
+不过好像也不用特意去找skill 找个合适好看的ppt模板发给哦鲸鲸要他自己整成skill好像也可以
+
+*****
+
+####  lactone  
+##### 17068#       发表于 2026-10-19 10:56
+
+其它国模这周到底发不发
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
