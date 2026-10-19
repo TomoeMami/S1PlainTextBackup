@@ -9856,3 +9856,11 @@ deepseek禁令来了，跑分更高的minimax给点力呀
 
 minimax就非常明显的蒸馏痕迹了，太空兔那会就有的背题倾向完全没清理，做出来的东西要么一坨要么非常好看但是连GPT绿都抄了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蒸馏出来的模型就是这个智力表现
 
+
+*****
+
+####  nxmonitor  
+##### 17222#       发表于 2026-10-19 22:50
+
+太空兔就很明显了，有的体素输出结果和Astra一模一样，真背题…
+
