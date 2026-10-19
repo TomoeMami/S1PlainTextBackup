@@ -9683,3 +9683,14 @@ workbuddy2api－hub
 改bug榜更新了</blockquote>
 看了下视频还没更新，很急了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫不理prime  
+##### 17206#       发表于 2026-10-19 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397363&amp;ptid=2275806" target="_blank">BISSBISS 发表于 2026-10-19 20:52</a>
+
+试用了腾讯的workbuddy ，原来是有送积分，难怪那么多人用，能不能使用DeepSeek Harness但是用wb的积分啊。 ...</blockquote>
+dsh-workbuddy-connect ；国内版国际版的积分都能用
+
