@@ -8342,3 +8342,28 @@ workbuddy好像就有这些skill？</blockquote>
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛拉斯  
+##### 17069#       发表于 2026-10-19 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393450&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-19 07:37</a>
+
+把账号密码给大模型风险是比较高的，如果被拿去训练，就是全网公开了
+
+虽然一般会把个人信息清理掉，但是 ...</blockquote>
+账号密码别给大模型，自己建立一个临时令牌就是，大模型可以调用令牌，但是不知道账号密码
+
+已经很成熟的方案了
+
+*****
+
+####  Noiratod  
+##### 17070#       发表于 2026-10-19 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70392847&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-18 23:04</a>
+
+qoder也有限额，而且连付费都会被限</blockquote>
+那可能是我蹬得还不够狠，之前日均1000出头
+
