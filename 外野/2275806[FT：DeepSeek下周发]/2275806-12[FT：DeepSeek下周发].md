@@ -9217,3 +9217,59 @@ polymarket上预测fable5.5最可能明天晚上发，这是真要打擂台啊
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们说的拉人是啥意思，看不懂啊
 
+
+*****
+
+####  Promeus  
+##### 17156#       发表于 2026-10-19 17:37
+
+至少0813开始是每次发模型都拉人吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 17157#       发表于 2026-10-19 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396498&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-19 17:26</a>
+拉人这个感觉很难算是发模型的信号不过按照pro的进度来看确实快该发了，可能晚于kimi ...</blockquote>
+这么搞Kimi还发不发啊，都把kimi憋一个月了
+
+*****
+
+####  andychen  
+##### 17158#       发表于 2026-10-19 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396537&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-19 17:38</a>
+
+这么搞Kimi还发不发啊，都把kimi憋一个月了</blockquote>
+这模型估计后训练还没有彻底做完
+
+*****
+
+####  lactone  
+##### 17159#       发表于 2026-10-19 17:41
+
+kimi的算力比ds还缺吧
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  德尔惠净水器  
+##### 17160#       发表于 2026-10-19 17:44
+
+<blockquote>lactone 发表于 2026-10-19 17:41
+kimi的算力比ds还缺吧
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+kimi好像是租阿里云的
+
+
+*****
+
+####  Promeus  
+##### 17161#       发表于 2026-10-19 17:45
+
+某种意义上也许kimi和ds合并会是好事<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
