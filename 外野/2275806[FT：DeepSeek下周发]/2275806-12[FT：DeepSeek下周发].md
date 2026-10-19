@@ -8303,3 +8303,16 @@ skill就是一堆格式化的提示词
 
 <img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">有什么好用的网站可以找找ppt和word文档的skill，个人审美能力低下只能去找找别人的模板
 
+
+*****
+
+####  zhongjie  
+##### 17065#       发表于 2026-10-19 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70394129&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-10-19 10:16</a>
+
+有什么好用的网站可以找找ppt和word文档的skill，个人审美能力低下只能去找找别人的模板
+
+ ...</blockquote>
+workbuddy好像就有这些skill？
+
