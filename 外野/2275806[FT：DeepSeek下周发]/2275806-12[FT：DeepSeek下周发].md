@@ -8220,3 +8220,16 @@ workbubby的各个插件和skill大家有什么推荐的吗？有人将这些迁
 —— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99</blockquote>
 对，5离一次，算错了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 17058#       发表于 2026-10-19 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393908&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-10-19 09:37</a>
+
+看了下MIMO2.6pro的跑分，也和5.6sol打的有来有回
+
+有这么好的模型你们怎么不告诉我</blockquote>
+很区的，除了刷分啥也不行，而且疑似Flash打不过Pro
+
