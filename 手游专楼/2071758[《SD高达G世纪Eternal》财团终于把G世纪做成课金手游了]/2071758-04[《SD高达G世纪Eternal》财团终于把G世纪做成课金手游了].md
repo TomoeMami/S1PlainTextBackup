@@ -2205,3 +2205,13 @@ C5E423D38F92CAD2C205BB6430E7B5DF.jpg
 
 之前命运池子非了没抽到监牢船，没想到这次抽再生直接出了两个船，加上这次出的狼王，好像我监牢队突然变得挺能打的了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 4901#       发表于 2026-10-19 14:44
+
+我唯独监牢船有俩，机体也挺多，想抽个再生加强下队伍，结果哈罗大法失效<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">这下元旦怎么过哦
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

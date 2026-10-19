@@ -8706,3 +8706,38 @@ pro参数量和sol opus差不多，我估计编程上pro能和这俩打平手甚
 
 这游戏做的真不错：[https://ip-please.github.io/](https://ip-please.github.io/)  <img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 17102#       发表于 2026-10-19 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395344&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-19 14:31</a>
+这游戏做的真不错：https://ip-please.github.io/</blockquote>
+确实不错
+
+*****
+
+####  qwased  
+##### 17103#       发表于 2026-10-19 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395111&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-10-19 13:38</a>
+
+发现本地部署的LLM打开投机解码速度快了约50%。这选项居然还不是VLLM的默认开启的选项 ...</blockquote>
+大部分推理框架不保证开了投机解码之后输出还和不开一致，我实测下来llamacpp和ninfer开MTP就会劣化，问业内说是大厂基本都不用投机解码的，所以没人折腾这事<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zy450  
+##### 17104#       发表于 2026-10-19 14:44
+
+开了MAX档，真的慢啊
+
+*****
+
+####  lilod  
+##### 17105#       发表于 2026-10-19 14:47
+
+没有必要 max 啊，干活儿就用 high
+
