@@ -8072,3 +8072,82 @@ glm是玩酒馆最好的国产ai了啊，甲薄文笔好，还能写雌小鬼</b
 
 workbubby的各个插件和skill大家有什么推荐的吗？有人将这些迁移出来做dsh的插件了吗？
 
+
+*****
+
+####  cscbzcbz  
+##### 17044#       发表于 2026-10-19 09:27
+
+pro搞快点<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">但是不要复刻0813了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空き地卯木  
+##### 17045#       发表于 2026-10-19 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393621&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-19 08:42</a>
+按常理推断，4.1p去踹astra和opus5.5是可以期待一下的至少应该强于6.1sol和fable5.1 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/19/092724voefoxffffof9f74.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792373243708_7.webp</strong> (12.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 09:27 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ds员工已经串上了，我不好说
+
+*****
+
+####  库德里尔  
+##### 17046#       发表于 2026-10-19 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393873&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-10-19 09:28</a>
+ds员工已经串上了，我不好说</blockquote>
+神特么小胖爱生活1588定型文的既视感
+
+1017确实跟手，昨天一天把一个unity的文字冒险游戏基本汉化完了，顺手做了测试用的工具注入
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  临界点  
+##### 17047#       发表于 2026-10-19 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393846&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-10-19 09:23</a>
+workbubby的各个插件和skill大家有什么推荐的吗？有人将这些迁移出来做dsh的插件了吗？ ...</blockquote>
+不都是通用的吗，不通用也可以让模型帮你改帮你安装
+
+*****
+
+####  lactone  
+##### 17048#       发表于 2026-10-19 09:32
+
+我觉得只要pro能在部分任务上打astra，保持这个价格和速度然后开源，就能再吃掉一块ant的估值
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lactone  
+##### 17049#       发表于 2026-10-19 09:33
+
+或者说，如果无机酸测的qwen4的前端真有这么强，那oa还得掉头发
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zhongjie  
+##### 17050#       发表于 2026-10-19 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70393889&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-19 09:32</a>
+
+我觉得只要pro能在部分任务上打astra，保持这个价格和速度然后开源，就能再吃掉一块ant的估值
+
+—— 来自 v ...</blockquote>
+希望指令遵循能有Astra的程度，速度保持flash。
+

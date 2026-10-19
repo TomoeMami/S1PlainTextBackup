@@ -294,3 +294,19 @@ hd2d？  什么效果了？
 我搞了两个SFC老游戏HD2D化，从bin开始到构建PC源码大概200刀</blockquote>
 说实话2D游戏200刀都可以把素材扒出来让AI做个全面强化版的新游了
 
+
+*****
+
+####  慕容断月  
+##### 83#       发表于 2026-10-19 09:28
+
+我没想到初代xbox的重编译能这么又快又好，先不提B站那位ip台湾的哥们做的幻魔鬼武者
+
+试了下开源的那个忍龙黑的和闭源的那个湾岸午夜俱乐部3remix的，效果太好了
+
+性能需求明显低于xemu不说操控也比xemu跟手一点
+
+这就是x86和windows pc架构在ai加持下的神力吗？
+
+好奇有多彻底拿光荣的winback2试了下，没想到刷刷的疯狂推进，大跌眼镜，大跌眼镜<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
