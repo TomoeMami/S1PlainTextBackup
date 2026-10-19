@@ -1494,3 +1494,167 @@ Ave Mujica 6th LIVE「Ulterius Procedere」东京公演的影像。
 
        [https://www3.nhk.or.jp/nhkworld/ ... type=tvEpisode&amp;](https://www3.nhk.or.jp/nhkworld/en/shows/j-melo/?type=tvEpisode&amp;)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42132#       发表于 2026-10-19 19:27
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/19/192710xwwss6wpdpx4ss6k.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-19_19-26-20.png</strong> (1.29 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 19:27 上传
+
+       [https://x.com/bang_dream_info/status/2112106480740532619](https://x.com/bang_dream_info/status/2112106480740532619)
+
+       [https://bang-dream.com/events/avemujica_7th/#Goods_onsite](https://bang-dream.com/events/avemujica_7th/#Goods_onsite)
+
+*****
+
+####  堀内爱里衣  
+##### 42133#       发表于 2026-10-19 19:28
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/19/192836df1ju017jujnjj1n.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-19_19-27-49.png</strong> (785.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 19:28 上传
+
+       [https://x.com/bang_dream_info/status/2112114030588416373](https://x.com/bang_dream_info/status/2112114030588416373)
+
+       [https://bang-dream.com/news/2439](https://bang-dream.com/news/2439)
+
+*****
+
+####  堀内爱里衣  
+##### 42134#       发表于 2026-10-19 19:30
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/19/193000w8cakcy4lbu68ek4.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-19_19-29-16.png</strong> (508.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 19:30 上传
+
+       [https://x.com/bang_dream_info/status/2112133757650305371](https://x.com/bang_dream_info/status/2112133757650305371)
+
+       [https://bang-dream.com/news/2441](https://bang-dream.com/news/2441)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42135#       发表于 2026-10-19 19:31
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/19/193129nxmwm55m6mxczw39.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-19_19-30-33.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 19:31 上传
+
+       [https://x.com/bang_dream_info/status/2112136681881321816](https://x.com/bang_dream_info/status/2112136681881321816)
+
+       [https://t.co/whQ6HoAotn](https://t.co/whQ6HoAotn)
+
+*****
+
+####  堀内爱里衣  
+##### 42136#       发表于 2026-10-19 19:33
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/19/193332sct413wbso64g449.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-19_19-32-29.png</strong> (805.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 19:33 上传
+
+       [https://x.com/bang_dream_info/status/2112136929911402928](https://x.com/bang_dream_info/status/2112136929911402928)
+
+       <strong>【官方live视频】Ave Mujica「Sophie」（Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- DAY2）</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/19/193333cp4zb9jk4e4p11nj.png" referrerpolicy="no-referrer">
+
+<strong>63f876f08b4a96b1b1723b36311c2c6b01b9b50f.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 19:33 上传
+
+2026年6月20日（周六）于SGC HALL ARIAKE举办的 Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- DAY2中演奏的「Sophie」完整版LIVE影像现已公开。
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+Ave Mujica 7th LIVE「Virtus」
+
+2026年10月24日（周六）・25日（周日）京王Arena TOKYO
+
+DAY2充电直播・充电回放现正售卖中。
+
+▼充电档位①
+
+　・价格：连续包月198元(238元档位)
+
+　・内容：【DAY2充电回放视频】
+
+　・充电回放视频播出期间：2026年10月25日(周日)LIVE结束后～2026年11月1日(周日)22:59
+
+▼充电档位②
+
+　・价格：连续包月238元(288元档位)
+
+　・内容：【DAY2充电直播】+【DAY2充电回放视频】
+
+　・充电直播：2026年10月25日(周日)开场15:00／开演16:30（预定）
+
+  ※具体开始时间可能因现场情况有所调整。
+
+　・充电回放视频播出期间：2026年10月25日(周日)LIVE结束后～2026年11月1日(周日)22:59
+
+详情请见：[https://www.bilibili.com/opus/1260870115280289798](https://www.bilibili.com/opus/1260870115280289798)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica Mini Album「神の名を」
+
+2026年10月21日（周三）发售
+
+Blu-ray附生产限定版将收录 Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- DAY2演出影像。
+
+限量生产5,000张的特装版除上述影像外，还将收录同场LIVE的DAY1演出影像。
+
+详情请见：[https://bang-dream.com/discographies/4238/](https://bang-dream.com/discographies/4238/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+◇ BanG Dream!
+
+官方网站：[https://bang-dream.com/](https://bang-dream.com/)
+
+官方bilibili：@BanGDream_CN
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+#BanGDream# #AveMujica#</blockquote>
+       [https://www.bilibili.com/video/BV1QGnJ6tEYo](https://www.bilibili.com/video/BV1QGnJ6tEYo)
+
