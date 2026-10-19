@@ -9874,3 +9874,11 @@ minimax就非常明显的蒸馏痕迹了，太空兔那会就有的背题倾向�
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  moekyo  
+##### 17224#       发表于 2026-10-19 23:27
+
+推上都说 minimax 这个，那些旧题做得又快又好，还很省 token，但是新题就不行了。。
+
