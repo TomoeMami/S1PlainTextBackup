@@ -8517,3 +8517,28 @@ dsh有什么特殊的点吗？ 我是codex、claude code、opencode、kimiwork�
 提前做空不是也能赚钱？
 为啥他不能炸锅？梁子岂是如此无胆之人？
 
+
+*****
+
+####  andychen  
+##### 17084#       发表于 2026-10-19 13:08
+
+你们对V4.1pro的期待太高了，我觉得能达到6.1sol的能力就很不错
+
+
+*****
+
+####  lly778  
+##### 17085#       发表于 2026-10-19 13:12
+
+o/有没有有点逼数
+
+PixPin_2026-10-19_13-08-49.png
+(155.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-19 13:11 上传
+
+<img src="https://img.stage1st.com/forum/202610/19/131142nimvebx88pa86y6v.png" referrerpolicy="no-referrer">
+
