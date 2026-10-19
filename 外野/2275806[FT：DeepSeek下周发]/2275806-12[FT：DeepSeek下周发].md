@@ -9694,3 +9694,13 @@ workbuddy2api－hub
 试用了腾讯的workbuddy ，原来是有送积分，难怪那么多人用，能不能使用DeepSeek Harness但是用wb的积分啊。 ...</blockquote>
 dsh-workbuddy-connect ；国内版国际版的积分都能用
 
+
+*****
+
+####  lactone  
+##### 17207#       发表于 2026-10-19 21:28
+
+说是glm5.5的id也出来了，可能也快发了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
