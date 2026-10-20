@@ -10859,3 +10859,19 @@ mutation test是吧<img src="https://static.stage1st.com/image/smiley/face2017/0
 
 1017现在的一个情况就是细节紊乱，这也是dsf的通病了
 
+
+*****
+
+####  小野賢章  
+##### 17316#       发表于 2026-10-20 16:25
+
+Pretraining on the Test Set Is All You Need
+
+
+*****
+
+####  heemoon  
+##### 17317#       发表于 2026-10-20 16:26
+
+修改一个ai工具介绍视频，同一对话内，1017甚至不如20天前自己出的第一版，搞出的新问题修了2个小时没修好了，白白浪费10块<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
