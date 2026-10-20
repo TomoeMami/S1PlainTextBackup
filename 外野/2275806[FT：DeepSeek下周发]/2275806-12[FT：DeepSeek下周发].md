@@ -10368,3 +10368,37 @@ A÷有种犹他州出来的样子，比福音派看上去都魔怔……
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  darktide  
+##### 17269#       发表于 2026-10-20 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399333&amp;ptid=2275806" target="_blank">ysubm 发表于 2026-10-20 11:09</a>
+
+这就是所谓的「提高oneshot能力」的弊端，主动性和目的性太强导致经常越界和短视。唉……之前的deepseek ...</blockquote>
+有利有弊吧，还有个问题就是dsh的token消耗挺多，我对比了下cursor的执行效率，基本token消耗是2-3倍起。curosr（grok）一个任务几百万token，dsh那里至少要10~20M，平均下来也在40M左右。所以除非是半价时间段，平常时间段反而用grok更划算。
+
+
+*****
+
+####  洛拉斯  
+##### 17270#       发表于 2026-10-20 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399333&amp;ptid=2275806" target="_blank">ysubm 发表于 2026-10-20 11:09</a>
+
+这就是所谓的「提高oneshot能力」的弊端，主动性和目的性太强导致经常越界和短视。唉……之前的deepseek ...</blockquote>
+先用max推理设计计划，然后用low推理开干就是，然后用插件约束d老师瞎搞提高token效率，这边用的是dsh-ops插件，你可以参考下
+
+*****
+
+####  mitzvah  
+##### 17271#       发表于 2026-10-20 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399170&amp;ptid=2275806" target="_blank">darktide 发表于 2026-10-20 10:40</a>
+
+1017版本用起来感觉有个退步的地方，聊天场景下，会投入更多的注意力到最近的对话上面，反而对全局对话（尤 ...</blockquote>
+整体性考虑这个本身就有点程序内部处理非平凡定义的倾向，被莱斯定理约束的。
+
+这种提示几乎不可能发挥作用你应该让其选择对立的方案进行实验来量化比较
+

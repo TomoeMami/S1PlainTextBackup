@@ -5632,3 +5632,36 @@ A少外传都打的差不多了，感觉如果有超难难度的话，最难的�
 
 这作的养成太累了 都要玩晕了
 
+
+*****
+
+####  Trout  
+##### 7942#       发表于 2026-10-20 11:48
+
+<blockquote>duraa 发表于 2026-10-20 11:25
+第三部4关9人，4关17人，最后一关25人，其中自捏占一个锁定位，正常就1队最高练度全打，2队次高练度参与5 ...</blockquote>
+我想规划每场战斗尽量上不同的人，请问第三章按分区排序，上的人数是9人，9人，17+9人，17+9人，17+17人，25人，这样吗
+
+*****
+
+####  duraa  
+##### 7943#       发表于 2026-10-20 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399557&amp;ptid=2261859" target="_blank">Trout 发表于 2026-10-20 11:48</a>
+我想规划每场战斗尽量上不同的人，请问第三章按分区排序，上的人数是9人，9人，17+9人，17+9人，17+17人 ...</blockquote>
+9，9，9+17，17+9+17，17+25
+
+*****
+
+####  真田源次郎信繁  
+##### 7944#       发表于 2026-10-20 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399464&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-10-20 11:27</a>
+
+我知道 但是没必要啊 都最终章了 给的回合数富裕点或者移动力给高点没啥毛病吧
+
+每次都被这个回合数搞的焦 ...</blockquote>
+第三章这么搞是让玩家产生要做的事很多的错觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+实际上马上就没事干了，完全干瞪眼
+
