@@ -12330,3 +12330,54 @@ qoder免费版有明确和你说数据会被拿去用</blockquote>
 就是我观察到，DS在处理一些任务时太“莽”， ...</blockquote>
 不知道是不是参数小和世界知识缺少的原因，我用 cursor 的 grok 就喜欢先查文件，查到自己觉得没问题了就出方案一步到位，而 dsh 就会边做边思考，总体效果都差不多。但是 dsh 稳定性还是差点，速度可能略快。
 
+
+*****
+
+####  qwased  
+##### 17462#       发表于 2026-10-20 22:10
+
+<img src="https://img.stage1st.com/forum/202610/20/220947ozkzwip28i2t39ve.jpg" referrerpolicy="no-referrer">
+
+<strong>21EF6AC39FEB934FE7AB526A7EAED6B6.jpg</strong> (75.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 22:09 上传
+
+<img src="https://img.stage1st.com/forum/202610/20/220947skl99j9tym1vv0hv.jpg" referrerpolicy="no-referrer">
+
+<strong>70376282EE430EA1A1668969A498F347.jpg</strong> (44.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 22:09 上传
+
+<img src="https://img.stage1st.com/forum/202610/20/220947btdazsqdcbodg5a1.jpg" referrerpolicy="no-referrer">
+
+<strong>0A34C89959202EF18BF4EFF18FB4EA8B.jpg</strong> (115.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 22:09 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活自动干完
+
+*****
+
+####  cscbzcbz  
+##### 17463#       发表于 2026-10-20 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402529&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-20 22:10</a>
+DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活自动干完</blockquote>
+不是，这个内部群的内鬼还没抓出来嘛，每天都有新的群聊流出来<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 17464#       发表于 2026-10-20 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402552&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-20 22:14</a>
+
+不是，这个内部群的内鬼还没抓出来嘛，每天都有新的群聊流出来</blockquote>
+说不定内鬼是老大<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
