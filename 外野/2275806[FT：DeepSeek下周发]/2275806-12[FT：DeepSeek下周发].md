@@ -10901,3 +10901,24 @@ Pretraining on the Test Set Is All You Need
 
 简而言之：区完了
 
+
+*****
+
+####  startraveller  
+##### 17320#       发表于 2026-10-20 16:48
+
+现在反而是马老板的Grok 4.8是提都不提了
+
+
+*****
+
+####  warlock228  
+##### 17321#       发表于 2026-10-20 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400989&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-20 16:48</a>
+
+现在反而是马老板的Grok 4.8是提都不提了</blockquote>
+马老板刚刚跑去站队claude了，估计得等a/上市后
+
+亲女儿纯粹就是放养
+
