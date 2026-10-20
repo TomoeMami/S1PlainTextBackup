@@ -10474,3 +10474,38 @@ Minimax H3和Hunyuan在Comfyui t2v，i2v那边是绕不过去的两座山
 
 k3说是模型指纹变了，感觉快要出新模型了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  misuzu0723  
+##### 17278#       发表于 2026-10-20 14:17
+
+minimax这货绝壁请了不少水军，我在xhs上刷到有人在那硬吹，说明显强于GLM5.3F，和DS能打的有来有回，而且还说M有订阅所以性价比很高
+
+*****
+
+####  FACS  
+##### 17279#       发表于 2026-10-20 14:19
+
+加油啊杨叔叔<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">看看实力
+
+*****
+
+####  cscbzcbz  
+##### 17280#       发表于 2026-10-20 14:20
+
+坐等k3.1的表演
+拉了我就要把订阅退了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 17281#       发表于 2026-10-20 14:21
+
+kimi既然敢发就不会太拉，毕竟还是要顶收入
+
+不像梁叔叔，0813也没啥影响
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

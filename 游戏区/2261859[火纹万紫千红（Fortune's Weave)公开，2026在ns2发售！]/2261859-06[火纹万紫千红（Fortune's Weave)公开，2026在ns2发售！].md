@@ -5759,3 +5759,14 @@ boss本质要保证3人也能过的，不可能强到爆炸的，如果还要保
 因为这个时候基本没剩几个回合了，既不能到处逛也不能回去练熟练 ...</blockquote>
 给你6回合回方尖碑用的，底层逻辑写死了在方尖碑才能再降临<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  icelord  
+##### 7954#       发表于 2026-10-20 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399428&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-10-20 11:22</a>
+
+到通关要养多少角色来着，两条线困难打完疲了，剩下准备睡大觉速通，但是看到凯伊抓坐骑好像很影响强度 ...</blockquote>
+最少可以三个 我试了三人通关根本没难度 也就第二分区要规划下路线
+
