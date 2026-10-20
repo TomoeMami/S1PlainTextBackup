@@ -11716,3 +11716,82 @@ O/A/卖不出溢价token会被几千亿基建投资拖死的，除非他们马�
 
 OA一旦违约付不起钱接下来就是连环爆了
 
+
+*****
+
+####  qwased  
+##### 17405#       发表于 2026-10-20 18:17
+
+<img src="https://img.stage1st.com/forum/202610/20/181711zychv7c434pephu6.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-10-20_18-17-00.jpg</strong> (31.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 18:17 上传
+
+*****
+
+####  dreamenory  
+##### 17406#       发表于 2026-10-20 18:17
+
+与其说开源了焚决…不如说开源了辟邪剑谱吧
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tillnight  
+##### 17407#       发表于 2026-10-20 18:17
+
+<blockquote>colice 发表于 2026-10-20 17:57
+这一开源，opencode这种公司不得给梁圣磕一个？
+
+—— 来自 HUAWEI HBN-AL00, Android 16, 鹅球 v3.4.98 ...</blockquote>
+可能反了，之前opencode相当于半个海外独家伙伴，大概率有ds协助部署。虽然公告里明确说了有千卡的联系ds官方帮你部署，但是实际上肯定得一个个排队来，而且海外团队联系上ds估计也不是那么简单。现在就是一个个教太麻烦了，我说明书给你们自己看吧。
+
+实际上opencode可能是失去了独家优势的。
+
+
+*****
+
+####  Schwarzess  
+##### 17408#       发表于 2026-10-20 18:20
+
+什么时候说老中算力过剩倾销token？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 17409#       发表于 2026-10-20 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401461&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-20 18:13</a>
+
+O/A/卖不出溢价token会被几千亿基建投资拖死的，除非他们马上部署大肥鱼自己当中转站
+
+OA一旦违约付不起钱 ...</blockquote>
+每家的推理服务利润都高得要命，今年智能体应用爆发以后token都是供不应求的状态
+
+海外两家按普遍说法只有30%左右的算力在提供推理服务，要想提高运营利润是非常轻松的事情。只是现在每一家都在拼命加速训练先进模型
+
+*****
+
+####  andychen  
+##### 17410#       发表于 2026-10-20 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401502&amp;ptid=2275806" target="_blank">Schwarzess 发表于 2026-10-20 18:20</a>
+
+什么时候说老中算力过剩倾销token？    Re:Source</blockquote>
+至少五年内没指望，一方面国内硬件生产技术突破到产能落地至少还要两到三年，另一方面大模型需求现在还没真正迎来爆发
+
+不如说这几年芯片价格彻底完蛋了，什么显卡CPU智能手机价格全都要继续疯涨
+
+*****
+
+####  平昭·南宫司卿  
+##### 17411#       发表于 2026-10-20 18:24
+
+梁圣，伟大<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+誓死捍卫深度求索
+
