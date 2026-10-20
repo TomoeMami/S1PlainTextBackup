@@ -12025,3 +12025,98 @@ unsloth 这次也很快啊<img src="https://static.stage1st.com/image/smiley/fac
 
 因此让人们未来在AI上的消费变成当今习以为常的上网消费（话费、网费等）是必须要走的一条路，目前看来只有DS真正的走在了这条路上。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qq460262849  
+##### 17434#       发表于 2026-10-20 19:07
+
+以前觉得梁圣是将个人发展和国家进步有机结合那种，现在看来不止于此😅
+
+*****
+
+####  xuanwu_lei  
+##### 17435#       发表于 2026-10-20 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401440&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-20 18:08</a>
+草台班子改变世界
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+真草台班子吗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+万一是大癌股炒名字套路呢<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+看明天惠普股票涨不涨吧<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  frankCC  
+##### 17436#       发表于 2026-10-20 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401747&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-20 19:03</a>
+
+大语言模型这一轮的发展能不能真正通向AGI尚不好说，但是有一点是可以确定的，未来的大模型服务一定是会像 ...</blockquote>
+token就是未来的水和电，至少我觉得这楼里的人应该都会认同这个观点。
+
+
+*****
+
+####  蜇灵  
+##### 17437#       发表于 2026-10-20 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401177&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-20 17:20</a>
+用千问模型的正确姿势是下一个qoder国际版用里面的免费DS和QWEN3.8FLASH</blockquote>
+但国际版风控很厉害，动不动排队
+
+*****
+
+####  qwased  
+##### 17438#       发表于 2026-10-20 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401774&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-10-20 19:11</a>
+但国际版风控很厉害，动不动排队</blockquote>
+我没排过队。。还是直连的
+
+*****
+
+####  Awanano  
+##### 17439#       发表于 2026-10-20 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399709&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-20 12:22</a>
+我看到的小白拿 GPT 做出来的屎山代码，比用 Claude 的多得多。GPT 根本不懂用户要什么，得事无巨细地交代 ...</blockquote>
+是这样，但是现在 a 出用的人偏少+名声不好。我最近把我手上那个无限 a 出的号捡回来用，其实体验确实可以，尤其是铲 gpt 屎这个效果很好
+gpt 系现在问题我觉得是什么，驯服它解决你要的困难问题所付出的提示词努力太多，还不如分拆任务去叫 ds/glm 快速解决。 而且你还要看懂它输出的那坨中文。我最近被这玩意腐蚀到看文字语病有点看不出问题了
+以前 gpt 适合站在顶层，现在这个水平感觉只配作为底层力工，顶层换个说人话的模型面对我
+opus/glm 这一系用起来就比 gpt 舒服的多，我需求说完指令遵循个差不多把活做完就够了，不要把事情搞复杂，glm 相比他爹就是中间犯的错误会多一些。gpt 比起把活做完，反倒更清楚如何把活做不完。科研问题他设立目标就有问题，所以永远干不出成果，要“主张收束”，要“不是而是”    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  蜇灵  
+##### 17440#       发表于 2026-10-20 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401201&amp;ptid=2275806" target="_blank">1224700457 发表于 2026-10-20 17:23</a>
+我的dsh的沙箱在工作区修改权限下总是启动失败，让dsf查了半天，跟我说是官方bug，是吗？windows 10的操作 ...</blockquote>
+最新版需要工作区目录有full权限才能开沙盒，也就是目录的权限里面当前用户要有完全控制权限
+
+
+*****
+
+####  pure_liquid  
+##### 17441#       发表于 2026-10-20 19:14
+
+有个问题，不知道是不是前面坛友提到的“主动性太强”导致的
+
+就是我观察到，DS在处理一些任务时太“莽”，导致会被一些初期错误引导着跑的太偏
+
+举个例子，DS在制作一些网页的时候，会启动无头浏览器截图确认不同分辨率下页面元素布局是否正常
+
+但是，昨晚DS在修改一个网页的时候，通过powershell启动无头浏览器失败，于是觉得无法启动无头浏览器，并进一步觉得自己可以通过数值计算的方式验证元素布局
+
+当我注意到的时候，它至少已经尝试了20分钟在反复编写修改脚本来做这个计算
+
+赶紧steer一个消息，告诉它过去其他会话一直是可以正常启动无头浏览器的
+
+于是它发现原来是最开始调用无头浏览器的参数有问题，修改一下就OK了
+
+最初就只是一个小错误，但是一旦被一个小错误带偏方向，就会闷着头一路狂奔
+
