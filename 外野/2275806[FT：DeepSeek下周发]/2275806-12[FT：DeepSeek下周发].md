@@ -12410,3 +12410,13 @@ DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这公司真的没有一点严肃要素吧
 
+
+*****
+
+####  iceddd  
+##### 17469#       发表于 2026-10-20 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402598&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-20 22:25</a>
+不过Claude的娘化形象确实好看，我感觉仅次于鲸鱼娘之后</blockquote>
+确实<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
