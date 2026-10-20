@@ -11865,3 +11865,63 @@ OA一旦违约付不起钱 ...</blockquote>
 湿件？</blockquote>
 为什么每次 A/ 安全事故伤亡数字都是 49 人，因为超过 50 人 Amodei 要被问责<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 17418#       发表于 2026-10-20 18:36
+
+中期选举后A/几乎必然要被重拳出击<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奈落的孤火花  
+##### 17419#       发表于 2026-10-20 18:37
+
+为什么要走向惠普的未来
+
+<img src="https://img.stage1st.com/forum/202610/20/183717ogfsvj955zc33sgs.png" referrerpolicy="no-referrer">
+
+<strong>71607.png</strong> (63.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 18:37 上传
+
+*****
+
+####  holmesjerry  
+##### 17420#       发表于 2026-10-20 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401574&amp;ptid=2275806" target="_blank">真空球镜 发表于 2026-10-20 18:32</a>
+举例的这个集群用的是h800?</blockquote>
+Blackwell卡
+
+*****
+
+####  gammatau  
+##### 17421#       发表于 2026-10-20 18:39
+
+梁圣远走在我们前面，我们断不可能揣摩他的意图的。
+
+也许是想拉半导体和基建救美股？也许是加速一脚让他爆？
+
+也说不定他真的只是想推进agi呢
+
+*****
+
+####  tillnight  
+##### 17422#       发表于 2026-10-20 18:39
+
+<blockquote>真空球镜 发表于 2026-10-20 18:32
+举例的这个集群用的是h800?</blockquote>
+这次不装了，只有b卡和昇腾
+
+
+*****
+
+####  nxmonitor  
+##### 17423#       发表于 2026-10-20 18:42
+
+仔细了一下，许可证不是MIT的，用了技术必须留下许可证，就是恶心昨天那个政策的，当然美国公司肯定装傻…
+
