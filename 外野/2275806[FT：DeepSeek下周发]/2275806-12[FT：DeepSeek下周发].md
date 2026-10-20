@@ -10466,3 +10466,11 @@ Minimax H3和Hunyuan在Comfyui t2v，i2v那边是绕不过去的两座山
 
 ——然后Seedance发布了……
 
+
+*****
+
+####  qz66618  
+##### 17277#       发表于 2026-10-20 14:14
+
+k3说是模型指纹变了，感觉快要出新模型了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
