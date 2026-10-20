@@ -11925,3 +11925,53 @@ Blackwell卡
 
 仔细了一下，许可证不是MIT的，用了技术必须留下许可证，就是恶心昨天那个政策的，当然美国公司肯定装傻…
 
+
+*****
+
+####  overflowal  
+##### 17424#       发表于 2026-10-20 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401617&amp;ptid=2275806" target="_blank">gammatau 发表于 2026-10-20 18:39</a>
+梁圣远走在我们前面，我们断不可能揣摩他的意图的。
+
+也许是想拉半导体和基建救美股？也许是加速一脚让他爆 ...</blockquote>
+只要相信梁圣的目的是agi一切都能得到解释，但是很明显很多人不能接受这个解释，因为这样的话就要相信理想主义的存在<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  有鱼  
+##### 17425#       发表于 2026-10-20 18:49
+
+让gpt算了下，以sm100（文章里的主要范例）也就是b200或者gb200作为梁叔叔说的“单卡”，41f的推理毛利率保守估计也有80%
+
+
+*****
+
+####  绕指流光  
+##### 17426#         楼主| 发表于 2026-10-20 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401421&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-10-20 18:04</a>
+这也是ds员工吗，这团队简直就是a/的纯反面吧
+
+—— 来自 nubia NX809J, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+沙塔斯手电筒<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+大肥鱼纳鲁说
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qq460262849  
+##### 17427#       发表于 2026-10-20 18:53
+
+从没见过如此有格局的人
+
+*****
+
+####  lin2004  
+##### 17428#       发表于 2026-10-20 18:54
+
+<blockquote>overflowal 发表于 2026-10-20 18:46
+只要相信梁圣的目的是agi一切都能得到解释，但是很明显很多人不能接受这个解释，因为这样的话就要相信理 ...</blockquote>
+是作为碳基两脚猿猴，对于赛博格之类让裸猿最少某种程度上硬件能对标ai的技术还没点开就先把agi弄出来这种事本能的害怕，我们能不能先等等别的技术路线，偏科的结果搞出铁人叛乱可咋整.jpg
+
