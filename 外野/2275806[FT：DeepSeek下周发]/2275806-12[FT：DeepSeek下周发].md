@@ -12381,3 +12381,32 @@ DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活
 不是，这个内部群的内鬼还没抓出来嘛，每天都有新的群聊流出来</blockquote>
 说不定内鬼是老大<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 17465#       发表于 2026-10-20 22:20
+
+这是猫老板群吧，人那么多鬼知道是谁
+
+*****
+
+####  qz66618  
+##### 17466#       发表于 2026-10-20 22:21
+
+这个群是猫老板的大模型交流群，各个大模型公司员工或多或少都在里面，只不过DS的员工发言比较多和醒目罢了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 17467#       发表于 2026-10-20 22:25
+
+不过Claude的娘化形象确实好看，我感觉仅次于鲸鱼娘之后<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有鱼  
+##### 17468#       发表于 2026-10-20 22:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这公司真的没有一点严肃要素吧
+
