@@ -10805,3 +10805,40 @@ Minimax H3和Hunyuan在Comfyui t2v，i2v那边是绕不过去的两座山 ...</b
 年轻梁子</blockquote>
 印象里这个结婚的是梁子的亲戚好友之类的，有几张照片里站在后面那个小哥看起来更像梁子，不过我也不是很确定
 
+
+*****
+
+####  nxmonitor  
+##### 17310#       发表于 2026-10-20 15:56
+
+问题是Kimi的后训练能力嘛，从过去看都是很一般的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chaoliu  
+##### 17311#       发表于 2026-10-20 15:56
+
+用图纸向ds许愿建模，效果属于是粗看可以，对照图纸一看一团乱麻<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">改都无从下手
+
+*****
+
+####  lactone  
+##### 17312#       发表于 2026-10-20 15:58
+
+因为ds的视觉还是有限
+
+ds的多模态才不到两个月<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  hugosol  
+##### 17313#       发表于 2026-10-20 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400580&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-20 15:39</a>
+
+我看aa榜的人说m3.1背题，他们把题目稍微改改，其他模型都能答对，只有m3.1继续输出原题的答案 ...</blockquote>
+mutation test是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
