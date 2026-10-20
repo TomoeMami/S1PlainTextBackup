@@ -5378,3 +5378,14 @@ A少外传都打的差不多了，感觉如果有超难难度的话，最难的�
 第二部最后一关的增援是不是无限的？二十多个回合了还在一直出，上半截地图都快堆满了 ...</blockquote>
 本作所有关卡的增援都不是无限的 只是数量多罢了 
 
+
+*****
+
+####  Humpy  
+##### 7919#       发表于 2026-10-20 09:17
+
+说到神人，我觉得白发鬼队里的巨人也是神人一个啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+和炼铜女神官的支援对话一直非常甜，各种浪漫气氛，支援A气氛都摆在那里了，感觉一句话的事就两情相悦成了，结果巨人一句迪哥式的神人发言直接给我逗乐了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+难怪迪哥线那么容易挖他，这神人程度太适合迪哥了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
