@@ -11166,3 +11166,229 @@ O畜A畜和其他各畜的审计该干活了，在线多少张卡部署多少算
 
 每卡每小时 38 美金，有点意思<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 17348#       发表于 2026-10-20 17:14
+
+这是要做空头部美模了？连成本和收入都开了
+
+*****
+
+####  小妻水亚美  
+##### 17349#       发表于 2026-10-20 17:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在国模ai编程的能力到底怎么样，我开了千问19块一个月的会员，做一个打印本地目录里所有pdf第一页的功能网页，做了好几版 一直有bug
+
+—— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  小野賢章  
+##### 17350#       发表于 2026-10-20 17:15
+
+kimi 能不能参考这个优化一下性能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 17351#       发表于 2026-10-20 17:16
+
+我狭隘的猜想，是需要更多的卡训练了
+
+知乎这个连毛利都公布了<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厍无春  
+##### 17352#       发表于 2026-10-20 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401095&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-20 17:07</a>
+梁子到底在想什么
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+看得懂梁叔叔想干嘛的，可以去当破壁人了
+
+*****
+
+####  StrangerJ  
+##### 17353#       发表于 2026-10-20 17:16
+
+这就是对自己能力的绝对自信啊
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  2017.05.04  
+##### 17354#       发表于 2026-10-20 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401099&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-20 17:08</a>
+
+要是没有美国畜生们你开源这个没问题有OA俩畜生这么干是不是有点过了</blockquote>
+这开源是打击OA畜的命门啊，他们拉投资就是靠的成本不透明<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在DS直接公开成本收益，其实他们之前也公开过，这次也就算是更新
+
+那么投资人会不会想知道他们的计算中心和DS费效比差距有多大呢
+
+*****
+
+####  zfy1989  
+##### 17355#       发表于 2026-10-20 17:17
+
+有没有可能是，开源一代，自用一代，研发一代呢
+
+*****
+
+####  lactone  
+##### 17356#       发表于 2026-10-20 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401165&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-10-20 17:17</a>
+有没有可能是，开源一代，自用一代，研发一代呢</blockquote>
+这倒真有可能，梁子上半年泄露的发言还说不搞多模态呢，然后八月底掏出来v4多模态，然后v41原生多模态，之前没有任何相关研究泄露出来
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  奥柏伦亲王  
+##### 17357#       发表于 2026-10-20 17:18
+
+梁圣太绝了，狠狠打OA二畜的脸
+
+*****
+
+####  →熙←  
+##### 17358#       发表于 2026-10-20 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401151&amp;ptid=2275806" target="_blank">小妻水亚美 发表于 2026-10-20 17:15</a>
+
+现在国模ai编程的能力到底怎么样，我开了千问19块一个月的会员，做一个打印本地目录里所有pdf第一页的功能 ...</blockquote>
+下个deepseek harness, 给deepseek api冲钱,分分钟完成
+
+*****
+
+####  qwased  
+##### 17359#       发表于 2026-10-20 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401151&amp;ptid=2275806" target="_blank">小妻水亚美 发表于 2026-10-20 17:15</a>
+
+现在国模ai编程的能力到底怎么样，我开了千问19块一个月的会员，做一个打印本地目录里所有pdf第一页的功能 ...</blockquote>
+用千问模型的正确姿势是下一个qoder国际版用里面的免费DS和QWEN3.8FLASH<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  有鱼  
+##### 17360#       发表于 2026-10-20 17:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真焚决kvcache相关到现在还没公布呢，说是“与内部基础设施高度耦合”
+
+
+*****
+
+####  nxmonitor  
+##### 17361#       发表于 2026-10-20 17:21
+
+马上Fable5.5出了，再来个4.1Pro打他们的脸吧……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  overflowal  
+##### 17362#       发表于 2026-10-20 17:22
+
+ 本帖最后由 overflowal 于 2026-10-20 17:24 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401180&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-10-20 17:20</a>
+真焚决kvcache相关到现在还没公布呢，说是“与内部基础设施高度耦合”</blockquote>
+背后就是3fs, 早开了，能不能跑起来就看各家本事了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  艾诺琳  
+##### 17363#       发表于 2026-10-20 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401151&amp;ptid=2275806" target="_blank">小妻水亚美 发表于 2026-10-20 17:15</a>
+现在国模ai编程的能力到底怎么样，我开了千问19块一个月的会员，做一个打印本地目录里所有pdf第一页的功能 ...</blockquote>
+下个腾讯的WorkBuddy，用送的积分在非工作时间试试ds41f呗
+
+*****
+
+####  lilod  
+##### 17364#       发表于 2026-10-20 17:22
+
+那啥，那能不能把 flash 价格降回去。。。。
+
+*****
+
+####  cube  
+##### 17365#       发表于 2026-10-20 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401151&amp;ptid=2275806" target="_blank">小妻水亚美 发表于 2026-10-20 17:15</a>
+
+现在国模ai编程的能力到底怎么样，我开了千问19块一个月的会员，做一个打印本地目录里所有pdf第一页的功能 ...</blockquote>
+千问强在各种小规模量化模型，模型参数量越大越粪。
+
+下个DSH，然后装个薅各路中转站羊毛的插件（这楼里有链接），用deepseek 4.1F，日常编程够用了。
+
+*****
+
+####  1224700457  
+##### 17366#       发表于 2026-10-20 17:23
+
+我的dsh的沙箱在工作区修改权限下总是启动失败，让dsf查了半天，跟我说是官方bug，是吗？windows 10的操作系统。
+
+—— 来自 HUAWEI ADY-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  misuzu0723  
+##### 17367#       发表于 2026-10-20 17:24
+
+kvcache 那个我估计是要和硬件深度绑定，不是简单的代码就能实现的
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  lactone  
+##### 17368#       发表于 2026-10-20 17:24
+
+好像ds唯一一个提前泄露的内部开发方向就是dsh 
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  2017.05.04  
+##### 17369#       发表于 2026-10-20 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401199&amp;ptid=2275806" target="_blank">lilod 发表于 2026-10-20 17:22</a>
+
+那啥，那能不能把 flash 价格降回去。。。。</blockquote>
+绝无可能，他们现在还缺卡训练<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oswald  
+##### 17370#       发表于 2026-10-20 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401201&amp;ptid=2275806" target="_blank">1224700457 发表于 2026-10-20 17:23</a>
+我的dsh的沙箱在工作区修改权限下总是启动失败，让dsf查了半天，跟我说是官方bug，是吗？windows 10的操作 ...</blockquote>
+各家的harness都是会大战windows沙盒的，马圣的grok build除外，因为他出厂就是yolo模式<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+接受 or yolo
+
+—— 来自 Xiaomi 2410DPN6CC, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  tillnight  
+##### 17371#       发表于 2026-10-20 17:27
+
+<blockquote>lactone 发表于 2026-10-20 17:18
+这倒真有可能，梁子上半年泄露的发言还说不搞多模态呢，然后八月底掏出来v4多模态，然后v41原生多模态， ...</blockquote>
+你记错了，泄露录音里说的是梁认为多模态不是主线，但也会做，v4的后续版本将是原生多模态。
+
