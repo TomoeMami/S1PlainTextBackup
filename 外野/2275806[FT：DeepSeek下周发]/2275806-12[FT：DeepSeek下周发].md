@@ -11392,3 +11392,120 @@ kvcache 那个我估计是要和硬件深度绑定，不是简单的代码就能
 这倒真有可能，梁子上半年泄露的发言还说不搞多模态呢，然后八月底掏出来v4多模态，然后v41原生多模态， ...</blockquote>
 你记错了，泄露录音里说的是梁认为多模态不是主线，但也会做，v4的后续版本将是原生多模态。
 
+
+*****
+
+####  Promeus  
+##### 17372#       发表于 2026-10-20 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401171&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-20 17:18</a>
+这倒真有可能，梁子上半年泄露的发言还说不搞多模态呢，然后八月底掏出来v4多模态，然后v41原生多模态， ...</blockquote>
+梁子说不做的是生图<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔法师lain  
+##### 17373#       发表于 2026-10-20 17:29
+
+qoder的大肥鱼居然免费。但这手机端太难用了，会话居然是从头开始读取。有段时间没开手机端，进入到现在在跑的项目，居然同步了两小时<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cube  
+##### 17374#       发表于 2026-10-20 17:29
+
+梁子是不做生图和视频的功能，有一说一对于DS这个体量的模型来说，确实没必要。
+
+*****
+
+####  ayanamilin  
+##### 17375#       发表于 2026-10-20 17:30
+
+ 本帖最后由 ayanamilin 于 2026-10-20 17:31 编辑 
+
+如果说 Deep-Infer 对标的是单一模型客制化的 vLLM/SGLang，那么没开源的 KV cache 管理系统对标的明显是 Mooncake。
+
+Deep-Infer 引擎找台单机 B200/昇腾950 就能跑起来，KV cache 管理系统需要硬件配套。
+
+*****
+
+####  洛拉斯  
+##### 17376#       发表于 2026-10-20 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401054&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-10-20 16:58</a>
+
+https://mp.weixin.qq.com/s/5MEu2eeqNfBWXlkCKTd6sg
+
+这是什么，焚决吗</blockquote>
+目前单一集群的服务吞吐是 155 万亿 Tokens/天，整体收入是每卡每小时 38 美金（按谷价）
+
+这个155万亿，我问了下gpt，是他的10倍以上，吓人啊
+
+*****
+
+####  startraveller  
+##### 17377#       发表于 2026-10-20 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401091&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-20 17:06</a>
+那最近拉的两波投资怎么回本？</blockquote>
+枪口向外，先发动Neocloud战争把美帝几/卷没，再关起门来自己人分账
+
+*****
+
+####  谎称  
+##### 17378#       发表于 2026-10-20 17:31
+
+伟大无需多言
+
+
+*****
+
+####  nxmonitor  
+##### 17379#       发表于 2026-10-20 17:32
+
+据说DeepSeek后面的RSI是软硬件结合的，也不知道会怎么做
+
+*****
+
+####  Litccc  
+##### 17380#       发表于 2026-10-20 17:32
+
+收入也开源了，梁圣牛逼<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sunyalche  
+##### 17381#       发表于 2026-10-20 17:33
+
+按最新的b300算, 一小时租金也不到10美元吧, 利润比我想象的高啊
+
+*****
+
+####  med  
+##### 17382#       发表于 2026-10-20 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401171&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-20 17:18</a>
+
+这倒真有可能，梁子上半年泄露的发言还说不搞多模态呢，然后八月底掏出来v4多模态，然后v41原生多模态， ...</blockquote>
+你是不是理解错了，看图是vit还是transformer架构，生图是dit扩散模型，这个才不在主线上。
+
+*****
+
+####  overflowal  
+##### 17383#       发表于 2026-10-20 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401260&amp;ptid=2275806" target="_blank">Sunyalche 发表于 2026-10-20 17:33</a>
+按最新的b300算, 一小时租金也不到10美元吧, 利润比我想象的高啊</blockquote>
+人家说10个月收回成本那就是10个月，梁叔叔不屑于骗人    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  有鱼  
+##### 17384#       发表于 2026-10-20 17:36
+
+说白了，梁叔叔虽然不挣太多溢价，但是从来不补贴用户的
+
+搜索服务都不给个每月免费多少次之类的
+
