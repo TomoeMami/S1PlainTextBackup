@@ -10332,3 +10332,39 @@ A÷有种犹他州出来的样子，比福音派看上去都魔怔……
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  cscbzcbz  
+##### 17266#       发表于 2026-10-20 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399256&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-20 10:55</a>
+今天有大的吗？
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99</blockquote>
+今天应该没有大的了吧
+1017那天上午就有人发现模型指纹变了，目前没人说pro指纹变了
+
+
+*****
+
+####  zzxzz1019  
+##### 17267#       发表于 2026-10-20 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399470&amp;ptid=2275806" target="_blank">qq460262849 发表于 2026-10-20 11:28</a>
+
+借楼请教：WorkBuddy攒了3600积分，想请大肥鱼把《旧共和国武士2》这个游戏汉化，（玩过的人应该知道这游戏 ...</blockquote>
+我记得B站有人教AI汉化教程的，可以先搜搜
+
+*****
+
+####  lactone  
+##### 17268#       发表于 2026-10-20 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399521&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-20 11:40</a>
+今天应该没有大的了吧
+1017那天上午就有人发现模型指纹变了，目前没人说pro指纹变了 ...</blockquote>
+之前0731就是下午两点突然上的吧
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
