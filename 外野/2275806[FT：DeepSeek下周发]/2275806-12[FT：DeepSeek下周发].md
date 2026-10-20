@@ -12810,3 +12810,11 @@ seed 爷还拿着远超其他部门的薪酬和回报，这看着真刺激<img s
 【最强AI对视！-哔哩哔哩】 https://b23.tv/vDd5ntQ</blockquote>
 我草，腿环太涩太xyy了
 
+
+*****
+
+####  verniy  
+##### 17503#       发表于 2026-10-21 01:55
+
+gemini4a出来前的宣发里有一个表吹她们自己对于提示词注入的防护第一，但那张表里还有一个我印象深的是kimik3对于提示词注入的防护倒数第一，那之后我对kimi的印象就是弱催眠的爱丽丝<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（思维链注入之后也确实是gemini4a之下第一nsfw rp模型）
+
