@@ -10123,3 +10123,14 @@ minimax在年初GLM和DS v4哑火那段时间讨论度挺高的，因为那会co
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  neptunehs  
+##### 17246#       发表于 2026-10-20 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398485&amp;ptid=2275806" target="_blank">ambivalence 发表于 2026-10-20 08:37</a></blockquote>
+这个很眼熟啊。。。怕不是cat jam free就是他吧？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

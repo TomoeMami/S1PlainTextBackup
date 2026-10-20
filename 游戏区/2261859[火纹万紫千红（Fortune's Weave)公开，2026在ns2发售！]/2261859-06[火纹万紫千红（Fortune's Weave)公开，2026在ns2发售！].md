@@ -5389,3 +5389,29 @@ A少外传都打的差不多了，感觉如果有超难难度的话，最难的�
 
 难怪迪哥线那么容易挖他，这神人程度太适合迪哥了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘲风  
+##### 7920#       发表于 2026-10-20 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398675&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-10-20 09:17</a>
+
+说到神人，我觉得白发鬼队里的巨人也是神人一个啊
+
+和炼铜女神官的支援对话一直非常甜，各种浪漫气氛，支援A ...</blockquote>
+巨人人缘好像特别好，一堆女的能A支援
+
+
+*****
+
+####  嘲风  
+##### 7921#       发表于 2026-10-20 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398631&amp;ptid=2261859" target="_blank">燃烧的石头 发表于 2026-10-20 09:07</a>
+
+不是，有限的，不过这关增员太多了，好像200多个
+
+—— 来自 鹅球 v3.5.99</blockquote>
+200多个。。20多回合时候大概一回合出14个，第9回合开始出那估计大概是出到30回合了
+
