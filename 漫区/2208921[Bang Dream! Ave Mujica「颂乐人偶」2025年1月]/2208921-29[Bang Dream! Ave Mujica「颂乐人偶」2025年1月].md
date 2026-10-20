@@ -1658,3 +1658,129 @@ Blu-ray附生产限定版将收录 Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- 
 #BanGDream# #AveMujica#</blockquote>
        [https://www.bilibili.com/video/BV1QGnJ6tEYo](https://www.bilibili.com/video/BV1QGnJ6tEYo)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42137#       发表于 2026-10-20 13:48
+
+       <strong>【Mujica新专】神の名を（God's Blood）- Ave Mujica</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/20/134811akx3sm0flmxsriaa.png" referrerpolicy="no-referrer">
+
+<strong>8affafe0bd5614d4a866065d8044796e2400d468.png</strong> (536.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 13:48 上传
+
+自购CD</blockquote>
+      各曲目详细信息
+<strong>1. [神の名を]</strong>
+
+    作词：Diggy-MO'
+
+    作曲：Diggy-MO', hisakuni(SUPA LOVE)
+
+    编曲：Diggy-MO'
+
+    Piano Arrangement：Diggy-MO'
+
+    Strings Arrangement：Diggy-MO'
+
+    Vocal Arrangement：Diggy-MO'
+
+    乐手：
+
+        Guitar：DIK
+
+        Bass：sachi
+
+        Drums：植木建象 (SPAWN Inc.)
+
+        Violin &amp; Viola：門脇大輔
+
+        Piano：Diggy-MO'
+
+<strong>2. [BADDY BADDY]</strong>
+
+    作词：Diggy-MO'
+
+    作曲：Diggy-MO', JUNKOO
+
+    编曲：Diggy-MO', JUNKOO
+
+    Piano Arrangement：Diggy-MO', JUNKOO
+
+    Strings Arrangement：Diggy-MO', JUNKOO
+
+    Brass Arrangement：Diggy-MO', JUNKOO, 馬場桜佑
+
+    Vocal Arrangement：Diggy-MO'
+
+    乐手：
+
+        Guitar：DIK
+
+        Bass：sachi
+
+        Drums：植木建象 (SPAWN Inc.)
+
+        Trumpet：米所裕夢
+
+        Saxophone：藤田淳之介
+
+        Trombone：馬場桜佑
+
+        Piano：Diggy-MO', JUNKOO
+
+<strong>3. [A Song Of Romance Pt.2]</strong>
+
+    作词：Diggy-MO'
+
+    作曲：Diggy-MO', 須藤幽玄, 鶴田知己
+
+    编曲：Diggy-MO'
+
+    Piano Arrangement：Diggy-MO'
+
+    Strings Arrangement：Diggy-MO'
+
+    Vocal Arrangement：Diggy-MO'
+
+    乐手：
+
+        Guitar：DIK
+
+        Bass：sachi
+
+        Drums：植木建象 (SPAWN Inc.)
+
+        Piano：Diggy-MO'
+
+<strong>4. [A Song Of Romance]</strong>
+
+    作词：Diggy-MO'
+
+    作曲：Diggy-MO', DIK
+
+    编曲：Diggy-MO'
+
+    Piano Arrangement：Diggy-MO'
+
+    Strings Arrangement：Diggy-MO'
+
+    Vocal Arrangement：Diggy-MO'
+
+    乐手：
+
+        Guitar：DIK
+
+        Bass：Sochi
+
+        Drums：植木建象 (SPAWN Inc.)
+
+        Piano：Diggy-MO'
+
+       [https://www.bilibili.com/video/BV1u6nF6BEhM](https://www.bilibili.com/video/BV1u6nF6BEhM)
+
