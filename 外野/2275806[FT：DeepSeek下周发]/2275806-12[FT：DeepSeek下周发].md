@@ -10238,3 +10238,36 @@ Astra上午一直Selected model is at capacity. Please try a different model.
 
 1017版本用起来感觉有个退步的地方，聊天场景下，会投入更多的注意力到最近的对话上面，反而对全局对话（尤其是之前的对话内容）过分忽略，这样的负面作用就是我经常要提醒他从整体考虑及回放之前的对话重点。
 
+
+*****
+
+####  zhanglei1943  
+##### 17257#       发表于 2026-10-20 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398649&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-20 09:11</a>
+
+感觉这个Mercury 的结局可能和jev类似，就是Mercury 如果趟出来路，说明dllm至少在subagent领域可行，那么 ...</blockquote>
+dllm是什么的缩写？我甚至都不是广东人，脑内自动匹配到四字真言。。。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cloude_L  
+##### 17258#       发表于 2026-10-20 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70396455&amp;ptid=2275806" target="_blank">awy002 发表于 2026-10-19 17:18</a>
+
+不懂，咋解决啊，登录个新账号？
+
+现在先用workbuddy接到飞书里让大肥鱼登了，打算晚上不关电脑让他跑好 ...</blockquote>
+我遇到的问题是更新前的api在更新后失效，和你描述的好像还不太一样；dsh接了ds的api之后在模型选择那里名称是重复的，要注意分辨一下
+
+*****
+
+####  lactone  
+##### 17259#       发表于 2026-10-20 10:55
+
+今天有大的吗？
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
