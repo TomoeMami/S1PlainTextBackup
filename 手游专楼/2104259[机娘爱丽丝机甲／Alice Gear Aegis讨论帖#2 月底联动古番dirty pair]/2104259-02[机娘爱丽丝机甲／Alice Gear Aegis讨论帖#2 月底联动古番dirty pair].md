@@ -124,3 +124,14 @@
 
 2026-10-20 05:19 上传
 
+
+*****
+
+####  不灭的旋律  
+##### 2152#       发表于 2026-10-20 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398264&amp;ptid=2104259" target="_blank">wilkyway 发表于 2026-10-20 05:21</a>
+
+和那几个联动一样抽到才给吧 算减少翻页找人时间的便利性改动？</blockquote>
+以前是活动可以兑换100，现在没了。
+
