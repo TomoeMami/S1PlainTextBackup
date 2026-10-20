@@ -10071,3 +10071,28 @@ deepseek 1017 幻觉率从96%降到了67%
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  warlock228  
+##### 17241#       发表于 2026-10-20 08:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397684&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-19 22:25</a>
+
+不是，怎么真把Claude也送走了</blockquote>
+达里奥自己入脑拒绝了军方要求，closeai现在光速接盘了，现在肯定被白宫踹了，现在就是不知道大小姐5千亿负债咋办
+
+*****
+
+####  Lorraine_Kinney  
+##### 17242#       发表于 2026-10-20 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398091&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-20 00:58</a>
+
+先不说3.1f的能力如何
+
+我比较好奇，为什么MiniMax这家平常好像没什么讨论度？
+
+还有腾讯的Hy也是</blockquote>
+minimax在年初GLM和DS v4哑火那段时间讨论度挺高的，因为那会coding特调的国模比较少，老外觉得用这个也便宜，后面性能就跟不上了
+
