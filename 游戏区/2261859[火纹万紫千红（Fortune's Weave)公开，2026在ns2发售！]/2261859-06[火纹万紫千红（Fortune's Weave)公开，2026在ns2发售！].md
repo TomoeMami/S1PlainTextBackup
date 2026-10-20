@@ -5746,3 +5746,16 @@ boss本质要保证3人也能过的，不可能强到爆炸的，如果还要保
 
 火纹朱紫：决战篇，会有吗<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  索非亚  
+##### 7953#       发表于 2026-10-20 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399839&amp;ptid=2261859" target="_blank">月华刹那 发表于 2026-10-20 12:55</a>
+
+通关后直接回到最后一道门之前是最抽象的
+
+因为这个时候基本没剩几个回合了，既不能到处逛也不能回去练熟练 ...</blockquote>
+给你6回合回方尖碑用的，底层逻辑写死了在方尖碑才能再降临<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
