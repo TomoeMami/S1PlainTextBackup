@@ -11795,3 +11795,73 @@ OA一旦违约付不起钱 ...</blockquote>
 
 誓死捍卫深度求索
 
+
+*****
+
+####  平贺才人  
+##### 17412#       发表于 2026-10-20 18:29
+
+<img src="https://img.stage1st.com/forum/202610/20/182907c1stsh7h12xhwjaa.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792492146982_7.webp</strong> (87.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 18:29 上传
+
+<img src="https://img.stage1st.com/forum/202610/20/182907csrhamdshbfe6t36.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792492146935_6.webp</strong> (54.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 18:29 上传
+
+湿件？
+
+
+*****
+
+####  startraveller  
+##### 17413#       发表于 2026-10-20 18:32
+
+下一步应该就是干死Neocloud了吧
+
+*****
+
+####  高粱河车神  
+##### 17414#       发表于 2026-10-20 18:32
+
+<blockquote>平贺才人 发表于 2026-10-20 18:29
+湿件？</blockquote>
+梁圣刚表演完了伟大， A 处就来表演一个反人类，是吧
+
+*****
+
+####  真空球镜  
+##### 17415#       发表于 2026-10-20 18:32
+
+举例的这个集群用的是h800?
+
+*****
+
+####  飞剪号  
+##### 17416#       发表于 2026-10-20 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401440&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-20 18:08</a>
+
+草台班子改变世界
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+所以有其父必有其女啊，从ds公司开始就是能力超强但是经常犯傻
+
+*****
+
+####  小野賢章  
+##### 17417#       发表于 2026-10-20 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401556&amp;ptid=2275806" target="_blank">平贺才人 发表于 2026-10-20 18:29</a>
+
+湿件？</blockquote>
+为什么每次 A/ 安全事故伤亡数字都是 49 人，因为超过 50 人 Amodei 要被问责<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
