@@ -10292,3 +10292,43 @@ A÷有种犹他州出来的样子，比福音派看上去都魔怔……
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  qq460262849  
+##### 17262#       发表于 2026-10-20 11:28
+
+借楼请教：WorkBuddy攒了3600积分，想请大肥鱼把《旧共和国武士2》这个游戏汉化，（玩过的人应该知道这游戏只有一个质量很差的汉化补丁），需要提前做什么准备？还是直接许愿就行？<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  awy002  
+##### 17263#       发表于 2026-10-20 11:28
+
+ 本帖最后由 awy002 于 2026-10-20 11:31 编辑 
+<blockquote>Cloude_L 发表于 2026-10-20 10:54
+我遇到的问题是更新前的api在更新后失效，和你描述的好像还不太一样；dsh接了ds的api之后在模型选择那里 ...</blockquote>
+我选了给我报了个404，不知道是不是我配置有问题 我之前是在vscode上配置过，难道要先退了？DeepSeek Messages request failed (404)就报这个
+
+
+*****
+
+####  80后卢瑟  
+##### 17264#       发表于 2026-10-20 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399470&amp;ptid=2275806" target="_blank">qq460262849 发表于 2026-10-20 11:28</a>
+
+借楼请教：WorkBuddy攒了3600积分，想请大肥鱼把《旧共和国武士2》这个游戏汉化，（玩过的人应该知道这游戏 ...</blockquote>
+先问，问完了开个新会话搞就可以了
+
+*****
+
+####  neptunehs  
+##### 17265#       发表于 2026-10-20 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399470&amp;ptid=2275806" target="_blank">qq460262849 发表于 2026-10-20 11:28</a>
+借楼请教：WorkBuddy攒了3600积分，想请大肥鱼把《旧共和国武士2》这个游戏汉化，（玩过的人应该知道这游戏 ...</blockquote>
+把那个很差的汉化下下来 让肥鱼分析 会更快一些
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

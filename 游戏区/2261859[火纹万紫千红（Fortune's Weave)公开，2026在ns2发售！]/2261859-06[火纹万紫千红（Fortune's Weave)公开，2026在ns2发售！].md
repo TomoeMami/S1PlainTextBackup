@@ -5557,3 +5557,78 @@ A少外传都打的差不多了，感觉如果有超难难度的话，最难的�
 
 到通关要养多少角色来着，两条线困难打完疲了，剩下准备睡大觉速通，但是看到凯伊抓坐骑好像很影响强度
 
+
+*****
+
+####  maojiashu  
+##### 7936#       发表于 2026-10-20 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399397&amp;ptid=2261859" target="_blank">duraa 发表于 2026-10-20 11:19</a>
+
+那是傻逼is莫名其妙还要最上级证卡你，答案是只练16个主力派出去，家里蹲的烂就烂吧 ...</blockquote>
+我还留了几个之前就没怎么练的还没拉入队 早知道不能出门的就之前都先不加入了 好像不加入就不会升级了
+
+*****
+
+####  lmclmc2  
+##### 7937#       发表于 2026-10-20 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399428&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-10-20 11:22</a>
+
+到通关要养多少角色来着，两条线困难打完疲了，剩下准备睡大觉速通，但是看到凯伊抓坐骑好像很影响强度 ...</blockquote>
+最终战最多25人,救世主一个,其他24个.
+
+但根本用不上那么多.显然,3人都能打通..
+
+你要是很焦虑,那就只能多看多规划了.凯线抓坐骑影响确实有,也就那么回事.目前版本是不需要那么极限的
+
+*****
+
+####  duraa  
+##### 7938#       发表于 2026-10-20 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399428&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-10-20 11:22</a>
+到通关要养多少角色来着，两条线困难打完疲了，剩下准备睡大觉速通，但是看到凯伊抓坐骑好像很影响强度 ...</blockquote>
+第三部4关9人，4关17人，最后一关25人，其中自捏占一个锁定位，正常就1队最高练度全打，2队次高练度参与5关，剩下就随便了，大结局看谁顺眼上来混个脸熟<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 7939#       发表于 2026-10-20 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399385&amp;ptid=2261859" target="_blank">逆旅行客 发表于 2026-10-20 11:17</a>
+
+分成好几个队每回合每个队动一次，看起来三十多回合，其实相当于上百回合了…… ...</blockquote>
+我知道 但是没必要啊 都最终章了 给的回合数富裕点或者移动力给高点没啥毛病吧
+
+每次都被这个回合数搞的焦虑的不行 一回合对不上就直接sl
+
+还以为到了最后能舒坦点 结果还是这么恶心<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lmclmc2  
+##### 7940#       发表于 2026-10-20 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399374&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-10-20 11:16</a>
+
+每章就35回合？ md也太小气了吧 让我随便逛逛怎么了</blockquote>
+后面越来越多的,第四56,第五76, 第六84,再加破门的时间
+
+而且后面还会更多队,5个队你会烦死的,信我.后面真的没事干(全复兴了,迷宫全清了的节点,一般也就刚拿完神将没多久),你除了无脑刷熟练度互转神将拿精通也没事可干.难度也没有,不如赶紧通关.如果你第一部把熟练度都刷完了,那更是拔剑四顾心茫然,都不知道能干啥
+
+
+*****
+
+####  maojiashu  
+##### 7941#       发表于 2026-10-20 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399472&amp;ptid=2261859" target="_blank">lmclmc2 发表于 2026-10-20 11:28</a>
+
+后面越来越多的,第四56,第五76, 第六84,再加破门的时间
+
+而且后面还会更多队,5个队你会烦死的,信我.后面 ...</blockquote>
+哦 会增加的话那就还行 我估计不会再去刷职业精通这些乱七八糟的东西了 
+
+这作的养成太累了 都要玩晕了
+
