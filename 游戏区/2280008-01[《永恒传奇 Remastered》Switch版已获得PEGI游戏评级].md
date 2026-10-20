@@ -3928,3 +3928,21 @@ PSP版就是60帧了
 
 L1+O，X放技能好别扭啊，不能改成L2，R2嘛？
 
+
+*****
+
+####  空洞骑士  
+##### 355#       发表于 2026-10-20 19:14
+
+当年的功略书居然还有错误，学术之都敏兹的第二个透镜是在二楼的右侧房间的实验装置上。攻略书写成1楼了。<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+算了还是找日本的攻略网站吧。
+
+<img src="https://img.stage1st.com/forum/202610/20/191149qq8p92w811b51699.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (220.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 19:11 上传
+

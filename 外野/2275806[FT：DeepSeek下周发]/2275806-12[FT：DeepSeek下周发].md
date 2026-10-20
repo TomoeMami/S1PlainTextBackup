@@ -12120,3 +12120,43 @@ opus/glm 这一系用起来就比 gpt 舒服的多，我需求说完指令遵循
 
 最初就只是一个小错误，但是一旦被一个小错误带偏方向，就会闷着头一路狂奔
 
+
+*****
+
+####  来都来了  
+##### 17442#       发表于 2026-10-20 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401199&amp;ptid=2275806" target="_blank">lilod 发表于 2026-10-20 17:22</a>
+那啥，那能不能把 flash 价格降回去。。。。</blockquote>
+梁子涨价是因为他们缺算力，而不是因为要多收你钱。我这次算是看出来了，梁子是真不缺钱。
+
+
+*****
+
+####  bartholo4  
+##### 17443#       发表于 2026-10-20 19:24
+
+能画K线的人怎么可能缺钱
+
+*****
+
+####  qwased  
+##### 17444#       发表于 2026-10-20 19:25
+
+<img src="https://img.stage1st.com/forum/202610/20/192523z5dw0e6a5gs363zg.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792495523063_1.webp</strong> (12.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 19:25 上传
+
+那我缺的每年6个月免费ds谁给我补啊
+
+*****
+
+####  cscbzcbz  
+##### 17445#       发表于 2026-10-20 19:27
+
+kimi3.1呢，我还在等
+
