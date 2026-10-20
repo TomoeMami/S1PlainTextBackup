@@ -10984,3 +10984,185 @@ https://mp.weixin.qq.com/s/5MEu2eeqNfBWXlkCKTd6sg
 
 但是这样一来，ds还有护城河嘛<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2017.05.04  
+##### 17328#       发表于 2026-10-20 17:04
+
+Infra开源了
+
+OA：这哪是打我们的屁股，这是打美利坚的脸啊<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 17329#       发表于 2026-10-20 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401079&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-20 17:04</a>
+
+但是这样一来，ds还有护城河嘛</blockquote>
+部署都开源了用户该滚了，不要妨碍AGI训练.jpg
+
+*****
+
+####  eno_emos  
+##### 17330#       发表于 2026-10-20 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401079&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-20 17:04</a>
+
+但是这样一来，ds还有护城河嘛</blockquote>
+他接着发下一代新模型不就是护城河了
+
+只能说梁叔叔是真的想实现 free ai for everyone
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 17331#       发表于 2026-10-20 17:06
+
+那最近拉的两波投资怎么回本？
+
+*****
+
+####  vincevincetang  
+##### 17332#       发表于 2026-10-20 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400152&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-10-20 14:17</a>
+
+minimax这货绝壁请了不少水军，我在xhs上刷到有人在那硬吹，说明显强于GLM5.3F，和DS能打的有来有回，而且 ...</blockquote>
+水军肯定的，H3刚出来那会，xhs涌现一大堆相同套路的动画MV开吹
+
+*****
+
+####  lactone  
+##### 17333#       发表于 2026-10-20 17:07
+
+梁子到底在想什么<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Promeus  
+##### 17334#       发表于 2026-10-20 17:08
+
+要是没有美国畜生们你开源这个没问题<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">有OA俩畜生这么干是不是有点过了
+
+*****
+
+####  phorcys02  
+##### 17335#       发表于 2026-10-20 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401054&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-10-20 16:58</a>
+
+https://mp.weixin.qq.com/s/5MEu2eeqNfBWXlkCKTd6sg
+
+这是什么，焚决吗</blockquote>
+我不能容忍第三方的部署质量这么差.jpg
+
+*****
+
+####  →熙←  
+##### 17336#       发表于 2026-10-20 17:09
+
+天阶功法,点击就送, 逼着你价格战, token价格死命往下拉, 这是ds最核心的商业优势了吧
+
+
+*****
+
+####  洛拉斯  
+##### 17337#       发表于 2026-10-20 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401095&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-20 17:07</a>
+
+梁子到底在想什么
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+做空美股，财富自由！
+
+*****
+
+####  med  
+##### 17338#       发表于 2026-10-20 17:11
+
+伟大，无需多言
+ <blockquote>此前，我们已开源用于开发高性能算子的 TileLang 以及一系列推理算子库。今天，我们正式开源大规模云服务推理框架 DeepInfer。 基于这一框架，我们已实现 DeepSeek V4.1 Flash 的高吞吐、低延迟大规模推理服务。目前单一集群的服务吞吐是 155 万亿 Tokens/天，整体收入是每卡每小时 38 美金（按谷价）。</blockquote>
+
+*****
+
+####  colice  
+##### 17339#       发表于 2026-10-20 17:11
+
+真是大公无私了梁圣，respect
+
+—— 来自 HUAWEI HBN-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  →熙←  
+##### 17340#       发表于 2026-10-20 17:11
+
+除非4.1pro真是爆一个大,要顶不住
+
+不然真不敢想开源这种印钞机
+
+*****
+
+####  小野賢章  
+##### 17341#       发表于 2026-10-20 17:12
+
+护城河不是早就说了嘛，就是组织人才的能力，还有积累的know-how<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cube  
+##### 17342#       发表于 2026-10-20 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401099&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-20 17:08</a>
+
+要是没有美国畜生们你开源这个没问题有OA俩畜生这么干是不是有点过了</blockquote>
+放心，模型训练有边际效应，开源普惠的是中不溜这一帮，而且能帮deepseek缓解算力压力。
+
+*****
+
+####  bixinhaner  
+##### 17343#       发表于 2026-10-20 17:13
+
+看不懂，这种开源是不是也有利于中小模型的本地部署效率？
+
+*****
+
+####  lactone  
+##### 17344#       发表于 2026-10-20 17:13
+
+我是觉得梁子开源这么多东西，自己还是能不断推新东西，说明还是有底气啊
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  2017.05.04  
+##### 17345#       发表于 2026-10-20 17:13
+
+O畜A畜和其他各畜的审计该干活了，在线多少张卡部署多少算力产出多少token每张卡时薪多少
+
+别算出来跟DS差好几个数量级还相信能靠力大砖飞逆天改命
+
+*****
+
+####  Milarvoz  
+##### 17346#       发表于 2026-10-20 17:13
+
+梁圣这是要把ds彻底立成llm的斩杀线了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  2035年  
+##### 17347#       发表于 2026-10-20 17:13
+
+每卡每小时 38 美金，有点意思<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
