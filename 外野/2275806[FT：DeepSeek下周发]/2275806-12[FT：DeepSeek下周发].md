@@ -10922,3 +10922,65 @@ Pretraining on the Test Set Is All You Need
 
 亲女儿纯粹就是放养
 
+
+*****
+
+####  有鱼  
+##### 17322#       发表于 2026-10-20 16:56
+
+老实rl，很枯燥吧？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+背题在ds是重罪！。jpg
+
+*****
+
+####  艾诺琳  
+##### 17323#       发表于 2026-10-20 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400830&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-10-20 16:26</a>
+修改一个ai工具介绍视频，同一对话内，1017甚至不如20天前自己出的第一版，搞出的新问题修了2个小时没修好 ...</blockquote>
+同一个对话不要混用模型，容易出问题
+
+*****
+
+####  eno_emos  
+##### 17324#       发表于 2026-10-20 16:58
+
+<img src="https://img.stage1st.com/forum/202610/20/165812vn2i5x5paxlzh8hv.png" referrerpolicy="no-referrer">
+
+<strong>d5ff76ac-aee1-48d5-91ac-561a3a351721.png</strong> (131.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 16:58 上传
+
+[https://mp.weixin.qq.com/s/5MEu2eeqNfBWXlkCKTd6sg](https://mp.weixin.qq.com/s/5MEu2eeqNfBWXlkCKTd6sg)
+
+这是什么，焚决吗<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 17325#       发表于 2026-10-20 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401054&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-10-20 16:58</a>
+https://mp.weixin.qq.com/s/5MEu2eeqNfBWXlkCKTd6sg
+
+这是什么，焚决吗</blockquote>
+这就是格局<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GJRstone  
+##### 17326#       发表于 2026-10-20 17:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">梁圣：求求各位自己部署跟我打价格战分流一下，不要影响叔叔agi
+
+*****
+
+####  cscbzcbz  
+##### 17327#       发表于 2026-10-20 17:04
+
+但是这样一来，ds还有护城河嘛<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
