@@ -10875,3 +10875,29 @@ Pretraining on the Test Set Is All You Need
 
 修改一个ai工具介绍视频，同一对话内，1017甚至不如20天前自己出的第一版，搞出的新问题修了2个小时没修好了，白白浪费10块<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17318#       发表于 2026-10-20 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400651&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-20 15:56</a>
+问题是Kimi的后训练能力嘛，从过去看都是很一般的……</blockquote>
+2.6和2.7的后训练效果还不错啊。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  BarricadeMKXX  
+##### 17319#       发表于 2026-10-20 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400167&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-20 14:20</a>
+
+坐等k3.1的表演
+
+拉了我就要把订阅退了</blockquote>
+[https://www.zhihu.com/question/2 ... 2095910890788884749](https://www.zhihu.com/question/2095590617426482384/answer/2095910890788884749)
+
+简而言之：区完了
+
