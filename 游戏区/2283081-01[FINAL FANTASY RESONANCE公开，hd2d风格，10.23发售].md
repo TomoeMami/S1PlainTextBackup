@@ -3246,3 +3246,13 @@ FAMI通之前不是都写了，主线20-30小时，完全通关70小时，参考
 fami通算法别是机械化刷幻兵就几十小时了</blockquote>
 你非要这么以为那怎么都没办法的了，甚至DEMO你也能搞出来70小时，然后newgame即通关
 
+
+*****
+
+####  白昼梦DD  
+##### 328#       发表于 2026-10-20 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402888&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-10-20 23:22</a>
+你非要这么以为那怎么都没办法的了，甚至DEMO你也能搞出来70小时，然后newgame即通关 ...</blockquote>
+评语就说个时长又不说流程外挑战 那肯定怎么不乐观怎么来啊
+

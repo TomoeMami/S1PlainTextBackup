@@ -12543,3 +12543,50 @@ DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活
 有没有啥公文写作方面的ai或者怎么弄能弄个专门写公文的ai</blockquote>
 kimi适用于几乎所有非代码场景，当然就是贵了点。
 
+
+*****
+
+####  startraveller  
+##### 17481#       发表于 2026-10-20 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402887&amp;ptid=2275806" target="_blank">静哮苍穹 发表于 2026-10-20 23:22</a>
+kimi适用于几乎所有非代码场景，当然就是贵了点。</blockquote>
+3.1除非能达到opus 5.5的水平，不然肯定得降价
+
+*****
+
+####  warlock228  
+##### 17482#       发表于 2026-10-20 23:28
+
+ 本帖最后由 warlock228 于 2026-10-20 23:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402598&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-20 22:25</a>
+
+不过Claude的娘化形象确实好看，我感觉仅次于鲸鱼娘之后</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得是最成功的AI娘化，一堆兽娘里面唯三的纯人类形象，而且够骚衣服有够压抑的成功把A/的破事印象分拉回来了很多或者让人直接切割小克是小克A/是A/，感觉导致很多人和claude聊出机性恋效果超拔群
+
+肥鱼的形象只是加深标签，她是逆转
+
+
+*****
+
+####  qz66618  
+##### 17483#       发表于 2026-10-20 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402847&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-20 23:17</a></blockquote>
+走Claude路线吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我自己觉得目前走强化学习的路子是对的，目前还不能扔掉强化学习只搞sft，OAI应该走的也是强化学习路子吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  xuanwu_lei  
+##### 17484#       发表于 2026-10-20 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402529&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-20 22:10</a>
+DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活自动干完</blockquote>
+这个小克跳舞不是特么舞池对视吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+【最强AI对视！-哔哩哔哩】 https://b23.tv/vDd5ntQ
+
+这玩意儿是深度求索内部员工做的是吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
