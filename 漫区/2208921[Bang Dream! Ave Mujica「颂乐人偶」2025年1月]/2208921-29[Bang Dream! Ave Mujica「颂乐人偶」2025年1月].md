@@ -1841,3 +1841,24 @@ Blu-ray附生产限定版将收录 Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- 
 
        [https://bang-dream.com/discographies/4238](https://bang-dream.com/discographies/4238)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42141#       发表于 2026-10-20 20:19
+
+ 本帖最后由 堀内爱里衣 于 2026-10-20 20:20 编辑 
+
+       <[strong>SCREENα vol.10 电影「BanG Dream! Ave Mujica prima aurora」特集 佐佐木李子 x 高尾奏音访谈</strong>](https://avemujica.wiki/interview/index.html#f5ckErYJPuS) <blockquote>再度编织，Ave Mujica的故事。
+
+访谈时间：2026/10/16
+
+对谈人：佐佐木李子 x 高尾奏音
+
+出处：SCREENα vol.10 [扫图原图来源](https://weibo.com/5470219265/RmZHYgXUU)
+
+interview　彼此共鸣的两人。
+佐佐木李子 × 高尾奏音
+Rico Sasaki × Kanon Takao</blockquote>
+      唯鸡百科链接：[https://avemujica.wiki/interview/index.html#f5ckErYJPuS](https://avemujica.wiki/interview/index.html#f5ckErYJPuS)
+

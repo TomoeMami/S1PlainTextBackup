@@ -5891,3 +5891,18 @@ boss本质要保证3人也能过的，不可能强到爆炸的，如果还要保
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  5ew47  
+##### 7965#       发表于 2026-10-20 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400428&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-10-20 15:07</a>
+也不用全听楼里那些抱怨的，我个人就觉得第三部非常好
+
+队伍整合后 大地图开始呈现出了战略层次的玩法，虽 ...</blockquote>
+刚刚把第三部第五区分打完了，我觉得粗糙不是问题，问题在于他偏偏是这么庞大的一个重养成的战略RPG游戏的收尾部分做糙了，有一种有劲没处使的失落感，这一部偏偏又不短。我觉得上面有个楼友说的对，得自己自限整点活来维持乐趣。
+发展方向这块我很同意，从风花雪月到万紫千红的各种变化都看在眼里了，以后接着出接着买，超级苏蒂斯宇宙<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+除了玩法层面上，我个人最不喜欢第三部的问题还是剧情太少了，没外传也没啥隐藏事件，角色支援剧情还被各种万恶的条件锁住了，好多还没写完，救世主还是个食冷淡，在阅读层面上实在是没吃够<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
