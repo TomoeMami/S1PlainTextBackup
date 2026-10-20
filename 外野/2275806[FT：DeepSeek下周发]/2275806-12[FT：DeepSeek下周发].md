@@ -11680,3 +11680,39 @@ opencode很高可能性之前说官方合作伙伴的时候就磕过了
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  lactone  
+##### 17401#       发表于 2026-10-20 18:08
+
+kimi 喜欢晚上发模型，还是太照顾北美<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  gooyoy  
+##### 17402#       发表于 2026-10-20 18:11
+
+太伟大了梁圣，直接开源印钞的方法啊
+
+*****
+
+####  AEmpire  
+##### 17403#       发表于 2026-10-20 18:11
+
+幻方真的做空吗，他这个数据不是恰恰说明了做 AI 推理是暴利？ <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 17404#       发表于 2026-10-20 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401453&amp;ptid=2275806" target="_blank">AEmpire 发表于 2026-10-20 18:11</a>
+
+幻方真的做空吗，他这个数据不是恰恰说明了做 AI 推理是暴利？</blockquote>
+O/A/卖不出溢价token会被几千亿基建投资拖死的，除非他们马上部署大肥鱼自己当中转站<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+OA一旦违约付不起钱接下来就是连环爆了
+
