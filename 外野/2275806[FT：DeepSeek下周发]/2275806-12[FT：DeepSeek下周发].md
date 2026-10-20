@@ -10153,3 +10153,13 @@ minimax在年初GLM和DS v4哑火那段时间讨论度挺高的，因为那会co
 它这把降噪过程亮出来看起来好他妈酷炫</blockquote>
 我是觉得这动画减慢了速度 实际上生成的更快. 简单的任务能到1300
 
+
+*****
+
+####  love4aids  
+##### 17249#       发表于 2026-10-20 10:04
+
+Astra上午一直Selected model is at capacity. Please try a different model.
+
+上午又炸了？
+
