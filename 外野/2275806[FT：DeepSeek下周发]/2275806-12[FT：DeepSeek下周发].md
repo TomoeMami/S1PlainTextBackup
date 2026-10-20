@@ -12238,3 +12238,25 @@ oa 有局部战役的优势，但是没有整体战略上的主动权，今天�
 
 梁圣这真是要埋头奔向agi啊
 
+
+*****
+
+####  overflowal  
+##### 17455#       发表于 2026-10-20 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402035&amp;ptid=2275806" target="_blank">白日依山尽 发表于 2026-10-20 20:18</a>
+发现ds太喜欢用脚本来改东西了，几十上百个非标准文档，让其修改，它开始尝试用脚本进行文字替换，但是每个 ...</blockquote>
+正常的，现在都是这样的，写代码来编排工具，写代码干活。GPT也是这样。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  a4ac7  
+##### 17456#       发表于 2026-10-20 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401430&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-10-20 18:05</a>
+扬眉吐气知行合一，似是故人来</blockquote>
+把故人蒸馏了吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
