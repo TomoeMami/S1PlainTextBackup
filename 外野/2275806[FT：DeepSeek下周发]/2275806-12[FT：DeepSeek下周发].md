@@ -12704,3 +12704,16 @@ Kimi现在本质豆包pro max ultra<img src="https://static.stage1st.com/image/s
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唉我怎么就没有那么好的电脑
 
+
+*****
+
+####  novem  
+##### 17494#       发表于 2026-10-21 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403013&amp;ptid=2275806" target="_blank">静哮苍穹 发表于 2026-10-20 23:50</a>
+
+我也是最喜欢kimi，但贵和慢劝退太多人了    Re:Source</blockquote>
+deepseek已经回味过来了开始重视产品端
+
+kimi这个样子长期来看脱离用户太多了，真的能找得好自己的方向吗
+
