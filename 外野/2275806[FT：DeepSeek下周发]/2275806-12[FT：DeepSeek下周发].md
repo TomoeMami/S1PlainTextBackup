@@ -10709,3 +10709,60 @@ deepseek在我这里的定位属于偏全能的干活模型，再加上现在各
 哪有很多，不都是发的做Nao榜的那谁在群里嘲讽minimax的截图。我早说了nao榜早就失去了所谓私有测试题的意 ...</blockquote>
 我看到的不是猫棒的这位
 
+
+*****
+
+####  泰坦失足  
+##### 17300#       发表于 2026-10-20 15:39
+
+Opus 5.5至少比GPT 5.5/5.6强。好几个晚上睡觉前安排好工作留给GPT一份详细的目标文档，然后早上起来先看GPU历史，发现压根没跑起来或者大多数卡都在闲置，再看GPT还在鬼打墙。
+
+*****
+
+####  qwased  
+##### 17301#       发表于 2026-10-20 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400553&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-20 15:34</a>
+我看到的不是猫棒的这位</blockquote>
+我看aa榜的人说m3.1背题，他们把题目稍微改改，其他模型都能答对，只有m3.1继续输出原题的答案<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 17302#       发表于 2026-10-20 15:40
+
+杨叔叔delay了这么久，不会是拉了吧
+
+
+*****
+
+####  moekyo  
+##### 17303#       发表于 2026-10-20 15:41
+
+原来那个 Typesafe 赠送的 5 刀是每月重置的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/20/154018h6jlj68yofxtxoy3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 15:40 上传
+
+*****
+
+####  moekyo  
+##### 17304#       发表于 2026-10-20 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400580&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-20 15:39</a>
+
+我看aa榜的人说m3.1背题，他们把题目稍微改改，其他模型都能答对，只有m3.1继续输出原题的答案 ...</blockquote>
+反正就是它们家比较路边应该是肯定的，感觉还是找准方向，继续发力视频比较好
+
+*****
+
+####  nxmonitor  
+##### 17305#       发表于 2026-10-20 15:44
+
+虽然两周前有小道消息拉了，但是两周都过去了总能比K3强吧
+
