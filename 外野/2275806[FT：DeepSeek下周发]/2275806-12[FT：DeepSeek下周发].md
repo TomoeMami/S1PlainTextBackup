@@ -12308,3 +12308,13 @@ Huawei Ascend 950 NPUs</blockquote>
 
 qoder免费版有明确和你说数据会被拿去用
 
+
+*****
+
+####  cscbzcbz  
+##### 17460#       发表于 2026-10-20 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402162&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-10-20 20:52</a>
+qoder免费版有明确和你说数据会被拿去用</blockquote>
+千问的token plan也是
+
