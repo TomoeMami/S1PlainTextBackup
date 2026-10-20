@@ -872,3 +872,32 @@ gba和nds合集都没有游戏内成就，ps有奖杯，ns就没办法啦
 
 —— 来自 vivo V2546A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  darksoul  
+##### 76#       发表于 2026-10-20 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70395367&amp;ptid=2291849" target="_blank">lyt777 发表于 2026-10-19 14:34</a>
+
+我去看了一下真有，怎么会这样，去年konami刚回来的时候我就因为这个原因没重打gba三部曲…………
+
+难道 ...</blockquote>
+应该是你搞错了，我看了下发售的时候就有了，我第一个奖杯是前年的，既然如此你可以开始重打了哈哈哈哈
+
+<img src="https://img.stage1st.com/forum/202610/20/110453s25r5qn0ns85reb6.png" referrerpolicy="no-referrer">
+
+<strong>casltevania_02.png</strong> (15.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 11:04 上传
+
+<img src="https://img.stage1st.com/forum/202610/20/110453fy3ons6mb5o3a33y.png" referrerpolicy="no-referrer">
+
+<strong>casltevania_01.png</strong> (184.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 11:04 上传
+

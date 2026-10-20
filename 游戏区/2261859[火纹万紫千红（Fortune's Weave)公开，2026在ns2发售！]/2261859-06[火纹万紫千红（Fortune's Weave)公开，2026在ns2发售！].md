@@ -5441,3 +5441,45 @@ A少外传都打的差不多了，感觉如果有超难难度的话，最难的�
 
 巨人5年前的造型挺好的，倒也不是不能理解IS性癖爆发，就是有点容易让我幻视fgo里的赫拉克勒斯三破<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maojiashu  
+##### 7925#       发表于 2026-10-20 10:58
+
+第三部一共多少章啊？ 每章多少回合？ 我现在第三区还一堆转职没有解锁
+
+这nmd是不是功利点解锁完了所有职业 然后直接重开？
+
+*****
+
+####  偎  
+##### 7926#       发表于 2026-10-20 11:00
+
+我要吐糟下这作职业成长率是摆设吗
+
+转了就像没有转一样<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  1wq1  
+##### 7927#       发表于 2026-10-20 11:05
+
+<blockquote>maojiashu 发表于 2026-10-20 10:58
+第三部一共多少章啊？ 每章多少回合？ 我现在第三区还一堆转职没有解锁
+
+这nmd是不是功利点解锁完了所有职业 ...</blockquote>
+6章，没必要，第三部非常的水，全是辣鸡时间
+
+*****
+
+####  duraa  
+##### 7928#       发表于 2026-10-20 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399268&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-10-20 10:58</a>
+第三部一共多少章啊？ 每章多少回合？ 我现在第三区还一堆转职没有解锁
+
+这nmd是不是功利点解锁完了所有职业 ...</blockquote>
+要解锁的最上级没啥很急着要转的，剑人统一探影者等神将就完事了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
