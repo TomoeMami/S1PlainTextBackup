@@ -10198,3 +10198,24 @@ Astra上午一直Selected model is at capacity. Please try a different model.
 
 美媒说960dt准备大部分给梁子<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  inpachi  
+##### 17254#       发表于 2026-10-20 10:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">A畜这套做派被两头讨厌只能说活该，但奈何总有人比较贱赶着去舔他
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ wjxforever + 1
+
+查看全部评分
+
