@@ -5367,3 +5367,14 @@ A少外传都打的差不多了，感觉如果有超难难度的话，最难的�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  纯夏  
+##### 7918#       发表于 2026-10-20 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398577&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-10-20 08:56</a>
+
+第二部最后一关的增援是不是无限的？二十多个回合了还在一直出，上半截地图都快堆满了 ...</blockquote>
+本作所有关卡的增援都不是无限的 只是数量多罢了 
+

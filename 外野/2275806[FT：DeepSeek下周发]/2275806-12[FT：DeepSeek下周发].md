@@ -10096,3 +10096,30 @@ deepseek 1017 幻觉率从96%降到了67%
 还有腾讯的Hy也是</blockquote>
 minimax在年初GLM和DS v4哑火那段时间讨论度挺高的，因为那会coding特调的国模比较少，老外觉得用这个也便宜，后面性能就跟不上了
 
+
+*****
+
+####  tillnight  
+##### 17243#       发表于 2026-10-20 09:07
+
+<blockquote>Lorraine_Kinney 发表于 2026-10-20 08:59
+minimax在年初GLM和DS v4哑火那段时间讨论度挺高的，因为那会coding特调的国模比较少，老外觉得用这个也 ...</blockquote>
+不是coding特调，是便宜大碗有基本的agent能力，匹配了当时的养虾模式。
+
+
+*****
+
+####  nxmonitor  
+##### 17244#       发表于 2026-10-20 09:10
+
+然后被DS的Flash模型追着杀，0424以后M系列就颓势到现在，0731甚至还撞车了，碰到1017就更没办法了
+
+*****
+
+####  lactone  
+##### 17245#       发表于 2026-10-20 09:11
+
+感觉这个Mercury 的结局可能和jev类似，就是Mercury 如果趟出来路，说明dllm至少在subagent领域可行，那么大厂马上用自己的教师模型蒸馏出来自己的dllm<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
