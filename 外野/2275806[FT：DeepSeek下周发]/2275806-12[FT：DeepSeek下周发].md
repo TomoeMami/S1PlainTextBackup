@@ -12603,3 +12603,45 @@ DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活
 【最强AI对视！-哔哩哔哩】 [https://b23.tv/vDd5ntQ](https://b23.tv/vDd5ntQ)</blockquote>
 同类视频太多了他做的被淹没了少人看也是正常，视频和他发的截图对不上，视频的是短裙还有大白腿伴舞gemini也不是(，不够压抑闷骚剩下骚了
 
+
+*****
+
+####  Litccc  
+##### 17486#       发表于 2026-10-20 23:48
+
+[https://www.bilibili.com/video/BV1ZnpG6dE8g/](https://www.bilibili.com/video/BV1ZnpG6dE8g/)
+
+是这个吧
+
+*****
+
+####  北野苍术  
+##### 17487#       发表于 2026-10-20 23:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">所以10月还能有k3.1吗.jpg
+我还挺喜欢kimi的，可惜梗太少ai娘的小剧场都不怎么带kimi玩。最出圈的那套人设里也有点太正经艺术生了，明明杨植麟玩的摇滚<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2301-5, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  静哮苍穹  
+##### 17488#       发表于 2026-10-20 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403009&amp;ptid=2275806" target="_blank">北野苍术 发表于 2026-10-20 23:49</a>
+所以10月还能有k3.1吗.jpg
+我还挺喜欢kimi的，可惜梗太少ai娘的小剧场都不怎么带kimi玩。最出圈的那套人设 ...</blockquote>
+我也是最喜欢kimi，但贵和慢劝退太多人了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  xuanwu_lei  
+##### 17489#       发表于 2026-10-20 23:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403009&amp;ptid=2275806" target="_blank">北野苍术 发表于 2026-10-20 23:49</a>
+所以10月还能有k3.1吗.jpg
+我还挺喜欢kimi的，可惜梗太少ai娘的小剧场都不怎么带kimi玩。最出圈的那套人设 ...</blockquote>
+Kimi现在本质豆包pro max ultra<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+干的都是豆姐能干但干不好的事，比如写标书<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

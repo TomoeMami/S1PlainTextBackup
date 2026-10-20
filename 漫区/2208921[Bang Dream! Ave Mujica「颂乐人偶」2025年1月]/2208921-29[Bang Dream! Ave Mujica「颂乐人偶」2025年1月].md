@@ -1956,3 +1956,11 @@ Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- DAY2的影像。
 ・「オリジナルキャラクターカード」1张(全5种)</blockquote>
        [https://www.bilibili.com/video/BV19JnA6UEjV](https://www.bilibili.com/video/BV19JnA6UEjV)
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 42143#       发表于 2026-10-20 23:53
+
+神之名也太哈人了，李神你让想翻唱的怎么办
+
