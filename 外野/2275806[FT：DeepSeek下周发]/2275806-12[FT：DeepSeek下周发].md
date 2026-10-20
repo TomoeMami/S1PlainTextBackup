@@ -12260,3 +12260,24 @@ oa 有局部战役的优势，但是没有整体战略上的主动权，今天�
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  med  
+##### 17457#       发表于 2026-10-20 20:37
+
+利润率不低啊，租GB200一个机时也就10刀
+ <blockquote>Supported hardware:
+
+NVIDIA SM100 GPUs
+
+Huawei Ascend 950 NPUs</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/20/203641minjdv1o63j5542v.png" referrerpolicy="no-referrer">
+
+<strong>2c0fe7e15e2404ed1eb95b3c80609cb8.png</strong> (245.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 20:36 上传
+
