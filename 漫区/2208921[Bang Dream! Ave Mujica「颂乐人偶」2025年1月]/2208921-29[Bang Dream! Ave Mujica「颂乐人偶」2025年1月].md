@@ -1862,3 +1862,97 @@ interview　彼此共鸣的两人。
 Rico Sasaki × Kanon Takao</blockquote>
       唯鸡百科链接：[https://avemujica.wiki/interview/index.html#f5ckErYJPuS](https://avemujica.wiki/interview/index.html#f5ckErYJPuS)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42142#       发表于 2026-10-20 23:41
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/20/234152pcuscecyu4wz6w64.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-20_23-40-41.png</strong> (876.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 23:41 上传
+
+       [https://x.com/bang_dream_info/status/2112559476519899522](https://x.com/bang_dream_info/status/2112559476519899522)
+
+       [https://www.youtube.com/watch?v=5oeSPkiFtVo](https://www.youtube.com/watch?v=5oeSPkiFtVo)
+
+       [https://bmu.lnk.to/AveMujica_miniAL2026tw](https://bmu.lnk.to/AveMujica_miniAL2026tw)
+
+       <strong>【试听】Ave Mujica 迷你Album「神の名を（God's Blood）」（2026.10.21 发售）</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/20/234153v9idcf1xsczxfc94.png" referrerpolicy="no-referrer">
+
+<strong>85830966098e381190080e8ffce47e68100509e9.png</strong> (1.91 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 23:41 上传
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+来自Ave Mujica的迷你专辑，收录了2026年10月16日公开的
+
+剧场版「BanG Dream! Ave Mujica prima aurora」的全4首剧中曲。
+
+「Blu-ray付生産限定盤」收录了2026年6月20日，于SGC HALL ARIAKE举办的
+
+Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- DAY2的影像。
+
+「5,000枚限定生産特装盤」还同时收录了6月19日的DAY1的影像。
+
+=====
+
+★商品情报
+[https://bang-dream.com/discographies/4238/](https://bang-dream.com/discographies/4238/)
+
+【发售日】
+
+2026年10月21日(周三)
+
+【定价】
+
+「5,000枚限定生産特装盤」：18,700日元(含税)
+
+「Blu-ray付生産限定盤」：8,800日元(含税)
+
+「通常盤」：2,200日元(含税)
+
+【收录内容】
+
+[CD]
+
+0:00 1. 神の名を
+
+1:54 2. A Song Of Romance Pt.2
+
+3:27 3. BADDY BADDY
+
+4:50 4. A Song Of Romance
+
+[Blu-ray]　※仅限「5,000枚限定生産特装盤」・「Blu-ray付生産限定盤」
+
+・Ave Mujica LIVE TOUR 2026「Exitus」-FINAL-
+
+＜DAY1＞※仅限「5,000枚限定生産特装盤」
+
+＜DAY2＞※仅限「5,000枚限定生産特装盤」・「Blu-ray付生産限定盤」
+
+【初回生産分限定特製アイテム】※仅限「5,000枚限定生産特装盤」
+
+・「特製オーロラアクリルスタンド」5种套装
+
+・「特製BOX」
+
+【初回生産分限定封入特典】
+
+・2027年春季之后举办预定的Ave Mujica单独LIVE活动的最速先行抽选券
+
+・「オリジナルキャラクターカード」1张(全5种)</blockquote>
+       [https://www.bilibili.com/video/BV19JnA6UEjV](https://www.bilibili.com/video/BV19JnA6UEjV)
+

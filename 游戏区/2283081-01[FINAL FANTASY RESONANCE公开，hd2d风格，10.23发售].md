@@ -3256,3 +3256,17 @@ fami通算法别是机械化刷幻兵就几十小时了</blockquote>
 你非要这么以为那怎么都没办法的了，甚至DEMO你也能搞出来70小时，然后newgame即通关 ...</blockquote>
 评语就说个时长又不说流程外挑战 那肯定怎么不乐观怎么来啊
 
+
+*****
+
+####  diectt  
+##### 329#       发表于 2026-10-20 23:36
+
+ 本帖最后由 diectt 于 2026-10-20 23:40 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402764&amp;ptid=2283081" target="_blank">horacio 发表于 2026-10-20 22:59</a>
+
+我玩完试玩感觉怎么都不会短,结果主线就20小时,我猜就是幻兵每个人都要练满拿技能,再打几个隐藏boss,但是有 ...</blockquote>
+这个长度属于意料之中吧，demo第一个水晶，纯主线大概3h，做支线舔地图但是不刷幻兵，大概5h多
+
+一共6个水晶，加个收尾，纯主线大概20h，做做支线舔舔地图宝箱大概40-50h，加上刷幻兵，完全通关70h
+

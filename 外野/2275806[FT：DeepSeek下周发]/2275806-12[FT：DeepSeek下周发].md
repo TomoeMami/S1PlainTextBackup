@@ -12590,3 +12590,16 @@ DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活
 
 这玩意儿是深度求索内部员工做的是吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  warlock228  
+##### 17485#       发表于 2026-10-20 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402949&amp;ptid=2275806" target="_blank">xuanwu_lei 发表于 2026-10-20 23:36</a>
+
+这个小克跳舞不是特么舞池对视吗
+
+【最强AI对视！-哔哩哔哩】 [https://b23.tv/vDd5ntQ](https://b23.tv/vDd5ntQ)</blockquote>
+同类视频太多了他做的被淹没了少人看也是正常，视频和他发的截图对不上，视频的是短裙还有大白腿伴舞gemini也不是(，不够压抑闷骚剩下骚了
+
