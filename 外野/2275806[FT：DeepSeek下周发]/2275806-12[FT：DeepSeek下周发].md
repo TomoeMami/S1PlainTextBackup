@@ -12818,3 +12818,14 @@ seed 爷还拿着远超其他部门的薪酬和回报，这看着真刺激<img s
 
 gemini4a出来前的宣发里有一个表吹她们自己对于提示词注入的防护第一，但那张表里还有一个我印象深的是kimik3对于提示词注入的防护倒数第一，那之后我对kimi的印象就是弱催眠的爱丽丝<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（思维链注入之后也确实是gemini4a之下第一nsfw rp模型）
 
+
+*****
+
+####  qwased  
+##### 17504#       发表于 2026-10-21 02:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403300&amp;ptid=2275806" target="_blank">verniy 发表于 2026-10-21 01:55</a>
+
+gemini4a出来前的宣发里有一个表吹她们自己对于提示词注入的防护第一，但那张表里还有一个我印象深的是kimi ...</blockquote>
+但是argon甚至不需要提示词注入，她自己就会想办法绕开安全护栏完成任务目标<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
