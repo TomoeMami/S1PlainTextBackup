@@ -202,3 +202,11 @@ QQ图片20261018092045.jpg
 <img src="https://p.sda1.dev/35/7c93e328e19adfd15f341d6cb5b90cfd/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/35/091020de42b80abc0969623f4ab35ce4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  恶意之刃  
+##### 261#       发表于 2026-10-20 22:45
+
+又银河又日珥，还有恐龙三骑，一下子远远跳出12生肖的噱头和框架了，这集已经长难句带过蛋的来源了，细节真能hold住吗
+

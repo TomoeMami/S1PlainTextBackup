@@ -12420,3 +12420,36 @@ DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活
 不过Claude的娘化形象确实好看，我感觉仅次于鲸鱼娘之后</blockquote>
 确实<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 17470#       发表于 2026-10-20 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402603&amp;ptid=2275806" target="_blank">iceddd 发表于 2026-10-20 22:26</a>
+确实 我感觉glm那个形象就是个黑色带兽耳的Claude    Re:Source</blockquote>
+毕竟字母表一前一后<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冤枉呐  
+##### 17471#       发表于 2026-10-20 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402552&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-20 22:14</a>
+不是，这个内部群的内鬼还没抓出来嘛，每天都有新的群聊流出来</blockquote>
+有人截图了！
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  冤枉呐  
+##### 17472#       发表于 2026-10-20 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402552&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-20 22:14</a>
+不是，这个内部群的内鬼还没抓出来嘛，每天都有新的群聊流出来</blockquote>
+有人截图了！
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
