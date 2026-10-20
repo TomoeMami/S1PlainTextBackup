@@ -243,3 +243,34 @@
 
 老司机都是天然反查的吧，各个社区的名字完全不相干，甚至会故意注册其他社区的知名id
 
+
+*****
+
+####  yakee  
+##### 113#       发表于 2026-10-20 11:11
+
+看看我的
+
+—— 来自 HUAWEI HED-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  鳄鱼亮爪  
+##### 114#       发表于 2026-10-20 11:13
+
+本来想查的，看了下攻击性那么强不敢了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  某浩  
+##### 115#       发表于 2026-10-20 11:16
+
+太巨魔了，攻击性好强啊
+
+*****
+
+####  是谁的书画  
+##### 116#       发表于 2026-10-20 11:16
+
+查查我的，很急很急<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

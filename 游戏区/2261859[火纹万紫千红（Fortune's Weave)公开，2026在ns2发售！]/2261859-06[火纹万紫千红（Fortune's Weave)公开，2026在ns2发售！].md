@@ -5483,3 +5483,56 @@ A少外传都打的差不多了，感觉如果有超难难度的话，最难的�
 这nmd是不是功利点解锁完了所有职业 ...</blockquote>
 要解锁的最上级没啥很急着要转的，剑人统一探影者等神将就完事了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zwqcm  
+##### 7929#       发表于 2026-10-20 11:13
+
+前两部是有加点保底机制么，从没出过只加一点的情况。第三部一直出只加一点的情况，神将迪哥500成长能出只加一点我也是服了。
+
+*****
+
+####  duraa  
+##### 7930#       发表于 2026-10-20 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399358&amp;ptid=2261859" target="_blank">zwqcm 发表于 2026-10-20 11:13</a>
+前两部是有加点保底机制么，从没出过只加一点的情况。第三部一直出只加一点的情况，神将迪哥500成长能出只 ...</blockquote>
+第二部不知道，第一部我看人测试是有保底两点的
+可以参考这个帖子看看<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+[https://bbs.nga.cn/read.php?tid=47719113](https://bbs.nga.cn/read.php?tid=47719113)
+
+*****
+
+####  maojiashu  
+##### 7931#       发表于 2026-10-20 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399327&amp;ptid=2261859" target="_blank">duraa 发表于 2026-10-20 11:07</a>
+
+要解锁的最上级没啥很急着要转的，剑人统一探影者等神将就完事了</blockquote>
+神将不是只有几个人能当
+
+关键是低级的人丢家里也会升级 带低级的到外面不一定打的过
+
+不转最上级感觉一直在亏属性 焦虑的不行
+
+*****
+
+####  maojiashu  
+##### 7932#       发表于 2026-10-20 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399319&amp;ptid=2261859" target="_blank">1wq1 发表于 2026-10-20 11:05</a>
+
+6章，没必要，第三部非常的水，全是辣鸡时间</blockquote>
+每章就35回合？ md也太小气了吧 让我随便逛逛怎么了
+
+*****
+
+####  逆旅行客  
+##### 7933#       发表于 2026-10-20 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399374&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-10-20 11:16</a>
+
+每章就35回合？ md也太小气了吧 让我随便逛逛怎么了</blockquote>
+分成好几个队每回合每个队动一次，看起来三十多回合，其实相当于上百回合了……
+

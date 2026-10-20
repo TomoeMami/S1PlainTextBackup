@@ -10279,3 +10279,16 @@ dllm是什么的缩写？我甚至都不是广东人，脑内自动匹配到四�
 
 A÷有种犹他州出来的样子，比福音派看上去都魔怔……
 
+
+*****
+
+####  ysubm  
+##### 17261#       发表于 2026-10-20 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399170&amp;ptid=2275806" target="_blank">darktide 发表于 2026-10-20 10:40</a>
+1017版本用起来感觉有个退步的地方，聊天场景下，会投入更多的注意力到最近的对话上面，反而对全局对话（尤 ...</blockquote>
+这就是所谓的「提高oneshot能力」的弊端，主动性和目的性太强导致经常越界和短视。唉……之前的deepseek在主动性上刚刚好的。
+（一个典型的反例就是grok，非常被动，打一鞭子挪个窝的那种。非常工程取向。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
