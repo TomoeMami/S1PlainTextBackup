@@ -12659,3 +12659,48 @@ Kimi现在本质豆包pro max ultra<img src="https://static.stage1st.com/image/s
 
 我觉得原作者给现在这批形象基本打了定型的里面，反而是龙娘设计的最出色，古龙在认知里的负面要素太适合 o÷ 了。而且原版形象还有个丢 sora 设计是最绝的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是实在是不太好用上这个设定了
 
+
+*****
+
+####  andychen  
+##### 17491#       发表于 2026-10-21 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402881&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-20 23:21</a>
+
+如果智普自己说的情况属实，那下一代国模旗舰都是3T+loop，想想还挺吓人的</blockquote>
+目前海外普遍猜测Fable和Astra都是10T规模的模型。如果国内厂商要和他们竞争，参数至少要到5T规模，同时采用更激进的架构设计保证更高效的训练和推理
+
+这个投资者纪要的内容大差不差吧，不过如果GLM5.5在参数上和架构上都做出了大改，搞不懂为啥不更新大版本号。我怀疑原来的GLM5.5已经被取消了，换成了这个全新训练的模型
+
+另外关于智谱新的推理架构，这几天他们在提供400T/S的GLM5.3测试服务，肯定是有所进展了
+
+*****
+
+####  andychen  
+##### 17492#       发表于 2026-10-21 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403009&amp;ptid=2275806" target="_blank">北野苍术 发表于 2026-10-20 23:49</a>
+
+所以10月还能有k3.1吗.jpg
+
+我还挺喜欢kimi的，可惜梗太少ai娘的小剧场都不怎么带kimi玩。最出圈的那套人设 ...</blockquote>
+我算是KIMI用得比较多的，在Argon出来前我的所有提示词工程工作全都是K3处理
+
+感觉他们真挺缺算力的，K3的服务官方都找了大量第三方平台合作
+
+
+*****
+
+####  qwased  
+##### 17493#       发表于 2026-10-21 00:12
+
+<img src="https://img.stage1st.com/forum/202610/21/001152qbh0sdfy0qyqj0og.png" referrerpolicy="no-referrer">
+
+<strong>14bd15507ed6d43993a494d3657953e4333853034.png</strong> (192.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 00:11 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唉我怎么就没有那么好的电脑
+
