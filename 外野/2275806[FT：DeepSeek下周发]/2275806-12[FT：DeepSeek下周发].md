@@ -11592,3 +11592,91 @@ deepseek 缓存有 72 小时，这个可以算是护城河<img src="https://stat
 
 —— 来自 HUAWEI HBN-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  Promeus  
+##### 17394#       发表于 2026-10-20 18:00
+
+<img src="https://p.sda1.dev/35/e19b25ca8f0abd28438763cfc1838a49/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  eno_emos  
+##### 17395#       发表于 2026-10-20 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401392&amp;ptid=2275806" target="_blank">colice 发表于 2026-10-20 17:57</a>
+
+这一开源，opencode这种公司不得给梁圣磕一个？
+
+—— 来自 HUAWEI HBN-AL00, Android 16, 鹅球 v3.4.98 ...</blockquote>
+opencode很高可能性之前说官方合作伙伴的时候就磕过了
+
+梁叔叔炸了藤子的wb都高负债排队，而opencode无事发生，说明他没有转发
+
+那么他这个200tps的速度是怎么来的呢<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tk553521  
+##### 17396#       发表于 2026-10-20 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401404&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-20 18:00</a></blockquote>
+这也是ds员工吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这团队简直就是a/的纯反面吧
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  秦南心  
+##### 17397#       发表于 2026-10-20 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401404&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-20 18:00</a></blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扬眉吐气知行合一，似是故人来
+
+*****
+
+####  奥柏伦亲王  
+##### 17398#       发表于 2026-10-20 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401421&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-10-20 18:04</a>
+
+这也是ds员工吗，这团队简直就是a/的纯反面吧
+
+—— 来自 nubia NX809J, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+这位是Deepseek的资深研究员，他说的话是翻译了教员在1953年的经典讲话：
+
+"时间要打多久，我想我们不要做决定。过去是由杜鲁门，以后是由艾森豪威尔，或者是美国的将来的什么总统，由他们去做决定。就是说，他们要打多久，我们就打多久，一直打到完全胜利。"
+
+不言自明。
+
+*****
+
+####  phorcys02  
+##### 17399#       发表于 2026-10-20 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401375&amp;ptid=2275806" target="_blank">红魔馆的糖 发表于 2026-10-20 17:54</a>
+
+肥鱼她爹也太牛逼了
+
+等他彻底跑通了各种国产卡的全量训练框架之后估计也会开源出来 ...</blockquote>
+现在肯定还不是最便宜的时候。
+
+1. HBM现在历史高点，太贵了
+
+2. 华为的卡因为过去六七年走错了路线，现在是缝合怪， 不是推理效率最优的硅。
+
+3. 因为产能原因，现在的卡溢价高
+
+顶着3个defuff还能像贩毒一样的利润，明后年 产能不紧张，hbm价格回落， 华为或者其他国产计算卡厂商做了更有效率的微架构，不敢想会变成怎样.
+
+*****
+
+####  lactone  
+##### 17400#       发表于 2026-10-20 18:08
+
+草台班子改变世界<img src="https://p.sda1.dev/35/8fb7bf68b1cb573a6a5430262618b35d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
