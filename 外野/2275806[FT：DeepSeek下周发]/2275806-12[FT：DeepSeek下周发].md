@@ -12187,3 +12187,30 @@ kimi3.1呢，我还在等
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  CCauchy  
+##### 17449#       发表于 2026-10-20 19:36
+
+今天qoder的dsf太卡了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lactone  
+##### 17450#       发表于 2026-10-20 19:39
+
+kimi有半夜发模型的先例
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Awanano  
+##### 17451#       发表于 2026-10-20 19:40
+
+今天这开源怎么说呢，只要能力大，能合法开 casino 的地方不只有澳门<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+oa 有局部战役的优势，但是没有整体战略上的主动权，今天开源后形势更是如此，有点像是被拴好的两条狗，吃剩啥就喂啥。靠短期的 sota 一直把这俩吊在场上，但是庄家稳赢啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
