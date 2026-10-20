@@ -10426,3 +10426,24 @@ GPT 写的代码还容易变成屎山，到处复制，完全不可维护。我�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  eno_emos  
+##### 17274#       发表于 2026-10-20 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399470&amp;ptid=2275806" target="_blank">qq460262849 发表于 2026-10-20 11:28</a>
+
+借楼请教：WorkBuddy攒了3600积分，想请大肥鱼把《旧共和国武士2》这个游戏汉化，（玩过的人应该知道这游戏 ...</blockquote>
+把那个很差的汉化下下来，准备好一份游戏，然后让它看看这个汉化，告诉他你想干嘛，问他有没有思路，还需要你准备什么东西
+
+
+*****
+
+####  umamusume  
+##### 17275#       发表于 2026-10-20 12:44
+
+又来吹A\了
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
