@@ -12797,3 +12797,16 @@ seed 爷还拿着远超其他部门的薪酬和回报，这看着真刺激<img s
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  绝地潜兵  
+##### 17502#       发表于 2026-10-21 01:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402949&amp;ptid=2275806" target="_blank">xuanwu_lei 发表于 2026-10-20 23:36</a>
+
+这个小克跳舞不是特么舞池对视吗
+
+【最强AI对视！-哔哩哔哩】 https://b23.tv/vDd5ntQ</blockquote>
+我草，腿环太涩太xyy了
+
