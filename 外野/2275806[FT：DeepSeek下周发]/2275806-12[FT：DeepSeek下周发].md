@@ -12281,3 +12281,30 @@ Huawei Ascend 950 NPUs</blockquote>
 
 2026-10-20 20:36 上传
 
+
+*****
+
+####  lubo  
+##### 17458#       发表于 2026-10-20 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402105&amp;ptid=2275806" target="_blank">med 发表于 2026-10-20 20:37</a>
+
+利润率不低啊，租GB200一个机时也就10刀</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/20/205123ti7m5p8rf9jppm0j.png" referrerpolicy="no-referrer">
+
+<strong>截屏2026-10-20 20.48.06.png</strong> (381.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 20:51 上传
+
+这家B300每小时9刀，显存+内存放得下v4.1flash，不过尝试绑定国内信用卡失败了
+
+*****
+
+####  相见恨晚  
+##### 17459#       发表于 2026-10-20 20:52
+
+qoder免费版有明确和你说数据会被拿去用
+
