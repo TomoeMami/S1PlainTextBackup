@@ -12845,3 +12845,13 @@ gemini4a出来前的宣发里有一个表吹她们自己对于提示词注入的
 
 从SpaceX财报来看。出租数据中心成本大概只有收入1/3
 
+
+*****
+
+####  chilming  
+##### 17507#       发表于 2026-10-21 06:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402865&amp;ptid=2275806" target="_blank">夏风 发表于 2026-10-20 23:19</a>
+买的点读笔不支持同厂商的旧书，花了2块钱轻松搞定转换，梁圣伟大</blockquote>
+求问，是乐乐趣的书吗，可以分享一下工具吗<img src="https://static.stage1st.com/image/smiley/face/134.gif" referrerpolicy="no-referrer">
+
