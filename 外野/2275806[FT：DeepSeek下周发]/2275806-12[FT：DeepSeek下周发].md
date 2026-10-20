@@ -10163,3 +10163,38 @@ Astra上午一直Selected model is at capacity. Please try a different model.
 
 上午又炸了？
 
+
+*****
+
+####  黑夜中的冥想  
+##### 17250#       发表于 2026-10-20 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397684&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-19 22:25</a>
+
+不是，怎么真把Claude也送走了</blockquote>
+据说是白宫这块的负责人非常厌恶a畜的邪教做派和黑暗启蒙理论，达里奥直接撞枪口上了
+
+*****
+
+####  Nanachi  
+##### 17251#       发表于 2026-10-20 10:11
+
+扩散模型之前生图的时候就在一致性上栽了跟头吧
+
+
+*****
+
+####  2017.05.04  
+##### 17252#       发表于 2026-10-20 10:13
+
+美帝政府里讨厌A畜的人有的是
+
+达里奥那套太鞋教了
+
+*****
+
+####  Promeus  
+##### 17253#       发表于 2026-10-20 10:13
+
+美媒说960dt准备大部分给梁子<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
