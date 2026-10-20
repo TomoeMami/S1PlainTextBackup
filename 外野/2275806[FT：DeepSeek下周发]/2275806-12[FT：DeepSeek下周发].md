@@ -10142,3 +10142,14 @@ minimax在年初GLM和DS v4哑火那段时间讨论度挺高的，因为那会co
 
 请教一下各位坛友，pi最近更新是不是变卡了，只要对话一两次拖动窗口滚动条就很卡，特别是窗口有ai正文回复的部分的时候，现在回退到上个版本，虽然还是会有点卡，但至少能用了
 
+
+*****
+
+####  RookieTnT  
+##### 17248#       发表于 2026-10-20 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398484&amp;ptid=2275806" target="_blank">ambivalence 发表于 2026-10-20 08:37</a>
+
+它这把降噪过程亮出来看起来好他妈酷炫</blockquote>
+我是觉得这动画减慢了速度 实际上生成的更快. 简单的任务能到1300
+
