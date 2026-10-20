@@ -10615,3 +10615,25 @@ fable5.5现在吹的就是脑补指令<img src="https://static.stage1st.com/imag
 minimax这货绝壁请了不少水军，我在xhs上刷到有人在那硬吹，说明显强于GLM5.3F，和DS能打的有来有回，而且 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">LLM里面比较出名的三个m都是刷榜区常客了，这首字母指定有点说法
 
+
+*****
+
+####  hugosol  
+##### 17292#       发表于 2026-10-20 15:06
+
+ 本帖最后由 hugosol 于 2026-10-20 15:10 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70399170&amp;ptid=2275806" target="_blank">darktide 发表于 2026-10-20 10:40</a>
+
+1017版本用起来感觉有个退步的地方，聊天场景下，会投入更多的注意力到最近的对话上面，反而对全局对话（尤 ...</blockquote>
+行动力过强我也有感受
+
+其实现在这些oneshot特化的模型聊天的时候开max体验都很差，oneshot的场景比较像那种你把需求拆好了直接把写好的实现文档丢给subagent跑
+
+Astra号称“在行动前倾向于先和用户同步意图”，但是我用得少，其实感觉6.1-Sol这种模型在讨论时开medium时输出质量已经很高了，而且不会在讨论时你还在同步想法修正路线的阶段就输出一大堆东西，不然还得推翻它说的这一大堆东西，完全是浪费上下文
+
+所以现在卷这些benchmark其实在正经编程的体验是没什么提升的（因为提升了我也感受不到，我用的时候大部分时间是在做计划，实施阶段都是自动跑的，之前的DS flash已经够好了），只能提升许愿式编程的体验<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+什么靠RSI自我进化更是扯淡，模型根本没法量化这些连人类都没法量化的能力
+
+但是我相信依靠暴力往上堆参数自然能涌现更多的智能这个路线是对的，所以DeepSeek做的那些架构创新都是很有价值的工作
+
