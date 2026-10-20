@@ -10766,3 +10766,42 @@ Opus 5.5至少比GPT 5.5/5.6强。好几个晚上睡觉前安排好工作留给G
 
 虽然两周前有小道消息拉了，但是两周都过去了总能比K3强吧
 
+
+*****
+
+####  lactone  
+##### 17306#       发表于 2026-10-20 15:47
+
+如果能力拉了，就学muse wonder把分刷高点呗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ycjiang1337  
+##### 17307#       发表于 2026-10-20 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400006&amp;ptid=2275806" target="_blank">宅男的爱 发表于 2026-10-20 13:40</a>
+
+拟人这波以对话，Code能力为主的LLM为主
+
+Minimax H3和Hunyuan在Comfyui t2v，i2v那边是绕不过去的两座山 ...</blockquote>
+你搞反了，先有的Seedance，后有的H3，然后H3因为便宜开源，性能接近Seedance所以有自己的生态位
+
+*****
+
+####  ycjiang1337  
+##### 17308#       发表于 2026-10-20 15:54
+
+如果是K3.1，那应该是个后训练模型，K3基座摆在这里，拉也拉不到哪去
+
+*****
+
+####  飞剪号  
+##### 17309#       发表于 2026-10-20 15:56
+
+<blockquote>Promeus 发表于 2026-10-20 15:23
+年轻梁子</blockquote>
+印象里这个结婚的是梁子的亲戚好友之类的，有几张照片里站在后面那个小哥看起来更像梁子，不过我也不是很确定
+
