@@ -12510,3 +12510,36 @@ DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活
 
 智谱-6.41%</blockquote>
 
+
+*****
+
+####  夏风  
+##### 17478#       发表于 2026-10-20 23:19
+
+买的点读笔不支持同厂商的旧书，花了2块钱轻松搞定转换，梁圣伟大<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/20/231748mkrk3gq0kzsksgxv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 23:17 上传
+
+*****
+
+####  qwased  
+##### 17479#       发表于 2026-10-20 23:21
+
+如果智普自己说的情况属实，那下一代国模旗舰都是3T+loop，想想还挺吓人的<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  静哮苍穹  
+##### 17480#       发表于 2026-10-20 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402778&amp;ptid=2275806" target="_blank">gffdg 发表于 2026-10-20 23:01</a>
+
+有没有啥公文写作方面的ai或者怎么弄能弄个专门写公文的ai</blockquote>
+kimi适用于几乎所有非代码场景，当然就是贵了点。
+

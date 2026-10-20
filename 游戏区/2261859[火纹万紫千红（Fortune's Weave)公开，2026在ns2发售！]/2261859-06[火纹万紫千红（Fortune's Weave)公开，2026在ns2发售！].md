@@ -6001,3 +6001,29 @@ boss本质要保证3人也能过的，不可能强到爆炸的，如果还要保
 
 另外巨大金块怎么刷啊  要8个探影者刷沉船吗
 
+
+*****
+
+####  duraa  
+##### 7974#       发表于 2026-10-20 23:14
+
+<img src="https://img.stage1st.com/forum/202610/20/230446b9oc9hrxrafime1f.jpg" referrerpolicy="no-referrer">
+
+<strong>`YM@S$RDVSNH~31[9UZZ__tmb.jpg</strong> (118.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 23:04 上传
+
+<img src="https://img.stage1st.com/forum/202610/20/230446w8ym7yq4mupu89rs.jpg" referrerpolicy="no-referrer">
+
+<strong>R0QXA72RIU]U}HH}DX@GA[T.jpg</strong> (299.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 23:04 上传
+
+双刀人能飞，速技就是美<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+自己最速挖的乌修拉（A少线26级入队，最速挖和盖茨入队冲突）练起来的属性，A少多个武神10力，我说乌修拉是小A少有没有懂的
+

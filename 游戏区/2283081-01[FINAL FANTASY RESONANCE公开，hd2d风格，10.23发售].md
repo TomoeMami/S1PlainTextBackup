@@ -3227,3 +3227,22 @@ FF16那个demo你们能看得出来行，也是厉害，光开头的不死鸟打
 
 FAMI通之前不是都写了，主线20-30小时，完全通关70小时，参考一下不就好了
 
+
+*****
+
+####  白昼梦DD  
+##### 326#       发表于 2026-10-20 23:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fami通算法别是机械化刷幻兵就几十小时了
+
+
+*****
+
+####  黑暗之眼  
+##### 327#       发表于 2026-10-20 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402846&amp;ptid=2283081" target="_blank">白昼梦DD 发表于 2026-10-20 23:16</a>
+
+fami通算法别是机械化刷幻兵就几十小时了</blockquote>
+你非要这么以为那怎么都没办法的了，甚至DEMO你也能搞出来70小时，然后newgame即通关
+
