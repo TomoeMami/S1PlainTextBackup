@@ -5319,3 +5319,24 @@ A少外传都打的差不多了，感觉如果有超难难度的话，最难的�
 
 从苦大仇深到如此欢脱的落差也太大了。
 
+
+*****
+
+####  Humpy  
+##### 7913#       发表于 2026-10-20 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398277&amp;ptid=2261859" target="_blank">根正苗红 发表于 2026-10-20 05:52</a>
+蕾达线墨迹了30多个小时刚通，开迪哥线，乖乖，全都是神人老妈子入队后的吐槽简直就是我的嘴替。
+
+从苦大仇 ...</blockquote>
+迪哥线虽然各种神人但是剧情写得挺好的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+法比奥这个几乎可以荣登本作男性最丑榜单首位的角色靠着迪哥线的塑造现在人气爆棚也算是个奇迹了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 7914#       发表于 2026-10-20 08:37
+
+再没有法比欧和初音这么好的闺蜜了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一周目a少被人妻拐走，两败犬还有在一起的结局
+
