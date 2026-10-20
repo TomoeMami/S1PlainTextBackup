@@ -1972,3 +1972,33 @@ Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- DAY2的影像。
 
 以神之名铸造mujica
 
+
+*****
+
+####  堀内爱里衣  
+##### 42145#       发表于 2026-10-21 04:05
+
+       <strong>[JMAX] [2026.10.21] BanG Dream! Ave Mujica 3rdミニアルバム「神の名を」[FLAC 96kHz/24bit]</strong> <blockquote><img src="https://i.ibb.co/FktPYBhM/Cover.jpg" referrerpolicy="no-referrer">
+<img src="https://i.ibb.co/JRtRt6rm/Cover.jpg" referrerpolicy="no-referrer">
+
+Release Date : 2026.10.21 [00:00 (JST)]
+
+Tracklist
+
+01. 神の名を
+
+02. A Song Of Romance Pt.2
+
+03. BADDY BADDY
+
+04. A Song Of Romance (映画「BanG Dream! Ave Mujica prima aurora」挿入歌)
+
+  
+
+歌 : Ave Mujica[ドロリス(三角初華)(CV.佐々木李子)、モーティス(若葉睦)(CV.渡瀬結月)、ティモリス(八幡海鈴)(CV.岡田夢以)、アモーリス(祐天寺にゃむ)(CV.米澤茜)、オブリビオニス(豊川祥子)(CV.高尾奏音)]</blockquote>
+       [https://share.dmhy.org/topics/vi ... AC_96kHz_24bit.html](https://share.dmhy.org/topics/view/729324_JMAX_2026_10_21_BanG_Dream%21_Ave_Mujica_3rd_FLAC_96kHz_24bit.html)
+
+       Magnet連接: magnet:?xt=urn:btih:PGGZ6B4DWSQERQRJMYFP5RWQXIVIFBDK
+
+       Magnet連接typeII: magnet:?xt=urn:btih:798d9f0783b4a048c229660afec6d0ba2a82846a
+
