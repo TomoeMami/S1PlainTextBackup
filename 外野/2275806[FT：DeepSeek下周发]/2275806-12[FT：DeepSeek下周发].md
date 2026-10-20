@@ -10568,3 +10568,50 @@ k3我记得好像是晚上发的
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 17288#       发表于 2026-10-20 14:49
+
+<img src="https://img.stage1st.com/forum/202610/20/144828tje3yqyeue5quvqe.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792478907036_1.webp</strong> (107.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 14:48 上传
+
+还是那句话，许愿能力强约等于脑补用户指令的能力也强<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 17289#       发表于 2026-10-20 14:51
+
+fable5.5现在吹的就是脑补指令<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  andychen  
+##### 17290#       发表于 2026-10-20 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400342&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-20 14:49</a>
+
+还是那句话，许愿能力强约等于脑补用户指令的能力也强</blockquote>
+这个问题是无解的，本质上是模型如何处理信息不足问题的倾向
+
+所以我的工作流程里必须是先出计划再执行
+
+*****
+
+####  空き地卯木  
+##### 17291#       发表于 2026-10-20 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400152&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-10-20 14:17</a>
+minimax这货绝壁请了不少水军，我在xhs上刷到有人在那硬吹，说明显强于GLM5.3F，和DS能打的有来有回，而且 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">LLM里面比较出名的三个m都是刷榜区常客了，这首字母指定有点说法
+

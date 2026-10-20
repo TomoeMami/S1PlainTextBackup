@@ -2273,3 +2273,11 @@ https://a.vmall.com/commentList/C100427405
 
 <[img src="https://i.ibb.co/tw9k0V5c/aa9bi-lzbdw.webp" referrerpolicy="no-referrer">
 
+
+*****
+
+####  java0223  
+##### 192#       发表于 2026-10-20 14:54
+
+下了几个常用的，感觉最大的问题还是字体显示，像ai直接没有任何中文字显示出来，也没有找到安装或者导入字体的地方，不知道是不是跟我用的macos有关系
+
