@@ -12717,3 +12717,46 @@ deepseek已经回味过来了开始重视产品端
 
 kimi这个样子长期来看脱离用户太多了，真的能找得好自己的方向吗
 
+
+*****
+
+####  colice  
+##### 17495#       发表于 2026-10-21 00:24
+
+Kimi以前还想用用来着，然后出K3那会做个普通ppt都得排队，甚至不用K3都得排队，直接绝了念头<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HBN-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  北野苍术  
+##### 17496#       发表于 2026-10-21 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403026&amp;ptid=2275806" target="_blank">xuanwu_lei 发表于 2026-10-20 23:53</a>
+Kimi现在本质豆包pro max ultra
+
+干的都是豆姐能干但干不好的事，比如写标书</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2301-5, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  浅夏晴雨  
+##### 17497#       发表于 2026-10-21 00:26
+
+当国内外 LLM 厂商都在蓬勃发展的同时，拿着国内最多算力的字节seed，连个像样的doubao都炼不好 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+seed 爷还拿着远超其他部门的薪酬和回报，这看着真刺激<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lambl  
+##### 17498#       发表于 2026-10-21 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400498&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-20 15:23</a>
+
+年轻梁子</blockquote>
+这男的是他公司合伙人，我听说后来出轨了公司一个下属，梁圣还劝过他几次，后来把那女下属辞退了。
+
