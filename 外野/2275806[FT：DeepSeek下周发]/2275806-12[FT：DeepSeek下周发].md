@@ -12160,3 +12160,30 @@ opus/glm 这一系用起来就比 gpt 舒服的多，我需求说完指令遵循
 
 kimi3.1呢，我还在等
 
+
+*****
+
+####  qz66618  
+##### 17446#       发表于 2026-10-20 19:28
+
+此外DS每次发布新模型前都会开源一些东西或发一些论文，说不定十一月份4.1pro就会出来了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  来都来了  
+##### 17447#       发表于 2026-10-20 19:29
+
+梁武锋这是直接跳OA两家脸了，“我每张卡一小时赚38美元，你们呢？”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 17448#       发表于 2026-10-20 19:34
+
+按说oa两家的价格，毛利应该远超这个吧，但是anthropic自己宣传的毛利也就85%
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
