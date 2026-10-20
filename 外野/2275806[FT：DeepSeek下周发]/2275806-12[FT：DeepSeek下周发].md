@@ -11975,3 +11975,53 @@ Blackwell卡
 只要相信梁圣的目的是agi一切都能得到解释，但是很明显很多人不能接受这个解释，因为这样的话就要相信理 ...</blockquote>
 是作为碳基两脚猿猴，对于赛博格之类让裸猿最少某种程度上硬件能对标ai的技术还没点开就先把agi弄出来这种事本能的害怕，我们能不能先等等别的技术路线，偏科的结果搞出铁人叛乱可咋整.jpg
 
+
+*****
+
+####  Promeus  
+##### 17429#       发表于 2026-10-20 18:57
+
+现在的问题就在于梁子可能误判了通往agi的道路<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17430#       发表于 2026-10-20 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401453&amp;ptid=2275806" target="_blank">AEmpire 发表于 2026-10-20 18:11</a>
+幻方真的做空吗，他这个数据不是恰恰说明了做 AI 推理是暴利？</blockquote>
+直接把推理成本底裤扒掉了，o和a不好讲故事了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  绕指流光  
+##### 17431#         楼主| 发表于 2026-10-20 18:59
+
+unsloth 这次也很快啊<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">不过应该还能应用到刚发的 infra 技术
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17432#       发表于 2026-10-20 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401725&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-20 18:57</a>
+现在的问题就在于梁子可能误判了通往agi的道路他可能认为即使有agi也是百花齐放大家一起进步，然而更可能的 ...</blockquote>
+除非o和a能把美国的弹道导弹打出来给⏰咩了，要不然就不可能只有它们抵达agi而其他人做不到
+甚至其他人比他们更早抵达agi可能性都更大，a和o能安稳ipo别原地爆炸就是胜利
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qz66618  
+##### 17433#       发表于 2026-10-20 19:03
+
+大语言模型这一轮的发展能不能真正通向AGI尚不好说，但是有一点是可以确定的，未来的大模型服务一定是会像现在的互联网服务一样铺满整个社会，成为未来生活的科技基建。
+
+因此让人们未来在AI上的消费变成当今习以为常的上网消费（话费、网费等）是必须要走的一条路，目前看来只有DS真正的走在了这条路上。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
