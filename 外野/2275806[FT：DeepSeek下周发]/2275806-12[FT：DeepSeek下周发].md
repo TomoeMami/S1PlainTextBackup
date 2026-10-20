@@ -10219,3 +10219,22 @@ Astra上午一直Selected model is at capacity. Please try a different model.
 
 查看全部评分
 
+
+*****
+
+####  2017.05.04  
+##### 17255#       发表于 2026-10-20 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398997&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-20 10:13</a>
+
+美媒说960dt准备大部分给梁子</blockquote>
+那是个骗订阅的标题党新闻
+
+
+*****
+
+####  darktide  
+##### 17256#       发表于 2026-10-20 10:40
+
+1017版本用起来感觉有个退步的地方，聊天场景下，会投入更多的注意力到最近的对话上面，反而对全局对话（尤其是之前的对话内容）过分忽略，这样的负面作用就是我经常要提醒他从整体考虑及回放之前的对话重点。
+
