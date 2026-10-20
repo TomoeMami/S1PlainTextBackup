@@ -12645,3 +12645,17 @@ Kimi现在本质豆包pro max ultra<img src="https://static.stage1st.com/image/s
 
 干的都是豆姐能干但干不好的事，比如写标书<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 17490#       发表于 2026-10-21 00:03
+
+看 ai 娘二创的又不是都用 ai 的，本来 kimi 了解的人就堪忧，用的人也不算多，很容易透明了。
+
+不过对于视频创作来说，本质还是 kimi 不太有梗，某种意义上 zcode 畜了确实更让人愿意把 glm 娘选进常态互动组里。
+
+说到 glm，狐娘形象也很神奇了，毕竟目前这批定型的形象几乎来自于同一时间的定型，几乎是没有变动的都保留下来了；只有 glm 现有形象是补上了狐的形象，堪称神来之笔
+
+我觉得原作者给现在这批形象基本打了定型的里面，反而是龙娘设计的最出色，古龙在认知里的负面要素太适合 o÷ 了。而且原版形象还有个丢 sora 设计是最绝的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是实在是不太好用上这个设定了
+
