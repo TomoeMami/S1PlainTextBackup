@@ -10037,3 +10037,37 @@ deepseek 1017 幻觉率从96%降到了67%
 
 <img src="https://p.sda1.dev/35/1df7319fa650b1eb93a7a8c3798de814/IMG_0163.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ambivalence  
+##### 17238#       发表于 2026-10-20 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398193&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-20 02:24</a>
+
+今天我们正式推出 Mercury 3——这是迄今发布的最强大的基于扩散的大语言模型（LLM）。在一系列基准测试中 ...</blockquote>
+它这把降噪过程亮出来看起来好他妈酷炫
+
+*****
+
+####  ambivalence  
+##### 17239#       发表于 2026-10-20 08:37
+
+<img src="https://img.stage1st.com/forum/202610/20/083653fv3oro3reqvpjovp.png" referrerpolicy="no-referrer">
+
+<strong>HQZ[IS8F(LJE5~QT843@{7N.png</strong> (100.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 08:36 上传
+
+
+*****
+
+####  lactone  
+##### 17240#       发表于 2026-10-20 08:41
+
+扩散大语言模型用agent的能力天生是稀烂的，所以连terminal  bench都不敢测
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
