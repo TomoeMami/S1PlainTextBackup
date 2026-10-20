@@ -5738,3 +5738,11 @@ boss本质要保证3人也能过的，不可能强到爆炸的，如果还要保
 
 <img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">还没打完，但我觉得这序章和第三部就该删了，第一部把另外四条线加进来，第二部关卡再多做几个或者把第三部好的几关直接搬过来，梦里的全力万紫千红
 
+
+*****
+
+####  duraa  
+##### 7952#       发表于 2026-10-20 13:36
+
+火纹朱紫：决战篇，会有吗<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

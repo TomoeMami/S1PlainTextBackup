@@ -10447,3 +10447,22 @@ GPT 写的代码还容易变成屎山，到处复制，完全不可维护。我�
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  宅男的爱  
+##### 17276#       发表于 2026-10-20 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70398091&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-20 00:58</a>
+
+先不说3.1f的能力如何
+
+我比较好奇，为什么MiniMax这家平常好像没什么讨论度？
+
+还有腾讯的Hy也是</blockquote>
+拟人这波以对话，Code能力为主的LLM为主
+
+Minimax H3和Hunyuan在Comfyui t2v，i2v那边是绕不过去的两座山
+
+——然后Seedance发布了……
+
