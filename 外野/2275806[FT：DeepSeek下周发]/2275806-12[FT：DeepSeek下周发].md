@@ -10842,3 +10842,20 @@ ds的多模态才不到两个月<img src="https://static.stage1st.com/image/smil
 我看aa榜的人说m3.1背题，他们把题目稍微改改，其他模型都能答对，只有m3.1继续输出原题的答案 ...</blockquote>
 mutation test是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 17314#       发表于 2026-10-20 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400650&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-10-20 15:56</a>
+印象里这个结婚的是梁子的亲戚好友之类的，有几张照片里站在后面那个小哥看起来更像梁子，不过我也不是很 ...</blockquote>
+就是说后面那个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 17315#       发表于 2026-10-20 16:08
+
+1017现在的一个情况就是细节紊乱，这也是dsf的通病了
+
