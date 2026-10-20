@@ -10686,3 +10686,26 @@ kimi现在啥情况，新指纹有人测试吗？
 
 自从v4flash能看图之后，kimi的网页版我都几乎没用过了，kimi升级2.8之后网页版越来越不说人话了，而且还特别慢。
 
+
+*****
+
+####  ysubm  
+##### 17298#       发表于 2026-10-20 15:30
+
+严肃项目自然有严肃项目的做法。
+deepseek在我这里的定位属于偏全能的干活模型，再加上现在各家模型都不怎么能说正经的中文，所以有很多比较日常、随意的事情让他做。deepseek这个恰到好处的主动性很舒服。
+希望不要再朝着许愿倾向去做了……（deepseek的员工我知道你在看）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  moekyo  
+##### 17299#       发表于 2026-10-20 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397913&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-19 23:43</a>
+
+哪有很多，不都是发的做Nao榜的那谁在群里嘲讽minimax的截图。我早说了nao榜早就失去了所谓私有测试题的意 ...</blockquote>
+我看到的不是猫棒的这位
+
