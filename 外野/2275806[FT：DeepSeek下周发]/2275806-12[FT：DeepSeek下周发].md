@@ -10637,3 +10637,52 @@ Astra号称“在行动前倾向于先和用户同步意图”，但是我用得
 
 但是我相信依靠暴力往上堆参数自然能涌现更多的智能这个路线是对的，所以DeepSeek做的那些架构创新都是很有价值的工作
 
+
+*****
+
+####  lactone  
+##### 17293#       发表于 2026-10-20 15:16
+
+kimi现在啥情况，新指纹有人测试吗？
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 17294#       发表于 2026-10-20 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400473&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-20 15:16</a>
+kimi现在啥情况，新指纹有人测试吗？
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+等晚上正式发布吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Promeus  
+##### 17295#       发表于 2026-10-20 15:23
+
+<img src="https://p.sda1.dev/35/cdb08feb85f2584597541cad5819de3b/image.jpg" referrerpolicy="no-referrer">
+年轻梁子<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darktide  
+##### 17296#       发表于 2026-10-20 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400425&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-20 15:06</a>
+
+行动力过强我也有感受
+
+其实现在这些oneshot特化的模型聊天的时候开max体验都很差，oneshot的场景比较像那 ...</blockquote>
+感觉就是为了编程特化做的权衡，我是希望Pro能够弥补flash的短板，不然现在就光剩执行了，最关键的设计决策能力缺失的就比较厉害了。
+
+*****
+
+####  小野賢章  
+##### 17297#       发表于 2026-10-20 15:25
+
+自从v4flash能看图之后，kimi的网页版我都几乎没用过了，kimi升级2.8之后网页版越来越不说人话了，而且还特别慢。
+
