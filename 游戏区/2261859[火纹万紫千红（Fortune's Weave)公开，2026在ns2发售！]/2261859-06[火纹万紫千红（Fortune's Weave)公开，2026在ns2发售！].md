@@ -6040,3 +6040,22 @@ boss本质要保证3人也能过的，不可能强到爆炸的，如果还要保
 自己最速挖的乌修拉（A少线26级入队，最速挖和盖茨入队冲突）练起来的属性，A少多 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来了鞑古扎还是盯着芙朵拉人练是吧，你这个臭外地的种族主义者。
 
+
+*****
+
+####  纯夏  
+##### 7976#       发表于 2026-10-21 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402795&amp;ptid=2261859" target="_blank">jockeyjoestar 发表于 2026-10-20 23:05</a>
+
+另外巨大金块怎么刷啊  要8个探影者刷沉船吗</blockquote>
+队伍里带1个恶棍花点回合探索就行了
+
+<img src="https://img.stage1st.com/forum/202610/21/005343h1ytwwdd9t1dwyyj.jpg" referrerpolicy="no-referrer">
+
+<strong>000.JPG</strong> (294.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 00:53 上传
+

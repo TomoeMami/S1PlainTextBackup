@@ -12768,3 +12768,32 @@ seed 爷还拿着远超其他部门的薪酬和回报，这看着真刺激<img s
 
 楼里有没有用的多的老哥，每月200亿token，纯coding，梁文谷大概要多少钱，评估一下性价比<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅夏晴雨  
+##### 17500#       发表于 2026-10-21 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403164&amp;ptid=2275806" target="_blank">PurplePeppers 发表于 2026-10-21 00:37</a>
+
+楼里有没有用的多的老哥，每月200亿token，纯coding，梁文谷大概要多少钱，评估一下性价比 ...</blockquote>
+你这个用量可以直接估算的吧，一般长任务 coding 的 prompt cache 有 99%+，然后假设输出占比是 1% ~ 2%再按照 41f 和 4p 的价格分别来算。
+
+大概是：
+
+41f -&gt; 1400 ~ 2200 元 / 月
+
+4p -&gt; 6600 ~ 9200 元 / 月
+
+
+*****
+
+####  云卷花开  
+##### 17501#       发表于 2026-10-21 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403164&amp;ptid=2275806" target="_blank">PurplePeppers 发表于 2026-10-21 00:37</a>
+楼里有没有用的多的老哥，每月200亿token，纯coding，梁文谷大概要多少钱，评估一下性价比 ...</blockquote>
+5 个 cmg 或者 ocg，五十刀
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
