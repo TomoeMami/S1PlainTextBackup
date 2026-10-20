@@ -10509,3 +10509,52 @@ kimi既然敢发就不会太拉，毕竟还是要顶收入
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cscbzcbz  
+##### 17282#       发表于 2026-10-20 14:28
+
+目前kimi至少得达到准astra水平才符合大家的期待吧，压力挺大的
+
+*****
+
+####  自由之紫roy  
+##### 17283#       发表于 2026-10-20 14:29
+
+期待qwen4max
+
+*****
+
+####  xuanwu_lei  
+##### 17284#       发表于 2026-10-20 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400167&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-20 14:20</a>
+坐等k3.1的表演
+拉了我就要把订阅退了</blockquote>
+难说，我最近的体感是推理卡变多了，K3的速度极大提升<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+也就是说至少一周前就把协调去训练的推理卡退回业务部门了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  umamusume  
+##### 17285#       发表于 2026-10-20 14:36
+
+突然重置了，还好我只剩4％
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  2035年  
+##### 17286#       发表于 2026-10-20 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70400167&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-20 14:20</a>
+
+坐等k3.1的表演
+
+拉了我就要把订阅退了</blockquote>
+我也是，由于KIMI3太贵，其实我最近都很少用了
+
