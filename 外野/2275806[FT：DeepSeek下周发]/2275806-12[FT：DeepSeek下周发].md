@@ -12760,3 +12760,11 @@ seed 爷还拿着远超其他部门的薪酬和回报，这看着真刺激<img s
 年轻梁子</blockquote>
 这男的是他公司合伙人，我听说后来出轨了公司一个下属，梁圣还劝过他几次，后来把那女下属辞退了。
 
+
+*****
+
+####  PurplePeppers  
+##### 17499#       发表于 2026-10-21 00:37
+
+楼里有没有用的多的老哥，每月200亿token，纯coding，梁文谷大概要多少钱，评估一下性价比<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
