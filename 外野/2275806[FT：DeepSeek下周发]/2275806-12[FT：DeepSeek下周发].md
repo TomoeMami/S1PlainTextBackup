@@ -11509,3 +11509,46 @@ https://mp.weixin.qq.com/s/5MEu2eeqNfBWXlkCKTd6sg
 
 搜索服务都不给个每月免费多少次之类的
 
+
+*****
+
+####  inpachi  
+##### 17385#       发表于 2026-10-20 17:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">原来21世纪真有圣人啊……
+
+*****
+
+####  overflowal  
+##### 17386#       发表于 2026-10-20 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401285&amp;ptid=2275806" target="_blank">inpachi 发表于 2026-10-20 17:38</a>
+原来21世纪真有圣人啊……</blockquote>
+本应是最贪婪的金融公司老板是AI时代最无私的贡献者。这不得不说是历史开的玩笑    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  小野賢章  
+##### 17387#       发表于 2026-10-20 17:43
+
+deepseek 缓存有 72 小时，这个可以算是护城河<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛拉斯  
+##### 17388#       发表于 2026-10-20 17:46
+
+这个时间发这个数据，是让美股承压吧，幻方是不是下了很多空单？
+
+*****
+
+####  冤枉呐  
+##### 17389#       发表于 2026-10-20 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401116&amp;ptid=2275806" target="_blank">med 发表于 2026-10-20 17:11</a>
+伟大，无需多言</blockquote>
+网页版自己算了一下，30%利用率，4.7个月卡回本
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
