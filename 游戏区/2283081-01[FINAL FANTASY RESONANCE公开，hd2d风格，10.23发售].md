@@ -3212,3 +3212,18 @@ FF16那个demo你们能看得出来行，也是厉害，光开头的不死鸟打
 
 —— 来自 OnePlus PKX110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  horacio  
+##### 324#       发表于 2026-10-20 22:59
+
+我玩完试玩感觉怎么都不会短,结果主线就20小时,我猜就是幻兵每个人都要练满拿技能,再打几个隐藏boss,但是有没自动战斗..<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑暗之眼  
+##### 325#       发表于 2026-10-20 23:02
+
+FAMI通之前不是都写了，主线20-30小时，完全通关70小时，参考一下不就好了
+

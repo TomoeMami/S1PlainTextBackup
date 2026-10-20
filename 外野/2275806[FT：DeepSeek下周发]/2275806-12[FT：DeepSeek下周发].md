@@ -12463,3 +12463,21 @@ DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  gffdg  
+##### 17474#       发表于 2026-10-20 23:01
+
+有没有啥公文写作方面的ai或者怎么弄能弄个专门写公文的ai
+
+*****
+
+####  jinuzuktII  
+##### 17475#       发表于 2026-10-20 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402778&amp;ptid=2275806" target="_blank">gffdg 发表于 2026-10-20 23:01</a>
+
+有没有啥公文写作方面的ai或者怎么弄能弄个专门写公文的ai</blockquote>
+kimi 吧，前面有楼友推过，我用着也不赖
+
