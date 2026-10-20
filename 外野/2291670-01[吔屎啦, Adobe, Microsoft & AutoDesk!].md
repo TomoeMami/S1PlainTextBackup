@@ -2303,3 +2303,15 @@ https://a.vmall.com/commentList/C100427405
 
 plancraft 找了大肥鱼做汉化，中文显示不出来的原因没有对应的字体，大部分 token 花在截图对比，调整 ui 布局方案和测试上    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  zzy516232108  
+##### 196#       发表于 2026-10-20 22:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜大部分文字编辑类的东西对中文的支持都不是特别好 
+
+支持最好的是word 其次是表格 PPT中文支持太狗屎了
+
+如果支持可以的话我就在公司电脑用了 
+

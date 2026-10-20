@@ -5932,3 +5932,19 @@ boss本质要保证3人也能过的，不可能强到爆炸的，如果还要保
 
 不行就不浪费回合过去了。
 
+
+*****
+
+####  Antidote丶  
+##### 7969#       发表于 2026-10-20 22:06
+
+这不比蕾达自己的主线说辞合理多了
+
+<img src="https://img.stage1st.com/forum/202610/20/220630k8lxcxe00vnpn6p8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (433.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 22:06 上传
+
