@@ -12829,3 +12829,11 @@ gemini4a出来前的宣发里有一个表吹她们自己对于提示词注入的
 gemini4a出来前的宣发里有一个表吹她们自己对于提示词注入的防护第一，但那张表里还有一个我印象深的是kimi ...</blockquote>
 但是argon甚至不需要提示词注入，她自己就会想办法绕开安全护栏完成任务目标<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜鹿  
+##### 17505#       发表于 2026-10-21 03:55
+
+[https://grandet.ai/free-tokens/](https://grandet.ai/free-tokens/) 我的中转站聚合网站增加了免费算力白嫖页面，基本上全网的免费资源都有了，而且自费评测了大概几百个网站，如果有需要的大家可以多用用我的网站，提提意见啥的，主要我自己也做的比较满意了（（
+
