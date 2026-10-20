@@ -11552,3 +11552,43 @@ deepseek 缓存有 72 小时，这个可以算是护城河<img src="https://stat
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  冤枉呐  
+##### 17390#       发表于 2026-10-20 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401142&amp;ptid=2275806" target="_blank">2035年 发表于 2026-10-20 17:13</a>
+每卡每小时 38 美金，有点意思</blockquote>
+30利用率，4.7个月回本
+贩毒回报率尚不如他
+这就是技术的威力吗
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  红魔馆的糖  
+##### 17391#       发表于 2026-10-20 17:54
+
+肥鱼她爹也太牛逼了<img src="https://static.stage1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+等他彻底跑通了各种国产卡的全量训练框架之后估计也会开源出来
+
+*****
+
+####  飞剪号  
+##### 17392#       发表于 2026-10-20 17:55
+
+梁圣简直是当代普罗米修斯，敬畏
+
+*****
+
+####  colice  
+##### 17393#       发表于 2026-10-20 17:57
+
+这一开源，opencode这种公司不得给梁圣磕一个？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HBN-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
