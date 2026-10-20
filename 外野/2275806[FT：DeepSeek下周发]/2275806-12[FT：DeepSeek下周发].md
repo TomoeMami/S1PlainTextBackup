@@ -12481,3 +12481,32 @@ DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活
 有没有啥公文写作方面的ai或者怎么弄能弄个专门写公文的ai</blockquote>
 kimi 吧，前面有楼友推过，我用着也不赖
 
+
+*****
+
+####  飞剪号  
+##### 17476#       发表于 2026-10-20 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402529&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-20 22:10</a>
+
+DS员工是不是给内部肥鱼模型下完指令之后就到群里反串等活自动干完</blockquote>
+这样才对啊，治疗近视眼技术不成熟的证据是眼科医生还戴眼镜，那同理可知deepseek成熟的证据就是ds公司员工天天不干活当串子<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 17477#       发表于 2026-10-20 23:17
+
+<img src="https://img.stage1st.com/forum/202610/20/231641ljk8jkkccpieeczr.jpg" referrerpolicy="no-referrer">
+
+<strong>1E423A502E46B98B2AA2DE78ECA9B353.jpg</strong> (971.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-20 23:16 上传
+
+ <blockquote>(完)
+
+智谱-6.41%</blockquote>
+
