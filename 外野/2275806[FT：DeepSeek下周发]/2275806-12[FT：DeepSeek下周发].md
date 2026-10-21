@@ -14075,3 +14075,17 @@ CodeBuddyAPI又被拦了，估计是要彻底封杀DSH，有毛病啊
 
 如果会计上的亏损不算，那折旧也不用算了呗……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 17601#       发表于 2026-10-21 18:24
+
+4.1 flash 的 api好像没有太多甲，让他用rea这个skill+ida做逆向，演都不演直接开干。
+
+先用公司的有源代码的产品试了下逆向前端混淆+加密狗硬件的代码，在ai眼里和没加密差不多。后端cpp，用工具也是手拿把掐。和真实源代码对照。准确率95%以上。
+
+现在让他去逆向autodesk的一个行业内顶级的商业软件，也是吭哧吭哧地挖出好多内容。
+
+作为一个算法工程师，虽然知道ai逆向强，但是亲自体验后，感觉真的是核弹爆炸了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
