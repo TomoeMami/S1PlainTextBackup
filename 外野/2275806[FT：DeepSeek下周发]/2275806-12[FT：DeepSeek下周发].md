@@ -13245,3 +13245,52 @@ A/的财务肯定有问题，但是大模型公司没有一个赚钱的。你说
 话说国算那个最近有人用过吗？稳定了么？还跟8月那样慢的见鬼 ...</blockquote>
 谢谢我去捣鼓一下
 
+
+*****
+
+####  qq460262849  
+##### 17537#       发表于 2026-10-21 11:08
+
+感觉未来给大模型接上摄像头之后，每秒钟的信息量相比现在都是爆炸得多，上下文更不够用了<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 17538#       发表于 2026-10-21 11:11
+
+<blockquote>2035年 发表于 2026-10-21 11:05
+按照现在推理部分80%的毛利率，只要推理使用算力在一个合理区间，其实就可以实现盈利了啊
+
+今年前七个月DS ...</blockquote>
+所以说a/的财务肯定是有问题的，他的订阅价格比oai有性价比，大概率是打肿脸充胖子，实际财务情况应该比openai差。但是不存在什么卖token毛利润高就应该赚钱的说法。目前传说oa两家的算力70%在训练，这和前段时间传的ds的算力分配比高度一致。而训练算力不考虑无形资产就是纯投入，算力越多，亏损越多，这才是目前的客观情况。openai一样是百亿级的亏损。国内公司普遍亏少一个量级，因为就买不到那么多卡。另外ds下半年的亏损是放大的，因为上半年还没融资买卡，这几个月拿了钱是匡匡烧钱的。
+
+
+*****
+
+####  乔伊  
+##### 17539#       发表于 2026-10-21 11:14
+
+转自微博 @无心简影
+[https://weibo.com/5564927603/RnFamj0J8](https://weibo.com/5564927603/RnFamj0J8)
+
+【#DeepSeek全面开源DeepInfer#】 #DeepSeek宣布开源推理框架#  评论区永远是最精彩的
+
+<img src="https://img.stage1st.com/forum/202610/21/111124b4o5qcmsci65qcc6.jpg" referrerpolicy="no-referrer">
+
+<strong>0064BRSPly1ii9qu6wo6wj30rd0ssnc3.jpg</strong> (163.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 11:11 上传
+
+*****
+
+####  umamusume  
+##### 17540#       发表于 2026-10-21 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404012&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-10-21 09:31</a>
+有时候用户不一定能弄明白自己想要什么，或者模糊的知道自己想要什么无法用文字清晰的表达，或者缺乏相关 ...</blockquote>
+写完你还是得看一下，有些废话太多，还要把gpt特有的防御性要求删掉点
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

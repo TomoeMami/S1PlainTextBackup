@@ -3297,3 +3297,14 @@ fami通算法别是机械化刷幻兵就几十小时了</blockquote>
 
 百补抽到券已经预购港版了，还是希望有积极的市场反馈吧，想看到用这套重置的1-6
 
+
+*****
+
+####  七月狼  
+##### 333#       发表于 2026-10-21 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70263774&amp;ptid=2283081" target="_blank">银域放浪者 发表于 2026-9-21 08:01</a>
+
+为什么像素游戏要放立绘，无法理解</blockquote>
+像素游戏+高清立绘以我的理解应该算是HD2D游戏的一种刻意手法，让人脑对2D画面产生某种错位精致感，差不多跟CV演出和HD光影效果一个意思
+
