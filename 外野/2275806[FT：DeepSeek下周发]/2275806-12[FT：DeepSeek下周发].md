@@ -14024,3 +14024,38 @@ kimi网页版现在为什么能那么蠢...</blockquote>
 
 现在制约你梁叔叔搞AGI的是不是就是算力卡和不懂事来找大肥鱼玩的无聊用户<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17596#       发表于 2026-10-21 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70406625&amp;ptid=2275806" target="_blank">cube 发表于 2026-10-21 16:58</a>
+换客户端工作模式，好点了，但是网页版对话常常鸡同鸭讲。</blockquote>
+K3进阶以下的档位都是k2.8，快速可能是k2.7
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17597#       发表于 2026-10-21 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70406640&amp;ptid=2275806" target="_blank">xuanwu_lei 发表于 2026-10-21 17:00</a>
+首先检查下是不是K3 max
+
+现在默认的强度是「进阶」，「极致」才是max</blockquote>
+K3标准直接路由到2.8去了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  红魔馆的糖  
+##### 17598#       发表于 2026-10-21 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70406669&amp;ptid=2275806" target="_blank">闪电旋风劈 发表于 2026-10-21 17:05</a>
+
+现在制约你梁叔叔搞AGI的是不是就是算力卡和不懂事来找大肥鱼玩的无聊用户 ...</blockquote>
+主要还是卡，梁叔叔看到美国人动不动就叠几千上万张卡跑个什么东西，后续还因为配套资源不足不能继续跑，估计非常扶额
+

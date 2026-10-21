@@ -6396,3 +6396,20 @@ a少线重甲，凯伊线天马，然后合体
 目前愈发觉得肌无力是伪命题，锻造系统给的数值太慷慨了，二周目体验下来60级30+力和50+力也没啥区别，一 ...</blockquote>
 还是有区别的，同样净化剑+追击，30力量打不死怪，50力量直接秒，更不说boss都还比较皮实
 
+
+*****
+
+####  索非亚  
+##### 8005#       发表于 2026-10-21 17:11
+
+绝了，这波是和牢霸换家<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+手动破门也不会强制结束本章，这守城能不能直接投降，不想打<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/21/170938f97asla9a6fasuxz.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1792573777800_2.webp</strong> (380.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 17:09 上传
+
