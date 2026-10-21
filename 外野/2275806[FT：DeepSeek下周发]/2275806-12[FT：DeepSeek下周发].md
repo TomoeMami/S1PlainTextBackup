@@ -14067,3 +14067,11 @@ K3标准直接路由到2.8去了
 
 CodeBuddyAPI又被拦了，估计是要彻底封杀DSH，有毛病啊
 
+
+*****
+
+####  nxmonitor  
+##### 17600#       发表于 2026-10-21 18:07
+
+如果会计上的亏损不算，那折旧也不用算了呗……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
