@@ -6373,3 +6373,15 @@ a少线重甲，凯伊线天马，然后合体
 
 或者跟我一样把第三章的两个疾风之靴喂了
 
+
+*****
+
+####  duraa  
+##### 8003#       发表于 2026-10-21 14:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405188&amp;ptid=2261859" target="_blank">a3a4sc 发表于 2026-10-21 12:46</a>
+第一部非凯伊线选战车是不是比土匪补力量强啊。
+
+还有公认肌无力的强角都有谁，我马克一下 ...</blockquote>
+目前愈发觉得肌无力是伪命题，锻造系统给的数值太慷慨了，二周目体验下来60级30+力和50+力也没啥区别，一个档5个必圣戒指对应5个能用剑的神将，拿着净化剑雷电剑砍马刀能追击能暴击才是王道，补力量导致速技运拉了得不偿失<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

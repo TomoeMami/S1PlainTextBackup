@@ -13473,3 +13473,29 @@ ds说这套方法和他们的硬件高度耦合，暂时不开
 
 提示词工程只是人在蒸馏LLM罢了。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17557#       发表于 2026-10-21 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405481&amp;ptid=2275806" target="_blank">2035年 发表于 2026-10-21 13:44</a>
+这是显而易见的吧，普通人咋可能去用那么贵的玩意
+
+我用KIMI都嫌贵</blockquote>
+Kimi订阅本来就是最没性价比的那一档
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  ttoady  
+##### 17558#       发表于 2026-10-21 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405432&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-10-21 13:34</a>
+
+看昨天的开源和盈利计算，感觉显卡和存储还要涨呀。
+
+那么问题来了，现在要买的话，显卡，内存，ssd。优先买 ...</blockquote>
+现在好像是ssd和内存在跌，显卡暴涨
+
