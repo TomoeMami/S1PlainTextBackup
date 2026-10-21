@@ -13381,3 +13381,15 @@ A处价格这么贵，半年亏800亿，到底在干嘛呢 ...</blockquote>
 
 账面亏800亿其实不让我担心，让我有点忧虑的是Claude Code从6月起用户数增长停滞。考虑到这个时间窗口是Fable和后续的Opus5开始成为主力模型的时间，这说明对于订阅用户来说目前的Token价格存在一个硬上限，Fable的定价已经太高了
 
+
+*****
+
+####  夏风  
+##### 17548#       发表于 2026-10-21 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403471&amp;ptid=2275806" target="_blank">chilming 发表于 2026-10-21 06:40</a>
+求问，是乐乐趣的书吗，可以分享一下工具吗</blockquote>
+不是哎，是piyopen的。
+
+—— 来自 vivo V2454DA, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
