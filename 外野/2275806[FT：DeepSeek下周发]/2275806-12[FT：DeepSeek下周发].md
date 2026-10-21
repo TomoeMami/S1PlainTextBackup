@@ -13442,3 +13442,34 @@ workbuddy2api 一个最好用的分支停止维护了，现在workbuddy对反代
 梁圣那个infra问了下ai说是没说KVcache的调度方法？</blockquote>
 ds说这套方法和他们的硬件高度耦合，暂时不开
 
+
+*****
+
+####  qwased  
+##### 17554#       发表于 2026-10-21 13:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404810&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-10-21 11:32</a>
+这个为什么要出提示词呢，我习惯都是直接让模型从第一性原理出发，理解用户一般需要什么，可以先把自己理 ...</blockquote>
+现在的llm被训练成注意力集中在头尾，如果对话开始你不把任务写好，可能跑久一点他就忘掉了
+工具太多导致系统提示词过长也会有这个情况<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hugosol  
+##### 17555#       发表于 2026-10-21 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404810&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-10-21 11:32</a>
+
+这个为什么要出提示词呢，我习惯都是直接让模型从第一性原理出发，理解用户一般需要什么，可以先把自己理 ...</blockquote>
+是的，跟LLM对话时不要只讲自己要干什么（how)，把背后的原因（why）也说出来，这样可以极大减少沟通成本
+
+不要忘记大模型在大部分领域都比你要有经验，真当它实习生只会呼呼喝喝那肯定要闯祸的，这也是最能体现领导水平的地方<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  knnknn  
+##### 17556#       发表于 2026-10-21 13:57
+
+提示词工程只是人在蒸馏LLM罢了。
+
