@@ -13055,3 +13055,140 @@ A处价格这么贵，半年亏800亿，到底在干嘛呢
 
 话说国算那个最近有人用过吗？稳定了么？还跟8月那样慢的见鬼吗
 
+
+*****
+
+####  normalli  
+##### 17524#       发表于 2026-10-21 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404334&amp;ptid=2275806" target="_blank">2035年 发表于 2026-10-21 10:18</a>
+怎么能亏这么多的，梁圣价格定这么低，都能几个月回本
+
+A处价格这么贵，半年亏800亿，到底在干嘛呢 ...</blockquote>
+这玩意是重资产
+
+*****
+
+####  2017.05.04  
+##### 17525#       发表于 2026-10-21 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404420&amp;ptid=2275806" target="_blank">沙发沙发 发表于 2026-10-21 10:33</a>
+
+看见DeepSeek开源内部推理框架了，现在第三方想复现原价api是不是已经没什么障碍了 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/21/104349jetqdmp91pp0jp3s.png" referrerpolicy="no-referrer">
+
+<strong>9155ad91b85474fbc2fcf00c99c2e3cf.png</strong> (228.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 10:43 上传
+
+还有点差距，不过不大了
+
+vLLM做完优化说还差6%
+
+*****
+
+####  2035年  
+##### 17526#       发表于 2026-10-21 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404503&amp;ptid=2275806" target="_blank">normalli 发表于 2026-10-21 10:44</a>
+
+这玩意是重资产</blockquote>
+传统的所谓重资产，除了资产价格高，还有回本周期慢
+
+算力如果能半年回本，那根本不能按传统的重资产来定义
+
+倒是A处不知道是效率问题还是什么，搞得比传统的重资产还重的样子
+
+*****
+
+####  cscbzcbz  
+##### 17527#       发表于 2026-10-21 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404504&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-10-21 10:44</a>
+还有点差距，不过不大了
+
+vLLM做完优化说还差6%</blockquote>
+真印钞机了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  normalli  
+##### 17528#       发表于 2026-10-21 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404385&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-10-21 10:28</a>
+人类的记忆是模拟的，用来记文字可能确实寒酸，但是记场景和动作这类东西转成token指不定上万亿呢 ...</blockquote>
+我认为人脑中确实有和token类似的机制，它不是文字，和向量有类似的结构，但不是那么准确的数值，代表更抽象的概念，当然人脑和计算机完全不同，记忆更多的是一种过程而不是数据，人脑能同时激活的过程极其有限
+
+
+*****
+
+####  天桥夜风  
+##### 17529#       发表于 2026-10-21 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404334&amp;ptid=2275806" target="_blank">2035年 发表于 2026-10-21 10:18</a>
+
+怎么能亏这么多的，梁圣价格定这么低，都能几个月回本
+
+A处价格这么贵，半年亏800亿，到底在干嘛呢 ...</blockquote>
+梁子只需要不断提升斩杀线，A处要考虑的可就多了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+随便猜几个点，首先双方手头的现金价格（利息等）估计就不一样，其次硬件上无论是机房还是卡包括电国内的应该都便宜点，然后人工成本肯定也差距很大，最后A处要维持万亿估值上市的幻想应该有一些为了1%烧100倍成本的做法吧
+
+*****
+
+####  med  
+##### 17530#       发表于 2026-10-21 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403164&amp;ptid=2275806" target="_blank">PurplePeppers 发表于 2026-10-21 00:37</a>
+
+楼里有没有用的多的老哥，每月200亿token，纯coding，梁文谷大概要多少钱，评估一下性价比 ...</blockquote>
+我看了一下记录，最近三十天150亿，1100。
+
+使用峰谷差不多，前几天有pro还没切换。
+
+Cost
+
+¥1,098.87
+
+CNY
+
+API requests
+
+51,360
+
+Tokens
+
+15,735,345,177
+
+*****
+
+####  tillnight  
+##### 17531#       发表于 2026-10-21 10:55
+
+<blockquote>2035年 发表于 2026-10-21 10:18
+怎么能亏这么多的，梁圣价格定这么低，都能几个月回本
+
+A处价格这么贵，半年亏800亿，到底在干嘛呢 ...</blockquote>
+能不能不要复读回本，太招黑了。
+
+A/的财务肯定
+
+*****
+
+####  UncleDracula  
+##### 17532#       发表于 2026-10-21 10:56
+
+你们有用CodeBuddy的API吗？DSH被CodeBuddy拉黑了？
+
+<img src="https://img.stage1st.com/forum/202610/21/105637dnk25thtkfh3nstl.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (51.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 10:56 上传
+
