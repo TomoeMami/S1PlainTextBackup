@@ -2002,3 +2002,23 @@ Tracklist
 
        Magnet連接typeII: magnet:?xt=urn:btih:798d9f0783b4a048c229660afec6d0ba2a82846a
 
+
+*****
+
+####  堀内爱里衣  
+##### 42146#       发表于 2026-10-21 10:18
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/21/101848gbygc1vj8ry1vbck.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-21_10-17-17.png</strong> (994.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 10:18 上传
+
+       [https://x.com/bang_dream_info/status/2112710470280814642](https://x.com/bang_dream_info/status/2112710470280814642)
+
+       [https://bang-dream.com/discographies/4238](https://bang-dream.com/discographies/4238)
+

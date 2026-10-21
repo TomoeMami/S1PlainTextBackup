@@ -13004,3 +13004,23 @@ Tokens
 
 主要是非互联网相关公司内部自编软件的代码维护，不少陈年玩意需要弄
 
+
+*****
+
+####  normalli  
+##### 17519#       发表于 2026-10-21 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404243&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-21 10:04</a>
+昨晚上发现一个问题同会话太长了会导致1017回复明显劣化，最后会甚至劣化到他没法总结上文导致我交接都交不 ...</blockquote>
+这是目前大模型的上下文窗口的限制，记忆压缩都是有损的，但人类上下文窗口大概只有不到10个token，是靠分层记忆解决的，大约是按照意识–短期记忆–长期记忆–外部记录顺序检索，同时也会有幻觉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2035年  
+##### 17520#       发表于 2026-10-21 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403845&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-21 09:04</a></blockquote>
+怎么能亏这么多的，梁圣价格定这么低，都能几个月回本
+
+A处价格这么贵，半年亏800亿，到底在干嘛呢
+
