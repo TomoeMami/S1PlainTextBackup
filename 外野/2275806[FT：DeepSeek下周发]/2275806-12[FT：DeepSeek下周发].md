@@ -13552,3 +13552,13 @@ Kimi订阅本来就是最没性价比的那一档
 —— 来自 samsung SM-S9480, And ...</blockquote>
 看任务吧，这种不算太复杂的任务一般输出内容不超过3000字，直接根据结果来调也没问题。其实我一般不找GPT干这事，昨天用astra是因为我订阅快到期不想续了，但是重置卡没用完。体感来说找K3或Opus5.5得到的结果比较接近我的想法
 
+
+*****
+
+####  Promeus  
+##### 17563#       发表于 2026-10-21 14:21
+
+https://m.163.com/dy/article/L9NOC68L055616EC.html
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
