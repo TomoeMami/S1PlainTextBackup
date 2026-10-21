@@ -401,7 +401,7 @@
     "newtitle": "[【七代目】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "lastedit": 1792332125,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2086516": {
@@ -13667,7 +13667,7 @@
     "newtitle": "[优米亚炼金工房意料之外的体验，记录一下]",
     "lastedit": 1792332007,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2283071": {
@@ -14639,15 +14639,6 @@
     "newtitle": "[数学界大新闻，openai公布大量数学成果。]",
     "lastedit": 1791651847,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2287529": {
-    "totalreply": 104,
-    "title": "[突然发现樱木花道这个角色有点意思]",
-    "newtitle": "[突然发现樱木花道这个角色有点意思]",
-    "lastedit": 1791381965,
-    "category": "漫区",
     "active": false,
     "update": false
   },
