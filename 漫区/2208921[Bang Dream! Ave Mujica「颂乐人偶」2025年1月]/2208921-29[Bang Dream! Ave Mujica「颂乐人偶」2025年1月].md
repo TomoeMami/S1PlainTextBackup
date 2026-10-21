@@ -2022,3 +2022,13 @@ Tracklist
 
        [https://bang-dream.com/discographies/4238](https://bang-dream.com/discographies/4238)
 
+
+*****
+
+####  最爱面包超人  
+##### 42147#       发表于 2026-10-21 12:36
+
+香港周末场吃个饭的功夫就没票了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHW110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.97
+
