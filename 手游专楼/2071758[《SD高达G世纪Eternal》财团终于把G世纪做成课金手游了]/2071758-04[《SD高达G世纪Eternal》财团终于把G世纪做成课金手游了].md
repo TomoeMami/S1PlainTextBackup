@@ -2311,3 +2311,11 @@ C5E423D38F92CAD2C205BB6430E7B5DF.jpg
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  森兰丸  
+##### 4911#       发表于 2026-10-21 15:46
+
+这ULT改造该去哪里弄.....无论是开发界面还是机体强化界面都找不到改造的选项啊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
