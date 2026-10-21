@@ -14102,3 +14102,24 @@ CodeBuddyAPI又被拦了，估计是要彻底封杀DSH，有毛病啊
 先用公司的有源代码 ...</blockquote>
 用自家公司的私有代码测试AI反向工程吗？心有点太大了
 
+
+*****
+
+####  crow_wine  
+##### 17603#       发表于 2026-10-21 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70407146&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-21 18:43</a>
+用自家公司的私有代码测试AI反向工程吗？心有点太大了</blockquote>
+日常用ai早就漏光了
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 17604#       发表于 2026-10-21 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70406493&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-21 16:38</a>
+请问，如何开启subagent多专家化呢？需要使用特定的harness吗？</blockquote>
+现在cc codex omp什么的应该都有 专家化其实说白了就是特定角色特定提示词 让一个subagent专注某个方面深挖
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
