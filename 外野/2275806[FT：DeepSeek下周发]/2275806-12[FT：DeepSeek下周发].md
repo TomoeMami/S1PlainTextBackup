@@ -13338,3 +13338,17 @@ A/的财务肯定有问题，但是大模型公司没有一个赚钱的。你说
 
 我是自定义preamble的，看来拦不到我
 
+
+*****
+
+####  UncleDracula  
+##### 17545#       发表于 2026-10-21 12:36
+
+ 本帖最后由 UncleDracula 于 2026-10-21 12:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405076&amp;ptid=2275806" target="_blank">needagf 发表于 2026-10-21 12:21</a>
+
+我说昨天晚上dsh里没法使用workbuddy的额度了，怎么修都不行，但是pi里的可以。
+
+这么一看就懂了。 ...</blockquote>
+沙雕企鹅又开始干没皮炎的事了。我让DSH把默认提示词的You are an AI agent powered by DeepSeek Harness的powered by DeepSeek Harness去掉就可以了。或者极简模式不改也可以用。
+
