@@ -13352,3 +13352,32 @@ A/的财务肯定有问题，但是大模型公司没有一个赚钱的。你说
 这么一看就懂了。 ...</blockquote>
 沙雕企鹅又开始干没皮炎的事了。我让DSH把默认提示词的You are an AI agent powered by DeepSeek Harness的powered by DeepSeek Harness去掉就可以了。或者极简模式不改也可以用。
 
+
+*****
+
+####  serj005  
+##### 17546#       发表于 2026-10-21 13:04
+
+workbuddy2api 一个最好用的分支停止维护了，现在workbuddy对反代管理越来越严了
+
+<img src="https://img.stage1st.com/forum/202610/21/114944szzybe4pebdpy9em.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1792554584480_1.webp</strong> (130.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 11:49 上传
+
+*****
+
+####  andychen  
+##### 17547#       发表于 2026-10-21 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404334&amp;ptid=2275806" target="_blank">2035年 发表于 2026-10-21 10:18</a>
+怎么能亏这么多的，梁圣价格定这么低，都能几个月回本
+
+A处价格这么贵，半年亏800亿，到底在干嘛呢 ...</blockquote>
+我还没仔细看S1文件，不过就我猜测，一方面Anthropic没有将手上的算力资源主要投入到盈利的推理业务中，另一方面今年还花大价钱四处收购新的算力资源。另外他们今年还开了很多新坑，还有挖人，运营成本这块肯定也不低
+
+账面亏800亿其实不让我担心，让我有点忧虑的是Claude Code从6月起用户数增长停滞。考虑到这个时间窗口是Fable和后续的Opus5开始成为主力模型的时间，这说明对于订阅用户来说目前的Token价格存在一个硬上限，Fable的定价已经太高了
+
