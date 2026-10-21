@@ -2380,3 +2380,14 @@ ult武装还是不错，变形也能用，红蛇弱点没了
 是加了高难关的系列才能改</blockquote>
 原来不是都开了啊....我厨力全开就想改台艾比安<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gpx234mqx  
+##### 4915#       发表于 2026-10-21 18:59
+
+<blockquote>森兰丸 发表于 2026-10-21 18:44
+原来不是都开了啊....我厨力全开就想改台艾比安</blockquote>
+
+那么就先把ew的图鉴全部满级满破，等来了可以直接改
+
