@@ -6317,3 +6317,15 @@ T：防御T-阻绝 ；飞行-威胁察觉；
 
 转飞马。
 
+
+*****
+
+####  5ew47  
+##### 7999#       发表于 2026-10-21 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405240&amp;ptid=2261859" target="_blank">chiziru 发表于 2026-10-21 12:56</a>
+第三部 待在基地的角色兵种武器熟练度会涨吗
+
+—— 来自 Xiaomi 2510DRK44C, Android 16, 鹅球 v3.5.99 ...</blockquote>
+不会，基地里只涨经验值和兵种经验值
+

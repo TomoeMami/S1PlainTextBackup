@@ -13393,3 +13393,21 @@ A处价格这么贵，半年亏800亿，到底在干嘛呢 ...</blockquote>
 
 —— 来自 vivo V2454DA, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  overflowal  
+##### 17549#       发表于 2026-10-21 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405272&amp;ptid=2275806" target="_blank">serj005 发表于 2026-10-21 13:04</a>
+workbuddy2api 一个最好用的分支停止维护了，现在workbuddy对反代管理越来越严了
+ ...</blockquote>
+做这种东西脑子有点不清楚，薅opencode之类的的反代可以，薅腾子的，属实是屁股痒了想蹲号子了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  jojog  
+##### 17550#       发表于 2026-10-21 13:21
+
+梁圣那个infra问了下ai说是没说KVcache的调度方法？
+
