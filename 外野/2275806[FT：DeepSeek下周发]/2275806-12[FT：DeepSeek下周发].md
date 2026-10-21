@@ -13725,3 +13725,35 @@ DeepInfer。
 
 没有人比我们更懂开源。
 
+
+*****
+
+####  scp073  
+##### 17571#       发表于 2026-10-21 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70397382&amp;ptid=2275806" target="_blank">谎称 发表于 2026-10-19 20:56</a>
+
+workbuddy2api－hub</blockquote>
+您好，小白想问一下这个封号风险大吗，是不是不建议使用自己的常用账号薅羊毛呀
+
+*****
+
+####  eno_emos  
+##### 17572#       发表于 2026-10-21 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405923&amp;ptid=2275806" target="_blank">scp073 发表于 2026-10-21 15:03</a>
+
+您好，小白想问一下这个封号风险大吗，是不是不建议使用自己的常用账号薅羊毛呀 ...</blockquote>
+用别怕 怕别用 封别叫
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞剪号  
+##### 17573#       发表于 2026-10-21 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405889&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-10-21 14:56</a>
+
+我们 DeepSeek 做出了世界上最伟大的开源技术。没有人比我更懂开源。没有人。我懂得非常多。很多人告诉我， ...</blockquote>
+可能已经有很多人不记得了，oAI在仅仅一年前才刚刚转为真正的商业公司，这家真的是钻进钱眼子里了
+
