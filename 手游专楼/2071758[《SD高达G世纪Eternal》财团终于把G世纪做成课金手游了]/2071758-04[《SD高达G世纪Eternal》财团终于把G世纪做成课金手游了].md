@@ -2319,3 +2319,15 @@ C5E423D38F92CAD2C205BB6430E7B5DF.jpg
 
 这ULT改造该去哪里弄.....无论是开发界面还是机体强化界面都找不到改造的选项啊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 4912#       发表于 2026-10-21 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70406152&amp;ptid=2071758" target="_blank">森兰丸 发表于 2026-10-21 15:46</a>
+这ULT改造该去哪里弄.....无论是开发界面还是机体强化界面都找不到改造的选项啊 ...</blockquote>
+就开了几台，不是每台都有的
+
+—— 来自 HONOR PPG-AN00, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
