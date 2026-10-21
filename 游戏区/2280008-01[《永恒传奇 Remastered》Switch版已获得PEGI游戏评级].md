@@ -3967,3 +3967,15 @@ L1+O，X放技能好别扭啊，不能改成L2，R2嘛？
 是我老了还是显示器刷新率/手柄按键响应的问题怎么我利德连段好难取消啊，有些连段成功率只有70%，法拉好一 ...</blockquote>
 应该就是永恒的判定会严格一些吧，宿命2可能就有所放宽了，后面仙乐和深渊就更宽了
 
+
+*****
+
+####  黒長直姫  
+##### 358#       发表于 2026-10-21 07:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402910&amp;ptid=2280008" target="_blank">寺胖 发表于 2026-10-20 23:27</a>
+应该就是永恒的判定会严格一些吧，宿命2可能就有所放宽了，后面仙乐和深渊就更宽了 ...</blockquote>
+我以前半自动带手搓随便火龙炎舞的啊，现在半自动招都续不上了555
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
