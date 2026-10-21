@@ -13192,3 +13192,56 @@ A/的财务肯定
 
 2026-10-21 10:56 上传
 
+
+*****
+
+####  lactone  
+##### 17533#       发表于 2026-10-21 10:58
+
+tibo说codex永久保存提示词缓存
+
+然后传到国内变成了永久保存kv cache<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+然后咩鳖
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  holmesjerry  
+##### 17534#       发表于 2026-10-21 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404568&amp;ptid=2275806" target="_blank">天桥夜风 发表于 2026-10-21 10:54</a>
+梁子只需要不断提升斩杀线，A处要考虑的可就多了
+
+随便猜几个点，首先双方手头的现金价格（利息等）估计 ...</blockquote>
+那反了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">国内获取同等算力的卡的成本是国外的4倍（英伟达b300）或者大于4倍（昇腾），跟这个最大的capex比起来机房供电都是小钱
+
+*****
+
+####  2035年  
+##### 17535#       发表于 2026-10-21 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404584&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-21 10:55</a>
+
+能不能不要复读回本，太招黑了。
+
+A/的财务肯定有问题，但是大模型公司没有一个赚钱的。你说的回本指的是t ...</blockquote>
+按照现在推理部分80%的毛利率，只要推理使用算力在一个合理区间，其实就可以实现盈利了啊
+
+今年前七个月DS只亏了7亿（information报道），全年只有10亿，和A处差了三个数量级
+
+实在是有点匪夷所思了
+
+*****
+
+####  warlock228  
+##### 17536#       发表于 2026-10-21 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404435&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-10-21 10:35</a>
+六七十块这个档位有opencodego，凑合也能用
+
+话说国算那个最近有人用过吗？稳定了么？还跟8月那样慢的见鬼 ...</blockquote>
+谢谢我去捣鼓一下
+
