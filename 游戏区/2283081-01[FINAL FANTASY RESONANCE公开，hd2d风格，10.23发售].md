@@ -3278,3 +3278,14 @@ fami通算法别是机械化刷幻兵就几十小时了</blockquote>
 
 虽然手游很久前玩的，但是我记得主线还是有历代ff的neta，我一路推剧情挺久的，而且第一部的城镇越做越大，体量很大的，就怕se后面又开始缩水
 
+
+*****
+
+####  godless2020  
+##### 331#       发表于 2026-10-21 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70402590&amp;ptid=2283081" target="_blank">白昼梦DD 发表于 2026-10-20 22:22</a>
+
+别刷完幻兵没事干吧</blockquote>
+隐藏BOSS有神龙 欧米茄 创世，贝希摩斯 血都是几百万的
+

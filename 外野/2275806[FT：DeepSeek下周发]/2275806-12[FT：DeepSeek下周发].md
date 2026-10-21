@@ -12891,3 +12891,13 @@ gemini4a出来前的宣发里有一个表吹她们自己对于提示词注入的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 17511#       发表于 2026-10-21 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403164&amp;ptid=2275806" target="_blank">PurplePeppers 发表于 2026-10-21 00:37</a>
+楼里有没有用的多的老哥，每月200亿token，纯coding，梁文谷大概要多少钱，评估一下性价比 ...</blockquote>
+coding任务1亿≈10块
+
