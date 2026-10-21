@@ -3346,3 +3346,13 @@ FINAL FANTASY RESONANCE Trophy (奖杯) - PS5 - Exophase.com [https://www.exopha
 
 后面会有不遇敌的道具或技能吗
 
+
+*****
+
+####  saberserker  
+##### 338#       发表于 2026-10-21 17:41
+
+之前打完DEMO这演出搞得我真有点热血沸腾，结果这隔一月才出到现在这股购买冲动已经没了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
