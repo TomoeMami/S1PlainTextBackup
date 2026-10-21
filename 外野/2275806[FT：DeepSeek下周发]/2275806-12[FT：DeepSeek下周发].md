@@ -14123,3 +14123,14 @@ CodeBuddyAPI又被拦了，估计是要彻底封杀DSH，有毛病啊
 
 — from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  奈落的孤火花  
+##### 17605#       发表于 2026-10-21 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405763&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-10-21 14:35</a>
+
+这不就是vibe coding的时候让LLM给你写plan.md吗，都是一样的道理啊。而且我做的是法律工作，绝对不可能 ...</blockquote>
+那应该就是先说一个自己的目的，然后让AI去拓展思路，然后自己再去修剪AI的提示词，最后整合一下发给他，是吧？
+
