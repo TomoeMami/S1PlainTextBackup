@@ -12936,3 +12936,39 @@ Tokens
 
 2,027,317,311</blockquote>
 
+
+*****
+
+####  ww-tsl  
+##### 17514#       发表于 2026-10-21 09:26
+
+ 本帖最后由 ww-tsl 于 2026-10-21 09:30 编辑 
+
+关于cherry studio的问题。
+
+以前的默认模型是pro，但是今天不知怎么的，在动了某些设置之后，默认模型变成了flash，并且在设置一栏中也不再能选择pro了。
+<strong>不是token的问题，还有很多token。</strong>
+
+这是怎么回事？
+
+3.png
+(237.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 09:21 上传
+
+<img src="https://img.stage1st.com/forum/202610/21/092126w94kw4495rnjd542.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 17515#       发表于 2026-10-21 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403944&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-10-21 09:21</a>
+
+提示词工程有哪些呢，我写skill感觉好像还是gpt严谨一些哎，kimi感觉不太行，不知道你是把提示词工程用在 ...</blockquote>
+有时候用户不一定能弄明白自己想要什么，或者模糊的知道自己想要什么无法用文字清晰的表达，或者缺乏相关的经验没有办法全面的阐述需求，这时候就先找AI聊，让AI给你出prompt。
+
+举个例子： <blockquote>这里有两份用户协议，是由委托人起草、律师修改过一轮的产物。请你拟定一份prompt，我交给AI进行审核，目标是生成一份审核意见，但不要太冗长，能指出关键问题和修改建议就可以。</blockquote>
+
