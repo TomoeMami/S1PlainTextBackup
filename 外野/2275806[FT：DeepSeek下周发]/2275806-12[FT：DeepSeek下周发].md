@@ -13867,3 +13867,18 @@ kimi3.1和qwen4呢？<img src="https://static.stage1st.com/image/smiley/face2017
 
 codebuddy反代刚用一天就挂了，但签到的积分都拿了干脆还是下个把羊毛薅净再说吧。
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 17584#       发表于 2026-10-21 15:58
+
+workbuddy的积分被我拿去模块重构和处理注释了。活人感很强。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 17585#       发表于 2026-10-21 16:01
+
+来个大参数的新模型吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">4.1pro，kimi3.1
+
