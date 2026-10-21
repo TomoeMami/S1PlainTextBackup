@@ -13829,3 +13829,33 @@ kimi3.1和qwen4呢？<img src="https://static.stage1st.com/image/smiley/face2017
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  飛霞精灵  
+##### 17580#       发表于 2026-10-21 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405630&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-21 14:12</a></blockquote>
+不是你等会，要是别的大模型说把DS卷到加班也就罢了，混元？？？
+
+*****
+
+####  qz66618  
+##### 17581#       发表于 2026-10-21 15:38
+
+这个月肯定会发的，性能肯定也能比得过dsf4.1，只不过估计不会有想象中那么大差距了，我猜能够到fable5水准
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 17582#       发表于 2026-10-21 15:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+目前看1017在我的场景里用subagent多专家化一下智力真的超级高 甚至高过astra
+虽然指令遵循确实变拉了 但是换到能力提升的话感觉也还可以接受 现在cpp水平应该比我们今年招的那些fresh grad的普通水平要强了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> 
+
+感觉要和老板说推荐明年少招人多加工资了。。。
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
