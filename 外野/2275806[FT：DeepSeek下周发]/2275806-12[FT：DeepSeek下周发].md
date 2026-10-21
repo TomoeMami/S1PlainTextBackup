@@ -13294,3 +13294,15 @@ A/的财务肯定有问题，但是大模型公司没有一个赚钱的。你说
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  ycjiang1337  
+##### 17541#       发表于 2026-10-21 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404640&amp;ptid=2275806" target="_blank">holmesjerry 发表于 2026-10-21 11:04</a>
+那反了国内获取同等算力的卡的成本是国外的4倍（英伟达b300）或者大于4倍（昇腾），跟这个最大的capex比 ...</blockquote>
+现在950DT单卡25万，四台32卡机器给你按1200万算，然后八卡B300机器是1300万一台，所以你怎么算出来大于的？
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
