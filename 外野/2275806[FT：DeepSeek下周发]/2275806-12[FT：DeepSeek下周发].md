@@ -12875,3 +12875,19 @@ gemini4a出来前的宣发里有一个表吹她们自己对于提示词注入的
 
 美国模型搞得什么日月星辰的名字，太文艺了，又不好记
 
+
+*****
+
+####  Promeus  
+##### 17510#       发表于 2026-10-21 09:04
+
+<img src="https://img.stage1st.com/forum/202610/21/090443rlq1wj0924a7qa91.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3551.png</strong> (98.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 09:04 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
