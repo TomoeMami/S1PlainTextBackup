@@ -2288,3 +2288,16 @@ C5E423D38F92CAD2C205BB6430E7B5DF.jpg
 有44就行，看看掉毛，44是大舅子船</blockquote>
 4小强带大舅子，正好一个队<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 4909#       发表于 2026-10-21 08:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70401412&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-10-20 18:01</a>
+
+再生现在只能坚牢
+
+作为ur词条太差了</blockquote>
+监牢还是不错的，开发机那边海牛和大白鹅都很优秀
+
