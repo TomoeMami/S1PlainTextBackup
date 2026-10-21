@@ -12901,3 +12901,38 @@ gemini4a出来前的宣发里有一个表吹她们自己对于提示词注入的
 楼里有没有用的多的老哥，每月200亿token，纯coding，梁文谷大概要多少钱，评估一下性价比 ...</blockquote>
 coding任务1亿≈10块
 
+
+*****
+
+####  奈落的孤火花  
+##### 17512#       发表于 2026-10-21 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403079&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-21 00:07</a>
+
+我算是KIMI用得比较多的，在Argon出来前我的所有提示词工程工作全都是K3处理
+
+感觉他们真挺缺算力的，K3 ...</blockquote>
+提示词工程有哪些呢，我写skill感觉好像还是gpt严谨一些哎，kimi感觉不太行，不知道你是把提示词工程用在哪里
+
+*****
+
+####  费雷拉  
+##### 17513#       发表于 2026-10-21 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70403164&amp;ptid=2275806" target="_blank">PurplePeppers 发表于 2026-10-21 00:37</a>
+
+楼里有没有用的多的老哥，每月200亿token，纯coding，梁文谷大概要多少钱，评估一下性价比 ...</blockquote>
+我一个月消费，基本上梁文峰，很少梁文谷。纯code。 <blockquote>消费金额
+
+¥164.91
+
+CNY
+
+API 请求次数
+
+7,777
+
+Tokens
+
+2,027,317,311</blockquote>
+
