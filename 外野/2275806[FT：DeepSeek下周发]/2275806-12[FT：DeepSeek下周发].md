@@ -13757,3 +13757,43 @@ workbuddy2api－hub</blockquote>
 我们 DeepSeek 做出了世界上最伟大的开源技术。没有人比我更懂开源。没有人。我懂得非常多。很多人告诉我， ...</blockquote>
 可能已经有很多人不记得了，oAI在仅仅一年前才刚刚转为真正的商业公司，这家真的是钻进钱眼子里了
 
+
+*****
+
+####  斯卡文分则能成  
+##### 17574#       发表于 2026-10-21 15:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/21/150822p11cw53sor3fwszf.jpg" referrerpolicy="no-referrer">
+
+<strong>111.jpg</strong> (86.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 15:08 上传
+
+*****
+
+####  乌桃内设格温  
+##### 17575#       发表于 2026-10-21 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405889&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-10-21 14:56</a>
+我们 DeepSeek 做出了世界上最伟大的开源技术。没有人比我更懂开源。没有人。我懂得非常多。很多人告诉我， ...</blockquote>
+特梁普
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  hencechen  
+##### 17576#       发表于 2026-10-21 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405889&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-10-21 14:56</a>
+
+我们 DeepSeek 做出了世界上最伟大的开源技术。没有人比我更懂开源。没有人。我懂得非常多。很多人告诉我， ...</blockquote>
+好发言，但是我想稍作修改
+
+最后落款要加上“谢谢您对此事的关注！”
+
