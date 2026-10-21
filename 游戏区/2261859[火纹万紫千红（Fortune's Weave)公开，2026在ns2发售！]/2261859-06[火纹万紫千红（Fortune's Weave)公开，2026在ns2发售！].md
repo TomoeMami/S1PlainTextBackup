@@ -6385,3 +6385,14 @@ a少线重甲，凯伊线天马，然后合体
 还有公认肌无力的强角都有谁，我马克一下 ...</blockquote>
 目前愈发觉得肌无力是伪命题，锻造系统给的数值太慷慨了，二周目体验下来60级30+力和50+力也没啥区别，一个档5个必圣戒指对应5个能用剑的神将，拿着净化剑雷电剑砍马刀能追击能暴击才是王道，补力量导致速技运拉了得不偿失<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParukiaMKII  
+##### 8004#       发表于 2026-10-21 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405577&amp;ptid=2261859" target="_blank">duraa 发表于 2026-10-21 14:04</a>
+
+目前愈发觉得肌无力是伪命题，锻造系统给的数值太慷慨了，二周目体验下来60级30+力和50+力也没啥区别，一 ...</blockquote>
+还是有区别的，同样净化剑+追击，30力量打不死怪，50力量直接秒，更不说boss都还比较皮实
+
