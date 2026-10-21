@@ -14089,3 +14089,16 @@ CodeBuddyAPI又被拦了，估计是要彻底封杀DSH，有毛病啊
 
 作为一个算法工程师，虽然知道ai逆向强，但是亲自体验后，感觉真的是核弹爆炸了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 17602#       发表于 2026-10-21 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70407070&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-10-21 18:24</a>
+
+4.1 flash 的 api好像没有太多甲，让他用rea这个skill+ida做逆向，演都不演直接开干。
+
+先用公司的有源代码 ...</blockquote>
+用自家公司的私有代码测试AI反向工程吗？心有点太大了
+

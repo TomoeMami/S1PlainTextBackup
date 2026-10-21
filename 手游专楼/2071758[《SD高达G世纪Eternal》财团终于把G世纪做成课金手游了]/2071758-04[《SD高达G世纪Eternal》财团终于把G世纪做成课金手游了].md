@@ -2367,3 +2367,16 @@ ult武装还是不错，变形也能用，红蛇弱点没了
 
 2026-10-21 17:48 上传
 
+
+*****
+
+####  森兰丸  
+##### 4914#       发表于 2026-10-21 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70406900&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-10-21 17:48</a>
+
+你ur100级了没有？就在改造这里
+
+是加了高难关的系列才能改</blockquote>
+原来不是都开了啊....我厨力全开就想改台艾比安<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

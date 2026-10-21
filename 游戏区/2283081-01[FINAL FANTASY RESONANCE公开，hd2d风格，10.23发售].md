@@ -3356,3 +3356,15 @@ FINAL FANTASY RESONANCE Trophy (奖杯) - PS5 - Exophase.com [https://www.exopha
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  蟹粉小笼  
+##### 339#       发表于 2026-10-21 18:33
+
+实体发发货了，好快啊这次
+
+试玩版没玩，应该不存在试玩特典道具吧
+
+这次6月的艾略特最终boss场面也挺宏大的，这作看了点片段感觉战斗场面比艾略特那个豪华太多了，更不提和别的回合制比，希望好玩
+
