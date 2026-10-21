@@ -13808,3 +13808,24 @@ workbuddy2api－hub</blockquote>
 https://m.163.com/dy/article/L9NOC68L055616EC.html</blockquote>
 看了这个感觉DS给其它国模的压力上得是真的足
 
+
+*****
+
+####  空き地卯木  
+##### 17578#       发表于 2026-10-21 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405685&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-21 14:21</a>
+https://m.163.com/dy/article/L9NOC68L055616EC.html</blockquote>
+前两天看的时候没留意到还有个manus
+杨老师给混在这群虫豸里面真是太惨了
+
+
+*****
+
+####  lactone  
+##### 17579#       发表于 2026-10-21 15:32
+
+kimi3.1和qwen4呢？<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
