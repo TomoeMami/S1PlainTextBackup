@@ -13499,3 +13499,56 @@ Kimi订阅本来就是最没性价比的那一档
 那么问题来了，现在要买的话，显卡，内存，ssd。优先买 ...</blockquote>
 现在好像是ssd和内存在跌，显卡暴涨
 
+
+*****
+
+####  小川彩  
+##### 17559#       发表于 2026-10-21 14:10
+
+想比较快速地上手dsh直接开始使用 有什么best practice 文档吗？oh my dsh可以么….
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  一般市民  
+##### 17560#       发表于 2026-10-21 14:11
+
+国内网络服务都逃不过的劫  <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">  
+
+<img src="https://img.stage1st.com/forum/202610/21/141031t2jy5ben2bxw0hho.jpg" referrerpolicy="no-referrer">
+
+<strong>HVIAUJDbsAEc0Wt.jpg</strong> (44.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 14:10 上传
+
+
+*****
+
+####  moekyo  
+##### 17561#       发表于 2026-10-21 14:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/21/141209qyoku7k0oyrmdkfh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (87.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 14:12 上传
+
+*****
+
+####  奥柏伦亲王  
+##### 17562#       发表于 2026-10-21 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404715&amp;ptid=2275806" target="_blank">umamusume 发表于 2026-10-21 11:15</a>
+
+写完你还是得看一下，有些废话太多，还要把gpt特有的防御性要求删掉点
+
+—— 来自 samsung SM-S9480, And ...</blockquote>
+看任务吧，这种不算太复杂的任务一般输出内容不超过3000字，直接根据结果来调也没问题。其实我一般不找GPT干这事，昨天用astra是因为我订阅快到期不想续了，但是重置卡没用完。体感来说找K3或Opus5.5得到的结果比较接近我的想法
+
