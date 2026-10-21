@@ -13898,3 +13898,25 @@ workbuddy的积分被我拿去模块重构和处理注释了。活人感很强�
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  chuchoselph  
+##### 17587#       发表于 2026-10-21 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405685&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-21 14:21</a>
+
+https://m.163.com/dy/article/L9NOC68L055616EC.html</blockquote>
+这文章太几把变态了，真不是小黑子写的么
+
+*****
+
+####  浪子龙飞z  
+##### 17588#       发表于 2026-10-21 16:23
+
+<blockquote>tillnight 发表于 2026-10-21 10:55
+能不能不要复读回本，太招黑了。
+
+A/的财务肯定有问题，但是大模型公司没有一个赚钱的。你说的回本指的是t ...</blockquote>
+....ARR 都出来快三十年了你说是 A 畜发明的可还行行业内用 ARR 评估公司收入很正常，A 畜做账又不是反映到这里
+
