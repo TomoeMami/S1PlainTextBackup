@@ -2331,3 +2331,39 @@ C5E423D38F92CAD2C205BB6430E7B5DF.jpg
 
 —— 来自 HONOR PPG-AN00, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  gpx234mqx  
+##### 4913#       发表于 2026-10-21 17:48
+
+ 本帖最后由 gpx234mqx 于 2026-10-21 17:52 编辑 
+<blockquote>森兰丸 发表于 2026-10-21 15:46
+这ULT改造该去哪里弄.....无论是开发界面还是机体强化界面都找不到改造的选项啊 ...</blockquote>
+
+你ur100级了没有？就在改造这里
+
+是加了高难关的系列才能改
+
+一破ur就行
+
+红蛇50改达成
+
+ult武装还是不错，变形也能用，红蛇弱点没了
+
+<img src="https://img.stage1st.com/forum/202610/21/174805vnvbs45i4n4xeewv.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9466.png</strong> (674.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 17:48 上传
+
+<img src="https://img.stage1st.com/forum/202610/21/174805y3em3i3dj6ijjjj1.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9465.png</strong> (549.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 17:48 上传
+
