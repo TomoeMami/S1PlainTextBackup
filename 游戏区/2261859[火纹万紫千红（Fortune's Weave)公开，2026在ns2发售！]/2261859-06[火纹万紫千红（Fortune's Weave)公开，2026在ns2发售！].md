@@ -6165,3 +6165,18 @@ boss本质要保证3人也能过的，不可能强到爆炸的，如果还要保
 
 真不必特地练那么高等级 
 
+
+*****
+
+####  duraa  
+##### 7984#       发表于 2026-10-21 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404083&amp;ptid=2261859" target="_blank">偎 发表于 2026-10-21 09:43</a>
+我有个问题
+
+鸵鸟到底要刷多少啊
+
+我看最上级职业都是骑马飞龙和天马啊？</blockquote>
+这取决于你最后上哪些人，什么职业啊
+非自限主力16人名单可以先确定了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">8神将+1舞娘就1匹马，剩下的位置自己看喽
+
