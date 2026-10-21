@@ -13420,3 +13420,25 @@ workbuddy2api 一个最好用的分支停止维护了，现在workbuddy对反代
 看昨天的开源和盈利计算，感觉显卡和存储还要涨呀。
 那么问题来了，现在要买的话，显卡，内存，ssd。优先买什么呢
 
+
+*****
+
+####  2035年  
+##### 17552#       发表于 2026-10-21 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405286&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-21 13:05</a>
+
+我还没仔细看S1文件，不过就我猜测，一方面Anthropic没有将手上的算力资源主要投入到盈利的推理业务中， ...</blockquote>
+这是显而易见的吧，普通人咋可能去用那么贵的玩意
+
+我用KIMI都嫌贵
+
+*****
+
+####  qwased  
+##### 17553#       发表于 2026-10-21 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405363&amp;ptid=2275806" target="_blank">jojog 发表于 2026-10-21 13:21</a>
+梁圣那个infra问了下ai说是没说KVcache的调度方法？</blockquote>
+ds说这套方法和他们的硬件高度耦合，暂时不开
+

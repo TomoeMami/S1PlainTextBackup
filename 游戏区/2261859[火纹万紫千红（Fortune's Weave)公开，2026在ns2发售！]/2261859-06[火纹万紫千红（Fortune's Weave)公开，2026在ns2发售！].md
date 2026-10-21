@@ -6346,3 +6346,15 @@ T：防御T-阻绝 ；飞行-威胁察觉；
 
 而且她重甲技能也都一般，实在不行就等属性练高了直接转职。
 
+
+*****
+
+####  duraa  
+##### 8001#       发表于 2026-10-21 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405257&amp;ptid=2261859" target="_blank">虚无缥缈的分身 发表于 2026-10-21 12:59</a>
+巴西初音重甲没有重甲移动术走的太慢和整个部队脱节怎么搞？
+
+无敌是无敌，投矛带上等于反弹即死防御塔，但 ...</blockquote>
+a少线重甲，凯伊线天马，然后合体
+
