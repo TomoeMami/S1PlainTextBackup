@@ -6481,3 +6481,19 @@ a少线重甲，凯伊线天马，然后合体
 
 （换句话说还可以送两次）
 
+
+*****
+
+####  Beaverfan01  
+##### 8012#       发表于 2026-10-21 20:40
+
+https://weibo.com/5315344950/5356430054130539
+
+<img src="https://img.stage1st.com/forum/202610/21/204004bn1awbmanz1ye4br.jpg" referrerpolicy="no-referrer">
+
+<strong>6346.jpg</strong> (52.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-21 20:40 上传
+
