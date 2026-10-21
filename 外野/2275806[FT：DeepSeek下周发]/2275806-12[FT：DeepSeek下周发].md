@@ -14134,3 +14134,11 @@ CodeBuddyAPI又被拦了，估计是要彻底封杀DSH，有毛病啊
 这不就是vibe coding的时候让LLM给你写plan.md吗，都是一样的道理啊。而且我做的是法律工作，绝对不可能 ...</blockquote>
 那应该就是先说一个自己的目的，然后让AI去拓展思路，然后自己再去修剪AI的提示词，最后整合一下发给他，是吧？
 
+
+*****
+
+####  moekyo  
+##### 17606#       发表于 2026-10-21 20:28
+
+连思考强度本质都是一段提示，某种程度上来，llm 没脑补的那么神<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
