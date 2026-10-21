@@ -13562,3 +13562,27 @@ https://m.163.com/dy/article/L9NOC68L055616EC.html
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2017.05.04  
+##### 17564#       发表于 2026-10-21 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405685&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-21 14:21</a>
+
+https://m.163.com/dy/article/L9NOC68L055616EC.html</blockquote>
+这文章真不是高级黑吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看完了感觉简直想多命名几个畜
+
+
+*****
+
+####  奥柏伦亲王  
+##### 17565#       发表于 2026-10-21 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404810&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-10-21 11:32</a>
+
+这个为什么要出提示词呢，我习惯都是直接让模型从第一性原理出发，理解用户一般需要什么，可以先把自己理 ...</blockquote>
+这不就是vibe coding的时候让LLM给你写plan.md吗，都是一样的道理啊。而且我做的是法律工作，绝对不可能放任LLM按他的想法来工作，如果他提示词写的烂我直接改提示词就好，用几百上千万token，花一个小时出一篇5000字的答辩，是绝对不能接受的。
+
