@@ -13882,3 +13882,19 @@ workbuddy的积分被我拿去模块重构和处理注释了。活人感很强�
 
 来个大参数的新模型吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">4.1pro，kimi3.1
 
+
+*****
+
+####  冤枉呐  
+##### 17586#       发表于 2026-10-21 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70404523&amp;ptid=2275806" target="_blank">2035年 发表于 2026-10-21 10:48</a>
+传统的所谓重资产，除了资产价格高，还有回本周期慢
+
+算力如果能半年回本，那根本不能按传统的重资产来定 ...</blockquote>
+感觉可能和利率相关？
+也有可能是折旧瞎几把做的
+或者a÷在干很神秘的事情，跟保护伞公司一样
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
