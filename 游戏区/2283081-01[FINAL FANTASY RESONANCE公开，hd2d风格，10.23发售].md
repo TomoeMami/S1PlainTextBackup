@@ -3324,3 +3324,25 @@ fami通算法别是机械化刷幻兵就几十小时了</blockquote>
 
 拼多多在有八折卷的情况下能230元入手PS5版光碟
 
+
+*****
+
+####  黑暗之眼  
+##### 336#       发表于 2026-10-21 17:30
+
+FINAL FANTASY RESONANCE Trophy (奖杯) - PS5 - Exophase.com [https://www.exophase.com/game/fi ... psn/trophies/zh-CN/](https://www.exophase.com/game/final-fantasy-resonance-psn/trophies/zh-CN/)
+
+总共八章，没有难度杯和二周目杯。最难可能就打倒全部洞穴强敌，打完全部竞技场，以及打倒Omega Weapon。
+
+
+*****
+
+####  monolithsoft  
+##### 337#       发表于 2026-10-21 17:37
+
+这小地图提示圈起个什么卵用
+
+手机原版也有这个吗
+
+后面会有不遇敌的道具或技能吗
+
