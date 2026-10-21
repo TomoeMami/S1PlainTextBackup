@@ -12855,3 +12855,13 @@ gemini4a出来前的宣发里有一个表吹她们自己对于提示词注入的
 买的点读笔不支持同厂商的旧书，花了2块钱轻松搞定转换，梁圣伟大</blockquote>
 求问，是乐乐趣的书吗，可以分享一下工具吗<img src="https://static.stage1st.com/image/smiley/face/134.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 17508#       发表于 2026-10-21 07:52
+
+红迪上本地部署讨论串有人说qwen4马上要发
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
