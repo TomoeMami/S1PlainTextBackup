@@ -135,3 +135,13 @@
 和那几个联动一样抽到才给吧 算减少翻页找人时间的便利性改动？</blockquote>
 以前是活动可以兑换100，现在没了。
 
+
+*****
+
+####  冰风血羽  
+##### 2153#       发表于 2026-10-21 15:23
+
+想给丽塔抽个泳装，仅剩的12个服袋直接没了7个<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

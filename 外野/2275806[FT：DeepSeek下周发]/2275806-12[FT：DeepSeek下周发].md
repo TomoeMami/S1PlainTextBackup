@@ -13797,3 +13797,14 @@ workbuddy2api－hub</blockquote>
 
 最后落款要加上“谢谢您对此事的关注！”
 
+
+*****
+
+####  tk553521  
+##### 17577#       发表于 2026-10-21 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70405685&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-21 14:21</a>
+
+https://m.163.com/dy/article/L9NOC68L055616EC.html</blockquote>
+看了这个感觉DS给其它国模的压力上得是真的足
+
