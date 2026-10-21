@@ -13966,3 +13966,61 @@ A/的财务肯定有问题，但是大模型公司没有一个赚钱的。你说
 
 kimi网页版现在为什么能那么蠢...
 
+
+*****
+
+####  xuanwu_lei  
+##### 17592#       发表于 2026-10-21 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70406508&amp;ptid=2275806" target="_blank">cube 发表于 2026-10-21 16:40</a>
+kimi网页版现在为什么能那么蠢...</blockquote>
+没觉得啊，你是不是指令没对？
+
+试试这种prompt？
+
+「
+查看我给你的三个文件。根据《xxxx》，填写《yyy》的表z、表w、表u。
+
+填写要求:
+1、表z——根据《xxxx》表h进行填写。表序号的blabla。填完以后顺序理好。
+2、表w——《xxxx》中，hh、gg、fff、dddd、etc.这样梳理下来，填写“kkkkk”和“lllllll”这两列
+3、表u—按表z填写。
+4、这三个表的格式都按照《1.docx》的表z表格来，严格遵循《1.docx》既定的文本格式
+
+交付要求：
+严格按照《1.docx》的word版本，给我docx文件。
+
+」
+
+*****
+
+####  cube  
+##### 17593#       发表于 2026-10-21 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70406619&amp;ptid=2275806" target="_blank">xuanwu_lei 发表于 2026-10-21 16:57</a>
+
+没觉得啊，你是不是指令没对？
+
+试试这种prompt？</blockquote>
+换客户端工作模式，好点了，但是网页版对话常常鸡同鸭讲。
+
+
+*****
+
+####  xuanwu_lei  
+##### 17594#       发表于 2026-10-21 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70406625&amp;ptid=2275806" target="_blank">cube 发表于 2026-10-21 16:58</a>
+换客户端工作模式，好点了，但是网页版对话常常鸡同鸭讲。</blockquote>
+首先检查下是不是K3 max<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在默认的强度是「进阶」，「极致」才是max
+
+
+*****
+
+####  闪电旋风劈  
+##### 17595#       发表于 2026-10-21 17:05
+
+现在制约你梁叔叔搞AGI的是不是就是算力卡和不懂事来找大肥鱼玩的无聊用户<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
