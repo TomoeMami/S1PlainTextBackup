@@ -596,3 +596,17 @@ DA4续作开发是2015年开始了，生软做东西不断推翻是常态; Jason
 
 当然也有我只玩过BG和质量效应三部曲，对生软的印象留在了最美好的时刻这种因素在<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bad_alloc  
+##### 61#       发表于 2026-10-22 21:22
+
+叹息，当年高中配的第一台自己的电脑，最早玩的rpg就是dao跟质量效应，通了无数遍dao跟me2
+
+然后就是被da2复用地图偷工减料气到昏过去，被me3红绿灯气到昏过去，被dai那个通马桶无聊到昏过去，被仙女座狗屎气到昏过去<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+生软绝对算是带我启蒙的一家工作室了，心情还是有点复杂的
+
+不过现在有猫头猫，有马桶搋子，我喜欢的rpg还是没死，只是生软把自己作死了，也算不上多大的坏事吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

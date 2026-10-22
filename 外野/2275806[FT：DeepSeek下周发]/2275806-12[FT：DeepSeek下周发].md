@@ -14474,3 +14474,33 @@ ds现在的专武dsh现在是什么水平了？算是最适用ds的agent吗？�
 — ...</blockquote>
 1017都测过了，DSH是最好的，其次是Calude Code，不过思维链会变长
 
+
+*****
+
+####  Milarvoz  
+##### 17641#       发表于 2026-10-22 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409313&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-22 21:12</a>
+没注意Kimi的付费订阅体系已经恢复了（之前曾经有段时间无法购买来着）
+
+想问一下，现在低价版的订阅方案（ ...</blockquote>
+99只能用256k上下文的k3，199以上才能用1m的k3。思考强度倒是一样的。
+199以下的套餐几乎就是不可用的，额度少得可怜配上短的要命的缓存有效期，纯享受。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  moekyo  
+##### 17642#       发表于 2026-10-22 21:23
+
+是不是很牛逼
+
+<img src="https://img.stage1st.com/forum/202610/22/212345ydvjzdcqocp8dwdz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-22 21:23 上传
+
