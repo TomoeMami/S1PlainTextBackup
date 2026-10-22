@@ -14539,3 +14539,39 @@ qwen的驾驶舱内部都做出来了，感觉更好一些
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  moekyo  
+##### 17646#       发表于 2026-10-22 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409378&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-22 21:31</a>
+
+qwen的驾驶舱内部都做出来了，感觉更好一些
+
+论坛助手,iPhone</blockquote>
+[https://x.com/LuminaBench/status/2113217029675085963?s=20](https://x.com/LuminaBench/status/2113217029675085963?s=20)
+
+<img src="https://img.stage1st.com/forum/202610/22/214245eywwwjw2y62xrk9l.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-10-22_21-42-16.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-22 21:42 上传
+
+*****
+
+####  一般市民  
+##### 17647#       发表于 2026-10-22 21:45
+
+前几天看到的感觉大家水平差不多：
+
+<img src="https://img.stage1st.com/forum/202610/22/214537vhx5enke65ckggbh.png" referrerpolicy="no-referrer">
+
+<strong>helicopter.png</strong> (84.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-22 21:45 上传
+
