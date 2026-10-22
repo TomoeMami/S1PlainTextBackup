@@ -14813,3 +14813,14 @@ opencode go现在感觉不太稳，老是断
 opencode go现在感觉不太稳，老是断</blockquote>
 直接用不太好。 用sub2api 聚合一下， retry/负载均衡/多账号都ok了。
 
+
+*****
+
+####  nxmonitor  
+##### 17669#       发表于 2026-10-22 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409510&amp;ptid=2275806" target="_blank">中国科学院 发表于 2026-10-22 22:07</a>
+
+就算是北大的，是北大数学的吗？不同专业之间的差别是位面级的……</blockquote>
+我说的当然是可以拉关系找数学系的人，当然DS模型数学能力一直不差的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

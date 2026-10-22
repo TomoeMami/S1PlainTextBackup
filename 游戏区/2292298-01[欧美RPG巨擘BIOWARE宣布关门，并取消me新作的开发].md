@@ -726,3 +726,15 @@ EA能连续30年干掉各类名作工作室，简直是继承了克林顿时代�
 
 —— 来自 samsung SM-S916U, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  xjtxp  
+##### 74#       发表于 2026-10-22 23:37
+
+<blockquote>Nihlathak 发表于 2026-10-22 23:26
+现在旧共和国是谁在开发运营啊？
+
+—— 来自 samsung SM-S916U, Android 16, 鹅球 v3.5.99 ...</blockquote>
+broadsword
+
