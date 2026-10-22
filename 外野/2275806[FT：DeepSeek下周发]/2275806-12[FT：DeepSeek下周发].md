@@ -14950,3 +14950,19 @@ workbuddy公众号的图片栏里有
 V41的架构，prefill变小，可以直接用950PR跑（总卡数1:1），性价比其实真能反杀英伟达，因为英伟达这边类 ...</blockquote>
 怪不得开源框架优先支持了950
 
+
+*****
+
+####  moekyo  
+##### 17680#       发表于 2026-10-23 02:34
+
+这个可不是什么好货色
+
+<img src="https://img.stage1st.com/forum/202610/23/023416encz5h9hd6d55ghd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (231.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 02:34 上传
+
