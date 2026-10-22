@@ -14877,3 +14877,33 @@ opencode go现在感觉不太稳，老是断</blockquote>
 
 workbuddy返还的deepseek积分啥时候到账啊。。。都过去一周了<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">就指望这点返还撑过月底了，不是500积分额外的，是那次deepseek出故障返还的前几天用量积分。各位有收到的吗
 
+
+*****
+
+####  UncleDracula  
+##### 17673#       发表于 2026-10-23 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409912&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-10-23 00:02</a>
+
+workbuddy返还的deepseek积分啥时候到账啊。。。都过去一周了就指望这点返还撑过月底了，不是500积分额外的 ...</blockquote>
+还有这种好事？没看见公告啊
+
+*****
+
+####  qz66618  
+##### 17674#       发表于 2026-10-23 00:09
+
+ds员工在猫老板群里还串过招人要金牌呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zhl1989666  
+##### 17675#       发表于 2026-10-23 00:16
+
+不期望ds追上最前沿，但可以不断提高水温，达到把所有公司的非顶级模型全斩了，逼迫所有公司只能留最强的，然后继续轮回，除非开源。
+
+我为什么会做这样的梦？
+
