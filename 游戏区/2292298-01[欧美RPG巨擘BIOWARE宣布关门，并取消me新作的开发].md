@@ -484,3 +484,50 @@ DAV之前死了可能还会惋惜，现在我只能说好似<img src="https://st
 
 总感觉早死了
 
+
+*****
+
+####  zid99825  
+##### 49#       发表于 2026-10-22 19:28
+
+圣歌之后的生软不是已经是尸体了么
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  obulis  
+##### 50#       发表于 2026-10-22 19:33
+
+当年我记得有人拿bethesda和bioware黑暴雪的吧
+
+*****
+
+####  HATENA  
+##### 51#       发表于 2026-10-22 19:35
+
+看到这条消息的时候我刚好在打poe2，只能说对比两家命运确实很唏嘘了
+
+*****
+
+####  水边井  
+##### 52#       发表于 2026-10-22 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70408680&amp;ptid=2292298" target="_blank">卡拉德利姆 发表于 2026-10-22 18:37</a>
+刷到这个笑得停不下来</blockquote>
+现在的gayware只配彩虹旗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  BRAVADO  
+##### 53#       发表于 2026-10-22 19:37
+
+<blockquote>OldGlory 发表于 2026-10-22 18:20
+大嘴巴克里斯阿瓦隆又爆料了
+
+bioware招人要政审，制作人会翻申请人的 LinkedIn 看他们点赞过什么帖子，如果 ...</blockquote>
+阿瓦隆自己不也开了个bluesky的账号吗？那还有啥好说的。
+
