@@ -610,3 +610,18 @@ DA4续作开发是2015年开始了，生软做东西不断推翻是常态; Jason
 
 不过现在有猫头猫，有马桶搋子，我喜欢的rpg还是没死，只是生软把自己作死了，也算不上多大的坏事吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  当光停止  
+##### 62#       发表于 2026-10-22 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70408636&amp;ptid=2292298" target="_blank">寂长无星夜 发表于 2026-10-22 18:28</a>
+
+圣歌才是一直在赖寒霜吧，发售的时候还没疫情呢。
+
+仙女座我记得是甩锅外包问题太多。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仙女座和圣歌是理论上同期开发（一个号称5年17年出，一个号称7年19年出）。仙女座末期很多人被抽调去给圣歌打下手，工作就走外包。他俩遇到寒霜的问题，仙女座先出就先说寒霜了。
+
+疫情期间，ea弄了个小组评估圣歌重做能不能救回来，叠加疫情等等原因才彻底弃疗了。
+

@@ -14504,3 +14504,38 @@ ds现在的专武dsh现在是什么水平了？算是最适用ds的agent吗？�
 
 2026-10-22 21:23 上传
 
+
+*****
+
+####  a4ac7  
+##### 17643#       发表于 2026-10-22 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409323&amp;ptid=2275806" target="_blank">colice 发表于 2026-10-22 21:15</a>
+ds现在的专武dsh现在是什么水平了？算是最适用ds的agent吗？现在在用opencode+ds，在寻思要不要换一个
+
+— ...</blockquote>
+用你的OpenCode+ds让它立即装上dsh
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  AraTurambar  
+##### 17644#       发表于 2026-10-22 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70407968&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-22 15:36</a>
+
+X 上看到 Fireworks 跑到 1500 tps 了</blockquote>
+fireworks在n卡上这么牛逼，什么cerebras、groq之流真的还有出路吗？
+
+*****
+
+####  cscbzcbz  
+##### 17645#       发表于 2026-10-22 21:31
+
+<blockquote>moekyo 发表于 2026-10-22 21:23
+是不是很牛逼</blockquote>
+qwen的驾驶舱内部都做出来了，感觉更好一些
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
