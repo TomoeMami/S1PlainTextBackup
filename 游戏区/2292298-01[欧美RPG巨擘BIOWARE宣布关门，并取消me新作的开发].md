@@ -809,3 +809,22 @@ https://www.reddit.com/r/masseffect/comments/1xclmpu/mass_effect_universe_traile
 
 结果EA高管就喜欢角色能飞，他们这边没有任何预案
 
+
+*****
+
+####  含恨未了切莫死  
+##### 82#       发表于 2026-10-23 07:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70410109&amp;ptid=2292298" target="_blank">docklabor 发表于 2026-10-23 01:22</a>
+
+唯一的遗憾是没把高清dao端出来。这游戏当年做ui只适配了360那代主机，根本没考虑过720以上的分辨率，1080 ...</blockquote>
+虽然看起来瞎眼但是装的技能多啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一排能放四十多个技能
+
+<img src="https://img.stage1st.com/forum/202610/23/070050m45d38trr3tm6ttk.jpg" referrerpolicy="no-referrer">
+
+<strong>20261023065940_1.jpg</strong> (310.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 07:00 上传
+
