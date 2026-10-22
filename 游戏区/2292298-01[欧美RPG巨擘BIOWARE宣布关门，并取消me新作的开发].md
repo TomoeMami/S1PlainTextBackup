@@ -738,3 +738,13 @@ EA能连续30年干掉各类名作工作室，简直是继承了克林顿时代�
 —— 来自 samsung SM-S916U, Android 16, 鹅球 v3.5.99 ...</blockquote>
 broadsword
 
+
+*****
+
+####  perfect_duck  
+##### 75#       发表于 2026-10-23 00:54
+
+[https://www.reddit.com/r/masseff ... t_universe_trailer/](https://www.reddit.com/r/masseffect/comments/1xclmpu/mass_effect_universe_trailer/) 
+
+据说是新ME的预告片，看起来质感非常好的
+
