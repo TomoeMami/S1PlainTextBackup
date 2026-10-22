@@ -56,3 +56,14 @@
 
 概率真奇妙
 
+
+*****
+
+####  khxooo  
+##### 48275#       发表于 2026-10-22 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409153&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-10-22 20:26</a>
+
+600+才出龙娘 五星礼装也只有一个 一下清空了石头 果然前两天捞到三宝剑心用光了欧气吗 ...</blockquote>
+好你个欧狗，3宝剑心了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
