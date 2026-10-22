@@ -14940,3 +14940,13 @@ V41的架构，prefill变小，可以直接用950PR跑（总卡数1:1），性�
 还有这种好事？没看见公告啊</blockquote>
 workbuddy公众号的图片栏里有
 
+
+*****
+
+####  厍无春  
+##### 17679#       发表于 2026-10-23 01:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409986&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-10-23 00:23</a>
+V41的架构，prefill变小，可以直接用950PR跑（总卡数1:1），性价比其实真能反杀英伟达，因为英伟达这边类 ...</blockquote>
+怪不得开源框架优先支持了950
+
