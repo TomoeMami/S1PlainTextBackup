@@ -14214,3 +14214,16 @@ X 上看到 Fireworks 跑到 1500 tps 了
 
 <img src="https://p.sda1.dev/35/74453ead344842c86a8a7d75c5e977c4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  warlock228  
+##### 17616#       发表于 2026-10-22 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70407070&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-10-21 18:24</a>
+
+4.1 flash 的 api好像没有太多甲，让他用rea这个skill+ida做逆向，演都不演直接开干。
+
+先用公司的有源代码 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鲸天魔盗团不就是这么来的吗
+
