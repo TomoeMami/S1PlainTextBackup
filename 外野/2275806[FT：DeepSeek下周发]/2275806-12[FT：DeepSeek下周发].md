@@ -14227,3 +14227,11 @@ X 上看到 Fireworks 跑到 1500 tps 了
 先用公司的有源代码 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鲸天魔盗团不就是这么来的吗
 
+
+*****
+
+####  一般市民  
+##### 17617#       发表于 2026-10-22 16:01
+
+为了各种数据和业务人也在招，我看到有人贴了个深度求索的招聘，在招那种熟悉自身行业或者在某些方面有特殊才能又对AI有兴趣或者已经有所了解的跨界人才了。
+
