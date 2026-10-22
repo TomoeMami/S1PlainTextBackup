@@ -14907,3 +14907,14 @@ ds员工在猫老板群里还串过招人要金牌呢<img src="https://static.st
 
 我为什么会做这样的梦？
 
+
+*****
+
+####  ycjiang1337  
+##### 17676#       发表于 2026-10-23 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409462&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-10-22 21:53</a>
+
+不光搞到了1000亿，还和华为深度合作设计芯片，明天第一季度出的960超节点，华为说要把大部分都给DeepSee ...</blockquote>
+V41的架构，prefill变小，可以直接用950PR跑（总卡数1:1），性价比其实真能反杀英伟达，因为英伟达这边类似定位的Pro6000挂羊头卖狗肉，SM120架构根本不支持DeepGEMM那些算子
+
