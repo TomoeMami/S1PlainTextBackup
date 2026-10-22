@@ -14355,3 +14355,22 @@ k3.1要是拉了能不能降价啊
 —— 来自 vivo V2505 ...</blockquote>
 这不是刚成立了国家数据集团吗
 
+
+*****
+
+####  秦南心  
+##### 17630#       发表于 2026-10-22 19:20
+
+数据标注更关键，垃圾数据训练价值差
+
+*****
+
+####  lactone  
+##### 17631#       发表于 2026-10-22 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70408891&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-10-22 19:20</a>
+数据标注更关键，垃圾数据训练价值差</blockquote>
+openai能高价请数学家给标数据，国内可以直接由央企让大学里的老师提供研究数据，甚至可以搞kpi<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比如要求国自然基金支持的项目的所有数据直接上传，然后国内大模型企业一起用，你要想有额外优势也可以自己另外请
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
