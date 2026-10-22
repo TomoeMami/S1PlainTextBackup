@@ -218,3 +218,11 @@ QQ图片20261018092045.jpg
 
 怪人都是机制怪不是随便一脚踢死还挺有意思，克制不讲科学的老东西
 
+
+*****
+
+####  阿刚  
+##### 263#       发表于 2026-10-22 20:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">话说这次强化体系感觉是采用了框架这个概念啊
+
