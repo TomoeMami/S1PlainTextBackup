@@ -3402,3 +3402,18 @@ ff老角色联动的见多了
 
 暗雷精英怪是不是过分了点
 
+
+*****
+
+####  桐道悠  
+##### 343#       发表于 2026-10-22 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70407979&amp;ptid=2283081" target="_blank">喵喵叫的猫 发表于 2026-10-22 15:38</a>
+
+ff老角色联动的见多了
+
+第一次见剧透这么彻底的 收个幻兵几句话把那一代主角身世甚至游戏的主要爆点都讲了
+
+ ...</blockquote>
+如果面向新玩家，那就根本不会搞暗雷<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

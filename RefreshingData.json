@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 47013,
+    "totalreply": 47015,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1792666687,
+    "lastedit": 1792667285,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -13689,10 +13689,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 38096,
+    "totalreply": 38111,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1792666566,
+    "lastedit": 1792667165,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14148,10 +14148,10 @@
     "update": false
   },
   "2290902": {
-    "totalreply": 424,
+    "totalreply": 425,
     "title": "[法国本次骚乱甚至出现群众围观火烧消防员]",
     "newtitle": "[法国本次骚乱最新进度：巴黎在燃烧！抗议者和抢劫犯已经成为全法国一道亮丽的风景线]",
-    "lastedit": 1792666688,
+    "lastedit": 1792667046,
     "category": "外野",
     "active": true,
     "update": false
@@ -14522,15 +14522,6 @@
     "newtitle": "[是枝裕和监督  蓦然回首 真人电影 2026年上映]",
     "lastedit": 1791627365,
     "category": "漫区",
-    "active": false,
-    "update": false
-  },
-  "2291192": {
-    "totalreply": 113,
-    "title": "[养猫快一年了，感觉猫提供的情绪价值越来越少]",
-    "newtitle": "[养猫快一年了，感觉猫提供的情绪价值越来越少]",
-    "lastedit": 1791457206,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -16254,10 +16245,10 @@
     "update": false
   },
   "2283081": {
-    "totalreply": 342,
+    "totalreply": 343,
     "title": "[FINAL FANTASY RESONANCE公开，hd2d风格，10.23发售]",
     "newtitle": "[FINAL FANTASY RESONANCE公开，hd2d风格，10.23发售]",
-    "lastedit": 1792662369,
+    "lastedit": 1792667285,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17145,12 +17136,12 @@
     "update": false
   },
   "2291939": {
-    "totalreply": 77,
+    "totalreply": 78,
     "title": "[男子爬雪山突发高原反应，亲姐嫌弃救援费用贵导致男子身亡]",
     "newtitle": "[男子爬雪山突发高原反应，亲姐嫌弃救援费用贵导致男子身亡]",
-    "lastedit": 1792314488,
+    "lastedit": 1792667046,
     "category": "外野",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2291952": {
@@ -17240,7 +17231,7 @@
     "newtitle": "[怎么阿B也有小燕子穿花衣的论证视频，现在B站也这么下沉了吗]",
     "lastedit": 1792407725,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2291933": {
@@ -18171,20 +18162,29 @@
     "update": false
   },
   "2292298": {
-    "totalreply": 41,
+    "totalreply": 45,
     "title": "[欧美RPG巨擘BIOWARE宣布关门，并取消me新作的开发]",
     "newtitle": "[欧美RPG巨擘BIOWARE宣布关门，并取消me新作的开发]",
-    "lastedit": 1792666325,
+    "lastedit": 1792667285,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2292220": {
-    "totalreply": 42,
+    "totalreply": 45,
     "title": "[“治不了胡塞还治不了你？！”]",
     "newtitle": "[“治不了胡塞还治不了你？！”]",
-    "lastedit": 1792666687,
+    "lastedit": 1792667165,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2292307": {
+    "totalreply": 45,
+    "title": "[NS2也被AI破了]",
+    "newtitle": "[NS2也被AI破了]",
+    "lastedit": 1792667285,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
