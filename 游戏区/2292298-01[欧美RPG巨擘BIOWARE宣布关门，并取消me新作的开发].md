@@ -792,3 +792,20 @@ DAV已经把所有剧情伏笔全部都写成蛋头和他的小伙伴们乱搞�
 
 —— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  断翼  
+##### 81#       发表于 2026-10-23 02:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70410064&amp;ptid=2292298" target="_blank">perfect_duck 发表于 2026-10-23 00:54</a>
+
+https://www.reddit.com/r/masseffect/comments/1xclmpu/mass_effect_universe_trailer/ 
+
+据说是新ME的预 ...</blockquote>
+纯引擎动画，说明真的没货。
+
+当年圣歌2017那个E3预告片也是纯引擎动画，游戏实际还没做，机甲飞行也是做动画觉得有趣才加进去
+
+结果EA高管就喜欢角色能飞，他们这边没有任何预案
+
