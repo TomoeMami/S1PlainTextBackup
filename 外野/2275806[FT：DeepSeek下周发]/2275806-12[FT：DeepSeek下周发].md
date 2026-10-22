@@ -14305,3 +14305,13 @@ muse wonder的one-shot稀烂不妨碍aa拿了56分<img src="https://static.stage
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Milarvoz  
+##### 17625#       发表于 2026-10-22 18:48
+
+k3.1要是拉了能不能降价啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
