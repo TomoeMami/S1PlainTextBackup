@@ -3502,3 +3502,15 @@ d加密哪有学习版</blockquote>
 <img src="https://p.sda1.dev/35/4840265053a7093c4bdcf885c9c1f3e4/image.jpg" referrerpolicy="no-referrer">
 话说原先手游有这种透光光的东西吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">害我都不敢把游戏推荐给朋友了
 
+
+*****
+
+####  winder0707  
+##### 353#       发表于 2026-10-23 04:30
+
+<blockquote>喵喵叫的猫 发表于 2026-10-23 04:12
+这算官方终于承认莉诺雅就是最终boss了吧 虽然大家都猜到了不知道有什么好否认的
+
+</blockquote>
+无谓的担心，好比玩机战担心没看过的动画剧透一样。现在还担心剧透ff正传的系列
+
