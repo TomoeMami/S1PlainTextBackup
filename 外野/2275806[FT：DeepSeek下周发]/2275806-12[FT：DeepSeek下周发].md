@@ -14417,3 +14417,60 @@ openai能高价请数学家给标数据，国内可以直接由央企让大学�
 看流出的测试感觉我猜对了，国模现在有了一部分统一的训练用数据</blockquote>
 说不定就是从同一个数据供应商那买的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 17636#       发表于 2026-10-22 21:09
+
+从Arena的结果，综合来看前端K3.1区了，Qwen4略好于1017……
+
+*****
+
+####  lactone  
+##### 17637#       发表于 2026-10-22 21:11
+
+ 本帖最后由 lactone 于 2026-10-22 21:14 编辑 
+
+qwen4max什么水平不重要，重要的是qwen4 27b<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+qwen大模型水平和梁子比是没有优势的
+
+国模典型规模能战胜梁子的只有z/
+还不一定是靠技术<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  pure_liquid  
+##### 17638#       发表于 2026-10-22 21:12
+
+没注意Kimi的付费订阅体系已经恢复了（之前曾经有段时间无法购买来着）
+
+想问一下，现在低价版的订阅方案（比如49元的Go或者99元的Plus）可以使用K3“极致”吗？
+
+记得之前好像是只有199元起步的高价方案才能用真正的K3来着
+
+
+*****
+
+####  colice  
+##### 17639#       发表于 2026-10-22 21:15
+
+ds现在的专武dsh现在是什么水平了？算是最适用ds的agent吗？现在在用opencode+ds，在寻思要不要换一个<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HBN-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  nxmonitor  
+##### 17640#       发表于 2026-10-22 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409323&amp;ptid=2275806" target="_blank">colice 发表于 2026-10-22 21:15</a>
+
+ds现在的专武dsh现在是什么水平了？算是最适用ds的agent吗？现在在用opencode+ds，在寻思要不要换一个
+
+— ...</blockquote>
+1017都测过了，DSH是最好的，其次是Calude Code，不过思维链会变长
+

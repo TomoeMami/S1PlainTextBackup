@@ -3443,3 +3443,31 @@ d加密哪有学习版
 
 蹲个评价
 
+
+*****
+
+####  黑暗之眼  
+##### 347#       发表于 2026-10-22 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409019&amp;ptid=2283081" target="_blank">MR.McGillis 发表于 2026-10-22 19:52</a>
+
+学习版又偷跑了</blockquote>
+那是NS版
+
+*****
+
+####  kirito_wst  
+##### 348#       发表于 2026-10-22 21:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">龟速推进中，可惜要上班不能打太晚
+
+（每个精英怪好像都有东西可以偷，这点挺好的，偷的时候顺便还能练练级
+
+
+*****
+
+####  新HGCG  
+##### 349#       发表于 2026-10-22 21:13
+
+水华是香菜？
+
