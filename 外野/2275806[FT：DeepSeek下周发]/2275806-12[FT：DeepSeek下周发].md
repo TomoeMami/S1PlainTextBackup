@@ -14767,3 +14767,13 @@ KIMI199套餐能用多少token？同花顺数据库有什么权限？</blockquot
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  colice  
+##### 17665#       发表于 2026-10-22 22:55
+
+惊了，还有opencode+dsh这种操作吗？我先琢磨琢磨dsh桌面端吧<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HBN-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
