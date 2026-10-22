@@ -75,3 +75,13 @@
 
 16个护符出了1个龙娘，一宝收藏了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 48277#       发表于 2026-10-22 22:06
+
+<blockquote>khxooo 发表于 2026-10-22 20:55
+好你个欧狗，3宝剑心了</blockquote>
+你看我日服白花纯正330大保底
+

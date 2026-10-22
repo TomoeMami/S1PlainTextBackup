@@ -14631,3 +14631,35 @@ qwen的驾驶舱内部都做出来了，感觉更好一些
 数学绝对是DeepSeek有优势，员工北大系的，老板浙大的，就差个复旦就把国内数学界头部覆盖了… ...</blockquote>
 就算是北大的，是北大数学的吗？不同专业之间的差别是位面级的……
 
+
+*****
+
+####  phorcys02  
+##### 17654#       发表于 2026-10-22 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409462&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-10-22 21:53</a>
+
+不光搞到了1000亿，还和华为深度合作设计芯片，明天第一季度出的960超节点，华为说要把大部分都给DeepSee ...</blockquote>
+而且明年没意外会上市。
+
+*****
+
+####  一般市民  
+##### 17655#       发表于 2026-10-22 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409443&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-22 21:48</a>
+
+实际上仔细看差距不小的1017整体可以，但是各种小bug很多，minimax就只有个看起来还行了 ...</blockquote>
+Qwen的最完美，Kimi的还是有点小BUG，都比DS强的有限。现在搞不明白DS这种小瑕疵到底是参数不足还是他们搞优化太过火。
+
+*****
+
+####  lactone  
+##### 17656#       发表于 2026-10-22 22:11
+
+我觉得现在one-shot建模是不是被fable5给带跑偏了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+实际上模型越能脑补，one-shot越强，但是绝对不能说越能脑补模型就越好
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
