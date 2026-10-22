@@ -14406,3 +14406,14 @@ openai能高价请数学家给标数据，国内可以直接由央企让大学�
 
 不应该说，是王虹前男友吗？
 
+
+*****
+
+####  qwased  
+##### 17635#       发表于 2026-10-22 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70408829&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-22 19:07</a>
+
+看流出的测试感觉我猜对了，国模现在有了一部分统一的训练用数据</blockquote>
+说不定就是从同一个数据供应商那买的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

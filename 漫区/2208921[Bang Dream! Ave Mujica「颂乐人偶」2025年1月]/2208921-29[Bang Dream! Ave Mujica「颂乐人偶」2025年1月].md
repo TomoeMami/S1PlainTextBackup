@@ -3605,3 +3605,21 @@ BanGDream! bilibili官方：@BanGDream_CN
 
 2026-10-22 20:18 上传
 
+
+*****
+
+####  堀内爱里衣  
+##### 42150#       发表于 2026-10-22 20:31
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/22/203122nl6oplfqz3ms6310.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-22_20-30-41.png</strong> (1.25 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-22 20:31 上传
+
+       [https://x.com/bang_dream_info/status/2113193655225954778](https://x.com/bang_dream_info/status/2113193655225954778)
+
