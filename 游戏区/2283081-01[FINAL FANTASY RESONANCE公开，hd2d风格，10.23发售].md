@@ -3368,3 +3368,19 @@ FINAL FANTASY RESONANCE Trophy (奖杯) - PS5 - Exophase.com [https://www.exopha
 
 这次6月的艾略特最终boss场面也挺宏大的，这作看了点片段感觉战斗场面比艾略特那个豪华太多了，更不提和别的回合制比，希望好玩
 
+
+*****
+
+####  新HGCG  
+##### 340#       发表于 2026-10-22 15:33
+
+貌似是我头一次太空战士入首发 ​​​
+
+<img src="https://img.stage1st.com/forum/202610/22/153140lihj0x0j2uoqlegf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (828.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-22 15:31 上传
+
