@@ -14777,3 +14777,39 @@ KIMI199套餐能用多少token？同花顺数据库有什么权限？</blockquot
 
 —— 来自 HUAWEI HBN-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  空き地卯木  
+##### 17666#       发表于 2026-10-22 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409696&amp;ptid=2275806" target="_blank">colice 发表于 2026-10-22 22:55</a>
+
+惊了，还有opencode+dsh这种操作吗？我先琢磨琢磨dsh桌面端吧
+
+—— 来自 HUAWEI HBN-AL00, Android 16, 鹅 ...</blockquote>
+opencode那个阿三请求格式还跟别家不太一样,导致dsh上opencode有点折腾,可以让ds看下官方文档或者装个dsh的opencode插件
+
+
+*****
+
+####  拯救节操希灵宅  
+##### 17667#       发表于 2026-10-22 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409696&amp;ptid=2275806" target="_blank">colice 发表于 2026-10-22 22:55</a>
+
+惊了，还有opencode+dsh这种操作吗？我先琢磨琢磨dsh桌面端吧
+
+—— 来自 HUAWEI HBN-AL00, Android 16, 鹅 ...</blockquote>
+opencode go现在感觉不太稳，老是断
+
+*****
+
+####  phorcys02  
+##### 17668#       发表于 2026-10-22 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409820&amp;ptid=2275806" target="_blank">拯救节操希灵宅 发表于 2026-10-22 23:32</a>
+
+opencode go现在感觉不太稳，老是断</blockquote>
+直接用不太好。 用sub2api 聚合一下， retry/负载均衡/多账号都ok了。
+
