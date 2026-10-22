@@ -14188,3 +14188,29 @@ CodeBuddyAPI又被拦了，估计是要彻底封杀DSH，有毛病啊
 
 买卡之类的呗，哪有融资是为了招人，现在搞AI都是重资产，别管有的没的，算力堆高总没错
 
+
+*****
+
+####  小野賢章  
+##### 17613#       发表于 2026-10-22 15:36
+
+X 上看到 Fireworks 跑到 1500 tps 了
+
+*****
+
+####  拯救节操希灵宅  
+##### 17614#       发表于 2026-10-22 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70407880&amp;ptid=2275806" target="_blank">艾诺琳 发表于 2026-10-22 15:24</a>
+
+这些钱主要是用来买卡还是建设数据中心？挖人不用这么多钱吧</blockquote>
+数据中心吧，明年上市的960超节点如果按20亿一个节点的话，也就50个节点，半个1GW的数据中心
+
+
+*****
+
+####  Promeus  
+##### 17615#       发表于 2026-10-22 15:42
+
+<img src="https://p.sda1.dev/35/74453ead344842c86a8a7d75c5e977c4/image.jpg" referrerpolicy="no-referrer">
+

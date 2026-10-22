@@ -2391,3 +2391,14 @@ ult武装还是不错，变形也能用，红蛇弱点没了
 
 那么就先把ew的图鉴全部满级满破，等来了可以直接改
 
+
+*****
+
+####  电脑死机  
+##### 4916#       发表于 2026-10-22 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70407153&amp;ptid=2071758" target="_blank">森兰丸 发表于 2026-10-21 18:44</a>
+
+原来不是都开了啊....我厨力全开就想改台艾比安</blockquote>
+慢慢来吧，我把材料砸完了搞定了几台机的lv20，主动技能短时间不打算补了
+
