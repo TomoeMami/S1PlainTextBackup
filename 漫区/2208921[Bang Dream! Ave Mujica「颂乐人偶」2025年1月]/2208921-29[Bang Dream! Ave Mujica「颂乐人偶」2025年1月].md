@@ -2032,3 +2032,100 @@ Tracklist
 
 —— 来自 OPPO PHW110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.97
 
+
+*****
+
+####  堀内爱里衣  
+##### 42148#       发表于 2026-10-22 15:15
+
+ 本帖最后由 堀内爱里衣 于 2026-10-22 15:16 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/22/151457vryr923ruuburkz3.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-22_14-15-55.png</strong> (863.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-22 15:14 上传
+
+       [https://x.com/bang_dream_info/status/2113103049875152986](https://x.com/bang_dream_info/status/2113103049875152986)
+
+       <strong>剧场版「BanG Dream! Ave Mujica prima aurora」CM 第二弹</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/22/151536cgm6b88gm0m6s665.png" referrerpolicy="no-referrer">
+
+<strong>56823785c6605821365c6d37ff5b5e4dce1219f9.png</strong> (366.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-22 15:15 上传
+
+☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽
+
+　ようこソ本当ノAve Mujicaノ世界へ
+
+☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽
+
+剧场版「BanG Dream! Ave Mujica prima aurora」CM。
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+剧场版「BanG Dream! Ave Mujica prima aurora」
+
+2026年10月16日(周五)公开
+
+详情：[https://avemujica-movie.bang-dream.com/](https://avemujica-movie.bang-dream.com/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica 7th LIVE「Virtus」@ 京王アリーナ TOKYO
+
+DAY1　2026年10月24日(周六)
+
+DAY2　2026年10月25日(周日)
+
+详情：[https://bang-dream.com/events/avemujica_7th/](https://bang-dream.com/events/avemujica_7th/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica Mini Album「神の名を」
+
+2026年10月21日(周三)发售
+
+将会收录2026年10月16日公开的剧场版「BanG Dream! Ave Mujica prima aurora」插入曲。
+
+详情：[https://bang-dream.com/discographies/4238/](https://bang-dream.com/discographies/4238/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica Best Album「Ave Música」
+
+Streaming/DL：[https://bmu.lnk.to/AveMujica_BestALid](https://bmu.lnk.to/AveMujica_BestALid)
+
+数量限定生产特装盘・Blu-ray附生产限定盘中将会收录Ave Mujica 6th LIVE「Ulterius Procedere」东京公演的影像。
+
+详情：[https://bang-dream.com/discographies/4192/](https://bang-dream.com/discographies/4192/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+「BanG Dream! It's MyGO!!!!! / Ave Mujica」续篇TV动画
+
+将于2027年1月起在日本电视台系全国30家电视台播出。
+
+详情：[https://anime.bang-dream.com/mygo-avemujica](https://anime.bang-dream.com/mygo-avemujica)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+✦・━━━━━━━━━━━━━━━ ・✦⁡⁡
+
+◇BanG Dream!
+
+官方网站：[https://bang-dream.com/](https://bang-dream.com/)
+
+BanGDream! bilibili官方：@BanGDream_CN
+
+✦・━━━━━━━━━━━━━━━ ・✦⁡⁡</blockquote>
+      [https://www.bilibili.com/video/BV1ZBn66cE1c](https://www.bilibili.com/video/BV1ZBn66cE1c)
+

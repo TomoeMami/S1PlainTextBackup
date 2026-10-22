@@ -14150,3 +14150,19 @@ CodeBuddyAPI又被拦了，估计是要彻底封杀DSH，有毛病啊
 
 找GPT写了一下开发计划以后，deepseek执行中的文字是一点都看不懂了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉可能得让它做个项目进度的前端显示出来了
 
+
+*****
+
+####  Promeus  
+##### 17608#       发表于 2026-10-22 15:19
+
+<img src="https://p.sda1.dev/35/86195d96ad9258b4e23bcd2c755dc4f7/image.jpg" referrerpolicy="no-referrer">
+梁子说是弄到了一千亿
+
+*****
+
+####  艾诺琳  
+##### 17609#       发表于 2026-10-22 15:24
+
+这些钱主要是用来买卡还是建设数据中心？挖人不用这么多钱吧
+
