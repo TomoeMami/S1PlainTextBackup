@@ -3489,3 +3489,16 @@ d加密哪有学习版</blockquote>
 
 全屏和窗口分辨率最大只能1600*900，无边框反而可以撑满2560*1600……不知道怎么回事，DEMO的时候就这样。
 
+
+*****
+
+####  喵喵叫的猫  
+##### 352#       发表于 2026-10-23 04:12
+
+这算官方终于承认莉诺雅就是最终boss了吧 虽然大家都猜到了不知道有什么好否认的
+<img src="https://p.sda1.dev/35/26b0302a47749b7272cbbdd30d0aca18/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/6505cd4c0109686304663f1b03522c84/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/4de261066ffeb7d3d0b2bd93fdb0c9ed/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/4840265053a7093c4bdcf885c9c1f3e4/image.jpg" referrerpolicy="no-referrer">
+话说原先手游有这种透光光的东西吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">害我都不敢把游戏推荐给朋友了
+
