@@ -14142,3 +14142,11 @@ CodeBuddyAPI又被拦了，估计是要彻底封杀DSH，有毛病啊
 
 连思考强度本质都是一段提示，某种程度上来，llm 没脑补的那么神<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kazuhira  
+##### 17607#       发表于 2026-10-22 15:11
+
+找GPT写了一下开发计划以后，deepseek执行中的文字是一点都看不懂了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉可能得让它做个项目进度的前端显示出来了
+
