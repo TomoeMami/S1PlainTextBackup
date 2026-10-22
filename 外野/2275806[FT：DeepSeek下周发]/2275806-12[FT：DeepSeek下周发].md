@@ -14260,3 +14260,36 @@ Arena 上匿名模型 Kibitz 疑似 Kimi K3.1
 
 O/真没活了，趁着银行重置到期，给你一个重置
 
+
+*****
+
+####  nxmonitor  
+##### 17621#       发表于 2026-10-22 18:20
+
+Arena上的K3.1结果有点不行…
+
+*****
+
+####  cube  
+##### 17622#       发表于 2026-10-22 18:21
+
+昨天我让大肥鱼写个沙箱测试，她在验证密钥的时候把自己关门外了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/22/182049d28v3gbnggyjsuvb.png" referrerpolicy="no-referrer">
+
+<strong>C64940E486FDE27AFD35B0A4A5E8D449.png</strong> (9.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-22 18:20 上传
+
+怎么能这么典的复刻梗图的。
+
+
+*****
+
+####  Promeus  
+##### 17623#       发表于 2026-10-22 18:24
+
+K3.1测试的one shot前端真有些一般
+
