@@ -670,3 +670,28 @@ ea主要手里也没别的货了，不然早就砍了。
 
 龙腾重制没戏啦
 
+
+*****
+
+####  siebten  
+##### 68#       发表于 2026-10-22 22:42
+
+bioware已经连续搞砸三个3A游戏了 就这EA都没关闭它 这tm可是EA啊 
+
+
+*****
+
+####  samuel.j  
+##### 69#       发表于 2026-10-22 22:45
+
+EA能连续30年干掉各类名作工作室，简直是继承了克林顿时代新质生产力的最重大特点
+
+*****
+
+####  posthoc  
+##### 70#       发表于 2026-10-22 22:46
+
+对于生软哪部游戏之后算是尸体了已经看到很多不同的说法，目前看到的最极端的是几名rpgcodex用户声称生软最后的好游戏是shattered steel<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 实在太极端了，换我就算故意找茬也只能说BG1
+
+早几年在s1还经常看到DAO后无生软的声音，现在看来别说ME3，很多人都和仙女座和解了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
