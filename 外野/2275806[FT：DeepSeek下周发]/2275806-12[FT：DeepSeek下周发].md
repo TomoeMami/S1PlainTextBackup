@@ -14918,3 +14918,25 @@ ds员工在猫老板群里还串过招人要金牌呢<img src="https://static.st
 不光搞到了1000亿，还和华为深度合作设计芯片，明天第一季度出的960超节点，华为说要把大部分都给DeepSee ...</blockquote>
 V41的架构，prefill变小，可以直接用950PR跑（总卡数1:1），性价比其实真能反杀英伟达，因为英伟达这边类似定位的Pro6000挂羊头卖狗肉，SM120架构根本不支持DeepGEMM那些算子
 
+
+*****
+
+####  colice  
+##### 17677#       发表于 2026-10-23 00:37
+
+说起来我个人的工作和智能体甚至和编程都不算太搭边，就是前段时间内部有个智能体比赛，去询了几家的报价，一个个搁那报价大六位数，明明一个地区的小比赛而已，还是那种糊弄过去就行的比赛，这才寻思不如自己做一个凑合参赛了。
+然后就发现许愿式编程真好用，一个小智能体也就花了我四十块钱，属于是拥抱未来了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HBN-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  绯色日照  
+##### 17678#       发表于 2026-10-23 00:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409926&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-23 00:07</a>
+
+还有这种好事？没看见公告啊</blockquote>
+workbuddy公众号的图片栏里有
+
