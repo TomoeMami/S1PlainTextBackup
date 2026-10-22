@@ -14315,3 +14315,43 @@ k3.1要是拉了能不能降价啊<img src="https://static.stage1st.com/image/sm
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  一般市民  
+##### 17626#       发表于 2026-10-22 19:07
+
+看流出的测试感觉我猜对了，国模现在有了一部分统一的训练用数据 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 17627#       发表于 2026-10-22 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70408732&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-10-22 18:48</a>
+k3.1要是拉了能不能降价啊
+
+—— 来自 samsung SM-S9380, Android 16, 鹅球 v4.0</blockquote>
+没可能，这么贵本质是因为选了个根本没办法拿出来卖的大小    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  lactone  
+##### 17628#       发表于 2026-10-22 19:08
+
+我觉得可以弄一个类似铁塔公司的数据国企，直接把整个中文互联网数据授权训练了得了
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  飞剪号  
+##### 17629#       发表于 2026-10-22 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70408834&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-22 19:08</a>
+
+我觉得可以弄一个类似铁塔公司的数据国企，直接把整个中文互联网数据授权训练了得了
+
+—— 来自 vivo V2505 ...</blockquote>
+这不是刚成立了国家数据集团吗
+
