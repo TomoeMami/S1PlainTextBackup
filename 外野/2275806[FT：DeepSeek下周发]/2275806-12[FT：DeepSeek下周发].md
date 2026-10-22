@@ -14824,3 +14824,16 @@ opencode go现在感觉不太稳，老是断</blockquote>
 就算是北大的，是北大数学的吗？不同专业之间的差别是位面级的……</blockquote>
 我说的当然是可以拉关系找数学系的人，当然DS模型数学能力一直不差的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 17670#       发表于 2026-10-22 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409347&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-10-22 21:20</a>
+
+99只能用256k上下文的k3，199以上才能用1m的k3。思考强度倒是一样的。
+
+199以下的套餐几乎就是不可用的， ...</blockquote>
+我这个月刚从199降到99套餐，kimicode可以用1M的K3，在DSH上用也可以
+
