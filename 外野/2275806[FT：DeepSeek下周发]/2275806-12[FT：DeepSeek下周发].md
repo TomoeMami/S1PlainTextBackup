@@ -14966,3 +14966,15 @@ V41的架构，prefill变小，可以直接用950PR跑（总卡数1:1），性�
 
 2026-10-23 02:34 上传
 
+
+*****
+
+####  zfy1989  
+##### 17681#       发表于 2026-10-23 07:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409912&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-10-23 00:02</a>
+workbuddy返还的deepseek积分啥时候到账啊。。。都过去一周了就指望这点返还撑过月底了，不是500积分额外的 ...</blockquote>
+在一个页面里面要自己领
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

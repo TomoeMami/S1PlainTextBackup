@@ -403,3 +403,23 @@ Steam手柄是最好的PC串流手柄，如果没有串流的需求，其实是�
 价格问题，我的ally一代玩了快2年爽得不行，3100的价格入的原装。要是价钱翻个倍瞬间不香了，这个价我为什 ...</blockquote>
 然而看各路笔记本市场点评，6000价位现在大概只有3050了，比ally强是肯定的，但是也谈不上香吧
 
+
+*****
+
+####  难说  
+##### 47#       发表于 2026-10-23 07:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409724&amp;ptid=2292216" target="_blank">RTLordCaptain 发表于 2026-10-22 23:06</a>
+
+然而看各路笔记本市场点评，6000价位现在大概只有3050了，比ally强是肯定的，但是也谈不上香吧 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/23/072011fvxw9snbggsdwzhj.jpg" referrerpolicy="no-referrer">
+
+<strong>1792711143910.jpg</strong> (137.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 07:20 上传
+
+啥点评？4060不是一大堆么，我看到的是假价格？
+
