@@ -14594,3 +14594,40 @@ qwen的驾驶舱内部都做出来了，感觉更好一些
 梁子说是弄到了一千亿</blockquote>
 不光搞到了1000亿，还和华为深度合作设计芯片，明天第一季度出的960超节点，华为说要把大部分都给DeepSeek 
 
+
+*****
+
+####  lactone  
+##### 17650#       发表于 2026-10-22 21:57
+
+谷歌carbon在arena上感觉挺强，不知道啥时候发布，离argon还不到一个月吧
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Quelaan  
+##### 17651#       发表于 2026-10-22 22:02
+
+准备让opus指挥20个Astra ultra fast，看看能不能两小时蹬完一个pro20x<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Deco  
+##### 17652#       发表于 2026-10-22 22:05
+
+[https://dsh-plugin.org/](https://dsh-plugin.org/)
+
+这个插件市场靠谱吗？还有别的推荐吗？
+
+*****
+
+####  中国科学院  
+##### 17653#       发表于 2026-10-22 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70408914&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-22 19:26</a>
+
+数学绝对是DeepSeek有优势，员工北大系的，老板浙大的，就差个复旦就把国内数学界头部覆盖了… ...</blockquote>
+就算是北大的，是北大数学的吗？不同专业之间的差别是位面级的……
+
