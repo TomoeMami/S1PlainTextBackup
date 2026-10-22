@@ -14293,3 +14293,15 @@ Arena上的K3.1结果有点不行…
 
 K3.1测试的one shot前端真有些一般
 
+
+*****
+
+####  lactone  
+##### 17624#       发表于 2026-10-22 18:35
+
+k3.1能逼近astra吗
+
+muse wonder的one-shot稀烂不妨碍aa拿了56分<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
