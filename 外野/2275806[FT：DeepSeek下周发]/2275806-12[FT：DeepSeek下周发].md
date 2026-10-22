@@ -14663,3 +14663,13 @@ Qwen的最完美，Kimi的还是有点小BUG，都比DS强的有限。现在搞�
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pure_liquid  
+##### 17657#       发表于 2026-10-22 22:15
+
+如果Qwen 4能比Kimi K3便宜一些就好了
+
+一个月199、699的价格感觉还是有些贵了
+

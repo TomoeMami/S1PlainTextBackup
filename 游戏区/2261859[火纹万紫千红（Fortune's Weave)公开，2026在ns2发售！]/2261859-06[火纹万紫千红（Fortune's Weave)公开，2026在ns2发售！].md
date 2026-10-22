@@ -6537,3 +6537,14 @@ https://weibo.com/5315344950/5356430054130539
 
 总不能砍下来自动变成现在这种样子。那不成武器合体的机器人了
 
+
+*****
+
+####  lmclmc2  
+##### 8017#       发表于 2026-10-22 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70407811&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-10-22 15:13</a>
+
+我今天才知道 主角原来是奶龙的转世啊？ 那这作不是有官配了 都有小孩了总不能爹妈离婚吧 对小孩的坏影响不 ...</blockquote>
+奶龙守着不是他老婆的女人好几百年,早就谈不上什么纯爱了..
+
