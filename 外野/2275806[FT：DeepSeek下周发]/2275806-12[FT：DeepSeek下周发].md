@@ -14382,3 +14382,13 @@ openai能高价请数学家给标数据，国内可以直接由央企让大学�
 
 数学绝对是DeepSeek有优势，员工北大系的，老板浙大的，就差个复旦就把国内数学界头部覆盖了…
 
+
+*****
+
+####  lactone  
+##### 17633#       发表于 2026-10-22 19:34
+
+前两天上海ai实验室用魔改qwen3.5破了ghys猜想的导师许地生就是王虹邓煜的同班同学<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
