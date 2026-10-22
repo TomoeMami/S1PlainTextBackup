@@ -14575,3 +14575,22 @@ qwen的驾驶舱内部都做出来了，感觉更好一些
 
 2026-10-22 21:45 上传
 
+
+*****
+
+####  Promeus  
+##### 17648#       发表于 2026-10-22 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409433&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-22 21:45</a>
+前几天看到的感觉大家水平差不多：</blockquote>
+实际上仔细看差距不小的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1017整体可以，但是各种小bug很多，minimax就只有个看起来还行了
+
+*****
+
+####  厍无春  
+##### 17649#       发表于 2026-10-22 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70407841&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-22 15:19</a>
+梁子说是弄到了一千亿</blockquote>
+不光搞到了1000亿，还和华为深度合作设计芯片，明天第一季度出的960超节点，华为说要把大部分都给DeepSeek 
+
