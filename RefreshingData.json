@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 22042,
+    "totalreply": 22043,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼10月]",
-    "lastedit": 1792587006,
+    "lastedit": 1792652167,
     "category": "外野",
     "active": true,
     "update": false
@@ -13068,10 +13068,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 43632,
+    "totalreply": 43653,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1792587366,
+    "lastedit": 1792652168,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13689,10 +13689,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 37903,
+    "totalreply": 37921,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1792587246,
+    "lastedit": 1792652168,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -15921,10 +15921,10 @@
     "update": false
   },
   "2291581": {
-    "totalreply": 179,
+    "totalreply": 180,
     "title": "[想抄作业：大家用Agent做过哪些好玩／实用的东西？]",
     "newtitle": "[想抄作业：大家用Agent做过哪些好玩／实用的东西？]",
-    "lastedit": 1792586048,
+    "lastedit": 1792652168,
     "category": "外野",
     "active": true,
     "update": false
@@ -16416,10 +16416,10 @@
     "update": false
   },
   "2200027": {
-    "totalreply": 428,
+    "totalreply": 429,
     "title": "[赛博朋克：边缘行者 第二部 制作决定！]",
     "newtitle": "[赛博朋克：边缘行者 第二部 制作决定！]",
-    "lastedit": 1792585206,
+    "lastedit": 1792652167,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17510,7 +17510,7 @@
     "newtitle": "[看某为和DCD打架，突然想明白很多事]",
     "lastedit": 1792392728,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2292016": {
@@ -18225,10 +18225,19 @@
     "update": false
   },
   "2292280": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[所以土耳其为什么突然和中国网友吵起来了？还没吵赢]",
     "newtitle": "[所以土耳其为什么突然和中国网友吵起来了？还没吵赢]",
-    "lastedit": 1792587246,
+    "lastedit": 1792652167,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2292281": {
+    "totalreply": 41,
+    "title": "[日本紧急向美国求助，希望解决东大稀土出口管制问题]",
+    "newtitle": "[日本紧急向美国求助，希望解决东大稀土出口管制问题]",
+    "lastedit": 1792652168,
     "category": "外野",
     "active": true,
     "update": false
