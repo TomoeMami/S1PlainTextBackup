@@ -14673,3 +14673,42 @@ Qwen的最完美，Kimi的还是有点小BUG，都比DS强的有限。现在搞�
 
 一个月199、699的价格感觉还是有些贵了
 
+
+*****
+
+####  jinuzuktII  
+##### 17658#       发表于 2026-10-22 22:27
+
+gemini 是不是挂了
+
+*****
+
+####  Promeus  
+##### 17659#       发表于 2026-10-22 22:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409518&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-22 22:09</a>
+Qwen的最完美，Kimi的还是有点小BUG，都比DS强的有限。现在搞不明白DS这种小瑕疵到底是参数不足还是他们 ...</blockquote>
+Ds这个瑕疵从0731到0910再到1017一直有
+
+*****
+
+####  lactone  
+##### 17660#       发表于 2026-10-22 22:31
+
+ds这速度如果没点瑕疵那就真是梁圣了
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  tonyunreal  
+##### 17661#       发表于 2026-10-22 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409498&amp;ptid=2275806" target="_blank">Deco 发表于 2026-10-22 22:05</a>
+https://dsh-plugin.org/
+
+这个插件市场靠谱吗？还有别的推荐吗？</blockquote>
+大部分人应该都是用dshmarket
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
