@@ -7050,3 +7050,15 @@ DLC应该会给一个刷碎片的地方吧
 
 太痛苦了，迪哥线打到第九章在b站首页刷到隐藏剧情，点进去一看发现全部白打了<img src="https://static.stage1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Humpy  
+##### 8067#       发表于 2026-10-23 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413368&amp;ptid=2261859" target="_blank">Arsaces 发表于 2026-10-23 18:02</a>
+太痛苦了，迪哥线打到第九章在b站首页刷到隐藏剧情，点进去一看发现全部白打了 ...</blockquote>
+其实迪线还有个不重要的隐藏要素<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+斗技场门口有个暗恋迪哥的路人女，和她对话会送迪哥药，对话会定期更新，更新后还会送，整个对话下来应该算是一个小的路人剧情塑造了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

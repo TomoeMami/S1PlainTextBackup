@@ -1063,3 +1063,16 @@ lgbt只是生软问题之一了，主要还是游戏不好玩。。。
 —— 来自 OnePlus PHP110, Android 13, 鹅球 v3.5.99</blockquote>
 EA把赚钱的星战ol从biowave里剥离了;没了下金蛋的鸡，凭本事又赚不了钱，而且2015年就立项的龙滕4重做了三次 从单机做成网游，再从网游做成单机
 
+
+*****
+
+####  llysander  
+##### 106#       发表于 2026-10-23 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70410486&amp;ptid=2292298" target="_blank">ak123 发表于 2026-10-23 08:30</a>
+
+当初泥潭政确魔怔人可是在专楼里舌战群儒几百回合吹da4这坨东西lgbt内容怎么怎么好，游戏怎么怎么好的评价 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 记得那时还有150万参与vs销量之争
+
+其实EA怎么想的啊，按300万全价算也是亏的，现在只能认为当时在水面下跟沙特已经谈差不多，到300万的话能抬一点点身价，所以赌一把
+
