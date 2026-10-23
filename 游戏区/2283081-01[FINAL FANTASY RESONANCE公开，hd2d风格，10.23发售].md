@@ -3741,3 +3741,14 @@ FF1主角（物理反击）和FF8男主（平砍回蓝），还有上来给的�
 
 打完水都了，<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">演出太细致就导致风神殿明明都打败了boss结果boss又慢悠悠从主角团脸上飞过去把水晶爆了，和水神殿打倒boss看着boss若无其事地传走这种剧情好诡异。
 
+
+*****
+
+####  YukariK  
+##### 379#       发表于 2026-10-24 05:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414946&amp;ptid=2283081" target="_blank">suzakushi 发表于 2026-10-24 02:16</a>
+
+打完水都了，演出太细致就导致风神殿明明都打败了boss结果boss又慢悠悠从主角团脸上飞过去把水晶爆了，和水 ...</blockquote>
+还好吧，我没玩过手游，风神殿这段给我的感觉就像是二人联手只是打落了天风面具，并没有造成什么实质伤害，而天风也并没有要干掉两人的想法，只是为了破坏水晶，甚至有些引导主角团的意思。我也能大致猜到其他骑士的身份了。
+
