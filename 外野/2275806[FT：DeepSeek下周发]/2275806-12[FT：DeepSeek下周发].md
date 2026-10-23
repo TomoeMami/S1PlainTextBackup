@@ -15608,3 +15608,11 @@ Google风控有风险不，会不 ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  小野賢章  
+##### 17744#       发表于 2026-10-23 16:35
+
+我们公司内部的ds准备自己部署了，之前都是直连的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

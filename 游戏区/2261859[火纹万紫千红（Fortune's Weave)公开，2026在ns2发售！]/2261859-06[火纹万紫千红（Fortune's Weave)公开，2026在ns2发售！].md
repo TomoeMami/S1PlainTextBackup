@@ -6944,3 +6944,13 @@ https://weibo.com/5315344950/5356430054130539
 
 B站看了这段，这草木原俊行‌创作的风花和万紫的世界观完全可以并入异度宇宙了。他难道也是高桥哥哥的迷弟？
 
+
+*****
+
+####  古畑任三郎2015  
+##### 8056#       发表于 2026-10-23 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412819&amp;ptid=2261859" target="_blank">anyasora 发表于 2026-10-23 16:13</a>
+建议凯伊线把马下了通第一次关，然后再带上马一键跳过，会自动和第一次通关的融合，就会变成仓库里有马+ ...</blockquote>
+那反过来也可以是吗？我凯伊线已经上马通关一次第二部了，再来一次下马一键跳过？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
