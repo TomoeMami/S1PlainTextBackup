@@ -6881,3 +6881,24 @@ https://weibo.com/5315344950/5356430054130539
 
 其他线无所谓，只要凯线通关第二部之前把坐骑下掉就行了，放在人身上的坐骑会绑在凯线的角色上，放在仓库的就能和装备一样直接进仓库
 
+
+*****
+
+####  纪寞  
+##### 8050#       发表于 2026-10-23 15:50
+
+有人发现官方推特的人物介绍里，君子兰是有写喜爱物品的，而玛丽亚和拉苦裟都没有，难道dlc真能入队吗，小姨子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无知的小鼠人  
+##### 8051#       发表于 2026-10-23 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412436&amp;ptid=2261859" target="_blank">逆城的风 发表于 2026-10-23 14:58</a>
+
+开幕式跟白发鬼打架的那个古鲁金是谁？马兹？
+
+—— 来自 HUAWEI VOL-AL00, Android 16, 鹅球 v4.0-alpha ...</blockquote>
+大概率是布雷扎，然后是马兹，反正等 DLC 吧
+
