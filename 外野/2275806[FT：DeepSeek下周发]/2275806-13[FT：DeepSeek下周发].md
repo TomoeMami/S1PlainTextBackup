@@ -1002,3 +1002,22 @@ kimi客户端出图好像用的是seedream
 
 2026-10-24 01:26 上传
 
+
+*****
+
+####  果壳中的松鼠  
+##### 17853#       发表于 2026-10-24 01:36
+
+kimi有点东西啊，可惜用不起<img src="https://static.stage1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  startraveller  
+##### 17854#       发表于 2026-10-24 01:37
+
+我199老套餐 REVIEW个小游戏进度就烧了13%的5h。换20美刀Opus就用了3%。而且claude一个周限8个5h，kimi是5个。还是贵啊。
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
