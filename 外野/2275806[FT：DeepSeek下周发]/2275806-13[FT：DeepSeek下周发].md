@@ -380,3 +380,24 @@ Ramp 追踪 7 万余家美国企业支付数据显示，Ope ...</blockquote>
 
 1017 出来之后，以前藏着的各种漏洞瞒不住了吗？
 
+
+*****
+
+####  阿刚  
+##### 17793#       发表于 2026-10-23 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413292&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-23 17:46</a>
+
+我本来出于谦虚的心态搜了一下各大ai，然后各大ai告诉我a%对大语言模型基础领域的公开贡献第一条就是宪法 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鞋胶教义吗
+
+*****
+
+####  阿刚  
+##### 17794#       发表于 2026-10-23 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414007&amp;ptid=2275806" target="_blank">吴怀在 发表于 2026-10-23 20:56</a>
+
+最近各种漏洞集中爆发是什么原因？这些漏洞是不是应该早就被其他大模型发现了，只不过当时还能藏在大公司自 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">不是三哥发力的吗
+
