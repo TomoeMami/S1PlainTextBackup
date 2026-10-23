@@ -1012,3 +1012,21 @@ Bioware探索出了一条属于欧美的3A RPG之路。从《旧共和国骑士�
 拉瑞安从小众转向大众的bg3很成功，看猫头鹰这把能不能渡劫吧，如果苍穹浩瀚能平稳落地那就是新世代的生 ...</blockquote>
 之前云了苍穹浩瀚的测试流程，只能说符合我对猫头猫技术力的想象，还算凑合的画面表现感觉完全是靠虚幻5神力撑起来的（
 
+
+*****
+
+####  m1grandmk1  
+##### 101#       发表于 2026-10-23 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411613&amp;ptid=2292298" target="_blank">水边井 发表于 2026-10-23 11:53</a>
+
+拉瑞安从小众转向大众的bg3很成功，看猫头鹰这把能不能渡劫吧，如果苍穹浩瀚能平稳落地那就是新世代的生 ...</blockquote>
+玩过行商浪人就知道猫头鹰做游戏还着重于文字冒险这块，画面、游戏性还是有很多不足，和拉瑞安有不少差距。
+
+*****
+
+####  diodio233  
+##### 102#       发表于 2026-10-23 14:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一想到那些dei庸才在gayware里骗了这么久的工资现在才关掉我就气得直哆嗦
+

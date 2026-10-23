@@ -6783,3 +6783,25 @@ https://weibo.com/5315344950/5356430054130539
 
 第三部凹马的技能反而比第一部容易，因为自捏进出城一次就能改变随机数，就是会有运气不好一直出不来想要的情况
 
+
+*****
+
+####  maojiashu  
+##### 8041#       发表于 2026-10-23 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412230&amp;ptid=2261859" target="_blank">Losange 发表于 2026-10-23 14:17</a>
+
+第三部凹马的技能反而比第一部容易，因为自捏进出城一次就能改变随机数，所以在动物朋友出来的前一回合保存 ...</blockquote>
+出什么马是吃进出城吗？
+
+*****
+
+####  yangchunsiyue  
+##### 8042#       发表于 2026-10-23 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411739&amp;ptid=2261859" target="_blank">lmclmc2 发表于 2026-10-23 12:18</a>
+第一次通凯线的时候最后一关逃亡直接给除了凯伊其他所有人马卸了，这样后面第三部随便给谁用，好感也继承 ...</blockquote>
+那如果第二章先玩的是别人的线，再玩凯伊线卸下坐骑有用吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
