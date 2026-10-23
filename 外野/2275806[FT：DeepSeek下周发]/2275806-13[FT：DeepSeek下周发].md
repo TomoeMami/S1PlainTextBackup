@@ -346,3 +346,37 @@ Ramp 追踪 7 万余家美国企业支付数据显示，Ope ...</blockquote>
 
 现在1017爷爷要来收割不思进取的美国AI了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17790#       发表于 2026-10-23 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413616&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-23 19:09</a>
+坛友也不要那么偏激好吧，agent没贡献都来了，要不自己搓个能影响业界的工具出来吧，反正现在有agent了也是 ...</blockquote>
+他自己说的技术贡献，claude code算个毛线ai技术贡献
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17791#       发表于 2026-10-23 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413828&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-10-23 20:11</a>
+很多人还没有意识到chat AI和agent AI根本不是同一个东西</blockquote>
+实际上现在chat客户端后台也越来越重型化了，聊着聊着skill就调用上了，py脚本也跑起来了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  吴怀在  
+##### 17792#       发表于 2026-10-23 20:56
+
+最近各种漏洞集中爆发是什么原因？这些漏洞是不是应该早就被其他大模型发现了，只不过当时还能藏在大公司自己手里拖着慢慢修复。
+
+1017 出来之后，以前藏着的各种漏洞瞒不住了吗？
+

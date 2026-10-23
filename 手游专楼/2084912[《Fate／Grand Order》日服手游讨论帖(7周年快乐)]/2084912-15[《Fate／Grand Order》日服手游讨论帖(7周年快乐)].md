@@ -293,3 +293,103 @@ C狐：没改模的是弟弟，今天强化的都是你姐姐<img src="https://s
 </blockquote>
 实在不行就双冠位打手借奥伯龙吧，光炮后面接单体宝具或者红卡暴击...
 
+
+*****
+
+####  xiongxingyu  
+##### 21690#       发表于 2026-10-23 19:33
+
+黑花带个拐随便拍死，配置低的大不了上黑杯，队友带个有强化解除的就行，因为亚里亚是中立善（月式阵营很神奇吧），可以上善特攻的杀生院其实和失地王差不多，DB拐的范围小还是蓝拐就一般了，再不济还有白送的人王，虽然要多看个宝具，不过胜在100冲加上拐力也不弱。
+
+*****
+
+####  exiaexa  
+##### 21691#       发表于 2026-10-23 20:06
+
+ 本帖最后由 exiaexa 于 2026-10-23 20:21 编辑 
+
+一打开游戏天塌了，居然更新有用的了
+
+这亚里亚迫真力大砖飞
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+诶哟这柱子还有狗粮，这下不得不肝了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 21692#       发表于 2026-10-23 20:11
+
+肝了30抽没出……明天再肝了，之前以为没东西扔其他池子几十抽，好气哦
+
+*****
+
+####  gpx234mqx  
+##### 21693#       发表于 2026-10-23 20:26
+
+４０抽
+
+<img src="https://img.stage1st.com/forum/202610/23/202617uk347k3pagzh4f5p.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9517.png</strong> (992.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 20:26 上传
+
+*****
+
+####  岸浪白野  
+##### 21694#       发表于 2026-10-23 20:30
+
+ 本帖最后由 岸浪白野 于 2026-10-23 20:34 编辑 
+
+所长哪用到奥伯龙和RBA这两个的buff才能打死的地步啊，更别说早就15绊了
+用个阿斯+黑花的buff都能打死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+没有升120级所长吗
+
+*****
+
+####  jackyhuang  
+##### 21695#       发表于 2026-10-23 20:53
+
+没事，所长离16绊还很远<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  Jamaisvu  
+##### 21696#       发表于 2026-10-23 20:55
+
+黑花+约翰的组合算是定制冠军了，又便捷又好用。
+
+本来三号位带的是终末龙娘，看她老人家死去活来于心不忍（其实用新换人服一技能可以免于一死），同时感觉伤害有点溢出，就试了一下其他阵容。
+
+最后发现100级2000芙芙、开暴击被动、指令卡打爆伤纹章的黑花，带约翰开一二技能，三号位提供20攻击30爆伤，或者50爆伤的buff，再加上新换人服将近40的攻击up，就能三红稳定击杀：
+
+<img src="https://img.stage1st.com/forum/202610/23/205245ckn3s8qcy77mmzik.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20261023_204143_com.aniplex.fategrandorder.jpg</strong> (292.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-23 20:52 上传
+
+卑弥呼开一二技能
+
+<img src="https://img.stage1st.com/forum/202610/23/205245kblo1lsksl5tq9sl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20261023_205156_com.aniplex.fategrandorder.jpg</strong> (272.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-23 20:52 上传
+
+但丁开二技能天国
+
+这个本有了对策挺好打的，正好让平时的仓管出来活动一下～
+
