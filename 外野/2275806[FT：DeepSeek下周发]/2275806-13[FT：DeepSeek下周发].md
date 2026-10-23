@@ -645,3 +645,38 @@ tb4.0 1017的分数是42....两倍就是84了。
 如果这是阿里要求奥特曼禁止操作淘宝的话，那国产 ...</blockquote>
 可以用kimi-webbridge，单纯操作网页的话，比computer use高到不知道哪里去了
 
+
+*****
+
+####  SmterC  
+##### 17817#       发表于 2026-10-23 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414193&amp;ptid=2275806" target="_blank">serj005 发表于 2026-10-23 21:52</a>
+pi的codemode真不错，越用越爽，输出方法多样化没有像dsh的ptc模式这么死板，即使工具提示词很短调用成功率 ...</blockquote>
+可以试试dsh-ptc-plus插件，可以规避现在dsh的PTC比较死板的问题    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  reficul  
+##### 17818#       发表于 2026-10-23 23:45
+
+这个月充了30块deepseek，帮我搓了几个像模像样的自动化工具，能帮忙解决不少重复工作了，感慨现在ai的能力真是太强了，代码看不懂，报错也看不懂，但是全都都给它就行ai就自己把问题解决了。
+
+出于保密原因公司电脑上只有部署ds4和qwen3.8，要快速地把自己以往的工作经验做成知识库并进行持续更新和管理，有什么通俗易懂的介绍吗
+
+*****
+
+####  qwased  
+##### 17819#       发表于 2026-10-23 23:45
+
+<img src="https://img.stage1st.com/forum/202610/23/234543fjl99uboooj31ooo.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792770341797_2.webp</strong> (31.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 23:45 上传
+
+上线了,价格好像不错
+
