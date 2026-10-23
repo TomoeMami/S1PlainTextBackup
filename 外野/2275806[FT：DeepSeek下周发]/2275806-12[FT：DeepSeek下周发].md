@@ -15491,3 +15491,43 @@ kimi 3就是太太太太慢了，先不说能力如何，慢了根本不实用
 
 希望 Kimi 别把公文写作能力给训没了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冤枉呐  
+##### 17733#       发表于 2026-10-23 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411063&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-10-23 10:15</a>
+
+羊毛版Gemini会员大屠杀，然后买新版Pixel送的会员汇报可以用Opus5.5 和 Gemini 4了。
+
+5个号只剩2个，但是2 ...</blockquote>
+就是伪装自己有个pixel手机？
+
+*****
+
+####  沙发沙发  
+##### 17734#       发表于 2026-10-23 14:49
+
+k3本身就很强了，就是太贵太慢，平时根本不爱用
+
+
+*****
+
+####  泰坦失足  
+##### 17735#       发表于 2026-10-23 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412380&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-10-23 14:47</a>
+
+就是伪装自己有个pixel手机？</blockquote>
+现在在外网抱怨的那些人，以真金白银原价买了新款Pixel的居多<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+
+*****
+
+####  bighand3714  
+##### 17736#       发表于 2026-10-23 14:55
+
+不看帖子我都没注意，确实是有了，咸鱼16买的<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">。
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
