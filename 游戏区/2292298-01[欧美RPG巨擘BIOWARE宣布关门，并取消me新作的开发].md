@@ -1104,3 +1104,15 @@ SE什么时候挂？
 
 唉，虽然当初吃了龙腾世纪4那口SHIT真的很无语，但是再也玩不到了还是很遗憾
 
+
+*****
+
+####  pointer243  
+##### 110#       发表于 2026-10-24 06:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412347&amp;ptid=2292298" target="_blank">karastar 发表于 2026-10-23 14:39</a>
+圣歌这玩意是赶工出来的，软件框架就烂了，更新都费力，要更新不如学OW搞一个翻新的OW2出来更容易长线运 ...</blockquote>
+当初艰难的决定前接手的奥斯汀分部就说过救圣歌就只有2.0，而且那时候看上去他们真的要大干一场的。结果遇到叮咚鸡，进度滞后，原总监Hudson又跑路，原本预定主策2.0的带头人被调去总部当总监。圣歌制作组又双进入群龙无首的阶段，就这还得熬到最后EA的临终探视才彻底死掉
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
