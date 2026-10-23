@@ -1063,3 +1063,27 @@ Google家的好蒸吗？ 以后蒸点 Gemini 4 Carbon吧，比GPT好看。 <img 
 
 怎么都学会绿帽子红围巾慢慢骑了
 
+
+*****
+
+####  nxmonitor  
+##### 17860#       发表于 2026-10-24 01:59
+
+官方示例里面混进去很多用扩散模型建的模
+
+
+*****
+
+####  The_Ether_  
+##### 17861#       发表于 2026-10-24 02:05
+
+<img src="https://img.stage1st.com/forum/202610/24/020454coe6v2w99omsfocs.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>HVVTHDTaAAAyAl-.jpeg</strong> (215.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 02:04 上传
+
+有点强了
+
