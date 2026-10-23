@@ -15476,3 +15476,18 @@ kimi这个服务器和处理速度真的是一言难尽。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  赤星ビスコ  
+##### 17731#       发表于 2026-10-23 14:25
+
+kimi 3就是太太太太慢了，先不说能力如何，慢了根本不实用
+
+*****
+
+####  HazukiShion  
+##### 17732#       发表于 2026-10-23 14:26
+
+希望 Kimi 别把公文写作能力给训没了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

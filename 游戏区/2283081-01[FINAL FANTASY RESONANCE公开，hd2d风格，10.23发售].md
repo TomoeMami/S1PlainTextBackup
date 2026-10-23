@@ -3571,3 +3571,21 @@ d加密哪有学习版</blockquote>
 
 正式版还是没有怪物图鉴？明明每种怪都做了偷窃掉落……<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blueelf  
+##### 360#       发表于 2026-10-23 14:21
+
+<blockquote>白昼梦DD 发表于 2026-10-20 23:16
+fami通算法别是机械化刷幻兵就几十小时了</blockquote>
+B站评测，在沼泽刷大仙人掌，4到5场战斗就可以刷满一个幻兵，全部刷完用了4个小时
+
+
+*****
+
+####  Vladimeow  
+##### 361#       发表于 2026-10-23 14:22
+
+之前没玩demo，这演出真是爆杀八方旅人了，这才是HD2D应有的品质嘛
+
