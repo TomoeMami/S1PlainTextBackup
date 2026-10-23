@@ -1111,3 +1111,13 @@ AA这榜越来越没参考意义了，sonnet和muse什么垃圾
 
 输出还变多了，不够干练啊还是
 
+
+*****
+
+####  舞以  
+##### 17865#       发表于 2026-10-24 02:51
+
+虽然 kimi 看不起 oneshot 测试的低质量人类，但是我要补充一个信息：我新版本的 199 套餐的 5hlimit 都不够 k3.1pro high 画出来一只骑车鹈鹕的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
