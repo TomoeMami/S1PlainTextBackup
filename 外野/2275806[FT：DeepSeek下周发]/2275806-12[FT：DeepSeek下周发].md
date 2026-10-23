@@ -15649,3 +15649,57 @@ kimi给我感觉是对标a/吧。走小众“精英”路线</blockquote>
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  hencechen  
+##### 17748#       发表于 2026-10-23 17:01
+
+不是…antropic别的可以黑，怎么连技术也开始黑了…
+
+有些回帖的坛友，到底关没关注过ai社区的发展啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然这公司意识形态上很奇葩，但是，
+skill、MCP，co-work模式，包括claude code这种cli模式编程智能体，
+都是antropic首发，其他家跟进的。论对现在ai产业的产业形态塑造，antropic只在oai之下。
+
+—— 来自 HONOR PTP-AN10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  云卷花开  
+##### 17749#       发表于 2026-10-23 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413092&amp;ptid=2275806" target="_blank">hencechen 发表于 2026-10-23 17:01</a>
+不是…antropic别的可以黑，怎么连技术也开始黑了…
+
+有些回帖的坛友，到底关没关注过ai社区的发展啊</blockquote>
+这不都 tm 是生态的玩意，llm 它贡献啥了？
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  andychen  
+##### 17750#       发表于 2026-10-23 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413092&amp;ptid=2275806" target="_blank">hencechen 发表于 2026-10-23 17:01</a>
+
+不是…antropic别的可以黑，怎么连技术也开始黑了…
+
+有些回帖的坛友，到底关没关注过ai社区的发展啊</blockquote>
+贡献最大的还是CC把智能体应用推开了吧
+
+去年底各家模型厂还在发愁token卖不出去，谁知道今年一整年供不应求价格涨了又涨
+
+*****
+
+####  小野賢章  
+##### 17751#       发表于 2026-10-23 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412990&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-10-23 16:42</a>
+
+因为ds开源了推理架构？</blockquote>
+我也不知道，其实之前也部署了，不过部署的3.2，估计最近有动力升级吧
+
