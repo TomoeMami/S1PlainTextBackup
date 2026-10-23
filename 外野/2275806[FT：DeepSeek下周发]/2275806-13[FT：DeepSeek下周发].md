@@ -608,3 +608,27 @@ tb4.0 1017的分数是42....两倍就是84了。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17814#       发表于 2026-10-23 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414385&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-23 22:46</a>
+等等，两倍的不会是每项任务平均费用吧
+
+论坛助手,iPhone</blockquote>
+那还降价了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  lactone  
+##### 17815#       发表于 2026-10-23 22:55
+
+梁子又能做空了，这是好事啊
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
