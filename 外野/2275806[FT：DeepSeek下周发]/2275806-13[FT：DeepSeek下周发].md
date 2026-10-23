@@ -253,3 +253,31 @@ A/发那个安全报告更是火上浇油<img src="https://static.stage1st.com/i
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  北野苍术  
+##### 17783#       发表于 2026-10-23 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413673&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-23 19:27</a>
+感觉现在有意愿主动使用AI能力的还是一小撮人，S1已经是我能接触到的这方面意愿最强烈的社区了
+
+大部分普 ...</blockquote>
+毕竟自主使用，尤其非程序员类的，花钱就突出一个付费上班，如果各种公司来点toekn打折，都可以直接联动隔壁贴双11买什么东西给工作用了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过讲道理，我实际工作中关注我这边行业内的一些动态（非it相关行业），就会发现其实内外企业和上面的人都有在大力推进工作数智化。我是真感觉在这个风口上如果不去学，不去了解这方面，就很容易丧失竞争力啊<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2301-5, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  phorcys02  
+##### 17784#       发表于 2026-10-23 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413673&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-23 19:27</a>
+
+感觉现在有意愿主动使用AI能力的还是一小撮人，S1已经是我能接触到的这方面意愿最强烈的社区了
+
+大部分普 ...</blockquote>
+多拖一会儿不好么：D
+
