@@ -798,3 +798,42 @@ k3.1 pro 130k/s，pro highspeed 180t/s，这速度终于舒服了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  狭义文具爱好者  
+##### 17832#       发表于 2026-10-24 00:18
+
+这个美元计价没绷住
+
+
+*****
+
+####  cube  
+##### 17833#       发表于 2026-10-24 00:20
+
+速度快了，行吧。
+
+毕竟有些活DS没法做。
+
+*****
+
+####  cscbzcbz  
+##### 17834#       发表于 2026-10-24 00:21
+
+画了个鹈鹕，感觉就那样吧。明天再测，看看到底哪个跑分能是1017的两倍多
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  9912811  
+##### 17835#       发表于 2026-10-24 00:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">gemini最近发神经
+
+api能用，但是aistudio网页就提醒我地区错误<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+进不去控制台设置限额……
+
