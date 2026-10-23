@@ -938,3 +938,43 @@ aa野榜54（信源暂存疑，还没看到，但我感觉差不多</blockquote>
 就是这额度消耗尼玛比chatgpt还快。</blockquote>
 kimi客户端出图好像用的是seedream
 
+
+*****
+
+####  有鱼  
+##### 17846#       发表于 2026-10-24 01:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我向梁圣道歉，k3.1pro无论最后测试出来水平如何，199的套餐基本是不可用的
+
+我是用不起了
+
+*****
+
+####  Promeus  
+##### 17847#       发表于 2026-10-24 01:08
+
+一些说法是后端如物理模拟非常强
+
+
+*****
+
+####  profr  
+##### 17848#       发表于 2026-10-24 01:10
+
+3.1前端似乎有些微妙
+
+*****
+
+####  御坂MKII  
+##### 17849#       发表于 2026-10-24 01:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真便宜了吗，我这老 199 消耗速度还比 k3 快了
+
+
+*****
+
+####  The_Ether_  
+##### 17850#       发表于 2026-10-24 01:13
+
+看评价是前段审美还不如DeepSeek，GPT味太浓了，后端非常强
+
