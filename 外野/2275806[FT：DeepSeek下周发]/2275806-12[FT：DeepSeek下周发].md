@@ -15577,3 +15577,14 @@ kimi从k2.5开始一直都是国产模型追前沿进度比较紧的，审美不
 Google风控有风险不，会不 ...</blockquote>
 使用antigravity可能需要二次验证手机号，JIO的话掉了只没会员。Pixel领的会员就不知道了
 
+
+*****
+
+####  来都来了  
+##### 17741#       发表于 2026-10-23 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412071&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-10-23 13:36</a>
+我觉得现在 gpt 这个低能最恶心的地方就是没事无聊乱问问题打断推进，而且问的事情很 sb
+我描述了别人用软 ...</blockquote>
+你怎么不让gpt给你算命呢？
+
