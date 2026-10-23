@@ -15531,3 +15531,49 @@ k3本身就很强了，就是太贵太慢，平时根本不爱用
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  overflowal  
+##### 17737#       发表于 2026-10-23 14:58
+
+超出serve能力的模型，在现在其实是很致命的，做RL需要大量的推理算力。你跑了很难serve的模型，意味着RL做起来很慢
+
+
+*****
+
+####  冤枉呐  
+##### 17738#       发表于 2026-10-23 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412413&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-10-23 14:54</a>
+现在在外网抱怨的那些人，以真金白银原价买了新款Pixel的居多。</blockquote>
+整得我心痒痒，我也想薅一把了
+查三个号，一个日本，一个芬兰（？）一个国内。
+Google风控有风险不，会不会把我号办了
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  狭义文具爱好者  
+##### 17739#       发表于 2026-10-23 15:00
+
+kimi从k2.5开始一直都是国产模型追前沿进度比较紧的，审美不错也偏通用，kimi是国内最早的多模态开源模型，毕竟现在glm和ds的最大模型现在都还戴着眼罩呢。开源技术上也有自己的贡献，不像glm，没必要和a社坐一桌。
+
+就是实在卡少供不起人，天天在排队和会员上下毒。
+
+
+*****
+
+####  泰坦失足  
+##### 17740#       发表于 2026-10-23 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412453&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-10-23 15:00</a>
+
+整得我心痒痒，我也想薅一把了
+
+查三个号，一个日本，一个芬兰（？）一个国内。
+
+Google风控有风险不，会不 ...</blockquote>
+使用antigravity可能需要二次验证手机号，JIO的话掉了只没会员。Pixel领的会员就不知道了
+
