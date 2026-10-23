@@ -837,3 +837,40 @@ api能用，但是aistudio网页就提醒我地区错误<img src="https://static
 
 进不去控制台设置限额……
 
+
+*****
+
+####  Promeus  
+##### 17836#       发表于 2026-10-24 00:29
+
+Aa54的话就是第二咯<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HazukiShion  
+##### 17837#       发表于 2026-10-24 00:35
+
+AA 野榜我这边看没更新啊，话说有人试试公文写作吗，有点担心去追编程搞得写作拉胯，但手边又没电脑。。。。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 17838#       发表于 2026-10-24 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414714&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-10-24 00:35</a>
+
+AA 野榜我这边看没更新啊，话说有人试试公文写作吗，有点担心去追编程搞得写作拉胯，但手边又没电脑。。。 ...</blockquote>
+写作说是已经拉了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HazukiShion  
+##### 17839#       发表于 2026-10-24 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414717&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-24 00:36</a>
+
+写作说是已经拉了</blockquote>
+比 K3 差吗？<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
