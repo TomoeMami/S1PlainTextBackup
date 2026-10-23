@@ -680,3 +680,29 @@ pi的codemode真不错，越用越爽，输出方法多样化没有像dsh的ptc�
 
 上线了,价格好像不错
 
+
+*****
+
+####  宅男的爱  
+##### 17820#       发表于 2026-10-23 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414369&amp;ptid=2275806" target="_blank">吴怀在 发表于 2026-10-23 22:41</a>
+
+有人知道为什么 Codex 的 computer use 不让操作淘宝吗？
+
+如果这是阿里要求奥特曼禁止操作淘宝的话，那国产 ...</blockquote>
+我总觉得这事先得看千问……
+
+
+*****
+
+####  空き地卯木  
+##### 17821#       发表于 2026-10-23 23:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414369&amp;ptid=2275806" target="_blank">吴怀在 发表于 2026-10-23 22:41</a>
+有人知道为什么 Codex 的 computer use 不让操作淘宝吗？
+
+如果这是阿里要求奥特曼禁止操作淘宝的话，那国产 ...</blockquote>
+很大概率是oai自己设限了
+dsh拿藤子的浏览器控制插件，随随便便上淘宝
+
