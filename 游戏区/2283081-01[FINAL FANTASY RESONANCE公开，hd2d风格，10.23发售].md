@@ -3534,3 +3534,13 @@ d加密哪有学习版</blockquote>
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  隔壁老黄  
+##### 356#       发表于 2026-10-23 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70410244&amp;ptid=2283081" target="_blank">喵喵叫的猫 发表于 2026-10-23 04:12</a>
+这算官方终于承认莉诺雅就是最终boss了吧 虽然大家都猜到了不知道有什么好否认的</blockquote>
+是也不是，不然最终战打魔女哪还能用莉诺雅。就像异度装甲最后是打艾蕾海姆，十字架剧情后，直到通关都不能用艾莉了
+

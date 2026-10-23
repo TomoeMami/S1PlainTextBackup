@@ -15195,3 +15195,32 @@ pixel会员被干了的话是掉会员还是连号都一起被封？</blockquote
 买的是Jio会员，被干的时候是掉会员</blockquote>
 jio一直没有封号的报告，倒是pixel有人说连号一起被封了
 
+
+*****
+
+####  lactone  
+##### 17704#       发表于 2026-10-23 11:09
+
+k3.1视频都发了，api不发是吗？
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zip7770  
+##### 17705#       发表于 2026-10-23 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411060&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-23 10:15</a>
+
+据说其实是超级2.9，比k3强一点但更快更便宜
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+要真这样那可太好了
+
+*****
+
+####  宏.  
+##### 17706#       发表于 2026-10-23 11:10
+
+kimi终于要憋气结束了，我的双199账户已饥渴难耐
+
