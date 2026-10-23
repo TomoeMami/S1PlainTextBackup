@@ -452,3 +452,11 @@ k3.1最终跑分上估计会比较好看<img src="https://static.stage1st.com/im
 
 php漏洞那个有可能和OAI有关，他们自己也发了条推特
 
+
+*****
+
+####  gammatau  
+##### 17800#       发表于 2026-10-23 21:40
+
+发明skill都是贡献的话o畜发明openai api格式贡献是它一百倍了
+
