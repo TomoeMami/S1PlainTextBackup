@@ -475,3 +475,67 @@ codemode这个js组合工具理念，今天用起来有个比较惊艳的地方�
 
 能很直观看到每次工具调用的作用（防止模型思路跑偏及时纠错）还不用把整个思维链都改成中文影响模型行为或者智力水平。
 
+
+*****
+
+####  狭义文具爱好者  
+##### 17802#       发表于 2026-10-23 22:18
+
+说起昂贵模型就想到o1pro，结果让我之前觉得pro这个词不吉利的印象又加深了。
+
+各大漏洞每个公司压箱底应该都有，但是没必要公开，早期可能认为这些漏洞人力无法发现同时公布出来也不好修，干坏事的收益又远不如好名声的融资。但是现在随着廉价模型的进一步进步，真的是有事没事小孩子乱开枪了。
+
+同样这也是进一步普及的一环，都会慢慢下沉只是需要时间。现在豆包已经沉下去了，workbuddy还有很长一段时间的红利可以吃。（多少又对腾讯捡便宜有点不爽了，但我感觉比烂之下这个生态位让腾讯占可能还比字节强点？）
+
+
+*****
+
+####  overflowal  
+##### 17803#       发表于 2026-10-23 22:21
+
+这下超级大魔了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+1000005177.jpg
+(100.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 22:21 上传
+
+<img src="https://img.stage1st.com/forum/202610/23/222108mgjoez9tzrr9tt4z.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 17804#       发表于 2026-10-23 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414298&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-10-23 22:21</a>
+这下超级大魔了    Re:Source</blockquote>
+哇，很期待了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  天气雨  
+##### 17805#       发表于 2026-10-23 22:26
+
+真要论A÷有什么贡献的话，
+那就是现阶段C端用户无用，只有编程能赚钱。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  lactone  
+##### 17806#       发表于 2026-10-23 22:26
+
+ 本帖最后由 lactone 于 2026-10-23 22:27 编辑 
+
+感觉只可能是terminal  bench 4.0，其他大多数bench两倍就爆表了，那就说明kimi 3.1的tb4.0刷到了68%<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">，超过opus55
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
