@@ -1030,3 +1030,16 @@ Bioware探索出了一条属于欧美的3A RPG之路。从《旧共和国骑士�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一想到那些dei庸才在gayware里骗了这么久的工资现在才关掉我就气得直哆嗦
 
+
+*****
+
+####  karastar  
+##### 103#       发表于 2026-10-23 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70410593&amp;ptid=2292298" target="_blank">clover293 发表于 2026-10-23 08:56</a>
+
+lgbt只是生软问题之一了，主要还是游戏不好玩。。。
+
+其实我一直觉得圣歌可惜了，这年头有个好底子的游戏不 ...</blockquote>
+圣歌这玩意是赶工出来的，软件框架就烂了，更新都费力，要更新不如学OW搞一个翻新的OW2出来更容易长线运营
+

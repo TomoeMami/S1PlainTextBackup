@@ -6805,3 +6805,41 @@ https://weibo.com/5315344950/5356430054130539
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  燃烧的石头  
+##### 8043#       发表于 2026-10-23 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412301&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-10-23 14:32</a>
+出什么马是吃进出城吗？</blockquote>
+是的，每次进出城随机数都会变，所以第三部反而是好抓坐骑了，不是自己想要的一直反复进出城就行了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  苍蓝之枪  
+##### 8044#       发表于 2026-10-23 14:45
+
+军团也是一个道理，抓本身来说并不是很烦
+
+烦在喂，怀疑最喜欢的东西也是个坑，不一定是加得最多的
+
+另外还有一个问题就是和凯伊本尊绑定，导致他不能参加别的活动，女王虽然也是一样的，但是人家到地方吼一声就跑路了，他还得折回来
+
+
+*****
+
+####  lmclmc2  
+##### 8045#       发表于 2026-10-23 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412304&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-10-23 14:32</a>
+那如果第二章先玩的是别人的线，再玩凯伊线卸下坐骑有用吗
+
+—— 来自 S1Fun ...</blockquote>
+在人身上的马如果选了因果融合还不用这条线当主体就会消失，只能去柜子里领。而不在人身上的会进仓库，直接第三章继承了，后面可以随便给人。这跟其他线怎么样都无关，只看你凯线做不做这个操作。这里主要要注意，凯线整个档第一次通关的时候，如果你没下掉马，后面再下也没用了，因为这游戏的第一次通关锁仓库设计导致的。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
