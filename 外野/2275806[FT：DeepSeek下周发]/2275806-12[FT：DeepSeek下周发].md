@@ -15616,3 +15616,36 @@ Google风控有风险不，会不 ...</blockquote>
 
 我们公司内部的ds准备自己部署了，之前都是直连的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 17745#       发表于 2026-10-23 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412056&amp;ptid=2275806" target="_blank">lostfile 发表于 2026-10-23 13:32</a>
+
+kimi给我感觉是对标a/吧。走小众“精英”路线</blockquote>
+国内对标Anthriopic的是智谱啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不管是擅长预训练还是干畜事都完美对标
+
+
+*****
+
+####  有鱼  
+##### 17746#       发表于 2026-10-23 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412939&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-23 16:35</a>
+
+我们公司内部的ds准备自己部署了，之前都是直连的</blockquote>
+因为ds开源了推理架构？
+
+*****
+
+####  lactone  
+##### 17747#       发表于 2026-10-23 16:43
+
+是的，anthropic和智谱分别是美国和国内对社区技术贡献最少的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

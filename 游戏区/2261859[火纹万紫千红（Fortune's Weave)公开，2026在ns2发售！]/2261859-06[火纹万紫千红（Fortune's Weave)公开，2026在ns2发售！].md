@@ -6954,3 +6954,34 @@ B站看了这段，这草木原俊行‌创作的风花和万紫的世界观完�
 建议凯伊线把马下了通第一次关，然后再带上马一键跳过，会自动和第一次通关的融合，就会变成仓库里有马+ ...</blockquote>
 那反过来也可以是吗？我凯伊线已经上马通关一次第二部了，再来一次下马一键跳过？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bad_alloc  
+##### 8057#       发表于 2026-10-23 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412950&amp;ptid=2261859" target="_blank">古畑任三郎2015 发表于 2026-10-23 16:37</a>
+那反过来也可以是吗？我凯伊线已经上马通关一次第二部了，再来一次下马一键跳过？ ...</blockquote>
+好像不行，因为仓库记录的是第一次通第二部的状态，后续通关的物品会进柜子要用碎片才能换出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lmclmc2  
+##### 8058#       发表于 2026-10-23 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412950&amp;ptid=2261859" target="_blank">古畑任三郎2015 发表于 2026-10-23 16:37</a>
+那反过来也可以是吗？我凯伊线已经上马通关一次第二部了，再来一次下马一键跳过？ ...</blockquote>
+不行，只要你通关过一次第二部还没下马就不行了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  古畑任三郎2015  
+##### 8059#       发表于 2026-10-23 16:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
