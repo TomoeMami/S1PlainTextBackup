@@ -3623,3 +3623,40 @@ BanGDream! bilibili官方：@BanGDream_CN
 
        [https://x.com/bang_dream_info/status/2113193655225954778](https://x.com/bang_dream_info/status/2113193655225954778)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42151#       发表于 2026-10-23 13:15
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/23/131510n8g1c2quqp686nqp.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-23_13-12-53.png</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 13:15 上传
+
+       [https://x.com/bang_dream_info/status/2113480533149659508](https://x.com/bang_dream_info/status/2113480533149659508)
+
+*****
+
+####  堀内爱里衣  
+##### 42152#       发表于 2026-10-23 13:16
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/23/131559q1d6fmnwiky9zndi.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-23_13-15-28.png</strong> (390.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 13:15 上传
+
+       [https://x.com/bang_dream_info/status/2113480538573197739](https://x.com/bang_dream_info/status/2113480538573197739)
+
+       [https://bmu.lnk.to/AveMujica_miniAL2026tw](https://bmu.lnk.to/AveMujica_miniAL2026tw)
+

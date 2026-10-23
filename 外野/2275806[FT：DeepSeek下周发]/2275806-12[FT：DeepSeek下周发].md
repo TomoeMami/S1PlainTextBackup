@@ -15344,3 +15344,28 @@ high就没意思了<img src="https://static.stage1st.com/image/smiley/face2017/0
 
 ds发模型前一段时间都会发一些用于下一个版本上的技术论文，发完模型后再发技术报告，其实很研究室风格
 
+
+*****
+
+####  梁皇无忌  
+##### 17718#       发表于 2026-10-23 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411508&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-10-23 11:38</a>
+
+1017老师发布的时候ds员工就已经串好了
+
+杨老师加油啊，我要用3.1抽1017的屁股 ...</blockquote>
+让妹妹和别家姐姐打擂台就很没道理啊，虽说主因是自家姐姐pro拉了个大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 17719#       发表于 2026-10-23 13:11
+
+[https://devcloud.cn-north-4.huaw ... T5cUpZ_E9OI864fd1Am](https://devcloud.cn-north-4.huaweicloud.com/chat?source=dmzntgwlb&amp;sourcead=dmzntgwlb1&amp;invitecode=INV-oZmfBJyVB49-9rLoOz4cjxaiOTBOUH22IBZjCuJGbOG57UzGnhKXomidcRZEt9qbha9Fbg30PVEuu4PeeykhRxhQnvgR0ecWxIk8HXzj74YJH_TVZKw4RG5A08QcLXJXg_29Yrk62UpZbeeRwwxWqmN28vTA7T5cUpZ_E9OI864fd1Am)
+
+[https://github.com/Johnsheng1/codearts2api](https://github.com/Johnsheng1/codearts2api)
+
+1017管够 每天一千积分差不多1~2亿token
+
