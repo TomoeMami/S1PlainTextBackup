@@ -281,3 +281,26 @@ A/发那个安全报告更是火上浇油<img src="https://static.stage1st.com/i
 大部分普 ...</blockquote>
 多拖一会儿不好么：D
 
+
+*****
+
+####  UncleDracula  
+##### 17785#       发表于 2026-10-23 20:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413673&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-23 19:27</a>
+
+感觉现在有意愿主动使用AI能力的还是一小撮人，S1已经是我能接触到的这方面意愿最强烈的社区了
+
+大部分普 ...</blockquote>
+普通人不知道用来干啥很正常，但Steam10月新品节，AI游戏已经泛滥了，有七八千款，卷到起飞<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说只有部分行业迈入了AI时代
+
+
+*****
+
+####  绝地潜兵  
+##### 17786#       发表于 2026-10-23 20:11
+
+很多人还没有意识到chat AI和agent AI根本不是同一个东西
+
