@@ -15406,3 +15406,33 @@ Kimi纯是没算力<img src="https://static.stage1st.com/image/smiley/face2017/0
 我描述了别人用软件遇到出现的问题，大致可能的原因。睡觉或者打游戏回来会看到他卡在问我别人版本号是多少，有什么其他症状
 还有几次因为没有别人的项目代码就急忙结案“不能断定，也不能排除…”<img src="https://static.stage1st.com/image/smiley/flash/133.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 17724#       发表于 2026-10-23 13:39
+
+kimi现在是轻资产吧，自己有自建集群吗？
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Penelope  
+##### 17725#       发表于 2026-10-23 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411964&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-23 13:11</a>
+https://devcloud.cn-north-4.huaweicloud.com/chat?source=dmzntgwlb&amp;sourcead=dmzntgwlb1&amp;invitecode=INV ...</blockquote>
+hw没处理反代吗，ofm更新后把codearts和workbuddy在第三方渠道接入里移除了我还以为用不了了<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  龙骑士尹志平  
+##### 17726#       发表于 2026-10-23 13:46
+
+jio的chat可以选gemini4啊，我前几天看到的，只是agy固定在glassh3.8
+

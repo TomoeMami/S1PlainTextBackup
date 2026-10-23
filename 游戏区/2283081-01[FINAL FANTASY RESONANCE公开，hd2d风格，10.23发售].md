@@ -3552,3 +3552,14 @@ d加密哪有学习版</blockquote>
 
 1代主角的物理反击是不是最好人手一个？
 
+
+*****
+
+####  桐道悠  
+##### 358#       发表于 2026-10-23 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411746&amp;ptid=2283081" target="_blank">DARK_HGCG 发表于 2026-10-23 12:20</a>
+
+1代主角的物理反击是不是最好人手一个？</blockquote>
+至少我打demo的狮蝎是用这个打的
+
