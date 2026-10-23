@@ -15135,3 +15135,42 @@ Kimi的问题在我这就是一个印象，贵，K3连试用的机会都没有�
 
 k3 又贵又慢，定位非常尴尬
 
+
+*****
+
+####  hisousihou  
+##### 17699#       发表于 2026-10-23 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411063&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-10-23 10:15</a>
+
+羊毛版Gemini会员大屠杀，然后买新版Pixel送的会员汇报可以用Opus5.5 和 Gemini 4了。
+
+5个号只剩2个，但是2 ...</blockquote>
+又有新的pixel会员？之前上车的薅羊毛账号还在。
+
+现在的是新的可以反重力用argon，之前的不行？
+
+
+*****
+
+####  泰坦失足  
+##### 17700#       发表于 2026-10-23 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411196&amp;ptid=2275806" target="_blank">hisousihou 发表于 2026-10-23 10:38</a>
+
+又有新的pixel会员？之前上车的薅羊毛账号还在。
+
+现在的是新的可以反重力用argon，之前的不行？ ...</blockquote>
+是这几天账号大屠杀活下来的人有人汇报Pixel会员可以用Argon了，JIO会员的还没见汇报可以用Argon的，我看了下我的JIO会员依然没有Argon
+
+*****
+
+####  startraveller  
+##### 17701#       发表于 2026-10-23 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411163&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-10-23 10:33</a>
+k3 又贵又慢，定位非常尴尬</blockquote>
+这个版本肯定得降费提速吧，不然3/15的价格谁用啊
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
