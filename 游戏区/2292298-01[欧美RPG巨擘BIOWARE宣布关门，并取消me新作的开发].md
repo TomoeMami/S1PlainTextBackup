@@ -828,3 +828,13 @@ https://www.reddit.com/r/masseffect/comments/1xclmpu/mass_effect_universe_traile
 
 2026-10-23 07:00 上传
 
+
+*****
+
+####  posthoc  
+##### 83#       发表于 2026-10-23 08:08
+
+单纯想要做DAO的高清化哪里需要生软，找个专业做翻新的工作室就好了（虽然光线狗大概没能力）。现在有了ai做这种工作更是简单。
+
+但是EA对这种项目看来是毫无兴趣，看看能不能卖ip吧
+
