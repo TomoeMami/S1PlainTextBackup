@@ -972,3 +972,15 @@ Bioware探索出了一条属于欧美的3A RPG之路。从《旧共和国骑士�
 
 这艘忒修斯之船能撑到现在才被EA关掉还挺不可思议的。
 
+
+*****
+
+####  水边井  
+##### 97#       发表于 2026-10-23 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411433&amp;ptid=2292298" target="_blank">最美人贩子 发表于 2026-10-23 11:23</a>
+Bioware探索出了一条属于欧美的3A RPG之路。从《旧共和国骑士》时代就开始了，这游戏当年能火真不是靠星 ...</blockquote>
+拉瑞安从小众转向大众的bg3很成功，看猫头鹰这把能不能渡劫吧，如果苍穹浩瀚能平稳落地那就是新世代的生软好吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

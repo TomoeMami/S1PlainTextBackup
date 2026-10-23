@@ -15293,3 +15293,30 @@ kimi终于要憋气结束了，我的双199账户已饥渴难耐
 
 插眼zsbd
 
+
+*****
+
+####  xuanwu_lei  
+##### 17713#       发表于 2026-10-23 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411439&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-23 11:25</a>
+就是K3.1</blockquote>
+high就没意思了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+谁不是max集群yolo啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  泰坦失足  
+##### 17714#       发表于 2026-10-23 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411460&amp;ptid=2275806" target="_blank">hisousihou 发表于 2026-10-23 11:28</a>
+
+好吧，JIO会员路过，感觉没戏。话说pixel会员怎么上，淘宝上有羊毛薅吗？
+
+ ...</blockquote>
+等等看可能也到Jio。目前Pixel也不是全部都说自己能用Gemini 4的。
+
+主要看谷歌当年怎么发广告宣传的， 可能JIO的宣传当时也没强调会员的区别问题。比如早期Pixel宣传了无限上传谷歌相册又没注释时间，直到现在Pixel1还能无限原图上传，早期几个Pixel也能无限压缩上传。
+
