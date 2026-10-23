@@ -6922,3 +6922,25 @@ https://weibo.com/5315344950/5356430054130539
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  anyasora  
+##### 8054#       发表于 2026-10-23 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412449&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-10-23 15:00</a>
+
+那就是第一次通第二章最好用凯伊线，然后最后一战前把马都下了吗？如果先通了其他线就会把第一章结束时候 ...</blockquote>
+建议凯伊线把马下了通第一次关，然后再带上马一键跳过，会自动和第一次通关的融合，就会变成仓库里有马+人身上也有马的状态
+
+然后第三部的时候招这个人就能复制一匹这个马（招人自带一匹+仓库有一匹），可以给别人骑
+
+*****
+
+####  lbj5454  
+##### 8055#       发表于 2026-10-23 16:15
+
+[https://www.bilibili.com/video/B ... bf58510f14e1da721fc](https://www.bilibili.com/video/BV1tHp36TEdz?trackid=web_related_0.router-related-2589621-4d422.1792742302011.775&amp;spm_id_from=333.788.player.player_end_recommend_autoplay&amp;vd_source=440488d8e6990bf58510f14e1da721fc)
+
+B站看了这段，这草木原俊行‌创作的风花和万紫的世界观完全可以并入异度宇宙了。他难道也是高桥哥哥的迷弟？
+

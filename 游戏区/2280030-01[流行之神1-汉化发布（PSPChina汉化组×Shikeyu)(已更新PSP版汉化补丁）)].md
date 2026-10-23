@@ -769,3 +769,14 @@ PSP版汉化补丁已更新主楼
 
 估计真流的补丁也快放出来了。
 
+
+*****
+
+####  dudeism  
+##### 72#       发表于 2026-10-23 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69558668&amp;ptid=2280030" target="_blank">iamsolowingpixy 发表于 2026-4-30 16:18</a>
+
+SHIKEYU大神的汉化游戏真是从小玩到大了，第一次玩的还是PS上的PE1。</blockquote>
+的确，那时听到 PS 这种日文游戏机上有全中文游戏简直是天方夜谭
+

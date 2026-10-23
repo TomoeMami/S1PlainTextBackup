@@ -15588,3 +15588,13 @@ Google风控有风险不，会不 ...</blockquote>
 我描述了别人用软 ...</blockquote>
 你怎么不让gpt给你算命呢？
 
+
+*****
+
+####  startraveller  
+##### 17742#       发表于 2026-10-23 16:09
+
+推上舅舅说k3.1 a lot cheaper and faster，先信了
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
