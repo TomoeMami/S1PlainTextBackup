@@ -949,3 +949,16 @@ DEI老资历，我还记得你
 
 当 dei 症状显现的时候，其他方面的问题会更严重
 
+
+*****
+
+####  最美人贩子  
+##### 95#       发表于 2026-10-23 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411082&amp;ptid=2292298" target="_blank">汪达 发表于 2026-10-23 10:19</a>
+
+生软有个欧美RPG厂很难得的优点，那就是很注重战斗演出和动作手感，感觉很难有同级别的代餐 ...</blockquote>
+Bioware探索出了一条属于欧美的3A RPG之路。从《旧共和国骑士》时代就开始了，这游戏当年能火真不是靠星战IP。
+
+可以说bioware从极其小众的CRPG起步，重新定义了一种玩家群体极其广泛的现代RPG类型，在现代化的同时还保留了CRPG的某些神髓。这是它比制作了博德2更加重要的工作。
+
