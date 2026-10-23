@@ -557,3 +557,54 @@ terminal bench 4.0没多久的榜马上又要饱和了吗。这模型能力提�
 
 JIO的GoogleAIStudio的免费额度基本被砍没了，一天就能问几个问题了，画图也画不了几张，这是闹哪样<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 17809#       发表于 2026-10-23 22:41
+
+有人说猫老板在串<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吴怀在  
+##### 17810#       发表于 2026-10-23 22:41
+
+有人知道为什么 Codex 的 computer use 不让操作淘宝吗？
+
+如果这是阿里要求奥特曼禁止操作淘宝的话，那国产大模型后边的 Agent 估计也不让吧？
+
+*****
+
+####  cscbzcbz  
+##### 17811#       发表于 2026-10-23 22:43
+
+快发出来，尝尝咸淡
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  phorcys02  
+##### 17812#       发表于 2026-10-23 22:45
+
+<img src="https://img.stage1st.com/forum/202610/23/224522asgsgsqvefvgsgsx.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (123.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 22:45 上传
+
+tb4.0 1017的分数是42....两倍就是84了。
+
+*****
+
+####  cscbzcbz  
+##### 17813#       发表于 2026-10-23 22:46
+
+等等，两倍的不会是每项任务平均费用吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
