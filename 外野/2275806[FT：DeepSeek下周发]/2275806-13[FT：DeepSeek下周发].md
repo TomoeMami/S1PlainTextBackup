@@ -1047,3 +1047,19 @@ kimi客户端出图好像用的是seedream</blockquote>
 
 鹈鹕svg也如各个benchmark一样飞速饱和，这一个像不代表其他也像。tb4.0真高啊
 
+
+*****
+
+####  一般市民  
+##### 17858#       发表于 2026-10-24 01:48
+
+Google家的好蒸吗？ 以后蒸点 Gemini 4 Carbon吧，比GPT好看。 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  很久就在那边l  
+##### 17859#       发表于 2026-10-24 01:53
+
+怎么都学会绿帽子红围巾慢慢骑了
+
