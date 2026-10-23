@@ -15042,3 +15042,47 @@ kimi出预热视频了，大的要来了。
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 17689#       发表于 2026-10-23 10:13
+
+大的来了
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  overflowal  
+##### 17690#       发表于 2026-10-23 10:13
+
+kimi的问题是，这玩意，serve不了啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  startraveller  
+##### 17691#       发表于 2026-10-23 10:14
+
+K3.1看上去还不错的样？
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 17692#       发表于 2026-10-23 10:15
+
+据说其实是超级2.9，比k3强一点但更快更便宜
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  泰坦失足  
+##### 17693#       发表于 2026-10-23 10:15
+
+羊毛版Gemini会员大屠杀，然后买新版Pixel送的会员汇报可以用Opus5.5 和 Gemini 4了。
+
+5个号只剩2个，但是2个Gemini4周额度也值啊
+
