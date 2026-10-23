@@ -1129,3 +1129,38 @@ AA这榜越来越没参考意义了，sonnet和muse什么垃圾
 
 没搞懂 前端现在是只能蒸gpt了吗 以前k3那种前端突出感觉都没了 那你能蒸出来gpt那种做题牛逼的能力吗 然后价格还特别高 
 
+
+*****
+
+####  御坂MKII  
+##### 17867#       发表于 2026-10-24 03:21
+
+ 本帖最后由 御坂MKII 于 2026-10-24 03:22 编辑 
+
+现在订阅里的额度感觉有问题
+
+按 api 价格平移算了算，感觉旧的 199 订阅的 7d 额度只有 200 多块钱，那一个月才 100 不到
+
+但是这个里头 [https://github.com/mahonzhan/awesome-coding-plan](https://github.com/mahonzhan/awesome-coding-plan) 算的话是一个月差不多 2000。怀疑他们费率记错了
+
+说不定是把比 K3 便宜记成比 K3 贵了。感觉这个幅度差不多
+
+*****
+
+####  rachepatty  
+##### 17868#       发表于 2026-10-24 03:22
+
+只能说开源后本地实施才能看出来能力，不是富哥这价钱是真的测不起的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  rachepatty  
+##### 17869#       发表于 2026-10-24 03:25
+
+一看到DeepSeek没有多模态而且速度50tps就知道很过时了，年初或上半年的数据？
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
