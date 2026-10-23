@@ -1076,3 +1076,15 @@ EA把赚钱的星战ol从biowave里剥离了;没了下金蛋的鸡，凭本事�
 
 其实EA怎么想的啊，按300万全价算也是亏的，现在只能认为当时在水面下跟沙特已经谈差不多，到300万的话能抬一点点身价，所以赌一把
 
+
+*****
+
+####  weile10000  
+##### 107#       发表于 2026-10-23 18:40
+
+前几天在战争机器那楼，还说生软是不是拿着EA的生死机密，一直不被解散，结果<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+rip 质量效应 <img src="https://static.stage1st.com/image/smiley/face2017/235.png" referrerpolicy="no-referrer">
+rip 博德之门 only 12 <img src="https://static.stage1st.com/image/smiley/face2017/235.png" referrerpolicy="no-referrer">
+rip 龙腾世纪 only 123 <img src="https://static.stage1st.com/image/smiley/face2017/235.png" referrerpolicy="no-referrer">
+薛帕德，查内姆，大光头，一路走好<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

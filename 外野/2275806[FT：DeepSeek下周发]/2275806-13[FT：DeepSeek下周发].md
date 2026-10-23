@@ -138,3 +138,19 @@ A/ 的 cc 好是好，但这个东西是闭源的。其实本质上就是个贪�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a➗这家公司最大的贡献都在怎么栓ai上
 
+
+*****
+
+####  木谷高明  
+##### 17773#       发表于 2026-10-23 18:38
+
+<blockquote>得了吧，谁说全部开源呢？到现在梁子的图片就只开源了两张</blockquote><img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><strong></strong><strong></strong><strong></strong>
+
+
+*****
+
+####  tillnight  
+##### 17774#       发表于 2026-10-23 18:43
+
+skill本质不就是提示词工程吗。
+

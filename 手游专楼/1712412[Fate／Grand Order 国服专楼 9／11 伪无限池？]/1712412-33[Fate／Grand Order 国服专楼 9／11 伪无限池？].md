@@ -99,3 +99,11 @@
 
 依然是总共吃了五次井，外加三次无井时代的千石以上一宝
 
+
+*****
+
+####  麻花疼  
+##### 48279#       发表于 2026-10-23 18:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">C狐终于强化了，那么，开局倒扣100的某魔法使大人会强化吗
+
