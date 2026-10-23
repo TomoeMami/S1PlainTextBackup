@@ -1282,3 +1282,11 @@ k3.1很强，除了oneshot审美对齐差一点外，能力上没毛病
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  The_Ether_  
+##### 17878#       发表于 2026-10-24 07:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">推特上喊订阅完发现K3.1是骗子的都有好多了，要翻大车
+
