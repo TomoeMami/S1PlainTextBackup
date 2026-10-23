@@ -3979,3 +3979,15 @@ L1+O，X放技能好别扭啊，不能改成L2，R2嘛？
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Xenor  
+##### 359#       发表于 2026-10-23 14:06
+
+cd1结束，流程竟然这么短才15小时，要玩得快估计6小时就够，而且看起来永恒的剧情也不砸地啊很一般，还不如仙乐深渊幻想，而且还把PDA给阉割了换成披风，井边那的续集直接就木了
+
+cd1小游戏就漂流难过，没有sl大法实在是麻烦
+
+这大学问答直接揭示了目标用户<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">L/R+ABXY玩伊苏过来的无感切换，反而更有感了
+
