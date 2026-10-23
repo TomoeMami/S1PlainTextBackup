@@ -235,3 +235,21 @@ Ramp 追踪 7 万余家美国企业支付数据显示，Ope ...</blockquote>
 
 就算是程序员群体（特别是国内）很多也是被逼着去了解，S1这里就算很多非程序员群体都会主动了解这些业界信息并且能努力发挥想象力去运用新技术的，真的很少见<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 17781#       发表于 2026-10-23 19:28
+
+A/发那个安全报告更是火上浇油<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 17782#       发表于 2026-10-23 19:34
+
+不是说a/要么今天，要么下周一就要交s-1了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
