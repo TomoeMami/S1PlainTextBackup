@@ -838,3 +838,30 @@ https://www.reddit.com/r/masseffect/comments/1xclmpu/mass_effect_universe_traile
 
 但是EA对这种项目看来是毫无兴趣，看看能不能卖ip吧
 
+
+*****
+
+####  ak123  
+##### 84#       发表于 2026-10-23 08:30
+
+当初泥潭政确魔怔人可是在专楼里舌战群儒几百回合吹da4这坨东西lgbt内容怎么怎么好，游戏怎么怎么好的评价差只是你们顺直男不包容带节奏的，游戏一定会大卖打你们的脸，现在呢<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ak123  
+##### 85#       发表于 2026-10-23 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409667&amp;ptid=2292298" target="_blank">samuel.j 发表于 2026-10-22 22:45</a>
+
+EA能连续30年干掉各类名作工作室，简直是继承了克林顿时代新质生产力的最重大特点 ...</blockquote>
+但是ea因为嫡系独爱基软，他家别的组别说质量扑街了，死亡空间只是卖不好一次就解散，基软可是三连扑烧没了近十个亿才死的，还真就是死不足惜
+
+
+*****
+
+####  Vladimeow  
+##### 86#       发表于 2026-10-23 08:37
+
+圣哥什么的不说，自己老本行DA新作做成这个鸟样，说实话死了更好
+
