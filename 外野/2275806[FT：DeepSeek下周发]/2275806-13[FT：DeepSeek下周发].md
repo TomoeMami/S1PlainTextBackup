@@ -1164,3 +1164,43 @@ AA这榜越来越没参考意义了，sonnet和muse什么垃圾
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  pure_liquid  
+##### 17870#       发表于 2026-10-24 03:32
+
+试了一下，感觉one-shot前端测试好像真是不太行？或者是我的环境配置有问题？
+
+在dsh下，分别测试了kimi-3.1-pro和deepseek-4.1-flash-1007，reasoning effort都设置为max最大，测试任务是生成3D鹈鹕骑自行车
+
+图1是kimi-3.1-pro，图2是ds-4-flash-1007，感觉ds要好看很多
+
+难道说必须要用kimi自家的专武才能做的好看？
+
+另外，为什么kimi在我的dsh上思考链全跑出来了？
+
+我记得前几页不是有坛友说，在非kimi自家的harness下，思考链是隐藏的吗？
+
+我的设置有问题？
+
+图1，kimi-3.1-pro，max:
+
+<img src="https://img.stage1st.com/forum/202610/24/032741moccceq54eoi7zyi.png" referrerpolicy="no-referrer">
+
+<strong>kimi_pelican.png</strong> (1.25 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 03:27 上传
+
+图2，deepseek-4.1-flash-1007，max:
+
+<img src="https://img.stage1st.com/forum/202610/24/032756q7ff7f3z79961niw.png" referrerpolicy="no-referrer">
+
+<strong>deepseek_pelican.png</strong> (1.42 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 03:27 上传
+
