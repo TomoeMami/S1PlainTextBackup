@@ -88,3 +88,14 @@ A处倒也不至于说什么贡献都没有，至少Skill和mcp是他发明的�
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  serj005  
+##### 17767#       发表于 2026-10-23 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413285&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-23 17:45</a>
+A处倒也不至于说什么贡献都没有，至少Skill和mcp是他发明的。</blockquote>
+skill有用，但感觉这个东西几乎是随agent发展必然诞生的一个要素，a/在这方面的主要作用是提供了个基础模板。（另外加剧了目录命名规范的分裂，天天往用户目录拉.claude和claude.md这种夹带自家品牌认知的屎）
+mcp这个是不是贡献不好说，某种意义上mcp是让工具调用走了弯路<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">没mcp没准现在的生态已经全在用cli了。
+

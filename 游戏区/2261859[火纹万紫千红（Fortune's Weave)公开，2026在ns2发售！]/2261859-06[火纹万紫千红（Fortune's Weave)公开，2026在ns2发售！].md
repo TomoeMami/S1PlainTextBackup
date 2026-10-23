@@ -7031,3 +7031,22 @@ DLC应该会给一个刷碎片的地方吧
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  maojiashu  
+##### 8065#       发表于 2026-10-23 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413217&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-10-23 17:26</a>
+
+不如说是is的脑回路比较坑，而且现在碎片不可再生，点非永久要素重开第三部的话也不返还相当于永久丢失，直 ...</blockquote>
+反正通关一次花不了多少 我花的还剩5k多 先通关封盘等dlc
+
+
+*****
+
+####  Arsaces  
+##### 8066#       发表于 2026-10-23 18:02
+
+太痛苦了，迪哥线打到第九章在b站首页刷到隐藏剧情，点进去一看发现全部白打了<img src="https://static.stage1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+

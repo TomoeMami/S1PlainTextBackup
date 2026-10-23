@@ -91,3 +91,58 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">30群充，我玉也是终于好起来了
 
+
+*****
+
+####  壳壳牛  
+##### 21672#       发表于 2026-10-23 17:33
+
+这下真gxyy了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  cckuku  
+##### 21673#       发表于 2026-10-23 17:44
+
+狐神来了？？
+
+*****
+
+####  希望之花  
+##### 21674#       发表于 2026-10-23 17:45
+
+我玉伟大！我玉伟大！我玉伟大！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 21675#       发表于 2026-10-23 17:46
+
+你狐终于强化了，不能再说乳狐笑话了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 21676#       发表于 2026-10-23 17:49
+
+30群冲
+
+是不是又可以嘲笑那个只有25的（
+
+*****
+
+####  Jamaisvu  
+##### 21677#       发表于 2026-10-23 17:57
+
+玉 藻 大 胜 利<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+以前——
+
+拉二：没自充的是妹妹，称余为皇兄吧<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+现在——
+
+C狐：没改模的是弟弟，今天强化的都是你姐姐<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
