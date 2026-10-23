@@ -14988,3 +14988,11 @@ workbuddy返还的deepseek积分啥时候到账啊。。。都过去一周了就
 不期望ds追上最前沿，但可以不断提高水温，达到把所有公司的非顶级模型全斩了，逼迫所有公司只能留最强的， ...</blockquote>
 对ds的期待一直都是坐稳顶模的位置，世界第一的名堂A／O随便争个死活，ds做个顶模斩杀线守门员不亦乐乎。
 
+
+*****
+
+####  来都来了  
+##### 17683#       发表于 2026-10-23 08:24
+
+Workbuddy送的积分太爽了，我要向Workbuddy道歉。虽然这软件不怎么样，但是送的积分真的太香了，终于有token自由的感觉了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
