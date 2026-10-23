@@ -1290,3 +1290,16 @@ k3.1很强，除了oneshot审美对齐差一点外，能力上没毛病
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">推特上喊订阅完发现K3.1是骗子的都有好多了，要翻大车
 
+
+*****
+
+####  cscbzcbz  
+##### 17879#       发表于 2026-10-24 07:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415198&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-10-24 07:29</a>
+推特上喊订阅完发现K3.1是骗子的都有好多了，要翻大车</blockquote>
+骗啥了，k3.1目前最大的问题就是比较贵吧，主要是订阅和OA比真的不划算<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+如果只是贵的问题，只能等梁圣把价格打下来了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
