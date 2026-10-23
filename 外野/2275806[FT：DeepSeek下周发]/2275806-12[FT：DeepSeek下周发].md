@@ -15436,3 +15436,43 @@ hw没处理反代吗，ofm更新后把codearts和workbuddy在第三方渠道接�
 
 jio的chat可以选gemini4啊，我前几天看到的，只是agy固定在glassh3.8
 
+
+*****
+
+####  Promeus  
+##### 17727#       发表于 2026-10-23 14:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17728#       发表于 2026-10-23 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412083&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-23 13:39</a>
+kimi现在是轻资产吧，自己有自建集群吗？
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+掏不起钱，让阿里买卡建算力中心它再去租
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  cube  
+##### 17729#       发表于 2026-10-23 14:14
+
+就算kimi3.1真的很强又有什么用。
+
+kimi这个服务器和处理速度真的是一言难尽。
+
+*****
+
+####  cscbzcbz  
+##### 17730#       发表于 2026-10-23 14:15
+
+期待kimiK3.1，更强更快更便宜，至少得有一个吧。都是好事。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
