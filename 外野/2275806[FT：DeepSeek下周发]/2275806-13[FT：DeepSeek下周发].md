@@ -908,3 +908,33 @@ aa野榜54（信源暂存疑，还没看到，但我感觉差不多</blockquote>
 
 就是这额度消耗尼玛比chatgpt还快。
 
+
+*****
+
+####  宏.  
+##### 17843#       发表于 2026-10-24 01:01
+
+<blockquote>HazukiShion 发表于 2026-10-24 00:37
+比 K3 差吗？</blockquote>
+拉了，酒馆里测了几次，明显比K3变区了。显然是coding后训练做多了的副作用
+
+
+*****
+
+####  HazukiShion  
+##### 17844#       发表于 2026-10-24 01:06
+
+那我还是继续 K3 吧。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17845#       发表于 2026-10-24 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414743&amp;ptid=2275806" target="_blank">cube 发表于 2026-10-24 00:49</a>
+
+测试了一下KIMI3.1的出图，居然还不错
+
+就是这额度消耗尼玛比chatgpt还快。</blockquote>
+kimi客户端出图好像用的是seedream
+
