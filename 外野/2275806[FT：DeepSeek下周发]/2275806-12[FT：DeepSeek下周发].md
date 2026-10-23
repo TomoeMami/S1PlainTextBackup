@@ -15774,3 +15774,59 @@ anthropic在这些方面有什么公开的技术吗？a/当然有技术，但是
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  飞剪号  
+##### 17756#       发表于 2026-10-23 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413214&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-23 17:25</a>
+
+你说的这些哪个是公开的提升llm本身能力的
+
+openai是decoder only架构验证者，第一个跑通rlhf以及验证sca ...</blockquote>
+别尬黑，A/证明了AI有灵魂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ww-tsl  
+##### 17757#       发表于 2026-10-23 17:32
+
+这几天DS的写作能力是不是又被阉割了一波？
+
+虽然本来就面目全非了，但是这几天发现已经近乎彻底没戏的状态，生成出来的要么和输入的草稿差不多字数，要么就是纯粹的文字垃圾<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  自由之紫roy  
+##### 17758#       发表于 2026-10-23 17:36
+
+中文写作，居然最强的是gpt6astra，老脸往哪里搁啊
+
+*****
+
+####  qwased  
+##### 17759#       发表于 2026-10-23 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413256&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-10-23 17:36</a>
+
+中文写作，居然最强的是gpt6astra，老脸往哪里搁啊</blockquote>
+这是参数量的问题，后训练不包含写作项目那就只能靠大参数自然涌现了
+
+argon这种10T级模型写作就非常好
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17760#       发表于 2026-10-23 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413092&amp;ptid=2275806" target="_blank">hencechen 发表于 2026-10-23 17:01</a>
+
+不是…antropic别的可以黑，怎么连技术也开始黑了…
+
+有些回帖的坛友，到底关没关注过ai社区的发展啊</blockquote>
+扯几把蛋，我不拿出谷歌和深度求索这种发表过影响整个业界论文的
+
+就是光说月之暗面，Mooncake、Moonlight、KDA、超大稀疏模型的开源，a畜这狗几把哪样贡献比得上？
+
