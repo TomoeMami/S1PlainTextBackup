@@ -174,3 +174,64 @@ kimi到底啥时候发<img src="https://static.stage1st.com/image/smiley/face201
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  qwased  
+##### 17777#       发表于 2026-10-23 19:19
+
+AI 商业化现裂痕：1% 客户撑起 80% 企业收入，量价背离
+    
+Ramp 追踪 7 万余家美国企业支付数据显示，OpenAI、Anthropic 企业端 80% 收入，来自仅占总量 1% 的头部客户，需求高度集中。细分来看，YipitData 数据显示，Anthropic 前 1% 客户 8 月贡献 46% 营收，较去年 25% 近乎翻倍；招股文件显示，仅两名客户就贡献其 2025 年近四分之一营收。另外，风投背景初创企业人均 AI 月支出 76 美元，是私募股权企业的 10 倍。
+    
+当下核心矛盾是量价背离：Token 调用量持续走高，但企业付费支出近乎停滞。8、9 月连续两个月 Token 支出几乎零增长，10 月初小幅创新高，仅比 8 月峰值高出 1.5%。价格战持续挤压利润，Anthropic 实际 Token 价格半年腰斩至 0.83 美元，OpenAI 低至 0.45 美元。OpenAI 曾将 GPT-5.6 Luna、Terra 最高降价 80%，恰逢 Kimi K3 开源，该事件也被视作芯片股走弱导火索，OpenAI 也计划把 IPO 推迟至 2027 年。
+    
+市场此前期待的杰文斯悖论并未兑现，降价没能带动总收入同步上涨，价格下滑速度跑赢用量增速。Apollo 经济学家提到，企业对算力价格高度敏感，价格稍有波动就会控量、转向开源方案。多家机构接连预警：高盛测算，五大科技巨头算力相关投资资本回报率从 40% 下滑至 25%，创 2016 年以来最低；Citadel 创始人 Ken Griffin 认为市场几乎正处在 AI 泡沫当中。Torsten Slok 直言，硅谷假设的无限算力需求，或许只在算力近乎免费时才成立。
+    
+赛道还存在资本内循环现象：资金投给 Cursor 这类 AI 应用，应用再采购 Claude 的 Token，反过来推高 Anthropic 估值，不完全来自终端产业真实需求。
+    
+付费渗透也临近瓶颈，9 月企业 AI 付费采用率仅提升 0.62 个百分点，来到 55.9%。增长逻辑已经改变，很难靠新增客户扩张，只能依靠存量客户加深使用，而且头部大客户的单家支出已经低于 7 月峰值。
+    
+本质问题很清晰：很多企业暂时没能把 AI 调用，转化为实实在在的营收增长或者成本节省。算力不是无限刚需，它的上限，是企业愿意掏钱买单的意愿。轰轰烈烈的 AI 繁荣，到底是真实产业红利，还是资本自我循环，分歧正在拉大。
+
+开源+可用的flash可能被大多数人低估了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  平昭·南宫司卿  
+##### 17778#       发表于 2026-10-23 19:22
+
+下班前才发现公司提供的模型服务，已经有自部署的 ds 1017 了<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">爽了
+
+
+*****
+
+####  mitzvah  
+##### 17779#       发表于 2026-10-23 19:24
+
+ 本帖最后由 mitzvah 于 2026-10-23 19:25 编辑 
+
+没有中国a/，o/是真的敢把token卖出天价的
+
+现在不得不打价格战，承诺的盈利模式灰飞烟灭
+
+
+*****
+
+####  hugosol  
+##### 17780#       发表于 2026-10-23 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413656&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-23 19:19</a>
+
+AI 商业化现裂痕：1% 客户撑起 80% 企业收入，量价背离
+
+    
+
+Ramp 追踪 7 万余家美国企业支付数据显示，Ope ...</blockquote>
+感觉现在有意愿主动使用AI能力的还是一小撮人，S1已经是我能接触到的这方面意愿最强烈的社区了
+
+大部分普通人还是能用免费就用免费，花钱是不可能的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就算是程序员群体（特别是国内）很多也是被逼着去了解，S1这里就算很多非程序员群体都会主动了解这些业界信息并且能努力发挥想象力去运用新技术的，真的很少见<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
