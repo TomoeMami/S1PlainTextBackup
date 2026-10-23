@@ -15117,3 +15117,21 @@ K3.1看上去还不错的样？
 5个号只剩2个，但是2 ...</blockquote>
 pixel会员被干了的话是掉会员还是连号都一起被封？
 
+
+*****
+
+####  colice  
+##### 17697#       发表于 2026-10-23 10:31
+
+Kimi的问题在我这就是一个印象，贵，K3连试用的机会都没有，上来就是开通plan<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HBN-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  jinuzuktII  
+##### 17698#       发表于 2026-10-23 10:33
+
+k3 又贵又慢，定位非常尴尬
+
