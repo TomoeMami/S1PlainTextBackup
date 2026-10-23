@@ -32,3 +32,19 @@ rinne的特殊任务还是有bug
 
 看了gamerch说不能，我的任务现在被女鬼卡住不让结算了
 
+
+*****
+
+####  Flechette  
+##### 944#       发表于 2026-10-23 19:09
+
+<img src="https://img.stage1st.com/forum/202610/23/190845pek6gzd9srsgasxx.jpg" referrerpolicy="no-referrer">
+
+<strong>1792736953522060.jpg</strong> (31.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 19:08 上传
+
+也许生命力个体还不如无个体
+

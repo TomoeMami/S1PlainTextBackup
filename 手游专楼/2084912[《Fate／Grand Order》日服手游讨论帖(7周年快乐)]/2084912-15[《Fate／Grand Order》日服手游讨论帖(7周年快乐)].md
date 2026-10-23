@@ -219,3 +219,77 @@ C狐：没改模的是弟弟，今天强化的都是你姐姐<img src="https://s
 
 今天干什么，狐狸过节吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  麻花疼  
+##### 21684#       发表于 2026-10-23 18:46
+
+以后再也不能乳狐了吗。。
+
+*****
+
+####  森兰丸  
+##### 21685#       发表于 2026-10-23 18:47
+
+这新的冠位战有啥比较轮椅的1T稳定打法....200多万血的白字靠所长2红卡暴击打不死啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 21686#       发表于 2026-10-23 19:03
+
+ 本帖最后由 Jamaisvu 于 2026-10-23 19:04 编辑 
+<blockquote>森兰丸 发表于 2026-10-23 18:47
+这新的冠位战有啥比较轮椅的1T稳定打法....200多万血的白字靠所长2红卡暴击打不死啊 ...</blockquote>
+
+【最简单直接的名代战最高难度攻略方法-哔哩哔哩】 https://b23.tv/HBZNJaK
+
+失地王约翰一技能加攻加暴击还能解除对面的防御强化，此战很有用。
+
+杀生院和DB也能解强化，不过是蓝卡辅助，红爆队表现一般...
+
+另外满配所长带齐拐也能打吧：
+
+【无需强解，数值正是成王的理由！奥尔加玛丽9不换冠位名代战100⭐⭐⭐【FGO】-哔哩哔哩】 https://b23.tv/DuMb5VU
+
+*****
+
+####  森兰丸  
+##### 21687#       发表于 2026-10-23 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413587&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2026-10-23 19:03</a>
+
+【最简单直接的名代战最高难度攻略方法-哔哩哔哩】 https://b23.tv/HBZNJaK
+
+失地王约翰一技能加攻加暴击 ...</blockquote>
+没抽....好友里也一个挂的都没
+
+刚刚试了下奥伯龙加泳装斯卡哈能让所长2张红卡强杀掉....不过这也太浪费了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 21688#       发表于 2026-10-23 19:14
+
+<img src="https://img.stage1st.com/forum/202610/23/191356wqmkky33qteftxxj.jpg" referrerpolicy="no-referrer">
+
+<strong>1000036559.jpg</strong> (214.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 19:13 上传
+
+所长随便杀啊
+
+*****
+
+####  Jamaisvu  
+##### 21689#       发表于 2026-10-23 19:14
+
+<blockquote>森兰丸 发表于 2026-10-23 19:06
+没抽....好友里也一个挂的都没
+
+</blockquote>
+实在不行就双冠位打手借奥伯龙吧，光炮后面接单体宝具或者红卡暴击...
+

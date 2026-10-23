@@ -154,3 +154,23 @@ A/ 的 cc 好是好，但这个东西是闭源的。其实本质上就是个贪�
 
 skill本质不就是提示词工程吗。
 
+
+*****
+
+####  hugosol  
+##### 17775#       发表于 2026-10-23 19:09
+
+坛友也不要那么偏激好吧，agent没贡献都来了，要不自己搓个能影响业界的工具出来吧，反正现在有agent了也是分分钟的事<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+当然cc闭源这个事嘛……后面有opencode和Pi这些开源项目，所以它闭源也是闭了个寂寞，只能说出发点是坏的但结果是好的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 17776#       发表于 2026-10-23 19:14
+
+kimi到底啥时候发<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
