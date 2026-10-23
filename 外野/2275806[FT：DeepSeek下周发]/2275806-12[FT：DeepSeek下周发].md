@@ -15174,3 +15174,24 @@ k3 又贵又慢，定位非常尴尬</blockquote>
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  泰坦失足  
+##### 17702#       发表于 2026-10-23 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411133&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-23 10:27</a>
+
+pixel会员被干了的话是掉会员还是连号都一起被封？</blockquote>
+买的是Jio会员，被干的时候是掉会员
+
+*****
+
+####  qwased  
+##### 17703#       发表于 2026-10-23 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411279&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-10-23 10:54</a>
+
+买的是Jio会员，被干的时候是掉会员</blockquote>
+jio一直没有封号的报告，倒是pixel有人说连号一起被封了
+
