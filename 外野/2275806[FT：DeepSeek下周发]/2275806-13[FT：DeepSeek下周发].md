@@ -978,3 +978,27 @@ kimi客户端出图好像用的是seedream
 
 看评价是前段审美还不如DeepSeek，GPT味太浓了，后端非常强
 
+
+*****
+
+####  lactone  
+##### 17851#       发表于 2026-10-24 01:23
+
+啥时候蒸点gemini<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  HazukiShion  
+##### 17852#       发表于 2026-10-24 01:26
+
+<img src="https://img.stage1st.com/forum/202610/24/012650xyk0ysk81gez90km.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (431.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 01:26 上传
+
