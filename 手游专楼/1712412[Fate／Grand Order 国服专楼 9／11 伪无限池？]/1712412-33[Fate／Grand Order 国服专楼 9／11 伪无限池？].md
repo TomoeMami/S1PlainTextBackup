@@ -117,3 +117,16 @@
 C狐终于强化了，那么，开局倒扣100的某魔法使大人会强化吗</blockquote>
 会赢的
 
+
+*****
+
+####  qucqee  
+##### 48281#       发表于 2026-10-23 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413543&amp;ptid=1712412" target="_blank">麻花疼 发表于 2026-10-23 18:47</a>
+
+C狐终于强化了，那么，开局倒扣100的某魔法使大人会强化吗</blockquote>
+早晚的事儿~但是我估计强化方向只能是开出来之后更强
+
+开局估计还是-100
+
