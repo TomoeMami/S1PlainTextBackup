@@ -15032,3 +15032,13 @@ kimiK3.1今天晚上该发了吧<img src="https://static.stage1st.com/image/smil
 
 做规划还是要智力高的吧，智力最高的还是Astra。4.1f和5.3里面选，还得是4.1f
 
+
+*****
+
+####  Milarvoz  
+##### 17688#       发表于 2026-10-23 10:04
+
+kimi出预热视频了，大的要来了。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
