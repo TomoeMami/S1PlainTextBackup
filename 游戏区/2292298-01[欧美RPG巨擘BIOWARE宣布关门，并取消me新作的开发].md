@@ -984,3 +984,13 @@ Bioware探索出了一条属于欧美的3A RPG之路。从《旧共和国骑士�
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  哈曼的YY  
+##### 98#       发表于 2026-10-23 12:26
+
+谁打出了最高的伤害 圣歌吗
+
+—— 来自 OnePlus PHP110, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
