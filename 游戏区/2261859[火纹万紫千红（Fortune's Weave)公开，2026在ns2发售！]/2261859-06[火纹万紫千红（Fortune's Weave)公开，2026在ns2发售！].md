@@ -6902,3 +6902,23 @@ https://weibo.com/5315344950/5356430054130539
 —— 来自 HUAWEI VOL-AL00, Android 16, 鹅球 v4.0-alpha ...</blockquote>
 大概率是布雷扎，然后是马兹，反正等 DLC 吧
 
+
+*****
+
+####  Jabeck  
+##### 8052#       发表于 2026-10-23 15:59
+
+君子兰一看就是被巴罗尔控制最严重的。
+
+
+*****
+
+####  lmclmc2  
+##### 8053#       发表于 2026-10-23 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70412449&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-10-23 15:00</a>
+那就是第一次通第二章最好用凯伊线，然后最后一战前把马都下了吗？如果先通了其他线就会把第一章结束时候 ...</blockquote>
+无所谓顺序，主要是有些人会重打某个主角（为了蹭免费的融合属性），针对的这种情况。每个主角的仓库本身互相独立的，只看这个主角的线第一次过第二部的时候的状态
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
