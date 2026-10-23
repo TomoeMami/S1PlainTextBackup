@@ -6600,3 +6600,16 @@ https://weibo.com/5315344950/5356430054130539
 
 主要还得看猫猫线怎么写 现在很多细节表示这俩人感情深厚 可以说是俩恋爱脑
 
+
+*****
+
+####  Jabeck  
+##### 8024#       发表于 2026-10-23 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70408980&amp;ptid=2261859" target="_blank">hsyg 发表于 2026-10-22 19:42</a>
+
+他们亲爹都抽象到大战大苏了，这几个女儿都是单性拉出来的，
+
+能人模人样没有学迪少那样天生爱人已经很可以 ...</blockquote>
+大苏估计才砍了几块，分成小块应该是德雷克干的。
+
