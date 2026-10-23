@@ -3715,3 +3715,11 @@ FF1主角（物理反击）和FF8男主（平砍回蓝），还有上来给的�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Booorunestud  
+##### 376#       发表于 2026-10-23 23:58
+
+刚打完塞壬，目前除了暗雷没什么缺点
+

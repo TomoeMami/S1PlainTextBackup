@@ -706,3 +706,85 @@ pi的codemode真不错，越用越爽，输出方法多样化没有像dsh的ptc�
 很大概率是oai自己设限了
 dsh拿藤子的浏览器控制插件，随随便便上淘宝
 
+
+*****
+
+####  tonyunreal  
+##### 17822#       发表于 2026-10-23 23:59
+
+看主播测的oneshot编程任务，好像不强啊
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  宏.  
+##### 17823#       发表于 2026-10-24 00:00
+
+K3.1终于出了，开蹬
+
+*****
+
+####  phorcys02  
+##### 17824#       发表于 2026-10-24 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414561&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-23 23:45</a>
+
+上线了,价格好像不错</blockquote>
+比1017贵两个数量级...
+
+*****
+
+####  Promeus  
+##### 17825#       发表于 2026-10-24 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414616&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-10-24 00:00</a>
+比1017贵两个数量级...</blockquote>
+比k3降价就行了
+
+*****
+
+####  zhongjie  
+##### 17826#       发表于 2026-10-24 00:01
+
+看鹈鹕测试完全是蒸了GPT啊，不知道文字怎么样
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  Promeus  
+##### 17827#       发表于 2026-10-24 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414619&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-10-24 00:01</a>
+看鹈鹕测试完全是蒸了GPT啊，不知道文字怎么样
+
+—— 来自 HONOR WKL-AN80, Android 17, 鹅球 v4.0 ...</blockquote>
+1017的鹈鹕也很多人说gpt味，然而3d建模完全不同
+
+*****
+
+####  宏.  
+##### 17828#       发表于 2026-10-24 00:03
+
+k3.1 pro 130k/s，pro highspeed 180t/s，这速度终于舒服了
+
+*****
+
+####  cscbzcbz  
+##### 17829#       发表于 2026-10-24 00:03
+
+速度快了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  nxmonitor  
+##### 17830#       发表于 2026-10-24 00:07
+
+这个体素一股GPT的味道，1017就一个鹈鹕像，而且还能抽出另一种风格
+
