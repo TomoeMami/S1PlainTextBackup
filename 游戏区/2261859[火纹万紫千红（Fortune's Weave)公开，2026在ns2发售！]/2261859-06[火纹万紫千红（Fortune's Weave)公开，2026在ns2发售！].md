@@ -7107,3 +7107,14 @@ pdd万紫千红302算近几个月最低了吗？现在手头游戏还有三四�
 
 —— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  flyingover  
+##### 8073#       发表于 2026-10-23 21:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413623&amp;ptid=2261859" target="_blank">serj005 发表于 2026-10-23 19:11</a>
+
+pdd万紫千红302算近几个月最低了吗？现在手头游戏还有三四个没打完，感觉买了也不会第一时间打，这价格在在 ...</blockquote>
+前几天我看到最低是279
+

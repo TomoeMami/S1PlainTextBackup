@@ -433,3 +433,22 @@ k3.1最终跑分上估计会比较好看<img src="https://static.stage1st.com/im
 
 模型在ai上的能力应该早就过线了
 
+
+*****
+
+####  nxmonitor  
+##### 17798#       发表于 2026-10-23 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414007&amp;ptid=2275806" target="_blank">吴怀在 发表于 2026-10-23 20:56</a>
+
+最近各种漏洞集中爆发是什么原因？这些漏洞是不是应该早就被其他大模型发现了，只不过当时还能藏在大公司自 ...</blockquote>
+因为1017的网安能力极强，尤其是在找漏洞方面，还很便宜能一直找
+
+
+*****
+
+####  qz66618  
+##### 17799#       发表于 2026-10-23 21:37
+
+php漏洞那个有可能和OAI有关，他们自己也发了条推特
+
