@@ -3522,3 +3522,15 @@ d加密哪有学习版</blockquote>
 
 蹲个评价，后续剧情怎么样，demo玩了快10小时还不错
 
+
+*****
+
+####  黑暗之眼  
+##### 355#       发表于 2026-10-23 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70410244&amp;ptid=2283081" target="_blank">喵喵叫的猫 发表于 2026-10-23 04:12</a>
+这算官方终于承认莉诺雅就是最终boss了吧 虽然大家都猜到了不知道有什么好否认的</blockquote>
+机战还给你演一遍呢，有影响吗？根本没有，想太多
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
