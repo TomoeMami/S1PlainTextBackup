@@ -874,3 +874,27 @@ AA 野榜我这边看没更新啊，话说有人试试公文写作吗，有点�
 写作说是已经拉了</blockquote>
 比 K3 差吗？<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 17840#       发表于 2026-10-24 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414673&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-10-24 00:18</a>
+这个美元计价没绷住
+
+aa野榜54（信源暂存疑，还没看到，但我感觉差不多</blockquote>
+那个是p图，目前没出分<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qz66618  
+##### 17841#       发表于 2026-10-24 00:40
+
+而且看AA榜不如看官方发的跑分报告以及一些比较有参考价值的benchmark<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

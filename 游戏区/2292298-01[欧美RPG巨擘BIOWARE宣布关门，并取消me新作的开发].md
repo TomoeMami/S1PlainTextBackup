@@ -1096,3 +1096,11 @@ rip 龙腾世纪 only 123 <img src="https://static.stage1st.com/image/smiley/fac
 
 SE什么时候挂？
 
+
+*****
+
+####  copy  
+##### 109#       发表于 2026-10-24 00:43
+
+唉，虽然当初吃了龙腾世纪4那口SHIT真的很无语，但是再也玩不到了还是很遗憾
+
