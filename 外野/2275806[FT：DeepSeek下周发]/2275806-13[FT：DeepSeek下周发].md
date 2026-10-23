@@ -114,3 +114,19 @@ a÷ 都能说生态了，那业界真是太开放了
 
 A/ 的 cc 好是好，但这个东西是闭源的。其实本质上就是个贪得无厌的商业公司，给社区的贡献（mcp、skills）也都是为了自己。
 
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 17770#       发表于 2026-10-23 18:20
+
+看起来kimi 3.1会有多个版本
+
+
+*****
+
+####  moekyo  
+##### 17771#       发表于 2026-10-23 18:26
+
+你看，我屏蔽确实是对的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
