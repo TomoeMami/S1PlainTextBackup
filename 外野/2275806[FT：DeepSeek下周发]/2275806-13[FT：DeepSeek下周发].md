@@ -1238,3 +1238,17 @@ k3时的长程思考能力在那波模型里就是挺强的
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  cscbzcbz  
+##### 17874#       发表于 2026-10-24 04:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415027&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-24 03:32</a>
+试了一下，感觉one-shot前端测试好像真是不太行？或者是我的环境配置有问题？
+
+在dsh下，分别测试了kimi-3.1 ...</blockquote>
+说的是部分agent上隐藏，DSH上一直是全显示的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
