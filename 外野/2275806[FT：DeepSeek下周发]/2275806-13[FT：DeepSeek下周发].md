@@ -401,3 +401,35 @@ Ramp 追踪 7 万余家美国企业支付数据显示，Ope ...</blockquote>
 最近各种漏洞集中爆发是什么原因？这些漏洞是不是应该早就被其他大模型发现了，只不过当时还能藏在大公司自 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">不是三哥发力的吗
 
+
+*****
+
+####  qz66618  
+##### 17795#       发表于 2026-10-23 21:18
+
+k3.1最终跑分上估计会比较好看<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 17796#       发表于 2026-10-23 21:20
+
+还不发吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  有鱼  
+##### 17797#       发表于 2026-10-23 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414007&amp;ptid=2275806" target="_blank">吴怀在 发表于 2026-10-23 20:56</a>
+
+最近各种漏洞集中爆发是什么原因？这些漏洞是不是应该早就被其他大模型发现了，只不过当时还能藏在大公司自 ...</blockquote>
+不至于不至于
+
+应该就是巧合
+
+模型在ai上的能力应该早就过线了
+
