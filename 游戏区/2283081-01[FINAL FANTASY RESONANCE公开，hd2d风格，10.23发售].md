@@ -3633,3 +3633,14 @@ B站评测，在沼泽刷大仙人掌，4到5场战斗就可以刷满一个幻�
 
 FF8男主的大招是断空光牙剑吗！
 
+
+*****
+
+####  黑暗之眼  
+##### 367#       发表于 2026-10-23 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413785&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-23 20:00</a>
+
+FF8男主的大招是断空光牙剑吗！</blockquote>
+只是倒数第二招，狮子心都不是，不知道有没有
+

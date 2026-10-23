@@ -3660,3 +3660,96 @@ BanGDream! bilibili官方：@BanGDream_CN
 
        [https://bmu.lnk.to/AveMujica_miniAL2026tw](https://bmu.lnk.to/AveMujica_miniAL2026tw)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42153#       发表于 2026-10-23 20:41
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/23/204115hvchrgigrgkzfivv.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-23_20-39-40.png</strong> (1020.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 20:41 上传
+
+       [https://x.com/bang_dream_info/status/2113594192979165621](https://x.com/bang_dream_info/status/2113594192979165621)
+
+       [https://t.co/Y8UF4bNrkr](https://t.co/Y8UF4bNrkr)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42154#       发表于 2026-10-23 20:43
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/23/204243h9345rhi3oro9s3z.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-23_20-38-21.png</strong> (1.56 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 20:42 上传
+
+       [https://x.com/BDP_AveMujica/status/2113601331231601129](https://x.com/BDP_AveMujica/status/2113601331231601129)
+
+       <strong>Ave Mujica - BADDY BADDY (Official Music Video)</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/23/204318fv5rh3umpnqevqh8.png" referrerpolicy="no-referrer">
+
+<strong>58bf5c800887fd720e1ad5697ab3a9c7263ac129.png</strong> (435.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-23 20:43 上传
+
+...ようこそ。Ave Mujicaの世界へ
+
+...欢迎来到Ave Mujica的世界
+
+Ave Mujica mini Album「神の名を」
+
+Streaming/DL：[https://bmu.lnk.to/AveMujica_miniAL2026id](https://bmu.lnk.to/AveMujica_miniAL2026id)
+
+Ave Mujica “BADDY BADDY”
+
+作词：Diggy-MO’　[https://twitter.com/diggymo04](https://twitter.com/diggymo04)
+
+作曲：Diggy-MO’,JUNKOO
+
+编曲：Diggy-MO’,JUNKOO
+
+MV
+
+Director / Cinematographer / Editor / Collage Art: Kazuki Gotanda (SIGNO)
+
+Producer: Yoshiki Kawasaki (SIGNIF)
+
+ーーーーーーーーーーーー
+
+2026.10.21 Wed.
+
+Ave Mujica mini Album「神の名を」
+[https://bang-dream.com/discographies/4238/](https://bang-dream.com/discographies/4238/)
+
+2026.10.24 Sat. - 25 Sun.
+
+Ave Mujica 7th LIVE “Virtus”
+
+at KEIO ARENA TOKYO
+[https://bang-dream.com/events/avemujica_7th/](https://bang-dream.com/events/avemujica_7th/)
+
+ーーーーーーーーーーーー
+
+HP：[https://avemujica.bang-dream.com/](https://avemujica.bang-dream.com/)
+
+X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
+
+#AveMujica#</blockquote>
+       [https://www.bilibili.com/video/BV1uant6mEs6](https://www.bilibili.com/video/BV1uant6mEs6)
+

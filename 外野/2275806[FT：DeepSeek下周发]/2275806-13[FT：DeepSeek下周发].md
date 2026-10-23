@@ -304,3 +304,45 @@ A/发那个安全报告更是火上浇油<img src="https://static.stage1st.com/i
 
 很多人还没有意识到chat AI和agent AI根本不是同一个东西
 
+
+*****
+
+####  andychen  
+##### 17787#       发表于 2026-10-23 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413673&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-23 19:27</a>
+
+感觉现在有意愿主动使用AI能力的还是一小撮人，S1已经是我能接触到的这方面意愿最强烈的社区了
+
+大部分普 ...</blockquote>
+我现在天天vibe游戏都不想打了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+花销也比打游戏高多了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  来都来了  
+##### 17788#       发表于 2026-10-23 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413388&amp;ptid=2275806" target="_blank">serj005 发表于 2026-10-23 18:06</a>
+skill有用，但感觉这个东西几乎是随agent发展必然诞生的一个要素，a/在这方面的主要作用是提供了个基础模 ...</blockquote>
+这倒是，因为我自己刚开始用AI时也经历过独自发明Skill的过程，虽然格式完全是自创的，但已经基本有了Skill的雏形。我当时还不知道这个东西就叫Skill。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tonyunreal  
+##### 17789#       发表于 2026-10-23 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413656&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-23 19:19</a>
+
+AI 商业化现裂痕：1% 客户撑起 80% 企业收入，量价背离
+
+    
+
+Ramp 追踪 7 万余家美国企业支付数据显示，Ope ...</blockquote>
+这还是1017没来的世界线<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+现在1017爷爷要来收割不思进取的美国AI了
+
