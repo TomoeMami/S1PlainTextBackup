@@ -15741,3 +15741,36 @@ Google风控有风险不，会不 ...</blockquote>
 
 跑的中途不要切**。
 
+
+*****
+
+####  谎称  
+##### 17754#       发表于 2026-10-23 17:19
+
+k3如果不降价，未来不好说……
+
+
+*****
+
+####  lactone  
+##### 17755#       发表于 2026-10-23 17:25
+
+ 本帖最后由 lactone 于 2026-10-23 17:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413092&amp;ptid=2275806" target="_blank">hencechen 发表于 2026-10-23 17:01</a>
+不是…antropic别的可以黑，怎么连技术也开始黑了…
+
+有些回帖的坛友，到底关没关注过ai社区的发展啊</blockquote>
+你说的这些哪个是公开的提升llm本身能力的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+openai是decoder only架构验证者，第一个跑通rlhf以及验证scaling law。
+谷歌transformer架构名垂青史，moe。
+ds是mla，dsmoe，gpro，mhc，mtp，ced，dspark，dsec。
+kimi有kda，attention  residuals。
+qwen有门控注意力机制，qk-norm。
+字节有hc。
+甚至meta，llama是很多人学大模型的第一课，还有gqa推广。
+
+anthropic在这些方面有什么公开的技术吗？a/当然有技术，但是他的技术对社区几乎没有什么具体贡献，全用在自己模型上了。
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
