@@ -1252,3 +1252,23 @@ k3时的长程思考能力在那波模型里就是挺强的
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cscbzcbz  
+##### 17875#       发表于 2026-10-24 04:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414823&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-10-24 01:26</a></blockquote>
+两倍原来说的是这个bench-science 0.1啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  andychen  
+##### 17876#       发表于 2026-10-24 04:29
+
+看了下，kimi给的api报价是opus的一半，不过缓存价格没降
+
+对很多缓存命中率不高的任务其实还不错
+
