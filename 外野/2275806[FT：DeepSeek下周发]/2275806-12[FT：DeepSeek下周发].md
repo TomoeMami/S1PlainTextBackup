@@ -15086,3 +15086,34 @@ K3.1看上去还不错的样？
 
 5个号只剩2个，但是2个Gemini4周额度也值啊
 
+
+*****
+
+####  needagf  
+##### 17694#       发表于 2026-10-23 10:25
+
+羊毛版的gemini用不了4，好气
+
+*****
+
+####  startraveller  
+##### 17695#       发表于 2026-10-23 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411060&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-23 10:15</a>
+
+据说其实是超级2.9，比k3强一点但更快更便宜
+
+—— 来自 vivo V2505A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+据说还有个传说中的K2.8正式版/K3 Flash吧
+
+*****
+
+####  qwased  
+##### 17696#       发表于 2026-10-23 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411063&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-10-23 10:15</a>
+羊毛版Gemini会员大屠杀，然后买新版Pixel送的会员汇报可以用Opus5.5 和 Gemini 4了。
+
+5个号只剩2个，但是2 ...</blockquote>
+pixel会员被干了的话是掉会员还是连号都一起被封？
+
