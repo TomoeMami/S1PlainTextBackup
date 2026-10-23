@@ -1204,3 +1204,13 @@ AA这榜越来越没参考意义了，sonnet和muse什么垃圾
 
 2026-10-24 03:27 上传
 
+
+*****
+
+####  lactone  
+##### 17871#       发表于 2026-10-24 03:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在看唐杰的了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
