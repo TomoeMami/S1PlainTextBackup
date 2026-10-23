@@ -6743,3 +6743,14 @@ https://weibo.com/5315344950/5356430054130539
 
 话说火纹这动作模组怎么回事，表现女角色扭捏心态时候这个左右摇是通用的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古畑任三郎2015  
+##### 8037#       发表于 2026-10-23 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70411888&amp;ptid=2261859" target="_blank">聊nsy专用号 发表于 2026-10-23 12:51</a>
+
+为什么蕾达第8章挖人还是19级，打完最后一场预选进本战之后再挖尼涅就26级了？？？ ...</blockquote>
+每章会刷新人物等级的啊，除了那几个自带马所以默认中级职业的
+
