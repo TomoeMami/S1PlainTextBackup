@@ -632,3 +632,16 @@ tb4.0 1017的分数是42....两倍就是84了。
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 17816#       发表于 2026-10-23 23:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414369&amp;ptid=2275806" target="_blank">吴怀在 发表于 2026-10-23 22:41</a>
+
+有人知道为什么 Codex 的 computer use 不让操作淘宝吗？
+
+如果这是阿里要求奥特曼禁止操作淘宝的话，那国产 ...</blockquote>
+可以用kimi-webbridge，单纯操作网页的话，比computer use高到不知道哪里去了
+
