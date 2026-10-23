@@ -3733,3 +3733,11 @@ FF1主角（物理反击）和FF8男主（平砍回蓝），还有上来给的�
 不是整屏闪 有时候一些物件画面元素闪 偶发性的
 我还以为我hdmi线的问题刚买了新的换上还是一样 pssr vrr之类的都关了还是不行
 
+
+*****
+
+####  suzakushi  
+##### 378#       发表于 2026-10-24 02:16
+
+打完水都了，<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">演出太细致就导致风神殿明明都打败了boss结果boss又慢悠悠从主角团脸上飞过去把水晶爆了，和水神殿打倒boss看着boss若无其事地传走这种剧情好诡异。
+
