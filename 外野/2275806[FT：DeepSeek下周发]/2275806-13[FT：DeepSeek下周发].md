@@ -1021,3 +1021,29 @@ kimi有点东西啊，可惜用不起<img src="https://static.stage1st.com/image
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  有鱼  
+##### 17855#       发表于 2026-10-24 01:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">k3.1pro画出来的鹈鹕那个色调和Astra基本一样
+
+*****
+
+####  cube  
+##### 17856#       发表于 2026-10-24 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414773&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-10-24 01:07</a>
+
+kimi客户端出图好像用的是seedream</blockquote>
+同样的提示词我用seedream画不出那个效果，KIMI特调了？
+
+
+*****
+
+####  狭义文具爱好者  
+##### 17857#       发表于 2026-10-24 01:44
+
+鹈鹕svg也如各个benchmark一样飞速饱和，这一个像不代表其他也像。tb4.0真高啊
+
