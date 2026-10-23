@@ -875,3 +875,14 @@ lgbt只是生软问题之一了，主要还是游戏不好玩。。。
 
 其实我一直觉得圣歌可惜了，这年头有个好底子的游戏不多了，真能把圣歌好好补补，大家看到促销打折啊说不定还能买买
 
+
+*****
+
+####  m1grandmk1  
+##### 88#       发表于 2026-10-23 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70410486&amp;ptid=2292298" target="_blank">ak123 发表于 2026-10-23 08:30</a>
+
+当初泥潭政确魔怔人可是在专楼里舌战群儒几百回合吹da4这坨东西lgbt内容怎么怎么好，游戏怎么怎么好的评价 ...</blockquote>
+DEI游戏和女性友好游戏一样，是实在吹不了游戏性才出此下策的。
+

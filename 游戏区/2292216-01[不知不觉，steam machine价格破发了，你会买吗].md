@@ -423,3 +423,14 @@ Steam手柄是最好的PC串流手柄，如果没有串流的需求，其实是�
 
 啥点评？4060不是一大堆么，我看到的是假价格？
 
+
+*****
+
+####  farAway  
+##### 48#       发表于 2026-10-23 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70406102&amp;ptid=2292216" target="_blank">liekong 发表于 2026-10-21 15:38</a>
+
+Steam手柄是最好的PC串流手柄，如果没有串流的需求，其实是不如内卷的国产手柄 ...</blockquote>
+请教一下他串流的优势在哪？我现在用的XBOX接电视，感觉基础功能都有了。
+
