@@ -7436,3 +7436,26 @@ pdd万紫千红302算近几个月最低了吗？现在手头游戏还有三四�
 
 好在赶在了影之刃发售前通关，也算是解脱了。
 
+
+*****
+
+####  纯夏  
+##### 8098#       发表于 2026-10-25 06:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418636&amp;ptid=2261859" target="_blank">风使塞缇 发表于 2026-10-25 01:57</a>
+
+终于通关了（困难+经典+四遍手打战争篇）
+
+最终存档时间为287小时
+
+========================</blockquote>
+看塞缇佬打完了 距离影之刃还有几天时间 
+
+来试试加贺的维斯塔利亚传说吧 这是你喜欢的老派火纹叙事模式
+
+宏大叙事+逻辑成立+加贺的棋盘
+
+Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一水准的 相当抓耳
+
+2部+外传这里：[https://pan.baidu.com/s/1PMwKxxV0xc1udj-ZtL2MIg?pwd=1234](https://pan.baidu.com/s/1PMwKxxV0xc1udj-ZtL2MIg?pwd=1234) 
+
