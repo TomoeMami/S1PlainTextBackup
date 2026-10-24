@@ -2857,3 +2857,11 @@ Re:Source</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hugosol  
+##### 18019#       发表于 2026-10-24 18:32
+
+草，Thariq离职了
+
