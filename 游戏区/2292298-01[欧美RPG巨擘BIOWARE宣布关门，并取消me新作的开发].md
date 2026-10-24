@@ -1188,3 +1188,16 @@ James Ohlen，生软游戏设计之父，参与并主导 博德之门12，星战
 EA从联动里撤掉了和ME相关的东西，可能是准备卖IP了</blockquote>
 战地6的联动皮肤吗？应该是准备到下个月的N7日附近再上线吧，作为有特效的改模皮我觉得不太可能直接取消了。
 
+
+*****
+
+####  solitaryx  
+##### 117#       发表于 2026-10-24 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416967&amp;ptid=2292298" target="_blank">perfect_duck 发表于 2026-10-24 17:19</a>
+
+James Ohlen，生软游戏设计之父，参与并主导 博德之门12，星战就共和国武士，无冬之夜，DAO，星战旧共和国 ...</blockquote>
+很符合我的理解
+
+战斗玩法好是因为那群技术人员在，其他拉就是因为LGBT
+

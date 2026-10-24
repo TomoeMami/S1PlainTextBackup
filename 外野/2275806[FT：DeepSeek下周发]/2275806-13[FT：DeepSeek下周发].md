@@ -2930,3 +2930,27 @@ Claude code的领头人
 
 ——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  lactone  
+##### 18027#       发表于 2026-10-24 18:57
+
+<img src="https://img.stage1st.com/forum/202610/24/185710vk89q6vkzszncnpn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (160.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 18:57 上传
+
+光离职没啥，离职后马上发了这个，这就很不对劲
+
+
+*****
+
+####  jinuzuktII  
+##### 18028#       发表于 2026-10-24 19:00
+
+甚至要在上市前夜跑路，他是看到了什么
+
