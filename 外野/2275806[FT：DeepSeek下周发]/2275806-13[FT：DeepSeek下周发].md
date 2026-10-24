@@ -3576,3 +3576,174 @@ RTX4060 16g+64DDR4 2.9t/s
 现在国内还有写文写设定这方面厉害的ai吗，试了试让哈基米4续写了一段跑团模组，还是有点强的 ...</blockquote>
 写文不考虑claude的话只有哈基米4a和k3还能看，k3.1全面劣化
 
+
+*****
+
+####  洛拉斯  
+##### 18085#       发表于 2026-10-24 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417961&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-24 21:22</a>
+
+长程任务1017就要拿出PTC+压缩上下文插件了……</blockquote>
+为什么不单个对话到一定程度就要求写交接文档开新对话？
+
+*****
+
+####  AraTurambar  
+##### 18086#       发表于 2026-10-24 23:55
+
+<blockquote>Promeus 发表于 2026-10-24 19:10
+Ai目前的灰犀牛就是中期选举吧阿博特都下令暂停数据中心了，俄亥俄的反数据中心阿克顿眼看又要把维维克吊起 ...</blockquote>
+Vivek太混沌了，可能一个人带崩一片。
+
+*****
+
+####  Promeus  
+##### 18087#       发表于 2026-10-25 00:33
+
+话说rc3更新啥了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  The_Ether_  
+##### 18088#       发表于 2026-10-25 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418511&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-25 00:33</a>
+
+话说rc3更新啥了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你问他自己啊 <blockquote>一句话总结：这是一个小版本，没有新模型或大功能，主要是侧栏“更多”菜单 + 草稿修复 + API Key 路由的模型列表同步，其余是导航相关的内部重构与埋点。</blockquote>
+
+*****
+
+####  jojog  
+##### 18089#       发表于 2026-10-25 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418318&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-24 23:17</a>
+
+连A/版Tibo的thariq都走了
+
+—— 来自 HUAWEI HOP-AL10, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+好几个感觉还是带着怨气的 不知道啥情况
+
+*****
+
+####  malisa  
+##### 18090#       发表于 2026-10-25 00:44
+
+我猜卸磨杀驴吧 全公司AI化，觉得很多人没用了
+
+A/自己发表的内容来看，自动化的工程之后就让转岗
+
+*****
+
+####  一般市民  
+##### 18091#       发表于 2026-10-25 00:51
+
+<img src="https://img.stage1st.com/forum/202610/25/005103spp7t1tf4s0ppsp9.jpg" referrerpolicy="no-referrer">
+
+<strong>HVaOryJaoAEaLQH.jpg</strong> (442.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 00:51 上传
+
+*****
+
+####  BarricadeMKXX  
+##### 18092#       发表于 2026-10-25 00:56
+
+ 本帖最后由 BarricadeMKXX 于 2026-10-25 01:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418346&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-24 23:26</a>
+
+DS那几个串子有没有新发言</blockquote>
+看到了猫老板的「也没啥」<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/25/005723do38zx5pppbx91cx.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>image.webp</strong> (5.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 00:57 上传
+
+*****
+
+####  wonderful259  
+##### 18093#       发表于 2026-10-25 01:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418547&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-25 00:51</a></blockquote>
+这基本就是人气榜了
+
+*****
+
+####  御坂MKII  
+##### 18094#       发表于 2026-10-25 01:12
+
+感觉 k3.1 的 high 挺菜的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">远比不上 astra medium
+
+*****
+
+####  蛋黄酱Release  
+##### 18095#       发表于 2026-10-25 02:34
+
+现在国内还有写文写设定这方面厉害的ai吗，试了试让哈基米4续写了一段跑团模组，还是有点强的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 18096#       发表于 2026-10-25 02:36
+
+Strata DeepSeekV4.1 数据出炉
+
+RTX5090 32g+128gDDR5 42.8 t/s
+
+RTX4090 48g+128gDDR4 45.1t/s
+
+RTX4060 16g+64DDR4 2.9t/s
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比我想的要快
+
+*****
+
+####  御坂MKII  
+##### 18097#       发表于 2026-10-25 02:37
+
+ 本帖最后由 御坂MKII 于 2026-10-25 02:47 编辑 
+
+想起来薅了下新 x 订阅的第一个月推广，试了一下发现 grok bot 比 kimi 还区，general task 居然远不如 kimi
+
+*****
+
+####  冤枉呐  
+##### 18098#       发表于 2026-10-25 03:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413160&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-10-23 17:15</a>
+我两个号的jio，网页用Argon。原先是一个美国一个中国。
+
+中国那个我申请挪美国去了，平时挂的**哪国的就 ...</blockquote>
+谭友，请教
+我注册了个新号，看着服务条款是美国，但是网页版gemini就是打不开（app可以）
+我寻思这种号jio也救不回来吧？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  宏.  
+##### 18099#       发表于 2026-10-25 04:48
+
+ 本帖最后由 宏. 于 2026-10-25 04:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418672&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-10-25 02:34</a>
+
+现在国内还有写文写设定这方面厉害的ai吗，试了试让哈基米4续写了一段跑团模组，还是有点强的 ...</blockquote>
+写文不考虑claude的话只有哈基米4a和k3还能看，k3.1全面劣化。凡是吃边缘知识的，无脑哈基米
+
+*****
+
+####  squallx2  
+##### 18100#       发表于 2026-10-25 05:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
