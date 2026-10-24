@@ -3501,3 +3501,20 @@ DS那几个串子有没有新发言</blockquote>
 
 2026-10-25 00:57 上传
 
+
+*****
+
+####  wonderful259  
+##### 18078#       发表于 2026-10-25 01:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418547&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-25 00:51</a></blockquote>
+这基本就是人气榜了
+
+
+*****
+
+####  御坂MKII  
+##### 18079#       发表于 2026-10-25 01:12
+
+感觉 k3.1 的 high 挺菜的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">远比不上 astra medium
+
