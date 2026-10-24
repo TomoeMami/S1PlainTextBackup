@@ -1657,3 +1657,28 @@ K3.1到底是蛆了神了？看一些负面例子实在是区到离谱，而一�
 
 3.1pro其实额度不是重度使用还行，刚用wb的免费积分完成一个小任务（处理20多张海报检查与修改建议），才不到200积分
 
+
+*****
+
+####  wuuuuuud  
+##### 17913#       发表于 2026-10-24 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415541&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-24 10:01</a>
+国外找BUG的榜单，当然这个也可能和网安能力有关</blockquote>
+sonnet比其他模型断档的强...？这榜单也有点可疑啊
+
+—— 来自 nubia NX737J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  BarricadeMKXX  
+##### 17914#       发表于 2026-10-24 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415804&amp;ptid=2275806" target="_blank">wuuuuuud 发表于 2026-10-24 11:14</a>
+
+sonnet比其他模型断档的强...？这榜单也有点可疑啊
+
+—— 来自 nubia NX737J, Android 15, 鹅球 v4.0-alp ...</blockquote>
+sonnet超长思考硬堆上去的，你看那个用时和开销
+
