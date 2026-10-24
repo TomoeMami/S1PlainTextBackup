@@ -2207,3 +2207,32 @@ nao榜的分数，较自己肯定是巨大提升，但与国外头部模型的�
 
 说到底，还得是梁圣牛逼，完全靠模型和论文以及开源这些发声，深藏功与名
 
+
+*****
+
+####  阿刚  
+##### 17960#       发表于 2026-10-24 13:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">梁圣是真的嫌我们妨碍他训练agi了
+
+
+*****
+
+####  →熙←  
+##### 17961#       发表于 2026-10-24 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416176&amp;ptid=2275806" target="_blank">留作荒年 发表于 2026-10-24 13:07</a>
+
+kimi3.1发布的文档不是说把网安数据给移除了吗，这方面能力不行也是情有可原的
+
+—— 来自 Xiaomi 23049RAD ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">里面全是后端数据和找bug能力的数据, 直接移除了难怪好蠢
+
+
+*****
+
+####  novem  
+##### 17962#       发表于 2026-10-24 13:36
+
+感觉kimi在做上市前的营收平衡，可惜这是不可取的，现在这个性价比极有可能被某个未来的国模当减速带一样碾过去
+
