@@ -3549,3 +3549,19 @@ RTX4060 16g+64DDR4 2.9t/s
 
 想起来薅了下新 x 订阅的第一个月推广，试了一下发现 grok 比 kimi 还区
 
+
+*****
+
+####  冤枉呐  
+##### 18083#       发表于 2026-10-25 03:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413160&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-10-23 17:15</a>
+我两个号的jio，网页用Argon。原先是一个美国一个中国。
+
+中国那个我申请挪美国去了，平时挂的**哪国的就 ...</blockquote>
+谭友，请教
+我注册了个新号，看着服务条款是美国，但是网页版gemini就是打不开（app可以）
+我寻思这种号jio也救不回来吧？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
