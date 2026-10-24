@@ -3976,3 +3976,13 @@ hypervisior版也剛出現
 
 一天过去了1300评价还是97好评
 
+
+*****
+
+####  隔壁老黄  
+##### 396#       发表于 2026-10-24 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416066&amp;ptid=2283081" target="_blank">asikies 发表于 2026-10-24 12:36</a>
+战斗演出纯纯一坨好吧，怪物全是一动不动原地发呆发光，也就少数过场有点演出，结果也就开场唬人，看多了发 ...</blockquote>
+分辨率跟圣兽没法比，这就是个像素游戏
+
