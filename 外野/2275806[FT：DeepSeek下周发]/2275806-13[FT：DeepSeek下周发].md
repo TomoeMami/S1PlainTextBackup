@@ -2812,3 +2812,20 @@ strata作者放话了，看来还有大幅提升的空间</blockquote>
 Re:Source</blockquote>
 游戏显卡能运行的模型自己从社区里长出来<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  warlock228  
+##### 18014#       发表于 2026-10-24 17:21
+
+真的吗？还是股东会威能？大小姐封号梗还能不能继续玩了
+
+0.76 复制打开抖音，看看【拆钱日记的作品】嘴上封杀中国，身体却在偷偷复活老账号？ 半年狂封1... https://v.douyin.com/A1br1e89DkQ/ :0pm Y@m.dN 02/29 nDH:/ 
+
+*****
+
+####  奈落的孤火花  
+##### 18015#       发表于 2026-10-24 17:22
+
+为啥说回去用kimi k3？k3不是比k3.1更贵么
+
