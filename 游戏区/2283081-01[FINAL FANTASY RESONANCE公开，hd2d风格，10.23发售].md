@@ -4052,3 +4052,16 @@ hypervisior版也剛出現
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  炯Ⅺ  
+##### 402#       发表于 2026-10-24 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417048&amp;ptid=2283081" target="_blank">前田利家 发表于 2026-10-24 17:42</a>
+请问
+洋葱在哪里，打到第四章了准备回去收</blockquote>
+雷鸣山有4个洞口，一个是主线剧情进的，一个是收召唤兽的，剩下两个一进一出的，出去了就是洋葱剑士的祠堂
+
+—— 来自 OnePlus PKX110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
