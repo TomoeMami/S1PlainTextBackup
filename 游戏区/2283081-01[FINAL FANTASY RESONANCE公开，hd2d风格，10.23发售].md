@@ -4015,3 +4015,27 @@ hypervisior版也剛出現
 第二章就2个幻兵加一个幻兽吗？</blockquote>
 也是3个幻兵，洋葱，吉坦，诺克提斯
 
+
+*****
+
+####  新HGCG  
+##### 400#       发表于 2026-10-24 17:31
+
+出现了一个
+
+粉红色的
+
+<img src="https://img.stage1st.com/forum/202610/24/172634tvbbmlmwpcppxlxm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (304.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 17:26 上传
+
+悠木碧配音的
+
+魔法少女(700岁+) ​​​
+
+<img src="https://p.sda1.dev/35/c00b810e12ecf7c6f8e397b7604ceef6/image.png" referrerpolicy="no-referrer">
+
