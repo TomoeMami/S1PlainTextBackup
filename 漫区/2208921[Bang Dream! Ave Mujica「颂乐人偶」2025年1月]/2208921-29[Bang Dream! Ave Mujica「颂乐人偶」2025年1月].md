@@ -3753,3 +3753,125 @@ X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
 #AveMujica#</blockquote>
        [https://www.bilibili.com/video/BV1uant6mEs6](https://www.bilibili.com/video/BV1uant6mEs6)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42155#       发表于 2026-10-24 12:52
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/24/125219cu7c8h7uuhimmuh8.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-24_12-49-54.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 12:52 上传
+
+       [https://x.com/bang_dream_info/status/2113797625124372619](https://x.com/bang_dream_info/status/2113797625124372619)
+
+*****
+
+####  堀内爱里衣  
+##### 42156#       发表于 2026-10-24 12:53
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/24/125258pyvvshz6hmy92d84.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-24_12-47-01.png</strong> (116.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 12:52 上传
+
+       [https://x.com/Kanon_Takao/status/2113786502736220272](https://x.com/Kanon_Takao/status/2113786502736220272)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/24/125257uh01gdp4sn0744dg.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-24_12-47-39.png</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 12:52 上传
+
+       [https://x.com/AkaneY_banu/status/2113798353654063507](https://x.com/AkaneY_banu/status/2113798353654063507)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/24/125256kho1mfmni09mh1mq.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-24_12-48-04.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 12:52 上传
+
+       [https://x.com/sasakirico/status/2113804453094818144](https://x.com/sasakirico/status/2113804453094818144)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/24/125255ij1mw9jb1szqqeqm.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-24_12-48-38.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 12:52 上传
+
+       [https://x.com/Watase_Yuzuki/status/2113809237503860802](https://x.com/Watase_Yuzuki/status/2113809237503860802)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/24/125256n94a45m37h2mt4w2.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-24_12-49-17.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 12:52 上传
+
+       [https://x.com/okada_mei0519/status/2113811613275029991](https://x.com/okada_mei0519/status/2113811613275029991)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42157#       发表于 2026-10-24 12:54
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/24/125430ujuk2b9bemnkbnep.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-24_12-50-33.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 12:54 上传
+
+       [https://x.com/bang_dream_info/status/2113842928523059538](https://x.com/bang_dream_info/status/2113842928523059538)
+
+       [https://bang-dream.com/events/avemujica_7th](https://bang-dream.com/events/avemujica_7th)
+
+*****
+
+####  堀内爱里衣  
+##### 42158#       发表于 2026-10-24 12:55
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/24/125458imn83p6y3lo3mtzg.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-24_12-51-21.png</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 12:54 上传
+
+       [https://x.com/bang_dream_info/status/2113843172485059037](https://x.com/bang_dream_info/status/2113843172485059037)
+
+       [https://bang-dream.com/events/avemujica_7th/#Notice](https://bang-dream.com/events/avemujica_7th/#Notice)
+

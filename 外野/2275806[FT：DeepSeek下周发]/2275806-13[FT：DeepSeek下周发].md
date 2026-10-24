@@ -1989,3 +1989,72 @@ kimi目前问题就是出在只有大参数模型可以用而且太贵了，如�
 
 k3.1不及预期，kimi还是急了，这个模型至少还需要几个月来打磨才行，估计是上市的压力。
 
+
+*****
+
+####  Promeus  
+##### 17942#       发表于 2026-10-24 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416098&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-10-24 12:47</a>
+k3.1不及预期，kimi还是急了，这个模型至少还需要几个月来打磨才行，估计是上市的压力。 ...</blockquote>
+他都仨月没发模型了，这本来就是必须发的
+
+
+*****
+
+####  drodchang  
+##### 17943#       发表于 2026-10-24 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416102&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-24 12:48</a>
+
+他都仨月没发模型了，这本来就是必须发的</blockquote>
+但是这次效果远远没有k3发布的时候好，反而打击了信心。聪明的做法是发flash版。
+
+
+*****
+
+####  mitzvah  
+##### 17944#       发表于 2026-10-24 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416110&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-10-24 12:50</a>
+
+但是这次效果远远没有k3发布的时候好，反而打击了信心。聪明的做法是发flash版。 ...</blockquote>
+这么大号都这样了，flash能强到哪里去？
+
+那2.7，2.8未必就不是flash
+
+
+*****
+
+####  冤枉呐  
+##### 17945#       发表于 2026-10-24 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416037&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-24 12:28</a>
+马老板前两天才说grok4.8刚完成预训练，这就马上要发了？
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5. ...</blockquote>
+马老板应该做nsfw专精的
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  drodchang  
+##### 17946#       发表于 2026-10-24 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416119&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-24 12:52</a>
+
+这么大号都这样了，flash能强到哪里去？
+
+那2.7，2.8未必就不是flash</blockquote>
+把价格降下来也很重要，现在kimi的订阅太坑了，用户都是骂的。
+
+*****
+
+####  lactone  
+##### 17947#       发表于 2026-10-24 12:55
+
+马老板grok4.7是严重区了，按说会吸取教训吧
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
