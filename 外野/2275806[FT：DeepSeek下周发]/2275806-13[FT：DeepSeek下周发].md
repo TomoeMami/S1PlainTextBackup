@@ -1887,3 +1887,34 @@ X上有人在揭批Kimi的营销行为了 <img src="https://static.stage1st.com/
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  cscbzcbz  
+##### 17933#       发表于 2026-10-24 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415986&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-24 12:12</a>
+截图说了啥？刷分？
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+不是。图片内容就是给人发消息，让帮忙推广，但是发的文要给kimi审核，要求不要勾选付费合作的标签
+但是这个没头没尾，都不知道是谁发出来发给谁的，根本无法辨别真伪
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  startraveller  
+##### 17934#       发表于 2026-10-24 12:24
+
+<img src="https://img.stage1st.com/forum/202610/24/122440ofm8cde7rkz8peim.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (193.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 12:24 上传
+
+ 与此同时，马老板即将到达战场
+
