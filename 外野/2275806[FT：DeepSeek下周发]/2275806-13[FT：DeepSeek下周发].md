@@ -2498,3 +2498,33 @@ Re:Source ...</blockquote>
 
 还是ds实诚, 现在算得上好用的编程模型, c端以api为主要方式的就ds了吧
 
+
+*****
+
+####  med  
+##### 17987#       发表于 2026-10-24 14:50
+
+最近大家都在补贴，openAI一言不合就reset，zcode最近也给了两个重置卡，qoder里面ds和qwen直接不要钱，workbuddy送积分不要钱。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 发现我付费最多的居然是ds的api 
+
+<img src="https://img.stage1st.com/forum/202610/24/144811bhvng0zbooqvrjv1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 14:48 上传
+
+
+*****
+
+####  Cortana  
+##### 17988#       发表于 2026-10-24 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415868&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-10-24 11:29</a>
+这个会有翻译腔和 AI 味的问题吗？</blockquote>
+没有，不过我还没用来翻译过书，你可以自己试试。
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
