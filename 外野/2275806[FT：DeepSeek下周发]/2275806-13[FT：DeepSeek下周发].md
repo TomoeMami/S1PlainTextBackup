@@ -2406,3 +2406,28 @@ gemini起码都能在写作赛道上面跑起来了现在
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来嘎啦嘛今天也发了鸡蛋，26号到期，有zcode的记得去领，现在就蹬的飞起
 
+
+*****
+
+####  lactone  
+##### 17979#       发表于 2026-10-24 14:17
+
+ipo压力真这么大吗
+
+3.1作为一个常规进步没啥问题，说是开源sota也不为过，完全不用提opus和astra的
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  nxmonitor  
+##### 17980#       发表于 2026-10-24 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416403&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-24 14:17</a>
+
+ipo压力真这么大吗
+
+3.1作为一个常规进步没啥问题，说是开源sota也不为过，完全不用提opus和astra的</blockquote>
+很难说和1017比哪个是开源SOTA，前端one shot不如，3D建模更好点，后端找BUG和live bench都拉了……
+
