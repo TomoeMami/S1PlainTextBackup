@@ -2528,3 +2528,24 @@ Re:Source ...</blockquote>
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  nxmonitor  
+##### 17989#       发表于 2026-10-24 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416453&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-24 14:30</a>
+
+3d也不知道好在哪里。目前没看到任何不作弊的真实成果算明显好的。</blockquote>
+one shot拉了影响还是很大的，K3公司里用得最多的是来办公，这下这一块也被挖走了
+
+
+*****
+
+####  JasonBourne  
+##### 17990#       发表于 2026-10-24 15:03
+
+只能说有些搞市场营销的在国内当流氓当惯了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+之前zcode不也是？多锤锤才能长记性
+
