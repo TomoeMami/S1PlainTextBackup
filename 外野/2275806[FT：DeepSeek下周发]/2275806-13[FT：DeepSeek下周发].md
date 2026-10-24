@@ -2372,3 +2372,37 @@ kimi的那个sponsor软文消息现在正在发酵中
 
 gemini起码都能在写作赛道上面跑起来了现在
 
+
+*****
+
+####  holmesjerry  
+##### 17975#       发表于 2026-10-24 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416364&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-24 14:03</a>
+目前看来国模不止算力是问题，可能支撑扩大规模的高质量数据也不足，麻了  ...</blockquote>
+算力问题爆发之前数据问题早都被说烂了
+
+
+*****
+
+####  Milarvoz  
+##### 17976#       发表于 2026-10-24 14:13
+
+拉倒吧，glm好歹给重置券给的大方。kimi飞书群从k3开始就天天都有骂额度少和不给退款的，骂了这么久也还是车轱辘话装死。3.1搞成这样一点不奇怪。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  jojog  
+##### 17977#       发表于 2026-10-24 14:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">速胜转速败是吧
+
+*****
+
+####  warlock228  
+##### 17978#       发表于 2026-10-24 14:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来嘎啦嘛今天也发了鸡蛋，26号到期，有zcode的记得去领，现在就蹬的飞起
+

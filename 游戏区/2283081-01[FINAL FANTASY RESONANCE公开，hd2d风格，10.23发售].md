@@ -3914,3 +3914,47 @@ hypervisior版也剛出現
 
 2026-10-24 13:57 上传
 
+
+*****
+
+####  requiem116  
+##### 392#       发表于 2026-10-24 14:07
+
+困难难度感觉还挺难的，开着两个经验倍率打的都有点吃力<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+光战的全体坦真的好强
+
+
+*****
+
+####  新HGCG  
+##### 393#       发表于 2026-10-24 14:10
+
+<img src="https://img.stage1st.com/forum/202610/24/140829ex7gzuxluxx05g8g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (169.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 14:08 上传
+
+<img src="https://img.stage1st.com/forum/202610/24/140855offs99hf694h6s7x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (380.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 14:08 上传
+
+<img src="https://img.stage1st.com/forum/202610/24/140952wvol9lauq37w9lxq.jpg" referrerpolicy="no-referrer">
+
+<strong>c43c6a55ccc5562d7e0a7fc0e19819a2.jpg</strong> (20.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 14:09 上传
+
+拿到飞空艇就能去打了
+
+刚拿飞空艇的时候是绝对打不过的 ​​​
+
