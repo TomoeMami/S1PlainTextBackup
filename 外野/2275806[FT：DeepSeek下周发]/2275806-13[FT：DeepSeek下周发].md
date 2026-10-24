@@ -3445,3 +3445,26 @@ Vivek太混沌了，可能一个人带崩一片。
 话说rc3更新啥了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你问他自己啊 <blockquote>一句话总结：这是一个小版本，没有新模型或大功能，主要是侧栏“更多”菜单 + 草稿修复 + API Key 路由的模型列表同步，其余是导航相关的内部重构与埋点。</blockquote>
 
+
+*****
+
+####  jojog  
+##### 18074#       发表于 2026-10-25 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418318&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-24 23:17</a>
+
+连A/版Tibo的thariq都走了
+
+—— 来自 HUAWEI HOP-AL10, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+好几个感觉还是带着怨气的 不知道啥情况
+
+
+*****
+
+####  malisa  
+##### 18075#       发表于 2026-10-25 00:44
+
+我猜卸磨杀驴吧 全公司AI化，觉得很多人没用了
+
+A/自己发表的内容来看，自动化的工程之后就让转岗
+
