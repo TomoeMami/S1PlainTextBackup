@@ -2954,3 +2954,21 @@ Claude code的领头人
 
 甚至要在上市前夜跑路，他是看到了什么
 
+
+*****
+
+####  Promeus  
+##### 18029#       发表于 2026-10-24 19:10
+
+Ai目前的灰犀牛就是中期选举吧<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">阿博特都下令暂停数据中心了，俄亥俄的反数据中心阿克顿眼看又要把维维克吊起来打
+
+
+*****
+
+####  巨魔已被忠诚  
+##### 18030#       发表于 2026-10-24 19:16
+
+查了下结果公布时间，下月初啊，那能在11·11之前捡到便宜内存吗？<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+把应用升级到了26年版本。32G内存吃不消了，得上128G
+
