@@ -3986,3 +3986,14 @@ hypervisior版也剛出現
 战斗演出纯纯一坨好吧，怪物全是一动不动原地发呆发光，也就少数过场有点演出，结果也就开场唬人，看多了发 ...</blockquote>
 分辨率跟圣兽没法比，这就是个像素游戏
 
+
+*****
+
+####  asikies  
+##### 397#       发表于 2026-10-24 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416769&amp;ptid=2283081" target="_blank">隔壁老黄 发表于 2026-10-24 16:14</a>
+
+分辨率跟圣兽没法比，这就是个像素游戏</blockquote>
+分辨率是少事，是动画严重不足，怪物甚至boss连个挥手挥刀这样的基本动作都没有，吹什么最强hd2d啊。
+
