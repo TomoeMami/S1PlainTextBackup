@@ -2058,3 +2058,89 @@ k3.1不及预期，kimi还是急了，这个模型至少还需要几个月来打
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nxmonitor  
+##### 17948#       发表于 2026-10-24 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416137&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-24 12:55</a>
+
+马老板grok4.7是严重区了，按说会吸取教训吧
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99 ...</blockquote>
+买的数据和偷的数据没了就这样了，领头的还是一堆阿三能做什么……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 17949#       发表于 2026-10-24 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416048&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-24 12:32</a>
+
+如果这次ds的4.1pro能训好并且达到k3.1这次跑分展示的成绩，那我感觉国内ds的势头要不可阻挡了
+
+—— 来自  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不要奶！4p的时候你们也是这么奶的！
+
+
+*****
+
+####  profr  
+##### 17950#       发表于 2026-10-24 13:02
+
+<img src="https://img.stage1st.com/forum/202610/24/125856gw5cljyjzyi9xzls.png" referrerpolicy="no-referrer">
+
+<strong>image-65.png</strong> (200.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 12:58 上传
+
+ nao榜的分数，较自己肯定是巨大提升，但与国外头部模型的差距其实没有缩小。还有中位差距很大，稳定性看来非常一般。。。
+
+*****
+
+####  neptunehs  
+##### 17951#       发表于 2026-10-24 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416048&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-24 12:32</a>
+如果这次ds的4.1pro能训好并且达到k3.1这次跑分展示的成绩，那我感觉国内ds的势头要不可阻挡了
+
+—— 来自  ...</blockquote>
+我还是觉得没有pro是有理由的 还是好好搞flash吧
+（利益相关：用不起pro的人
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  mitzvah  
+##### 17952#       发表于 2026-10-24 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416158&amp;ptid=2275806" target="_blank">profr 发表于 2026-10-24 13:02</a>
+
+nao榜的分数，较自己肯定是巨大提升，但与国外头部模型的差距其实没有缩小。还有中位差距很大，稳定性看来 ...</blockquote>
+这个榜已经被艹成rbq了，跟实际使用的感受差距蛮大的
+
+
+*****
+
+####  lactone  
+##### 17953#       发表于 2026-10-24 13:05
+
+等qwen4吧
+
+灰测情况看至少oneshot比k3.1强
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  留作荒年  
+##### 17954#       发表于 2026-10-24 13:07
+
+kimi3.1发布的文档不是说把网安数据给移除了吗，这方面能力不行也是情有可原的
+
+—— 来自 Xiaomi 23049RAD8C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
