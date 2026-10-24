@@ -3312,3 +3312,39 @@ A\这几天解雇了一大堆人啊，时间线上各种说自己被优化掉的
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  nxmonitor  
+##### 18061#       发表于 2026-10-24 22:58
+
+<img src="https://img.stage1st.com/forum/202610/24/225750mlqfcelhqm6i3tbl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (140.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 22:57 上传
+
+猫榜的初步结果也符合早上国外的榜单，这个K3.1真的提升太小了
+
+*****
+
+####  nxmonitor  
+##### 18062#       发表于 2026-10-24 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418218&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-10-24 22:44</a>
+
+A\这几天解雇了一大堆人啊，时间线上各种说自己被优化掉的</blockquote>
+这事情和小地瓜裁员一模一样，可以少兑现期权了……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 18063#       发表于 2026-10-24 23:03
+
+还是得看梁子的pro模型才行
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
