@@ -7211,3 +7211,15 @@ pdd万紫千红302算近几个月最低了吗？现在手头游戏还有三四�
 
 —— 來自 realme RMX5060, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  南宫月汐  
+##### 8083#       发表于 2026-10-24 16:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70414807&amp;ptid=2261859" target="_blank">mario21a 发表于 2026-10-24 01:19</a>
+第二部还没开始打，迪线第一部想补挖角和特定道具的话，获得后直接一路自动赚取到打通关，会跟第首次通关第 ...</blockquote>
+没打第二部的话，反复通关第一部是直接更新状态，不是融合。必须要通关一次第二部之后，才能通过反复通关一加二来免费合成大西瓜
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

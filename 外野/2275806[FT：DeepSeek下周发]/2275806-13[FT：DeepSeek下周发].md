@@ -2770,3 +2770,32 @@ Kimi官号都开到l站去了
 
 strata作者放话了，看来还有大幅提升的空间
 
+
+*****
+
+####  colice  
+##### 18010#       发表于 2026-10-24 16:57
+
+这么牛逼？真达成了那就购入内存<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HBN-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  moekyo  
+##### 18011#       发表于 2026-10-24 17:05
+
+是不是应该预先购入了
+
+*****
+
+####  云卷花开  
+##### 18012#       发表于 2026-10-24 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416888&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-24 16:54</a>
+strata作者放话了，看来还有大幅提升的空间</blockquote>
+难道我的 9070xt+48g 内存也有可能能本地跑？
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
