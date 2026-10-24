@@ -467,3 +467,11 @@ C狐：没改模的是弟弟，今天强化的都是你姐姐<img src="https://s
 好心人太少了 奥博隆其实也不好刷   说白了还是这傻逼助战  连续作战每次还要重新选助战你连续了个机霸 ...</blockquote>
 所以阿B的10周年唯一一个好评就是魔改了助战，可以选职介，太舒服了。
 
+
+*****
+
+####  qixinno1  
+##### 21704#       发表于 2026-10-24 20:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经没了可还行
+
