@@ -1835,3 +1835,55 @@ k3本来就挺好，3.1也不能算差，kimi又没上市，没必要这么整
 
 梁叔叔商业化可比其他几家厉害，刚看到有人吐槽去年多模态高峰期不招人，今年只要一半价钱就能招到一样的人……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一般市民  
+##### 17928#       发表于 2026-10-24 12:08
+
+X上有人在揭批Kimi的营销行为了 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 其实他家每次发新模型都会在X上搞的，只不过这次翻车比较明显。
+
+*****
+
+####  lactone  
+##### 17929#       发表于 2026-10-24 12:09
+
+他现在这个算力营销个屁啊
+
+营销了把人拉开看出丑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  cscbzcbz  
+##### 17930#       发表于 2026-10-24 12:12
+
+让肥鱼去找了一下所谓的飞书截图，就这么一张图啥也说明不了嘛<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lactone  
+##### 17931#       发表于 2026-10-24 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415984&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-24 12:12</a>
+让肥鱼去找了一下所谓的飞书截图，就这么一张图啥也说明不了嘛
+
+论坛助手,iPhone ...</blockquote>
+截图说了啥？刷分？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  profklugstein  
+##### 17932#       发表于 2026-10-24 12:14
+
+上半年还说要继续加规模，就这缺算力的样子，这样下去k4要变成啥样<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
