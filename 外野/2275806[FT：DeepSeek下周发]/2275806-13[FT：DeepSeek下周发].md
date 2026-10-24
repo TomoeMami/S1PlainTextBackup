@@ -2996,3 +2996,13 @@ Ai目前的灰犀牛就是中期选举吧<img src="https://static.stage1st.com/i
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lactone  
+##### 18033#       发表于 2026-10-24 19:36
+
+说明大的要来了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
