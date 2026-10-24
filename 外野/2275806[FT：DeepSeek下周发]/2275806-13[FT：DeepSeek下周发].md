@@ -2799,3 +2799,16 @@ strata作者放话了，看来还有大幅提升的空间</blockquote>
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qwased  
+##### 18013#       发表于 2026-10-24 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416925&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-10-24 17:05</a>
+
+难道我的 9070xt+48g 内存也有可能能本地跑？
+
+Re:Source</blockquote>
+游戏显卡能运行的模型自己从社区里长出来<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

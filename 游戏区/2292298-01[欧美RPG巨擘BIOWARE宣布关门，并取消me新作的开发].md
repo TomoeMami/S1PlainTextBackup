@@ -1142,3 +1142,21 @@ Dai都已经晚节不保了
 
 EA从联动里撤掉了和ME相关的东西，可能是准备卖IP了
 
+
+*****
+
+####  perfect_duck  
+##### 114#       发表于 2026-10-24 17:12
+
+著名 RPG 编剧 Chris Avellone（《辐射2》《异域镇魂曲》《星球大战：旧共和国武士2》《辐射：新维加斯》）在 X 上披露：
+
+他认识的一位 BioWare 制作人，会检查求职者在 LinkedIn 上点赞过哪些帖子。如果不认同求职者表现出的政治或社会观点，就会主张不要录用这个人。
+
+<img src="https://img.stage1st.com/forum/202610/24/171217ssb05rmdprd7ahfg.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-02-11 210201.png</strong> (76.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 17:12 上传
+
