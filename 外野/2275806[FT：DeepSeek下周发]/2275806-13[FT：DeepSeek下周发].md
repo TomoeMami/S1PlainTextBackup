@@ -3179,3 +3179,22 @@ oa的订阅也不透明，只是整体来说还是比较够用所以温水煮青
 问题是kimi没有能接近5.6sol和6.1sol的中档模 ...</blockquote>
 api定价，k3.1p是6.1sol和opus5.5级别，不是fable和astra级别，你套餐里和astra一样不禁用肯定是不对的。现在改了以后也确实更接近6.1sol（无重置）的消耗了。
 
+
+*****
+
+####  pure_liquid  
+##### 18049#       发表于 2026-10-24 22:11
+
+<blockquote>半江瑟瑟半江红 发表于 2026-10-24 21:56
+但这个其实是kimi官网写了的，不是暗降
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+请问有网址吗？在moonshot上找了一下没找到
+
+*****
+
+####  cankao  
+##### 18050#       发表于 2026-10-24 22:12
+
+CodeArts上的ds4.1f是1017且不降智版本吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
