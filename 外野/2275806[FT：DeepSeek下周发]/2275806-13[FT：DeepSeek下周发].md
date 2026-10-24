@@ -3210,3 +3210,78 @@ K3.1泛化能力比6.1sol强一点，6.1sol这方面都不如5.6sol
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  malisa  
+##### 18052#       发表于 2026-10-24 22:38
+
+关于额度透明度，除了ds之外，基本口碑都很难说
+
+o/其实加上重置和之前送的点数，暂时还不一定不够
+
+a/很出生，但额度目前多
+
+谷歌。。。不谈了
+
+*****
+
+####  Anarkia  
+##### 18053#       发表于 2026-10-24 22:39
+
+研究了一下，用a/的订阅额度个人使用玩RP是可行而且允许的
+
+自己搓了一个现在拿Opus爽玩
+
+
+*****
+
+####  tillnight  
+##### 18054#       发表于 2026-10-24 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418139&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-10-24 22:21</a>
+
+K3.1泛化能力比6.1sol强一点，6.1sol这方面都不如5.6sol
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球  ...</blockquote>
+不懂为什么一转转进吹能力。
+
+我先不管3.1pro有没有你们吹的那么牛，这和我说的他API定价是6.1sol这一级但是今天上午以前订阅消耗是astra级有关系吗？事实就是Kimi自己现在也改回去了。
+
+
+*****
+
+####  qz66618  
+##### 18055#       发表于 2026-10-24 22:44
+
+猫榜k3.1coding排名出了，没打过v4.1-1017。这这这。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18056#       发表于 2026-10-24 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418204&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-24 22:40</a>
+不懂为什么一转转进吹能力。
+
+我先不管3.1pro有没有你们吹的那么牛，这和我说的他API定价是6.1sol这一级但 ...</blockquote>
+不是，你理解错我的意思了，我说的也不是k3.1能力和astra无异，我只是说为啥kimi订阅不禁用，因为它缺少一个中档定位能干活的模型，除了旗舰就是区，2.7和2.8以现在标准就是纯区
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  The_Ether_  
+##### 18057#       发表于 2026-10-24 22:44
+
+A\这几天解雇了一大堆人啊，时间线上各种说自己被优化掉的
+
+*****
+
+####  Promeus  
+##### 18058#       发表于 2026-10-24 22:44
+
+Dsh更新rc3了吗
+
