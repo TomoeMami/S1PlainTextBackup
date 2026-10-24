@@ -2847,3 +2847,13 @@ Re:Source</blockquote>
 
 据说套餐用量调高了。能有一半gpt订阅就算他能用了。。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 18018#       发表于 2026-10-24 18:19
+
+这就是订阅不透明的坏处，降低了别人不知道，调高了别人也不知道<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

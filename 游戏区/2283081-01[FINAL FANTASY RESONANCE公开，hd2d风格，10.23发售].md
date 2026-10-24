@@ -4111,3 +4111,14 @@ hypervisior版也剛出現
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  requiem116  
+##### 407#       发表于 2026-10-24 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416992&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-24 17:25</a>
+
+也是3个幻兵，洋葱，吉坦，诺克提斯</blockquote>
+奇怪我咋把洋葱漏了，我就觉得不对劲
+
