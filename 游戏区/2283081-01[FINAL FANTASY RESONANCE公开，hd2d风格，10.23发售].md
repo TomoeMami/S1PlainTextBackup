@@ -4186,3 +4186,25 @@ hypervisior版也剛出現
 
 音乐真棒，各种优秀的钢琴曲
 
+
+*****
+
+####  喵喵叫的猫  
+##### 413#       发表于 2026-10-25 04:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418001&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-24 21:35</a>
+斗技场打完初级后碎片无限可买
+
+打完中级后魔石无限可买
+
+打完上级后结晶无限可买 ...</blockquote>
+感谢感谢
+睡起来翻攻略发现40回那个加速饰品好像只有这里能拿
+最后还是手动把60回给过了
+
+个人小技巧就是不要看叹号，看跳绳晃到最高点后开始往下走的一瞬间再按
+60回中间有好多随机的极慢节奏大多数都栽在这上面了
+当然这是建立在我ps5版体感有极大延迟的情况下 可能pc会好很多吧 
+
+60回之后可以有排行榜 不过是个人本地的也没奖励 ff9的苦就没必要再来一遍了 捏他什么不好捏他这玩意<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
