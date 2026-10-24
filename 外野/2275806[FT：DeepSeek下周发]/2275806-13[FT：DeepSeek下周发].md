@@ -1463,3 +1463,23 @@ K3.1这个3D建模疑似是靠扩散模型做的，当然Blender语料比较充�
 kimi最大的问题是额度给的太抠门。
 API用不起，订阅哪怕第三档一个月额度三天就能用完。
 
+
+*****
+
+####  drodchang  
+##### 17894#       发表于 2026-10-24 09:39
+
+k3.1挺失望的，数学能力和gpt比差得远，不是说模仿的gpt吗？gpt最核心的能力一点没学到
+
+
+*****
+
+####  老司机的马甲  
+##### 17895#       发表于 2026-10-24 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413495&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-10-23 18:33</a>
+a➗这家公司最大的贡献都在怎么栓ai上</blockquote>
+毕竟它证明ai🈶灵魂<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
