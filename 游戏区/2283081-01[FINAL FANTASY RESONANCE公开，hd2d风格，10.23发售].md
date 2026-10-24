@@ -3771,3 +3771,14 @@ FF1主角（物理反击）和FF8男主（平砍回蓝），还有上来给的�
 玩这个会剧透最终幻想正传1-6的剧情吗？</blockquote>
 稍微有一点，在获取每个前代主角的幻兵时，会问你三个问题，大致模版就是xxx现在处于一个什么样的世界里，遭遇了什么事情，如果是你，你会怎么做。有些问题会剧透角色身世。但另一方面来说如果能在没玩过前作的情况下将三个问题全都回答的跟作品走向相同，我个人会想要去专门补一下这一作。
 
+
+*****
+
+####  eilot  
+##### 382#       发表于 2026-10-24 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70409019&amp;ptid=2283081" target="_blank">MR.McGillis 发表于 2026-10-22 19:52</a>
+
+学习版又偷跑了</blockquote>
+hypervisior版也剛出現
+
