@@ -3198,3 +3198,15 @@ api定价，k3.1p是6.1sol和opus5.5级别，不是fable和astra级别，你套�
 
 CodeArts上的ds4.1f是1017且不降智版本吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18051#       发表于 2026-10-24 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418067&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-24 22:02</a>
+api定价，k3.1p是6.1sol和opus5.5级别，不是fable和astra级别，你套餐里和astra一样不禁用肯定是不对的。 ...</blockquote>
+K3.1泛化能力比6.1sol强一点，6.1sol这方面都不如5.6sol
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
