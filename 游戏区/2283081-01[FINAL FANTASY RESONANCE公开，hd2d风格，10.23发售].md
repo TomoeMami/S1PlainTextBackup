@@ -3872,3 +3872,45 @@ hypervisior版也剛出現
 来个2代大地图BGM助助兴：
 [https://www.bilibili.com/video/B ... 234f500dab&amp;p=30](https://www.bilibili.com/video/BV1Yq4y1N7Ty/?vd_source=536aedbb68ee78d848fb8b234f500dab&amp;p=30)
 
+
+*****
+
+####  新HGCG  
+##### 391#       发表于 2026-10-24 13:58
+
+打完第四章做支线做着做着就有小姐姐替身了
+
+<img src="https://img.stage1st.com/forum/202610/24/135623n39ms11s1wawnw8m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (325.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:56 上传
+
+<img src="https://img.stage1st.com/forum/202610/24/135634vlhudguyjzg78hff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (197.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:56 上传
+
+怎么还有个大叔啊我要发任务的那个小姐姐啊 ​​​
+
+<img src="https://img.stage1st.com/forum/202610/24/135711zor0rk7llzlglki0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (312.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:57 上传
+
+<img src="https://img.stage1st.com/forum/202610/24/135739lohmhqsiiz33nxbx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (214.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:57 上传
+

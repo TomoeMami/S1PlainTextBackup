@@ -2317,3 +2317,58 @@ kimi的那个sponsor软文消息现在正在发酵中
 有那么多钱请大v不如多买几台服务器，4.1日均155万亿才几千块华为计算卡，你这搞的plan完全没法用也真是 ...</blockquote>
 架构不一样，K3的成本远高于V4.1
 
+
+*****
+
+####  此誓的守望  
+##### 17970#       发表于 2026-10-24 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416304&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-24 13:50</a>
+那你昨天不说
+
+论坛助手,iPhone</blockquote>
+昨晚群里激情喷，忘了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  startraveller  
+##### 17971#       发表于 2026-10-24 13:57
+
+实际使用体验的话，比muse wonder还是好不少的。和Opus和Astra就还是比不了，特别Claude Code Desktop现在体验挺好的，额度也大。
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 17972#       发表于 2026-10-24 13:59
+
+不如赌一下kimi会不会道歉给补偿，还是装死
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  一般市民  
+##### 17973#       发表于 2026-10-24 14:03
+
+目前看来国模不止算力是问题，可能支撑扩大规模的高质量数据也不足，麻了 <img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  warlock228  
+##### 17974#       发表于 2026-10-24 14:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416125&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-10-24 12:54</a>
+
+马老板应该做nsfw专精的
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+是的 没必要一起去挤上编程赛道，虽然这个赛道是目前一眼看上去最能赚的毕竟全世界程序员烧起token又多又狠，开辟一条独家赛道也不错
+
+gemini起码都能在写作赛道上面跑起来了现在
+
