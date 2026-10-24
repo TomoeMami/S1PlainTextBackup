@@ -1918,3 +1918,41 @@ X上有人在揭批Kimi的营销行为了 <img src="https://static.stage1st.com/
 
  与此同时，马老板即将到达战场
 
+
+*****
+
+####  绝地潜兵  
+##### 17935#       发表于 2026-10-24 12:28
+
+国模这个算力卡规模，现阶段还是1T参数内优化吧
+
+*****
+
+####  lactone  
+##### 17936#       发表于 2026-10-24 12:28
+
+马老板前两天才说grok4.8刚完成预训练，这就马上要发了？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qz66618  
+##### 17937#       发表于 2026-10-24 12:30
+
+DS为数不多的营销（指V4正式版预告）到最后也是草台班子，还出了个0813和大幅涨价的风波，不过前面的0731帮DS挽回了很多舆论影响，后续的推出的V4.1flash以及1017版本又把口碑打上来了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+kimi目前问题就是出在只有大参数模型可以用而且太贵了，如果推出几个表现不错的性价比小尺寸模型，在实际应用中实现大带小的流程会好很多<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qz66618  
+##### 17938#       发表于 2026-10-24 12:32
+
+如果这次ds的4.1pro能训好并且达到k3.1这次跑分展示的成绩，那我感觉国内ds的势头要不可阻挡了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
