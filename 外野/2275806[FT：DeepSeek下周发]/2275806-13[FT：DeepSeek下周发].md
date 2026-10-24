@@ -1722,3 +1722,25 @@ sonnet比其他模型断档的强...？这榜单也有点可疑啊
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  HazukiShion  
+##### 17918#       发表于 2026-10-24 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415859&amp;ptid=2275806" target="_blank">Cortana 发表于 2026-10-24 11:26</a>
+
+翻译用本地模型啊，hy-mt2-30B，目前最好的翻译模型，比云端大模毫不逊色。
+
+—— 来自 Xiaomi 2112123AC ...</blockquote>
+这个会有翻译腔和 AI 味的问题吗？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 17919#       发表于 2026-10-24 11:29
+
+k3.1目前看来应该是agent方面有提升，但是one-shot和前端提升比较小甚至有点后退，实力肯定是有的，我还是保持那个观点在fable5-Astra之间<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
