@@ -3136,3 +3136,33 @@ K3只有选“极致”才是真正的K3
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18046#       发表于 2026-10-24 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417945&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-24 21:18</a>
+Kimi一样也有路由的问题吧
+
+前几页（K3.1推出之前）就有坛友提到过
+
+K3只有选“极致”才是真正的K3</blockquote>
+但这个其实是kimi官网写了的，不是暗降
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18047#       发表于 2026-10-24 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417930&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-10-24 21:14</a>
+oa的订阅也不透明，只是整体来说还是比较够用所以温水煮青蛙了
+
+杨圣的问题是把199这个档位的额度做成了几 ...</blockquote>
+199那个价位用k3和3.1就像plus用astra，其实不够用是正常的
+问题是kimi没有能接近5.6sol和6.1sol的中档模型，k2.8真的跟傻逼一样，而且只有work里有额度优惠
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
