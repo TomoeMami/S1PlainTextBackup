@@ -2144,3 +2144,47 @@ kimi3.1发布的文档不是说把网安数据给移除了吗，这方面能力�
 
 —— 来自 Xiaomi 23049RAD8C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mitzvah  
+##### 17955#       发表于 2026-10-24 13:10
+
+ 本帖最后由 mitzvah 于 2026-10-24 13:11 编辑 
+
+qwen4能首发一个尺寸合理的flash就好了，权重1不包括包括engram150b以内，激活10b以内，27b密度模型还是太慢了
+
+
+*****
+
+####  qz66618  
+##### 17956#       发表于 2026-10-24 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416159&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-10-24 13:03</a>
+
+我还是觉得没有pro是有理由的 还是好好搞flash吧
+
+（利益相关：用不起pro的人</blockquote>
+大参数模型在长程任务和知识推理方面是小参数模型永远比不上的，想要完成复杂的工程必须要有大参数模型来规划的
+
+*****
+
+####  moekyo  
+##### 17957#       发表于 2026-10-24 13:16
+
+<img src="https://img.stage1st.com/forum/202610/24/131608pffjjv9so4gj0jmj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (378.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:16 上传
+
+<img src="https://img.stage1st.com/forum/202610/24/131624fsaruq538ai3siqi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (234.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:16 上传
+
