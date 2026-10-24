@@ -4065,3 +4065,16 @@ hypervisior版也剛出現
 
 —— 来自 OnePlus PKX110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  黑暗之眼  
+##### 403#       发表于 2026-10-24 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417048&amp;ptid=2283081" target="_blank">前田利家 发表于 2026-10-24 17:42</a>
+请问
+洋葱在哪里，打到第四章了准备回去收</blockquote>
+风之神殿下面是个人字形的岔路口，走右边，一直穿过几座吊桥的下方到达地图下面，右手边还有一个雷鸣山的入口，进去之后沿着路走从另一边出来大地图就到了
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

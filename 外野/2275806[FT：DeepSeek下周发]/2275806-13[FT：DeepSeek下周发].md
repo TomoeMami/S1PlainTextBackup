@@ -2839,3 +2839,11 @@ Re:Source</blockquote>
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  tillnight  
+##### 18017#       发表于 2026-10-24 18:02
+
+据说套餐用量调高了。能有一半gpt订阅就算他能用了。。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
