@@ -4078,3 +4078,36 @@ hypervisior版也剛出現
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  隔壁老黄  
+##### 404#       发表于 2026-10-24 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416787&amp;ptid=2283081" target="_blank">asikies 发表于 2026-10-24 16:20</a>
+分辨率是少事，是动画严重不足，怪物甚至boss连个挥手挥刀这样的基本动作都没有，吹什么最强hd2d啊。 ...</blockquote>
+你就当是八方旅人的最终幻想版就是了，神马HD2D就离谱
+
+
+*****
+
+####  前田利家  
+##### 405#       发表于 2026-10-24 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417105&amp;ptid=2283081" target="_blank">炯Ⅺ 发表于 2026-10-24 17:55</a>
+雷鸣山有4个洞口，一个是主线剧情进的，一个是收召唤兽的，剩下两个一进一出的，出去了就是洋葱剑士的祠 ...</blockquote>
+多谢，我回去收
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  前田利家  
+##### 406#       发表于 2026-10-24 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417122&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-10-24 18:01</a>
+风之神殿下面是个人字形的岔路口，走右边，一直穿过几座吊桥的下方到达地图下面，右边还有一个雷鸣山的入 ...</blockquote>
+多谢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
