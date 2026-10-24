@@ -3348,3 +3348,37 @@ A\这几天解雇了一大堆人啊，时间线上各种说自己被优化掉的
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  qz66618  
+##### 18064#       发表于 2026-10-24 23:12
+
+梁子上一个pro<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  startraveller  
+##### 18065#       发表于 2026-10-24 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418218&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-10-24 22:44</a>
+A\这几天解雇了一大堆人啊，时间线上各种说自己被优化掉的</blockquote>
+连A/版Tibo的thariq都走了
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  startraveller  
+##### 18066#       发表于 2026-10-24 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418007&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-10-24 21:37</a>
+据说k÷套餐内涨价被狂喷
+现在把消耗改低了</blockquote>
+然而开始疯狂429了
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
