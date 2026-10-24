@@ -1802,3 +1802,36 @@ k3本来就挺好，3.1也不能算差，kimi又没上市，没必要这么整
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17925#       发表于 2026-10-24 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415938&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-24 11:56</a>
+就是说国产几个厂商现在最好不要搞得太商业化
+
+学梁子扔个模型就跑不行吗</blockquote>
+明年第一季度就要ipo了，而且月之暗面本来就是营销高手，k3时候铺天盖地软文不说了，25年月之暗面在外宣上花了7亿多，疯狂地在B站之类的地方投广告，26年换了打法，应该是往海外投流，不往国内投了，所以查不到相关准确数据。
+杨圣可是一个大学时候玩摇滚的90后
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  来都来了  
+##### 17926#       发表于 2026-10-24 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415938&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-24 11:56</a>
+就是说国产几个厂商现在最好不要搞得太商业化
+
+学梁子扔个模型就跑不行吗</blockquote>
+差钱和不差钱的区别。我说大肥鱼才是真正从小不认识钱的大小姐，克劳德只是看似风光的背负着巨额债务的体面人罢了，随时有可能变成丰川祥子
+
+*****
+
+####  nxmonitor  
+##### 17927#       发表于 2026-10-24 12:01
+
+梁叔叔商业化可比其他几家厉害，刚看到有人吐槽去年多模态高峰期不招人，今年只要一半价钱就能招到一样的人……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
