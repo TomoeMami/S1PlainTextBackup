@@ -2431,3 +2431,35 @@ ipo压力真这么大吗
 3.1作为一个常规进步没啥问题，说是开源sota也不为过，完全不用提opus和astra的</blockquote>
 很难说和1017比哪个是开源SOTA，前端one shot不如，3D建模更好点，后端找BUG和live bench都拉了……
 
+
+*****
+
+####  tillnight  
+##### 17981#       发表于 2026-10-24 14:27
+
+我评价是以为马斯克会真去做nsfw的是逗笑。也就那个稀烂的文字写作还不怎么拦截，生图和视频现在拦截率基本对标gpt。
+
+
+*****
+
+####  tillnight  
+##### 17982#       发表于 2026-10-24 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416423&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-24 14:21</a>
+
+很难说和1017比哪个是开源SOTA，前端one shot不如，3D建模更好点，后端找BUG榜单和live bench都拉了…… ...</blockquote>
+3d也不知道好在哪里。目前没看到任何不作弊的真实成果算明显好的。
+
+
+*****
+
+####  tillnight  
+##### 17983#       发表于 2026-10-24 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416403&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-24 14:17</a>
+
+ipo压力真这么大吗
+
+3.1作为一个常规进步没啥问题，说是开源sota也不为过，完全不用提opus和astra的</blockquote>
+主要是主动去比价格作死。人家oa现在正价格战呢，你拿api价格骗骗外行就算了，能参与讨论的肯定是用ai的，知道套餐是什么价。
+
