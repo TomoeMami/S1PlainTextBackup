@@ -2829,3 +2829,13 @@ Re:Source</blockquote>
 
 为啥说回去用kimi k3？k3不是比k3.1更贵么
 
+
+*****
+
+####  Milarvoz  
+##### 18016#       发表于 2026-10-24 17:47
+
+笑死了
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

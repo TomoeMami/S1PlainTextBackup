@@ -4039,3 +4039,16 @@ hypervisior版也剛出現
 
 <img src="https://p.sda1.dev/35/c00b810e12ecf7c6f8e397b7604ceef6/image.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前田利家  
+##### 401#       发表于 2026-10-24 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416992&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-24 17:25</a>
+也是3个幻兵，洋葱，吉坦，诺克提斯</blockquote>
+请问
+洋葱在哪里，打到第四章了准备回去收
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
