@@ -1417,3 +1417,29 @@ skill，和智能体我觉得社区生态贡献更大，gpt4刚出来时候，�
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lactone  
+##### 17890#       发表于 2026-10-24 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415382&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-24 09:08</a>
+大多数的算力都消耗在检查点训练上了，一个几千卡的昇腾集群就能日均输出155万亿deepseek4.1flash 的toke ...</blockquote>
+问题是训练的及时性要求没那么高啊，可以暂停，可以调峰
+
+推理需求是硬的，涨上来了控制不住
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  蜇灵  
+##### 17891#       发表于 2026-10-24 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415410&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-24 09:20</a>
+问题是训练的及时性要求没那么高啊，可以暂停，可以调峰
+
+推理需求是硬的，涨上来了控制不住</blockquote>
+排队或者限速就行了，有啥控制不住的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
