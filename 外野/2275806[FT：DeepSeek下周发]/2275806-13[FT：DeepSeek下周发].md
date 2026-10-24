@@ -2463,3 +2463,38 @@ ipo压力真这么大吗
 3.1作为一个常规进步没啥问题，说是开源sota也不为过，完全不用提opus和astra的</blockquote>
 主要是主动去比价格作死。人家oa现在正价格战呢，你拿api价格骗骗外行就算了，能参与讨论的肯定是用ai的，知道套餐是什么价。
 
+
+*****
+
+####  云卷花开  
+##### 17984#       发表于 2026-10-24 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416466&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-24 14:35</a>
+主要是主动去比价格作死。人家oa现在正价格战呢，你拿api价格骗骗外行就算了，能参与讨论的肯定是用ai的 ...</blockquote>
+有一说一，真正主要用 ai 的还是用 api，因为企业使用套餐算是违规行为
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  tillnight  
+##### 17985#       发表于 2026-10-24 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416480&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-10-24 14:40</a>
+
+有一说一，真正主要用 ai 的还是用 api，因为企业使用套餐算是违规行为
+
+Re:Source ...</blockquote>
+然而量级达到统一采购的大企业买的api大概率有对标套餐的大客户价。再说你别有一说一了，首先小作坊用套餐很正常，各家本来就有team套餐，怎么就违规了？其次现在讨论的是舆论环境，你搁这让大公司出来帮你辩解，没错我们用api的用kimi不算贵啦？
+
+
+*****
+
+####  Sunyalche  
+##### 17986#       发表于 2026-10-24 14:46
+
+用套餐天天盯着限额和重置不难受吗, 文峰文谷这种方式都比套餐强得多
+
+还是ds实诚, 现在算得上好用的编程模型, c端以api为主要方式的就ds了吧
+
