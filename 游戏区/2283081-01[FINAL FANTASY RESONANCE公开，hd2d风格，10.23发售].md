@@ -4159,3 +4159,22 @@ hypervisior版也剛出現
 强化幻兵的“魔石”这个后期会有溢出吗
 都跳了1小时了
 
+
+*****
+
+####  新HGCG  
+##### 411#       发表于 2026-10-24 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417922&amp;ptid=2283081" target="_blank">喵喵叫的猫 发表于 2026-10-24 21:10</a>
+
+跳绳40回死活跳不过去搜了下后面还有60回
+
+强化幻兵的“魔石”这个后期会有溢出吗
+
+都跳了1小时了 ...</blockquote>
+斗技场打完初级后碎片无限可买
+
+打完中级后魔石无限可买
+
+打完上级后结晶无限可买
+

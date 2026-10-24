@@ -3114,3 +3114,25 @@ K3只有选“极致”才是真正的K3
 
 长程任务1017就要拿出PTC+压缩上下文插件了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一般市民  
+##### 18044#       发表于 2026-10-24 21:31
+
+1017行为上的一些问题：[https://x.com/karminski3/status/2113979126256402587](https://x.com/karminski3/status/2113979126256402587)
+
+这货在受限的情况下居然会主动节省工具调用，这下多了个”抠门女仆“的形象 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tonyunreal  
+##### 18045#       发表于 2026-10-24 21:37
+
+据说k÷套餐内涨价被狂喷
+现在把消耗改低了
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
