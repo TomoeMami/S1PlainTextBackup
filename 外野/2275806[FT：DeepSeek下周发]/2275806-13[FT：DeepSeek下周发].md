@@ -3382,3 +3382,26 @@ A\这几天解雇了一大堆人啊，时间线上各种说自己被优化掉的
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  drodchang  
+##### 18067#       发表于 2026-10-24 23:22
+
+如果k3.1的推理能力有6.1sol就好了，实际上差得远
+
+
+*****
+
+####  Promeus  
+##### 18068#       发表于 2026-10-24 23:26
+
+DS那几个串子有没有新发言<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moekyo  
+##### 18069#       发表于 2026-10-24 23:26
+
+说到降额度，O\ 也不遑多让吧，虽然它可以靠重置堵嘴
+
