@@ -3166,3 +3166,16 @@ oa的订阅也不透明，只是整体来说还是比较够用所以温水煮青
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  tillnight  
+##### 18048#       发表于 2026-10-24 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418058&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-10-24 21:58</a>
+
+199那个价位用k3和3.1就像plus用astra，其实不够用是正常的
+
+问题是kimi没有能接近5.6sol和6.1sol的中档模 ...</blockquote>
+api定价，k3.1p是6.1sol和opus5.5级别，不是fable和astra级别，你套餐里和astra一样不禁用肯定是不对的。现在改了以后也确实更接近6.1sol（无重置）的消耗了。
+
