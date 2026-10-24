@@ -1178,3 +1178,13 @@ James Ohlen，生软游戏设计之父，参与并主导 博德之门12，星战
 
 2026-10-24 17:18 上传
 
+
+*****
+
+####  WGTCorp  
+##### 116#       发表于 2026-10-24 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416921&amp;ptid=2292298" target="_blank">zid99825 发表于 2026-10-24 17:04</a>
+EA从联动里撤掉了和ME相关的东西，可能是准备卖IP了</blockquote>
+战地6的联动皮肤吗？应该是准备到下个月的N7日附近再上线吧，作为有特效的改模皮我觉得不太可能直接取消了。
+

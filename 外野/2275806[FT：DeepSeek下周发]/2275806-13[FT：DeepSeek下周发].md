@@ -2865,3 +2865,48 @@ Re:Source</blockquote>
 
 草，Thariq离职了
 
+
+*****
+
+####  来都来了  
+##### 18020#       发表于 2026-10-24 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417264&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-24 18:32</a>
+草，Thariq离职了</blockquote>
+这人是谁？
+
+*****
+
+####  lactone  
+##### 18021#       发表于 2026-10-24 18:44
+
+anthropic马上就要上市了这时候离职？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  大肥鱼  
+##### 18022#       发表于 2026-10-24 18:45
+
+毕竟是圈子里的人，而且还属于核心或者灵魂人物，所以是感觉到了什么问题，想提前跑路吗？
+
+*****
+
+####  lactone  
+##### 18023#       发表于 2026-10-24 18:47
+
+本来都在传anthropic马上要递交s-1报告了，现在离职可不是小事
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Promeus  
+##### 18024#       发表于 2026-10-24 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417299&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-24 18:42</a>
+这人是谁？</blockquote>
+Claude code的领头人
+

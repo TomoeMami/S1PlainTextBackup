@@ -4122,3 +4122,14 @@ hypervisior版也剛出現
 也是3个幻兵，洋葱，吉坦，诺克提斯</blockquote>
 奇怪我咋把洋葱漏了，我就觉得不对劲
 
+
+*****
+
+####  requiem116  
+##### 408#       发表于 2026-10-24 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417105&amp;ptid=2283081" target="_blank">炯Ⅺ 发表于 2026-10-24 17:55</a>
+
+雷鸣山有4个洞口，一个是主线剧情进的，一个是收召唤兽的，剩下两个一进一出的，出去了就是洋葱剑士的祠 ...</blockquote>
+艹原来左边那条路下面是可以出去的，我还以为是死路<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
