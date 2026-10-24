@@ -3285,3 +3285,30 @@ A\这几天解雇了一大堆人啊，时间线上各种说自己被优化掉的
 
 Dsh更新rc3了吗
 
+
+*****
+
+####  tillnight  
+##### 18059#       发表于 2026-10-24 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418217&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-10-24 22:44</a>
+
+不是，你理解错我的意思了，我说的也不是k3.1能力和astra无异，我只是说为啥kimi订阅不禁用，因为它缺少 ...</blockquote>
+所以你说的和我说的有什么关系？
+
+订阅本质就是倍率api，Astra和Fable的API定价是次旗舰的数倍，而3.1pro的API是次旗舰6.1sol和opus5.5基本同价的，他的订阅不说完全对标OA，大致也应该是用量更接近API定价同一级别6.1sol的用量而不是贵出好几倍的astra。他用起来像astra一样不经用那就是不对，所以现在官方已经改回来了。现在199用量体感更接近gptplus用6.1sol而不是astra了。
+
+你是不是完全没看明白我在说什么。
+
+
+*****
+
+####  lactone  
+##### 18060#       发表于 2026-10-24 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418218&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-10-24 22:44</a>
+A\这几天解雇了一大堆人啊，时间线上各种说自己被优化掉的</blockquote>
+马上要上市了，降本增效？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
