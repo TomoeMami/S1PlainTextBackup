@@ -3081,3 +3081,36 @@ oa的订阅也不透明，只是整体来说还是比较够用所以温水煮青
 
 杨圣的问题是把199这个档位的额度做成了几乎不可用，那肯定得被炎上。
 
+
+*****
+
+####  Promeus  
+##### 18041#       发表于 2026-10-24 21:17
+
+实质还是k3.1是一个需要长程任务才有用武之地的模型，但是他那个套餐根本没法做长程任务<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pure_liquid  
+##### 18042#       发表于 2026-10-24 21:18
+
+<blockquote>misuzu0723 发表于 2026-10-24 20:37
+gpt 更离谱呢，不仅给你改额度（可能每个人还不一样），还给你偷偷路由到降智模型
+
+—— 来自 vivo V2405 ...</blockquote>
+Kimi一样也有路由的问题吧
+
+前几页（K3.1推出之前）就有坛友提到过
+
+K3只有选“极致”才是真正的K3
+
+选“进阶”以下的话可能就路由到K2.8了
+
+
+*****
+
+####  nxmonitor  
+##### 18043#       发表于 2026-10-24 21:22
+
+长程任务1017就要拿出PTC+压缩上下文插件了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
