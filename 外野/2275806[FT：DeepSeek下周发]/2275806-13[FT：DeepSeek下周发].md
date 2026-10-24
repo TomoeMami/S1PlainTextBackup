@@ -2754,3 +2754,19 @@ ds 1017已经可以在96g内存+5090上跑到20tps输出了
 
 Kimi官号都开到l站去了
 
+
+*****
+
+####  qwased  
+##### 18009#       发表于 2026-10-24 16:54
+
+<img src="https://img.stage1st.com/forum/202610/24/165437aegl9979g9qtfthl.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792832076277_1.webp</strong> (59.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 16:54 上传
+
+strata作者放话了，看来还有大幅提升的空间
+
