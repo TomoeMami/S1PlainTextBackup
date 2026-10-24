@@ -3790,3 +3790,14 @@ hypervisior版也剛出現
 
 替身的招式，是看装备者的物攻法攻还是跟着替身走的
 
+
+*****
+
+####  黑暗之眼  
+##### 384#       发表于 2026-10-24 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415486&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-24 09:44</a>
+
+替身的招式，是看装备者的物攻法攻还是跟着替身走的</blockquote>
+幻兵没有能力属性这回事，应该是看装备者的。另外还要单独提一下的，光魔法是单独看神圣力的，不看魔攻
+

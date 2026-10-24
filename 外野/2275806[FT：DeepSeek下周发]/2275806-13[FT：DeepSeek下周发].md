@@ -1518,3 +1518,13 @@ a➗这家公司最大的贡献都在怎么栓ai上</blockquote>
 
 国外找BUG的榜单，当然这个也可能和网安能力有关，不知道分数去了哪里
 
+
+*****
+
+####  ff2077  
+##### 17899#       发表于 2026-10-24 10:12
+
+试了下 k3.1这挺一般的 而且额度消耗也太高了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
