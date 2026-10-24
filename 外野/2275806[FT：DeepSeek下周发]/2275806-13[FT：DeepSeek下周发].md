@@ -2730,3 +2730,27 @@ ds 1017已经可以在96g内存+5090上跑到20tps输出了
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  moekyo  
+##### 18007#       发表于 2026-10-24 16:28
+
+梁圣！！！
+
+<img src="https://img.stage1st.com/forum/202610/24/162845sj2hr4w4949wp9lj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 16:28 上传
+
+
+*****
+
+####  很久就在那边l  
+##### 18008#       发表于 2026-10-24 16:30
+
+Kimi官号都开到l站去了
+
