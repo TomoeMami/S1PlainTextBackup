@@ -1752,3 +1752,53 @@ k3.1目前看来应该是agent方面有提升，但是one-shot和前端提升比
 
 如果是要开源的参数大模型那kimi3.1确实有用武之地 订阅价格远超oa k3前端审美那个时候出来真的很惊艳 k3.1真的不行 而且翻推特还有举报kimi要求推广博主标明广告 还有一些其他的飞书文档截图
 
+
+*****
+
+####  静哮苍穹  
+##### 17921#       发表于 2026-10-24 11:51
+
+贵的问题还是没解决，相当于还是用不了，还是老老实实1017吧
+
+*****
+
+####  nxmonitor  
+##### 17922#       发表于 2026-10-24 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415804&amp;ptid=2275806" target="_blank">wuuuuuud 发表于 2026-10-24 11:14</a>
+
+sonnet比其他模型断档的强...？这榜单也有点可疑啊
+
+—— 来自 nubia NX737J, Android 15, 鹅球 v4.0-alp ...</blockquote>
+雷霆大思考完全没有意义，五个小时150美元的花费，我认为Opus5.5想这么长时间也行。还有这个是人能查出来的BUG榜，另外有个AI查出来的榜。
+
+
+*****
+
+####  nxmonitor  
+##### 17923#       发表于 2026-10-24 11:54
+
+<img src="https://img.stage1st.com/forum/202610/24/115335kv8bravfrb3l1ax3.png" referrerpolicy="no-referrer">
+
+<strong>55EE90CF2FF490740ACB78CD1766B1BF.png</strong> (856.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 11:53 上传
+
+另一个层面的BUG榜，蓝色部分是人查出来的，就是前面的Benchmark，黄色部分是AI查出来的
+
+
+*****
+
+####  lactone  
+##### 17924#       发表于 2026-10-24 11:56
+
+就是说国产几个厂商现在最好不要搞得太商业化
+
+学梁子扔个模型就跑不行吗
+
+k3本来就挺好，3.1也不能算差，kimi又没上市，没必要这么整
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
