@@ -3801,3 +3801,13 @@ hypervisior版也剛出現
 替身的招式，是看装备者的物攻法攻还是跟着替身走的</blockquote>
 幻兵没有能力属性这回事，应该是看装备者的。另外还要单独提一下的，光魔法是单独看神圣力的，不看魔攻
 
+
+*****
+
+####  suzakushi  
+##### 385#       发表于 2026-10-24 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415086&amp;ptid=2283081" target="_blank">YukariK 发表于 2026-10-24 05:04</a>
+还好吧，我没玩过手游，风神殿这段给我的感觉就像是二人联手只是打落了天风面具，并没有造成什么实质伤害 ...</blockquote>
+主要还是主角团什么都不做有点出戏。boss确实是对主角团死活毫无关心，水神殿门口一个水泡放倒全队就直接走掉了。
+

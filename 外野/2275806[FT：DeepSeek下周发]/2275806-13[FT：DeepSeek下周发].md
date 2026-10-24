@@ -1682,3 +1682,43 @@ sonnet比其他模型断档的强...？这榜单也有点可疑啊
 —— 来自 nubia NX737J, Android 15, 鹅球 v4.0-alp ...</blockquote>
 sonnet超长思考硬堆上去的，你看那个用时和开销
 
+
+*****
+
+####  lactone  
+##### 17915#       发表于 2026-10-24 11:20
+
+kimi这波感觉有点无妄之灾
+
+我感觉还是有不小提升的，但是也有问题
+不知道九月底测试测的啥
+
+就怕形象国模的声誉
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ff2077  
+##### 17916#       发表于 2026-10-24 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415804&amp;ptid=2275806" target="_blank">wuuuuuud 发表于 2026-10-24 11:14</a>
+sonnet比其他模型断档的强...？这榜单也有点可疑啊
+
+—— 来自 nubia NX737J, Android 15, 鹅球 v4.0-alp ...</blockquote>
+雷霆大思考上去的 你看消耗
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  Cortana  
+##### 17917#       发表于 2026-10-24 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415622&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-10-24 10:25</a>
+话说 4.1 Pro 未来有可能降价吗？现在用 4.1F 做日文小说翻译感觉读起来好怪，但是用 Pro 太贵了。。。。 ...</blockquote>
+翻译用本地模型啊，hy-mt2-30B，目前最好的翻译模型，比云端大模毫不逊色。
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
