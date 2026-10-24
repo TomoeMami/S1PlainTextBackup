@@ -3006,3 +3006,13 @@ Ai目前的灰犀牛就是中期选举吧<img src="https://static.stage1st.com/i
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  CCauchy  
+##### 18034#       发表于 2026-10-24 19:44
+
+[https://github.com/deepseek-ai/deepseek-harness/discussions/10880](https://github.com/deepseek-ai/deepseek-harness/discussions/10880)
+
+分享一下
+
