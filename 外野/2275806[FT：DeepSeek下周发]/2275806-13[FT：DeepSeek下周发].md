@@ -3405,3 +3405,14 @@ DS那几个串子有没有新发言<img src="https://static.stage1st.com/image/s
 
 说到降额度，O\ 也不遑多让吧，虽然它可以靠重置堵嘴
 
+
+*****
+
+####  洛拉斯  
+##### 18070#       发表于 2026-10-24 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417961&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-24 21:22</a>
+
+长程任务1017就要拿出PTC+压缩上下文插件了……</blockquote>
+为什么不单个对话到一定程度就要求写交接文档开新对话？
+
