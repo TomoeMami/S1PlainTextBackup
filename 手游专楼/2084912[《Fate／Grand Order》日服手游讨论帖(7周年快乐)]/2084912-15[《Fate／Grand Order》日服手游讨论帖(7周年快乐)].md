@@ -393,3 +393,66 @@ C狐：没改模的是弟弟，今天强化的都是你姐姐<img src="https://s
 
 这个本有了对策挺好打的，正好让平时的仓管出来活动一下～
 
+
+*****
+
+####  DARKGRAY  
+##### 21697#       发表于 2026-10-23 21:02
+
+这个本冠位从者礼装自由不影响助战，这一波过之后似乎也会常驻，但没罐子看不到其他冠位本是不是也改了<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 21698#       发表于 2026-10-23 21:07
+
+我去尼玛的，黑花池歪船长，亚里亚池歪小恩，球球您们了，别来了，我要抽当期UP啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 21699#       发表于 2026-10-23 21:26
+
+50连+7呼符来了，虽然不算太亏，但没想到在薇儿丹蒂之前被掏了库存<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 21700#       发表于 2026-10-24 06:41
+
+ 本帖最后由 v22325 于 2026-10-24 07:44 编辑 
+
+今天能活下来吗，还有每天三次任务呢
+
+我日 40抽歪了个果心居士……
+
+<img src="https://img.stage1st.com/forum/202610/24/074410hwh3na5ao1hphjna.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20261024074404.jpg</strong> (224.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 07:44 上传
+
+*****
+
+####  qixinno1  
+##### 21701#       发表于 2026-10-24 08:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不能再辱狐了
+
+<img src="https://img.stage1st.com/forum/202610/24/081119r09x69ly9lea593p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (155.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 08:11 上传
+
+*****
+
+####  希望之花  
+##### 21702#       发表于 2026-10-24 10:21
+
+气笑了又是升天闭眼睁眼宝具
+
