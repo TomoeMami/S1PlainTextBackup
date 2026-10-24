@@ -3863,3 +3863,12 @@ hypervisior版也剛出現
 
 2026-10-24 13:41 上传
 
+
+*****
+
+####  猪突猛进R  
+##### 390#       发表于 2026-10-24 13:54
+
+来个2代大地图BGM助助兴：
+[https://www.bilibili.com/video/B ... 234f500dab&amp;p=30](https://www.bilibili.com/video/BV1Yq4y1N7Ty/?vd_source=536aedbb68ee78d848fb8b234f500dab&amp;p=30)
+

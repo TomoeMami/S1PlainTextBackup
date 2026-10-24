@@ -2261,3 +2261,59 @@ kimi的那个sponsor软文消息现在正在发酵中
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cscbzcbz  
+##### 17965#       发表于 2026-10-24 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416292&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-10-24 13:46</a>
+怎么感觉楼里前100条回复和后一百条回复风向也完全不一样，鬼佬没喷之前不敢喷，鬼佬开喷之后才敢放开喷？
+ ...</blockquote>
+那你昨天不说<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  mitzvah  
+##### 17966#       发表于 2026-10-24 13:50
+
+有那么多钱请大v不如多买几台服务器，4.1日均155万亿才几千块华为计算卡，你这搞的plan完全没法用也真是
+
+
+*****
+
+####  wandeeees  
+##### 17967#       发表于 2026-10-24 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416289&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-24 13:45</a>
+
+kimi的那个sponsor软文消息现在正在发酵中
+
+搞不好会越来越麻烦</blockquote>
+二游宣发套路而已，后面等米哈游进来了会更多的，小事儿而已<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qz66618  
+##### 17968#       发表于 2026-10-24 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416292&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-10-24 13:46</a>
+
+怎么感觉楼里前100条回复和后一百条回复风向也完全不一样，鬼佬没喷之前不敢喷，鬼佬开喷之后才敢放开喷？
+
+ ...</blockquote>
+因为在某些方面也还是有提升的吧，也不算全面刷分，是部分刷分<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 17969#       发表于 2026-10-24 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416305&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-24 13:50</a>
+
+有那么多钱请大v不如多买几台服务器，4.1日均155万亿才几千块华为计算卡，你这搞的plan完全没法用也真是 ...</blockquote>
+架构不一样，K3的成本远高于V4.1
+
