@@ -3468,3 +3468,36 @@ Vivek太混沌了，可能一个人带崩一片。
 
 A/自己发表的内容来看，自动化的工程之后就让转岗
 
+
+*****
+
+####  一般市民  
+##### 18076#       发表于 2026-10-25 00:51
+
+<img src="https://img.stage1st.com/forum/202610/25/005103spp7t1tf4s0ppsp9.jpg" referrerpolicy="no-referrer">
+
+<strong>HVaOryJaoAEaLQH.jpg</strong> (442.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 00:51 上传
+
+
+*****
+
+####  BarricadeMKXX  
+##### 18077#       发表于 2026-10-25 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418346&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-24 23:26</a>
+
+DS那几个串子有没有新发言</blockquote>
+看到了猫老板的「也没啥」<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/25/005723do38zx5pppbx91cx.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>image.webp</strong> (5.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 00:57 上传
+
