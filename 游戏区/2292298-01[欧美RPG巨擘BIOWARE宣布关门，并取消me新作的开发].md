@@ -1255,3 +1255,14 @@ JO他这话其实是对上一个发言里众多谩骂的回应，生软宣布咽
 哦，当年他离开生软后投了威士智，威士智出钱给他建立了电子游戏公司Archetype Entertainment，目前在开发游戏Exodus，然后去年他从Archetype离职。因为威士智一贯的不做人历史，所以大伙纷纷猜测是不是孩之宝和威士智又不做人了，不过对此今年年初他发表说明，说自己只是因为负责工作室太累了，几年下来影响健康所以离职，跟孩之宝威士智关系很好：
 <img src="https://pic2.zhimg.com/80/v2-581fbc7ce3dc8beb4bb8cdbc26bff493_720w.webp" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xjtxp  
+##### 121#       发表于 2026-10-24 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417695&amp;ptid=2292298" target="_blank">cyberalogo 发表于 2026-10-24 20:14</a>
+
+所以现在质量效应版权归谁？EA吗？</blockquote>
+现在还是EA，如果电视剧热度高的话没准ME还能出售IP抢救下，DA是因为大电视这坨彻底入土了。然后自JO离职后没人协调，跟生软关系日趋恶化，三年前被EA剥离生软转到Broadsword的TOR组有人还对着生软玩坟头蹦迪<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

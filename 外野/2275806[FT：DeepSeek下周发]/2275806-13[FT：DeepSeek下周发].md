@@ -3052,3 +3052,17 @@ Ai目前的灰犀牛就是中期选举吧<img src="https://static.stage1st.com/i
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  misuzu0723  
+##### 18039#       发表于 2026-10-24 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417766&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-24 20:30</a>
+国内这些订阅真的得透明一些，哪有卖东西不告诉买家有几斤几两的
+
+论坛助手,iPhone ...</blockquote>
+gpt 更离谱呢，不仅给你改额度（可能每个人还不一样），还给你偷偷路由到降智模型
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
