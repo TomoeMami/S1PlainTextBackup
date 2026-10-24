@@ -3426,3 +3426,22 @@ DS那几个串子有没有新发言<img src="https://static.stage1st.com/image/s
 Ai目前的灰犀牛就是中期选举吧阿博特都下令暂停数据中心了，俄亥俄的反数据中心阿克顿眼看又要把维维克吊起 ...</blockquote>
 Vivek太混沌了，可能一个人带崩一片。
 
+
+*****
+
+####  Promeus  
+##### 18072#       发表于 2026-10-25 00:33
+
+话说rc3更新啥了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  The_Ether_  
+##### 18073#       发表于 2026-10-25 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418511&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-25 00:33</a>
+
+话说rc3更新啥了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你问他自己啊 <blockquote>一句话总结：这是一个小版本，没有新模型或大功能，主要是侧栏“更多”菜单 + 草稿修复 + API Key 路由的模型列表同步，其余是导航相关的内部重构与埋点。</blockquote>
+
