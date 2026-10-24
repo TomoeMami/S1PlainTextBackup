@@ -3875,3 +3875,82 @@ X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
 
        [https://bang-dream.com/events/avemujica_7th/#Notice](https://bang-dream.com/events/avemujica_7th/#Notice)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42159#       发表于 2026-10-24 19:49
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/24/194933sg2j26om60jyy4qz.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-24_19-48-22.png</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 19:49 上传
+
+       [https://x.com/bang_dream_info/status/2113910975317397515](https://x.com/bang_dream_info/status/2113910975317397515)
+
+       [https://www.animatetimes.com/news/details.php?id=1789452614](https://www.animatetimes.com/news/details.php?id=1789452614)
+
+*****
+
+####  堀内爱里衣  
+##### 42160#       发表于 2026-10-24 19:50
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/24/195041g71s3xssssflsvxz.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-24_19-49-56.png</strong> (925.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 19:50 上传
+
+       [https://x.com/bang_dream_info/status/2113950522822832535](https://x.com/bang_dream_info/status/2113950522822832535)
+
+       [https://bang-dream.com/discographies/4287](https://bang-dream.com/discographies/4287)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42161#       发表于 2026-10-24 19:51
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/24/195156dzvhthl42huo2ffo.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-24_19-51-24.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 19:51 上传
+
+       [https://x.com/bang_dream_info/status/2113953548681834712](https://x.com/bang_dream_info/status/2113953548681834712)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42162#       发表于 2026-10-24 19:53
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/24/195338xfz97hqh99byfzdf.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-24_19-52-24.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 19:53 上传
+
+       [https://x.com/bang_dream_info/status/2113954908475118053](https://x.com/bang_dream_info/status/2113954908475118053)
+
+       [https://t.co/whQ6HoAotn](https://t.co/whQ6HoAotn)
+
+       [https://t.co/CwqMMoCohx](https://t.co/CwqMMoCohx)
+
