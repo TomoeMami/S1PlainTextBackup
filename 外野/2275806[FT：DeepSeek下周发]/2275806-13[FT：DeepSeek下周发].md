@@ -1566,3 +1566,55 @@ a➗这家公司最大的贡献都在怎么栓ai上</blockquote>
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  startraveller  
+##### 17904#       发表于 2026-10-24 10:38
+
+kimi 订阅额度太少这个事情外网已经喷爆了，确实也太吝啬了吧
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  2017.05.04  
+##### 17905#       发表于 2026-10-24 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415622&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-10-24 10:25</a>
+话说 4.1 Pro 未来有可能降价吗？现在用 4.1F 做日文小说翻译感觉读起来好怪，但是用 Pro 太贵了。。。。 ...</blockquote>
+Pro本身就是贵啊，而且翻译开销太大了
+其实你可以试试flash翻译之后找pro校对，或者别的低成本模型，增加缓存命中率，减小输出，都能降低费用
+
+—— 来自 HUAWEI CMM-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  来都来了  
+##### 17906#       发表于 2026-10-24 10:40
+
+K3.1到底是蛆了神了？看一些负面例子实在是区到离谱，而一些正面例子又超神。如果是需要抽卡的话，上下幅度这么大，工作起来会很难用吧？
+
+
+*****
+
+####  tillnight  
+##### 17907#       发表于 2026-10-24 10:47
+
+<blockquote>来都来了 发表于 2026-10-24 10:40
+K3.1到底是蛆了神了？看一些负面例子实在是区到离谱，而一些正面例子又超神。如果是需要抽卡的话，上下幅度 ...</blockquote>
+前端不神，后端也不神，平平庸庸。考虑价格就是一个没有使用价值的模型。当然他是开源的，对有条件自部署的嘉豪公司还是有一定意义。
+
+*****
+
+####  cube  
+##### 17908#       发表于 2026-10-24 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415678&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-24 10:40</a>
+
+K3.1到底是蛆了神了？看一些负面例子实在是区到离谱，而一些正面例子又超神。如果是需要抽卡的话，上下幅度 ...</blockquote>
+能力上其实问题不算太大，毕竟参数量在这放着。速度也比K3快了不少。
+
+但是最大的问题还是，这点额度够干啥。
+
