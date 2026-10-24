@@ -1235,3 +1235,23 @@ James Ohlen，生软游戏设计之父，参与并主导 博德之门12，星战
 
 所以现在质量效应版权归谁？EA吗？
 
+
+*****
+
+####  xjtxp  
+##### 120#       发表于 2026-10-24 20:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417366&amp;ptid=2292298" target="_blank">solitaryx 发表于 2026-10-24 18:59</a>
+
+很符合我的理解
+
+战斗玩法好是因为那群技术人员在，其他拉就是因为LGBT</blockquote>
+JO他这话其实是对上一个发言里众多谩骂的回应，生软宣布咽气后已经很少在推上发言的他表示愿意帮助解决失业生软员工的工作问题（我觉得其实就是借机给他创立的Archetype Entertainment挖人）：
+
+<img src="https://picx.zhimg.com/v2-c73bc8e73cc28ab57f91c6347672b80c_r.jpg?source=2c26e567" height="772" id="aimg_Ch18U" onclick="zoom(this, this.src, 0, 0, 0)" width="598"/)
+
+然后推上一大批反觉醒的人骂说坚决不能招这帮宁可不赚钱也要推行LBGT DEI的员工，所以他又补了这个发言。
+
+哦，当年他离开生软后投了威士智，威士智出钱给他建立了电子游戏公司Archetype Entertainment，目前在开发游戏Exodus，然后去年他从Archetype离职。因为威士智一贯的不做人历史，所以大伙纷纷猜测是不是孩之宝和威士智又不做人了，不过对此今年年初他发表说明，说自己只是因为负责工作室太累了，几年下来影响健康所以离职，跟孩之宝威士智关系很好：
+<img src="https://pic2.zhimg.com/80/v2-581fbc7ce3dc8beb4bb8cdbc26bff493_720w.webp" referrerpolicy="no-referrer">
+
