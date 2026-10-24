@@ -1483,3 +1483,38 @@ a➗这家公司最大的贡献都在怎么栓ai上</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  frankCC  
+##### 17896#       发表于 2026-10-24 09:58
+
+[人类文明史，就是对Anthropic的盗版与蒸馏史｜达里奥创世录_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1mEnb6LEnC/)
+
+难得的好活<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 17897#       发表于 2026-10-24 10:01
+
+去看了下，负面的除了贵以外。就是说刷分，蒸馏，简直闹麻了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 17898#       发表于 2026-10-24 10:01
+
+<img src="https://img.stage1st.com/forum/202610/24/100115n4199t9s0z7q44gd.jpg" referrerpolicy="no-referrer">
+
+<strong>5beb4fba85bc44f62c925af3945b606b.jpg</strong> (273.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 10:01 上传
+
+国外找BUG的榜单，当然这个也可能和网安能力有关，不知道分数去了哪里
+
