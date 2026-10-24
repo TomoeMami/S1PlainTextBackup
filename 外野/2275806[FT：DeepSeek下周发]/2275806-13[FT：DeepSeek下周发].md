@@ -2972,3 +2972,27 @@ Ai目前的灰犀牛就是中期选举吧<img src="https://static.stage1st.com/i
 
 把应用升级到了26年版本。32G内存吃不消了，得上128G
 
+
+*****
+
+####  果壳中的松鼠  
+##### 18031#       发表于 2026-10-24 19:22
+
+有没有人感觉今天官网的大肥鱼api有点慢，尤其是首字响应，难道被蹬坏了<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  cscbzcbz  
+##### 18032#       发表于 2026-10-24 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417454&amp;ptid=2275806" target="_blank">果壳中的松鼠 发表于 2026-10-24 19:22</a>
+有没有人感觉今天官网的大肥鱼api有点慢，尤其是首字响应，难道被蹬坏了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我蹬了一天opencode的，也慢了，只有150t/s<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
