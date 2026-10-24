@@ -1443,3 +1443,23 @@ skill，和智能体我觉得社区生态贡献更大，gpt4刚出来时候，�
 推理需求是硬的，涨上来了控制不住</blockquote>
 排队或者限速就行了，有啥控制不住的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 17892#       发表于 2026-10-24 09:32
+
+K3.1这个3D建模疑似是靠扩散模型做的，当然Blender语料比较充足，哪怕没叫模型调用也会用
+
+
+*****
+
+####  cube  
+##### 17893#       发表于 2026-10-24 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415230&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-10-24 07:57</a>
+哪里贵了，一直都是这个价好不好。
+看来k3是真的很多人没用过不知道定价有多坑。</blockquote>
+kimi最大的问题是额度给的太抠门。
+API用不起，订阅哪怕第三档一个月额度三天就能用完。
+
