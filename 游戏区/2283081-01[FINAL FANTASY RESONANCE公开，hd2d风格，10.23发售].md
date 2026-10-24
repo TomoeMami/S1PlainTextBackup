@@ -3839,3 +3839,27 @@ hypervisior版也剛出現
 
 哦哦，发现另一个入口了
 
+
+*****
+
+####  新HGCG  
+##### 389#       发表于 2026-10-24 13:41
+
+人生第一款接触的FF是FF2的我此时泪流满面 ​​​
+
+<img src="https://img.stage1st.com/forum/202610/24/134047i4bdkms5rmq7n57m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (318.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:40 上传
+
+<img src="https://img.stage1st.com/forum/202610/24/134112qn1lo1qh13noq4ok.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (216.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 13:41 上传
+

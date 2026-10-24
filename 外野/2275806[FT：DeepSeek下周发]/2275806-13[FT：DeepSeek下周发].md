@@ -2236,3 +2236,28 @@ kimi3.1发布的文档不是说把网安数据给移除了吗，这方面能力�
 
 感觉kimi在做上市前的营收平衡，可惜这是不可取的，现在这个性价比极有可能被某个未来的国模当减速带一样碾过去
 
+
+*****
+
+####  lactone  
+##### 17963#       发表于 2026-10-24 13:45
+
+kimi的那个sponsor软文消息现在正在发酵中
+
+搞不好会越来越麻烦<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我是觉得完全没必要这么弄
+
+以后国模公布的时候，这破事都会被反复提
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  此誓的守望  
+##### 17964#       发表于 2026-10-24 13:46
+
+怎么感觉楼里前100条回复和后一百条回复风向也完全不一样，鬼佬没喷之前不敢喷，鬼佬开喷之后才敢放开喷？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
