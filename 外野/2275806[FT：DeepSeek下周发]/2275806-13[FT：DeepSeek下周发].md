@@ -3518,3 +3518,34 @@ DS那几个串子有没有新发言</blockquote>
 
 感觉 k3.1 的 high 挺菜的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">远比不上 astra medium
 
+
+*****
+
+####  蛋黄酱Release  
+##### 18080#       发表于 2026-10-25 02:34
+
+现在国内还有写文写设定这方面厉害的ai吗，试了试让哈基米4续写了一段跑团模组，还是有点强的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 18081#       发表于 2026-10-25 02:36
+
+Strata DeepSeekV4.1 数据出炉
+
+RTX5090 32g+128gDDR5 42.8 t/s
+
+RTX4090 48g+128gDDR4 45.1t/s
+
+RTX4060 16g+64DDR4 2.9t/s
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比我想的要快
+
+*****
+
+####  御坂MKII  
+##### 18082#       发表于 2026-10-25 02:37
+
+想起来薅了下新 x 订阅的第一个月推广，试了一下发现 grok 比 kimi 还区
+
