@@ -3066,3 +3066,18 @@ gpt 更离谱呢，不仅给你改额度（可能每个人还不一样），还�
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  有鱼  
+##### 18040#       发表于 2026-10-24 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417766&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-24 20:30</a>
+
+国内这些订阅真的得透明一些，哪有卖东西不告诉买家有几斤几两的
+
+论坛助手,iPhone ...</blockquote>
+oa的订阅也不透明，只是整体来说还是比较够用所以温水煮青蛙了
+
+杨圣的问题是把199这个档位的额度做成了几乎不可用，那肯定得被炎上。
+
