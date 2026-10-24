@@ -3565,3 +3565,14 @@ RTX4060 16g+64DDR4 2.9t/s
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  宏.  
+##### 18084#       发表于 2026-10-25 04:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418672&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-10-25 02:34</a>
+
+现在国内还有写文写设定这方面厉害的ai吗，试了试让哈基米4续写了一段跑团模组，还是有点强的 ...</blockquote>
+写文不考虑claude的话只有哈基米4a和k3还能看，k3.1全面劣化
+
