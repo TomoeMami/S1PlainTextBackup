@@ -1303,3 +1303,40 @@ k3.1很强，除了oneshot审美对齐差一点外，能力上没毛病
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lactone  
+##### 17880#       发表于 2026-10-24 07:48
+
+能力上外网都在吹啊
+
+主要问题还是订阅额度问题
+
+国模还是多卖api吧，订阅这个缺算力还是没办法
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  lactone  
+##### 17881#       发表于 2026-10-24 07:53
+
+另外就是这个问题，训模型对算力的要求没那么高
+
+国模现在说的缺算力主要不是缺训大模型的算力，是缺大模型做出来了提供推理服务的算力
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Milarvoz  
+##### 17882#       发表于 2026-10-24 07:57
+
+哪里贵了，一直都是这个价好不好。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+看来k3是真的很多人没用过不知道定价有多坑。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
