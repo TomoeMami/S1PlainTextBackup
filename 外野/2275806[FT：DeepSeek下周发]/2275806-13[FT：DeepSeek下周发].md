@@ -1956,3 +1956,36 @@ kimi目前问题就是出在只有大参数模型可以用而且太贵了，如�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17939#       发表于 2026-10-24 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415971&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-24 12:09</a>
+他现在这个算力营销个屁啊
+营销了把人拉来看服务器爆炸</blockquote>
+月之暗面想靠给海外做kimi部署的infra赚钱
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  startraveller  
+##### 17940#       发表于 2026-10-24 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416037&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-24 12:28</a>
+
+马老板前两天才说grok4.8刚完成预训练，这就马上要发了？
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5. ...</blockquote>
+这句话是Opus 5.5发的时候说的了
+
+*****
+
+####  drodchang  
+##### 17941#       发表于 2026-10-24 12:47
+
+k3.1不及预期，kimi还是急了，这个模型至少还需要几个月来打磨才行，估计是上市的压力。
+
