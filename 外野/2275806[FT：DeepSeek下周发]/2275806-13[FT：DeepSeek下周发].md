@@ -1368,3 +1368,27 @@ k3.1很强，除了oneshot审美对齐差一点外，能力上没毛病
 
 codex什么时候又重置了。。。20刀用户第一次感觉到用不完
 
+
+*****
+
+####  冤枉呐  
+##### 17886#       发表于 2026-10-24 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413160&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-10-23 17:15</a>
+我两个号的jio，网页用Argon。原先是一个美国一个中国。
+
+中国那个我申请挪美国去了，平时挂的**哪国的就 ...</blockquote>
+感谢分享
+我搜了下海鲜市场，怎么一个个都说jio要结束了？
+意思是老套餐还有，过几天新套餐不给上了？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  赤星ビスコ  
+##### 17887#       发表于 2026-10-24 09:07
+
+我本身有google drive和google photo存储需求，现在都没有单纯的存储套餐了。AI部分就当是白送的
+
