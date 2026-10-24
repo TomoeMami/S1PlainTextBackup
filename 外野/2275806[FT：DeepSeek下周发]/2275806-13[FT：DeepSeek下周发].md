@@ -2705,3 +2705,28 @@ ds 1017已经可以在96g内存+5090上跑到20tps输出了
 
 还好看一眼论坛，刚想蹬一下 k3.1 试试破解汉化，这下不敢了
 
+
+*****
+
+####  冤枉呐  
+##### 18005#       发表于 2026-10-24 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416447&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-24 14:27</a>
+
+我评价是以为马斯克会真去做nsfw的是逗笑。也就那个稀烂的文字写作还不怎么拦截，生图和视频现在拦截率基本 ...</blockquote>
+没用过gpt生图，目前grok还是可以明显露点的
+
+文字真是，除了不拦截其余一坨
+
+
+*****
+
+####  云卷花开  
+##### 18006#       发表于 2026-10-24 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416484&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-10-24 14:43</a>
+然而量级达到统一采购的大企业买的api大概率有对标套餐的大客户价。再说你别有一说一了，首先小作坊用套餐 ...</blockquote>
+没有对标套餐的大客户价的，能给便宜一半，可便宜不到几十分之一，我只更你讨论用量问题
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
