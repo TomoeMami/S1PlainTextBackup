@@ -1392,3 +1392,28 @@ codex什么时候又重置了。。。20刀用户第一次感觉到用不完
 
 我本身有google drive和google photo存储需求，现在都没有单纯的存储套餐了。AI部分就当是白送的
 
+
+*****
+
+####  mitzvah  
+##### 17888#       发表于 2026-10-24 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415225&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-24 07:53</a>
+
+另外就是这个问题，训模型对算力的要求没那么高
+
+国模现在说的缺算力主要不是缺训大模型的算力，是缺大模型 ...</blockquote>
+大多数的算力都消耗在检查点训练上了，一个几千卡的昇腾集群就能日均输出155万亿deepseek4.1flash 的token
+
+这能消耗多少算力
+
+
+*****
+
+####  a4ac7  
+##### 17889#       发表于 2026-10-24 09:15
+
+skill，和智能体我觉得社区生态贡献更大，gpt4刚出来时候，我在github上好像就用过智能体雏形
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
