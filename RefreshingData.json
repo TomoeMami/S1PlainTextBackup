@@ -3542,7 +3542,7 @@
     "newtitle": "[机娘爱丽丝机甲／Alice Gear Aegis ST绫香]",
     "lastedit": 1792584246,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1569854": {
@@ -6921,10 +6921,10 @@
     "update": false
   },
   "2163117": {
-    "totalreply": 14351,
+    "totalreply": 14354,
     "title": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
     "newtitle": "[NIKKE胜利女神，三周年大团圆你喜欢嘛？2号楼！]",
-    "lastedit": 1792842845,
+    "lastedit": 1792843445,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11916,10 +11916,10 @@
     "update": false
   },
   "2260400": {
-    "totalreply": 11823,
+    "totalreply": 11827,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 10.16 国图联动「恒远津梁」(本楼含YJWL动态交流)]",
-    "lastedit": 1792843086,
+    "lastedit": 1792843686,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 22795,
+    "totalreply": 22796,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「丹青渡」版本现已开放]",
-    "lastedit": 1792840207,
+    "lastedit": 1792843566,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 18034,
+    "totalreply": 18035,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[DeepSeek V4.1 Flash 1017：许愿式编程一键成真 ｜ 大模型讨论专楼]",
-    "lastedit": 1792842366,
+    "lastedit": 1792843327,
     "category": "外野",
     "active": true,
     "update": false
@@ -13068,10 +13068,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 43899,
+    "totalreply": 43900,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1792843086,
+    "lastedit": 1792843566,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13680,10 +13680,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 38803,
+    "totalreply": 38805,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1792842966,
+    "lastedit": 1792843686,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17523,10 +17523,10 @@
     "update": false
   },
   "2292231": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "[芭蕾舞高抬腿是怎么回事？]",
     "newtitle": "[芭蕾舞高抬腿是怎么回事？]",
-    "lastedit": 1792842127,
+    "lastedit": 1792843686,
     "category": "外野",
     "active": true,
     "update": false
@@ -17591,7 +17591,7 @@
     "newtitle": "[12岁女孩“黑作坊”打工手臂卷入机器致残]",
     "lastedit": 1792583886,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2292132": {
@@ -17937,10 +17937,10 @@
     "update": false
   },
   "2292410": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[最近高市早苗推荐的，在日本大火的这部抗中神剧里面，好多大牌蜗蜗艺人集体政治出柜啊]",
     "newtitle": "[最近高市早苗推荐的，在日本大火的这部抗中神剧里面，好多大牌蜗蜗艺人集体政治出柜啊]",
-    "lastedit": 1792843087,
+    "lastedit": 1792843326,
     "category": "外野",
     "active": true,
     "update": false
@@ -18009,11 +18009,29 @@
     "update": false
   },
   "2267228": {
-    "totalreply": 143,
+    "totalreply": 144,
     "title": "[Empress 20周年，圣少女回归？]",
     "newtitle": "[Empress 20周年，圣少女回归？]",
-    "lastedit": 1792840329,
+    "lastedit": 1792843566,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2275662": {
+    "totalreply": 203,
+    "title": "[宝可梦风／波正式公开，2027发售]",
+    "newtitle": "[宝可梦风／波正式公开，2027发售]",
+    "lastedit": 1792843208,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2292435": {
+    "totalreply": 41,
+    "title": "[某牙家电动牙刷客服教大家一个常识]",
+    "newtitle": "[某牙家电动牙刷客服教大家一个常识]",
+    "lastedit": 1792843687,
+    "category": "外野",
     "active": true,
     "update": false
   }
