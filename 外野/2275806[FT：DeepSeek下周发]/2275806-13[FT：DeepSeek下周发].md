@@ -2549,3 +2549,60 @@ one shot拉了影响还是很大的，K3公司里用得最多的是来办公，�
 
 之前zcode不也是？多锤锤才能长记性
 
+
+*****
+
+####  jf8350143  
+##### 17991#       发表于 2026-10-24 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416369&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-10-24 14:04</a>
+
+是的 没必要一起去挤上编程赛道，虽然这个赛道是目前一眼看上去最能赚的毕竟全世界程序员烧起token又多又 ...</blockquote>
+NSFW赛道的问题是要做多模态而且要求高的惊人，你要让grok在视频图片生成不说超过seeddance/gpt，至少有个七八成功力才算有竞争力
+
+纯文字的话市场太小了。而且这个赛道在支付渠道被掐脖子太严重了，chubai都被逼得只接受虚拟货币支付会员了，因为只要用别的渠道就会被强制审核限制他们网站发布的内容
+
+
+*****
+
+####  北野苍术  
+##### 17992#       发表于 2026-10-24 15:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">本来期待k3.1写作能有增强结果完全反方向了啊，套餐依旧那点量，说好的free token也没有（指宣传片）
+
+<img src="https://img.stage1st.com/forum/202610/24/150957s8yod3a3l8fkzhh7.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1792825795712_1.webp</strong> (32.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 15:09 上传
+
+—— 来自 motorola XT2301-5, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  cscbzcbz  
+##### 17993#       发表于 2026-10-24 15:15
+
+之所以卷编程，还有持续学习和自我迭代的考虑。要实现持续学习和自我迭代，编程能力和数学能力是基础，而文学水平是相对来说不是最重要的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Promeus  
+##### 17994#       发表于 2026-10-24 15:16
+
+【KimiK3.1pro实测！能重回国模一哥吗？-哔哩哔哩】 https://b23.tv/BV18jHN6pEJN
+
+加上我看几个玩票军事博主的玩法，感觉3d建模很厉害，2d那是完全不如1017<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  静哮苍穹  
+##### 17995#       发表于 2026-10-24 15:18
+
+多锤锤是好事，不锤玩不明白，K3吹上天了，K3.1该让杨老板找找自己定位了。期待3.1flash能给个正经能用的东西。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
