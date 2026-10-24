@@ -499,3 +499,49 @@ C狐：没改模的是弟弟，今天强化的都是你姐姐<img src="https://s
 
 一开始大伙找配队，不知道收益所以慢吧，回过神来就全力冲刺了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 21708#       发表于 2026-10-24 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416160&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-10-24 13:03</a>
+
+好心人太少了 奥博隆其实也不好刷   说白了还是这傻逼助战  连续作战每次还要重新选助战你连续了个机霸 ...</blockquote>
+所以阿B的10周年唯一一个好评就是魔改了助战，可以选职介，太舒服了。
+
+*****
+
+####  qixinno1  
+##### 21709#       发表于 2026-10-24 20:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经没了可还行
+
+*****
+
+####  angelooo  
+##### 21710#       发表于 2026-10-24 20:19
+
+这也没得太快了
+
+*****
+
+####  希望之花  
+##### 21711#       发表于 2026-10-24 20:40
+
+不是白天还有一半吗，打响指了吧<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 21712#       发表于 2026-10-24 23:58
+
+一开始大伙找配队，不知道收益所以慢吧，回过神来就全力冲刺了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 21713#       发表于 2026-10-25 07:39
+
+一天就没了也不多加点量，我就刷了150+还想继续刷呢
+
