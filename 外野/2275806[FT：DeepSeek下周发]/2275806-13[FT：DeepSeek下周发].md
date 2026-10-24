@@ -2910,3 +2910,23 @@ anthropic马上就要上市了这时候离职？
 这人是谁？</blockquote>
 Claude code的领头人
 
+
+*****
+
+####  lactone  
+##### 18025#       发表于 2026-10-24 18:49
+
+不止thariq，还有anthony morris，也是cc团队的核心人物
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  noneoneone  
+##### 18026#       发表于 2026-10-24 18:52
+
+转了一圈还是用回opencode go的ds了，还是这个智力速度用量都够用。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+

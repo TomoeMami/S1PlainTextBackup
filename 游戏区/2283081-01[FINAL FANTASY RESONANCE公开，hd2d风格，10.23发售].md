@@ -4133,3 +4133,19 @@ hypervisior版也剛出現
 雷鸣山有4个洞口，一个是主线剧情进的，一个是收召唤兽的，剩下两个一进一出的，出去了就是洋葱剑士的祠 ...</blockquote>
 艹原来左边那条路下面是可以出去的，我还以为是死路<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARK_HGCG  
+##### 409#       发表于 2026-10-24 18:50
+
+别看样子吓人血又多，一个不死鸟之羽直接送走
+
+<img src="https://img.stage1st.com/forum/202610/24/184957rl09tdeszesr39lq.jpg" referrerpolicy="no-referrer">
+
+<strong>31228.jpg</strong> (412.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-24 18:49 上传
+
