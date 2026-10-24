@@ -2606,3 +2606,66 @@ NSFW赛道的问题是要做多模态而且要求高的惊人，你要让grok在
 
 多锤锤是好事，不锤玩不明白，K3吹上天了，K3.1该让杨老板找找自己定位了。期待3.1flash能给个正经能用的东西。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  小妻水亚美  
+##### 17996#       发表于 2026-10-24 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416364&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-24 14:03</a>
+目前看来国模不止算力是问题，可能支撑扩大规模的高质量数据也不足，麻了  ...</blockquote>
+国内各互联网资源搞封闭，那应该也可以用国外的开放互联网聊天资源训练吧
+
+—— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 17997#       发表于 2026-10-24 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416590&amp;ptid=2275806" target="_blank">小妻水亚美 发表于 2026-10-24 15:18</a>
+
+国内各互联网资源搞封闭，那应该也可以用国外的开放互联网聊天资源训练吧
+
+—— 来自 vivo V2454DA, Andr ...</blockquote>
+ai训练语料不是随便聊天模型就行的
+
+
+*****
+
+####  lactone  
+##### 17998#       发表于 2026-10-24 15:24
+
+锤烂kimi都行，别影响别的国模厂商就好<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 17999#       发表于 2026-10-24 15:25
+
+要说这破事和zcode那事比哪个大那肯定是zcode那个大
+
+但是这事最大的问题是道歉都很难
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  cube  
+##### 18000#       发表于 2026-10-24 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70416292&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-10-24 13:46</a>
+
+怎么感觉楼里前100条回复和后一百条回复风向也完全不一样，鬼佬没喷之前不敢喷，鬼佬开喷之后才敢放开喷？
+
+ ...</blockquote>
+刷分不刷分的并不重要，现在最大的问题是，大模型已经是落地阶段了。
+
+KIMI占着国模里能力第一的头，但是商业成绩被DS按在地上摩擦。而这还是梁子并不太在意一定要在DS上做出什么商业成绩的结果。
+
+再好的模型，贵已经能劝退一半人了，然后额度还给的那么抠门，那为什么要用你。
+
