@@ -1312,3 +1312,14 @@ JO他这话其实是对上一个发言里众多谩骂的回应，生软宣布咽
 
 —— 来自 OPPO PFJM10, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  RTLordCaptain  
+##### 127#       发表于 2026-10-26 03:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70417801&amp;ptid=2292298" target="_blank">xjtxp 发表于 2026-10-24 20:37</a>
+
+现在还是EA，如果电视剧热度高的话没准ME还能出售IP抢救下，DA是因为大电视这坨彻底入土了。然后自JO离职 ...</blockquote>
+电视剧没开拍的话也不好说会不会被砍
+
