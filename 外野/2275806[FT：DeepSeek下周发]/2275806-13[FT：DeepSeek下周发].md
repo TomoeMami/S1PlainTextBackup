@@ -4017,3 +4017,25 @@ opencodego只用ds的话，目前非常量大管饱，虽然慢一些，有种to
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cscbzcbz  
+##### 18124#       发表于 2026-10-25 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420143&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-25 15:55</a>
+qoder的免费K3.1用的好爽啊，300积分如水一样流走但是问题也解决了
+
+另外K3.1确实是非常吃多轮迭代的，多讨 ...</blockquote>
+但是真的太贵了，即使现在额度提高了也贵。我今天就和它迭代了两轮，199这一档会员，5小时额度就没了50%<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Promeus  
+##### 18125#       发表于 2026-10-25 16:16
+
+1017有为了减轻消耗减少工具调用和判断的倾向，需要告知她不用在乎成本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
