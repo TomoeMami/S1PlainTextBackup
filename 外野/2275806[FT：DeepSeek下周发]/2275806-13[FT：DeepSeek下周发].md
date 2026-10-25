@@ -3952,3 +3952,39 @@ Engram最大的作用是缓解国内芯片瓶颈
 
 DRAM我们现在已经稳定量产了，HBM还在攻关阶段性能和良率有差距
 
+
+*****
+
+####  云卷花开  
+##### 18118#       发表于 2026-10-25 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419957&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-10-25 14:53</a>
+世界是物质的，模型好用就是会有更多的人用，模型做差了挨喷也是活该，唾沫星子这么厉害怎么没把天天挨骂的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">定调踩头先玩饭圈那套的反而喊什么你们这群人饭圈化了的贱畜先撩者贱罢了
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  startraveller  
+##### 18119#       发表于 2026-10-25 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419877&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-25 14:26</a>
+看完了，kimi实力还是有的嘛
+然而我的关注点是1017和5.5，每次对也是一起对，错也是一起错，最后分也是一 ...</blockquote>
+实力还是有的，贵是真贵
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18120#       发表于 2026-10-25 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419914&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-10-25 14:37</a>
+感谢，我看前面坛友的发言，K3.1能力较K3是稍微提升了点吧？</blockquote>
+并非稍微
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
