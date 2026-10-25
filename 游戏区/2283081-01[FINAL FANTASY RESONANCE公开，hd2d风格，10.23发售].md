@@ -4473,3 +4473,14 @@ hypervisior版也剛出現
 
 2026-10-25 17:23 上传
 
+
+*****
+
+####  kk酱  
+##### 433#       发表于 2026-10-25 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415307&amp;ptid=2283081" target="_blank">YukariK 发表于 2026-10-24 08:27</a>
+
+稍微有一点，在获取每个前代主角的幻兵时，会问你三个问题，大致模版就是xxx现在处于一个什么样的世界里 ...</blockquote>
+那我明明打了，然后老实选完居然和我说想法不一样也太搞了hhhh
+
