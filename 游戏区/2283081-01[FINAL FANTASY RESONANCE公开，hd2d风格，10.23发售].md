@@ -4621,3 +4621,12 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 
 想象一下魔法少女小圆的陨石八连砸
 
+
+*****
+
+####  琴酒  
+##### 447#       发表于 2026-10-26 06:34
+
+说个题外话 kickstarter在众筹ff1-3桌游
+[https://www.kickstarter.com/proj ... -fantasy-board-game](https://www.kickstarter.com/projects/kessent/origins-of-light-a-final-fantasy-board-game)
+
