@@ -4247,3 +4247,15 @@ jio的话可能会被限额，现在我只能每天聊大概30轮了<img src="ht
 
 所以我一个Argon task是23~24%的五小时额度的，真的有人一次5%的吗
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18143#       发表于 2026-10-25 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420394&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-10-25 17:36</a>
+请问在Kimi自己的Kimi work下，我本来在做的一项项目里如果从K3切到K3.1，会提示建议我重开一个对话获取 ...</blockquote>
+会，kimi不同模型之间衔接本来就有点狗屎，以前k2.x切k3都得新开对话，现在好歹是可以不用切对话只是性能下降
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
