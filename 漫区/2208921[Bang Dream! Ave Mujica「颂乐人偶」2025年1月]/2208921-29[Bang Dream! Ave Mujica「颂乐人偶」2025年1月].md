@@ -4313,3 +4313,23 @@ MyGO!!!!! 9th Single「世点彩（Sepia）」
 
        [https://bmu.lnk.to/avemujica_7thlivetw](https://bmu.lnk.to/avemujica_7thlivetw)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42172#       发表于 2026-10-25 19:45
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/25/194519tg0lxllggpmhxt0e.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-25_19-43-52.png</strong> (903.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 19:45 上传
+
+       [https://x.com/bang_dream_info/status/2114311025348460709](https://x.com/bang_dream_info/status/2114311025348460709)
+
+       [https://anime.bang-dream.com/mygo-avemujica](https://anime.bang-dream.com/mygo-avemujica)
+
