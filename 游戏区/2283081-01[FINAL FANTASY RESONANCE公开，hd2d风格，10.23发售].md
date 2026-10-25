@@ -4314,3 +4314,37 @@ hypervisior版也剛出現
 宅圈里，他才是＂吉尔伽美什＂的代表吧 ​​​</blockquote>
 蘑菇的那个金闪闪就是参考了ff的吉尔伽美什
 
+
+*****
+
+####  新HGCG  
+##### 422#       发表于 2026-10-25 11:52
+
+略感动
+
+<img src="https://img.stage1st.com/forum/202610/25/115215w4gqgv22qh2f0jhg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (309.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 11:52 上传
+
+<img src="https://img.stage1st.com/forum/202610/25/115223yc9chehqq4q4hdll.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (210.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 11:52 上传
+
+
+*****
+
+####  哎哟卧槽了  
+##### 423#       发表于 2026-10-25 11:54
+
+這作的劇情完整嗎？
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
