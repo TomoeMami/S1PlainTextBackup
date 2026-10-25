@@ -4005,3 +4005,15 @@ DRAM我们现在已经稳定量产了，HBM还在攻关阶段性能和良率有�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">困扰了我两周的有限元建模相关的问题，之前用5.6sol最高档四五个五小时最大额度都没搞定。昨天用1017，睡觉之前交了最后一版让它自己迭代，今天睡醒发现已经算好了，跟预期的结果比较接近。才花了opencodego10%的月额度，如果直接用官方api也才五六十
 
+
+*****
+
+####  cscbzcbz  
+##### 18123#       发表于 2026-10-25 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420147&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-10-25 15:57</a>
+困扰了我两周的有限元建模相关的问题，之前用5.6sol最高档四五个五小时最大额度都没搞定。昨天用1017，睡觉 ...</blockquote>
+opencodego只用ds的话，目前非常量大管饱，虽然慢一些，有种token自由的爽
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
