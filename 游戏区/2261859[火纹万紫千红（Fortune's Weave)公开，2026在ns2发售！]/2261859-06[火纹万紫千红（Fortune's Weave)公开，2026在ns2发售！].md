@@ -7530,3 +7530,43 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，看了b站才知道，原来第三部仓库里的布克发拉斯的孩子不是真的是布克发拉斯生的，是合并仓库的时候为了防重名系统改的……平行世界里的天马直接差辈了是吧
 
+
+*****
+
+####  gbjbb  
+##### 8105#       发表于 2026-10-25 18:22
+
+245小时终于结束
+
+<img src="https://img.stage1st.com/forum/202610/25/182216mmbmdz7zra17ir1t.jpg" referrerpolicy="no-referrer">
+
+<strong>1000046808.jpg</strong> (285.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 18:22 上传
+
+<img src="https://img.stage1st.com/forum/202610/25/182216tbflbpflakaeprop.jpg" referrerpolicy="no-referrer">
+
+<strong>1000046809.jpg</strong> (268.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 18:22 上传
+
+<img src="https://img.stage1st.com/forum/202610/25/182216sh555i9njbcl9igs.jpg" referrerpolicy="no-referrer">
+
+<strong>1000046807.jpg</strong> (276.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 18:22 上传
+
+<img src="https://img.stage1st.com/forum/202610/25/182217rbgmmseilegbgglb.jpg" referrerpolicy="no-referrer">
+
+<strong>1000046810.jpg</strong> (270.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 18:22 上传
+

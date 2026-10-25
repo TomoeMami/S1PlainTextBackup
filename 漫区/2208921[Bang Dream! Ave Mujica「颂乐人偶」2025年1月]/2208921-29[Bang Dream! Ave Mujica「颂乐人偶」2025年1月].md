@@ -4254,3 +4254,23 @@ MyGO!!!!! 9th Single「世点彩（Sepia）」
 ✦・━━━━━━━━━━━━━━━ ・✦⁡⁡"</blockquote>
        [https://www.bilibili.com/video/BV1KWH56zEgV](https://www.bilibili.com/video/BV1KWH56zEgV)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42169#       发表于 2026-10-25 18:23
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/25/182326xw33z7u7ii7soiqf.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-25_18-22-33.png</strong> (910.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 18:23 上传
+
+       [https://x.com/bang_dream_info/status/2114298237201072218](https://x.com/bang_dream_info/status/2114298237201072218)
+
+       [https://bang-dream.com/events/avemujica-8th](https://bang-dream.com/events/avemujica-8th)
+
