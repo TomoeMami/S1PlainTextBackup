@@ -4481,3 +4481,16 @@ GPT做文档撰写和维护很容易犯边界过多，措辞过严的问题，�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 现在哪里的哈基米便宜啊，只想用来写瑟瑟
 
+
+*****
+
+####  绕指流光  
+##### 18166#         楼主| 发表于 2026-10-25 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421245&amp;ptid=2275806" target="_blank">毒品 发表于 2026-10-25 22:01</a>
+
+现在哪里的哈基米便宜啊，只想用来写瑟瑟</blockquote>
+[https://cdn.sta1n.cn/](https://cdn.sta1n.cn/)
+
+甚至自带防截断，我的酒馆相关已经全换成这个了
+

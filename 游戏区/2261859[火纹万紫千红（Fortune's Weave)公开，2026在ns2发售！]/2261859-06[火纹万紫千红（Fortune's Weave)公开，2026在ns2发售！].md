@@ -7623,3 +7623,37 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 但是寇恩和德雷克都还挺容易的……<img src="https://static.stage1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Losange  
+##### 8111#       发表于 2026-10-25 22:17
+
+巴罗尔的盾不破门一人摸一下也能碎，所以你直接围殴就行
+
+德雷克那关主要看得眼睛疼
+
+
+*****
+
+####  廖化  
+##### 8112#       发表于 2026-10-25 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421297&amp;ptid=2261859" target="_blank">Losange 发表于 2026-10-25 22:17</a>
+
+巴罗尔的盾不破门一人摸一下也能碎，所以你直接围殴就行
+
+德雷克那关主要看得眼睛疼 ...</blockquote>
+……我一怒之下把存档删了……这下纯小丑了<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Losange  
+##### 8113#       发表于 2026-10-25 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421307&amp;ptid=2261859" target="_blank">廖化 发表于 2026-10-25 22:20</a>
+
+……我一怒之下把存档删了……这下纯小丑了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">正好等明年DLC吧，反正现在的游戏也不完整，明年的时候各种资料应该也齐全了，培养角色也可以有新的思路
+
