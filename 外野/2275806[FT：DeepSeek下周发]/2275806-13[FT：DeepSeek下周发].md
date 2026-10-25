@@ -4676,3 +4676,29 @@ https://cdn.sta1n.cn/
 
 实际开发，用GPT6.1规划和DS4.1F规划一个功能方案，差距能有多大？
 
+
+*****
+
+####  奈落的孤火花  
+##### 18181#       发表于 2026-10-26 01:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421075&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-25 21:18</a>
+
+GPT做文档撰写和维护很容易犯边界过多，措辞过严的问题，尤其是没有给它明确指示的时候
+
+我现在主要用Arg ...</blockquote>
+可是别的模型如果写文档 根本没有gpt严谨哎，感觉没办法
+
+
+*****
+
+####  奈落的孤火花  
+##### 18182#       发表于 2026-10-26 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421592&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-25 23:35</a>
+
+文档我已经明确区分只给AI看的文档和同时要给人类看的文档了，代码？那是什么
+
+关于软件项目开发，我认为 ...</blockquote>
+我怎么感觉现在只要稍微一放手，AI就非常容易把我的需求给跑偏呢，最近因为这个非常痛苦，不知道怎么解决，我感觉我都已经跟它对齐需求了，我也说了我最终是想要完成什么，实现一个怎样的目标。但是它做着做着就会把东西引向，说是对不起，我理解又偏了，我又把你的需求执行成了什么什么<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">坛友有什么心得么
+
