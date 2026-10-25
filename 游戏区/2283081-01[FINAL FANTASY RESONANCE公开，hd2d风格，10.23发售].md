@@ -4249,3 +4249,37 @@ hypervisior版也剛出現
 
 提取码：U4LM
 
+
+*****
+
+####  kirito_wst  
+##### 416#       发表于 2026-10-25 11:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">被拉去干活，只能闲暇时间刷刷岛上的仙人掌了，感觉效率好低，还是得龙颚岛那个出口好刷
+
+*****
+
+####  diectt  
+##### 417#       发表于 2026-10-25 11:23
+
+跳绳有点变态，搞不定，放弃了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  u2deack  
+##### 418#       发表于 2026-10-25 11:23
+
+真的不是很懂为什么会没有震动
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  kirito_wst  
+##### 419#       发表于 2026-10-25 11:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">个人感觉跳绳还行，60次的时候每10次换一下节奏，注意下节奏变化那一下就行了
+
+（虽然我有一次58下断了，差点把手上的机器扔出去<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
