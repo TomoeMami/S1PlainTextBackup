@@ -4188,3 +4188,44 @@ qoder的免费K3.1用的好爽啊，300积分如水一样流走但是问题也�
 
 倾向于减少token消耗，换句话不就是懒吗，你这肥鱼！
 
+
+*****
+
+####  冤枉呐  
+##### 18139#       发表于 2026-10-25 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70418742&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-10-25 06:16</a>
+
+仅限我遇到的情况，无论充jio还是不充jio，国区还是美区都不影响网页Gemini的打开。我认为你遇到的是其他 ...</blockquote>
+用了个次新号，申请改区到美国成功，jio成功
+
+但是，这个玩意能干啥呢
+
+好像api必须反代出来？我下载了反重力的app，不给用，要短信验证--不影响我gemini使用
+
+*****
+
+####  冤枉呐  
+##### 18140#       发表于 2026-10-25 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419118&amp;ptid=2275806" target="_blank">ttmaxwell 发表于 2026-10-25 10:21</a>
+
+有可能是阿三程序员蜜汁账号初始化错误导致的
+
+你试试gems创建页面进去似乎就能修复 ...</blockquote>
+gem这个无效
+
+但是用了一个次新号，改区美国成功，成功绑定jio
+
+但是下面的话，好像也没有api可以用？
+
+
+*****
+
+####  rayaxu  
+##### 18141#       发表于 2026-10-25 18:06
+
+jio的话可能会被限额，现在我只能每天聊大概30轮了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
