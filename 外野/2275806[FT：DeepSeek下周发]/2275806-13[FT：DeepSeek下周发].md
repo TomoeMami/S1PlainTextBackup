@@ -3747,3 +3747,27 @@ RTX4060 16g+64DDR4 2.9t/s
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lactone  
+##### 18101#       发表于 2026-10-25 14:12
+
+kimi现在又被怼了，说3d建模会调用tripo 3D
+
+不过这个是kimi自己主页报告上说的
+
+但是很多人把和之前的路由扯上去了，说kimi是路由蒸馏美国模型
+
+不过tripo3d是国产模型，也是3D sota，现在X上又吵成一片了
+
+
+*****
+
+####  Promeus  
+##### 18102#       发表于 2026-10-25 14:14
+
+【用王者BUG祭旗，Kimi K3.1打响国模反击第一枪｜屎山论剑-哔哩哔哩】 https://b23.tv/BV1j9Hu6CEMx
+
+屎山挑战k3.1比astra多一轮干掉了王者，看来实力还是有的<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
