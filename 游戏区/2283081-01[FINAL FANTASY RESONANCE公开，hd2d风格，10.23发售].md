@@ -4283,3 +4283,21 @@ hypervisior版也剛出現
 
 （虽然我有一次58下断了，差点把手上的机器扔出去<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 420#       发表于 2026-10-25 11:29
+
+在金闪闪出现前
+
+宅圈里，他才是＂吉尔伽美什＂的代表吧 ​​​
+
+<img src="https://img.stage1st.com/forum/202610/25/111057qr2b2uv8az150dg5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (412.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 11:10 上传
+
