@@ -4582,3 +4582,26 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 
 话说加人物属性的选项，选的不同对最后结果有影响吗？
 
+
+*****
+
+####  kirito_wst  
+##### 444#       发表于 2026-10-25 23:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">欧米茄过了，纯折磨王
+明天把剩下的东西清清就可以转steam版爽了
+
+—— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  kirito_wst  
+##### 445#       发表于 2026-10-25 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421467&amp;ptid=2283081" target="_blank">Evilgurren 发表于 2026-10-25 23:01</a>
+有wiki网站吗，好多精英不知道伤害类型，试错成本有点高</blockquote>
+前面楼有大佬发了攻略书，可以看着玩，少踩不少坑。
+不过这游戏大部分都可以通过等级压制碾过去<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
