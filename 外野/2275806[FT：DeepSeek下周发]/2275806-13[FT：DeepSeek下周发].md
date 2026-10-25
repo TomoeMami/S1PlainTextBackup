@@ -4462,3 +4462,14 @@ GPT做文档撰写和维护很容易犯边界过多，措辞过严的问题，�
 
 看投票贴，S1码农用AI的没有略懂和不懂的多，所以模型实现许愿的能力还是很受非码农欢迎的。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 18164#       发表于 2026-10-25 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420928&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-25 20:40</a></blockquote>
+抛开AGI和ASI这种模糊的概念不谈，如果Scaling Law不变，那么50-100T规模的模型就能对人类的智力劳动进行普遍的取代
+
+如果模型的迭代速度也不变，到明年这个时候这个规模的模型能完成训练。到那时候要如何降低推理成本的问题会比现在更重要
+
