@@ -4348,3 +4348,14 @@ hypervisior版也剛出現
 
 —— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  黑暗之眼  
+##### 424#       发表于 2026-10-25 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419378&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-25 11:52</a>
+
+略感动</blockquote>
+天子传奇的天剑怕不是就抄的这个吧
+
