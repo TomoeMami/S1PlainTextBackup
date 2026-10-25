@@ -4668,3 +4668,11 @@ https://cdn.sta1n.cn/
 到这个规模的体量，如果还是现在这样的 Pro Max 版本的话，我觉得是不是可以考虑换个路线了 ...</blockquote>
 拿这个规模的大模型作为教师，蒸出来对应各领域的RWKV呗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UncleDracula  
+##### 18180#       发表于 2026-10-26 00:58
+
+实际开发，用GPT6.1规划和DS4.1F规划一个功能方案，差距能有多大？
+

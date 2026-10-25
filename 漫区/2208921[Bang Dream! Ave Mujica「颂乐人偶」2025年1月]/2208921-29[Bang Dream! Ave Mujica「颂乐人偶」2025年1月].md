@@ -4371,3 +4371,119 @@ MyGO!!!!! 9th Single「世点彩（Sepia）」
 
        [https://x.com/diggymo04/status/2114329552441004380](https://x.com/diggymo04/status/2114329552441004380)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42175#       发表于 2026-10-26 01:00
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/26/005938nz4os3x3jjg500hr.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-26_00-50-58.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 00:59 上传
+
+       [https://x.com/sasakirico/status/2114304287748808770](https://x.com/sasakirico/status/2114304287748808770)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/26/005937kq7bgr3byogimxmm.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-26_00-51-52.png</strong> (975.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 00:59 上传
+
+       [https://x.com/Watase_Yuzuki/status/2114313665222685091](https://x.com/Watase_Yuzuki/status/2114313665222685091)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/26/005936mrgbbffegbbel6gb.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-26_00-52-32.png</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 00:59 上传
+
+       [https://x.com/okada_mei0519/status/2114321905134252069](https://x.com/okada_mei0519/status/2114321905134252069)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/26/005935sirwiwzg1e71b0xw.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-26_00-53-13.png</strong> (1.83 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 00:59 上传
+
+       [https://x.com/AkaneY_banu/status/2114326316292182187](https://x.com/AkaneY_banu/status/2114326316292182187)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/26/005934y8y8ac85s8v5i7t1.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-26_00-53-43.png</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 00:59 上传
+
+       [https://x.com/Kanon_Takao/status/2114328660048326830](https://x.com/Kanon_Takao/status/2114328660048326830)
+
+       [https://bang-dream.com/events/avemujica-8th](https://bang-dream.com/events/avemujica-8th)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/26/005933i19sn3sf7o909897.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-26_00-54-35.png</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 00:59 上传
+
+       [https://x.com/AkaneY_banu/status/2114353095467761983](https://x.com/AkaneY_banu/status/2114353095467761983)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/26/005932d56qwgg3c98da6ga.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-26_00-55-14.png</strong> (1.96 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 00:59 上传
+
+       [https://x.com/sasakirico/status/2114356290806046985](https://x.com/sasakirico/status/2114356290806046985)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/26/005931qxhigm8kni9tbqhv.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-26_00-55-43.png</strong> (1.59 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 00:59 上传
+
+       [https://x.com/Kanon_Takao/status/2114357057214357978](https://x.com/Kanon_Takao/status/2114357057214357978)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/26/005930gmmmbtwmmhb12md1.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-26_00-56-20.png</strong> (565.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 00:59 上传
+
+       [https://x.com/Kanon_Takao/status/2114370567201829361](https://x.com/Kanon_Takao/status/2114370567201829361)
+
