@@ -4753,3 +4753,16 @@ GPT做文档撰写和维护很容易犯边界过多，措辞过严的问题，�
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经验就是，AI许愿术第一课：使用/grill-me
 [https://github.com/mattpocock/sk ... y/grilling/SKILL.md](https://github.com/mattpocock/skills/blob/main/skills/productivity/grilling/SKILL.md)
 
+
+*****
+
+####  qwased  
+##### 18187#       发表于 2026-10-26 05:50
+
+ 本帖最后由 qwased 于 2026-10-26 05:51 编辑 
+
+pi的codemode体验真比dsh的ptc模式强多了，大肥鱼跑脚本返工次数显著低于ptc模式，体感可以减少一半的工具调用次数
+虽然大肥鱼的命中缓存本来就很便宜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+间接导致反代华子的积分用不完<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
