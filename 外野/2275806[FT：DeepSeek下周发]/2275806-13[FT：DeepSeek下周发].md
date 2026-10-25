@@ -4766,3 +4766,14 @@ pi的codemode体验真比dsh的ptc模式强多了，大肥鱼跑脚本返工次�
 
 间接导致反代华子的积分用不完<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 18188#       发表于 2026-10-26 07:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422014&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-26 05:50</a>
+pi的codemode体验真比dsh的ptc模式强多了，大肥鱼跑脚本返工次数显著低于ptc模式，体感可以减少一半的工具 ...</blockquote>
+codemode用过都说好，pi算是把脚本组合工具调用这个理念真正跑通了，完全可以担得起所有日常工作，真正的无成本节省工具调用上下文。dsh的ptc虽然功能类似但是实际用起来就是差很多。
+感觉codemode可以作为下一阶段各家agent基础功能之一了。
+
