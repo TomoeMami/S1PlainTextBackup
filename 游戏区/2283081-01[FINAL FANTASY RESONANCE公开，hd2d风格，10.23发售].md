@@ -4228,3 +4228,24 @@ hypervisior版也剛出現
 
 而这个奖品是涉及召唤兽的
 
+
+*****
+
+####  conanoysq  
+##### 415#       发表于 2026-10-25 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413009&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-10-23 16:45</a>
+
+链接:https://pan.baidu.com/s/14UXoaYmF_lEL1BWd9UfT4Q?pwd=r919 提取码:r919 
+
+官方公式攻略本，在FF文件 ...</blockquote>
+这战斗系统比八方好太玩多了。收幻兵情怀拉满了，只要玩过其中一代，看到熟悉的情节是真的会“共鸣”<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+另外借364楼友的扫图让AI汉化了下地图，有点糊，放大了还是能看。
+
+「共鸣地图汉化」
+
+链接：[https://pan.quark.cn/s/c71b305dc647](https://pan.quark.cn/s/c71b305dc647)
+
+提取码：U4LM
+
