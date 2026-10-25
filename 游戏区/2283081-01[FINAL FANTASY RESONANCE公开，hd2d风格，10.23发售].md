@@ -4208,3 +4208,23 @@ hypervisior版也剛出現
 
 60回之后可以有排行榜 不过是个人本地的也没奖励 ff9的苦就没必要再来一遍了 捏他什么不好捏他这玩意<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 414#       发表于 2026-10-25 10:06
+
+据说斗技场有个BUG
+
+<img src="https://img.stage1st.com/forum/202610/25/100407tabba5p41accpz4e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (214.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 10:04 上传
+
+打完初级第四战后不打第5场战斗而离开竞技场，第5场就会被标记为已完成，从无法获得奖品。
+
+而这个奖品是涉及召唤兽的
+
