@@ -4437,3 +4437,15 @@ hypervisior版也剛出現
 
 希望还能再出下一步
 
+
+*****
+
+####  黑暗之眼  
+##### 430#       发表于 2026-10-25 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419728&amp;ptid=2283081" target="_blank">hkguty 发表于 2026-10-25 13:27</a>
+这游戏到底做了手游的剧本里的几成剧情啊，感觉剧情也还行啊，音乐也很好，但是如果第一部才做了3-4成左右 ...</blockquote>
+第一部重新编辑为有头有尾的一作，不像7R那样拆分
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

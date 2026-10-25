@@ -3869,3 +3869,28 @@ kimi自己这次宣发也不地道
 我看测试，基本上消耗是降低的</blockquote>
 感谢，我看前面坛友的发言，K3.1能力较K3是稍微提升了点吧？
 
+
+*****
+
+####  FACS  
+##### 18110#       发表于 2026-10-25 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419824&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-25 14:04</a>
+GPT现在真的用的好恶心.. 还不如5.6时代
+
+ 50亿 40亿用来哈希、基线、冒烟、测试、备份、回滚了。我先对产 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开个子代理更是变本加厉
+
+
+*****
+
+####  静哮苍穹  
+##### 18111#       发表于 2026-10-25 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419844&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-25 14:12</a>
+
+kimi现在又被怼了，说3d建模会调用tripo 3D
+
+不过这个是kimi自己主页报告上说的</blockquote>
+你觉得是看太多屎了，你的号已经养成了
+

@@ -4038,3 +4038,59 @@ X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
 
        [https://x.com/bang_dream_info/status/2114160012557971740](https://x.com/bang_dream_info/status/2114160012557971740)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42165#       发表于 2026-10-25 14:37
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/25/143722y0jppxjdhdhf0xzu.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-25_14-35-12.png</strong> (963.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 14:37 上传
+
+       [https://x.com/Watase_Yuzuki/status/2114173781988282431](https://x.com/Watase_Yuzuki/status/2114173781988282431)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/25/143721zysy899tfzd8fj8k.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-25_14-35-26.png</strong> (1.39 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 14:37 上传
+
+       [https://x.com/Watase_Yuzuki/status/2114175821837668598](https://x.com/Watase_Yuzuki/status/2114175821837668598)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/25/143720nahw8zge4777ewn7.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-25_14-36-09.png</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 14:37 上传
+
+       [https://x.com/Kanon_Takao/status/2114189897221464558](https://x.com/Kanon_Takao/status/2114189897221464558)
+
+       [https://t.co/HEJAYjcH3w](https://t.co/HEJAYjcH3w)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/25/143720aw41w67whzgf999i.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-25_14-36-49.png</strong> (915.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 14:37 上传
+
+       [https://x.com/sasakirico/status/2114192252469907537](https://x.com/sasakirico/status/2114192252469907537)
+
