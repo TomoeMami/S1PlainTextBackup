@@ -7592,3 +7592,16 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 暗魔法第三部没啥大用，锁就锁了吧，只有三格魔法能上桌
 
+
+*****
+
+####  纯夏  
+##### 8108#       发表于 2026-10-25 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420203&amp;ptid=2261859" target="_blank">Antidote丶 发表于 2026-10-25 16:20</a>
+
+我这迪哥剑客游侠上来的，都不加速度，真难受呀  
+
+——来自 23049RAD8C 上的 S1er 客户端 ...</blockquote>
+迪哥：“力量才是全部”<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
