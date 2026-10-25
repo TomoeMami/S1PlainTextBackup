@@ -4301,3 +4301,16 @@ hypervisior版也剛出現
 
 2026-10-25 11:10 上传
 
+
+*****
+
+####  sosgame67  
+##### 421#       发表于 2026-10-25 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419320&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-25 11:29</a>
+
+在金闪闪出现前
+
+宅圈里，他才是＂吉尔伽美什＂的代表吧 ​​​</blockquote>
+蘑菇的那个金闪闪就是参考了ff的吉尔伽美什
+
