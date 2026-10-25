@@ -4359,3 +4359,23 @@ hypervisior版也剛出現
 略感动</blockquote>
 天子传奇的天剑怕不是就抄的这个吧
 
+
+*****
+
+####  新HGCG  
+##### 425#       发表于 2026-10-25 13:00
+
+那么好看的精灵小姐姐居然不能加入 ​​​
+
+那么好看的精灵小姐姐居然不能加入 ​​​
+
+<img src="https://img.stage1st.com/forum/202610/25/125926o2hddtg6dn2y6hhr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (289.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 12:59 上传
+
+那么好看的精灵小姐姐居然不能加入 ​​​
+
