@@ -4449,3 +4449,11 @@ hypervisior版也剛出現
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  requiem116  
+##### 431#       发表于 2026-10-25 15:12
+
+有个缺点就是居然没做怪物图鉴，明明有不少精英怪都有独特偷盗物来着。b站看人做了个mod，不知道能不能移植到ns上
+
