@@ -1284,3 +1284,13 @@ JO他这话其实是对上一个发言里众多谩骂的回应，生软宣布咽
 
 都知道早就死了，拖到现在才埋，还是晚了点
 
+
+*****
+
+####  VictorWJ  
+##### 124#       发表于 2026-10-25 19:33
+
+哎，我有了自己的第一台xbox360之后玩的第一款游戏就是龙腾审判，就这还嫌弃角色技能太少打起来太无聊，没想到<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
