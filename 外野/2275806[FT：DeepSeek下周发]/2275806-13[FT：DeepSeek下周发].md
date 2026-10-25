@@ -4741,3 +4741,15 @@ GPT做文档撰写和维护很容易犯边界过多，措辞过严的问题，�
 
 就我的经验随着模型能力的上升这种问题有所缓解，在工程上就是单个实施节点的规模可以提升。但实践时需要比较使用SOTA模型直接进行实施的成本和引入自动化审查的成本，找到一个对自己来说比较合适的平衡点。
 
+
+*****
+
+####  hugosol  
+##### 18186#       发表于 2026-10-26 04:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421850&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-10-26 01:14</a>
+
+我怎么感觉现在只要稍微一放手，AI就非常容易把我的需求给跑偏呢，最近因为这个非常痛苦，不知道怎么解决 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经验就是，AI许愿术第一课：使用/grill-me
+[https://github.com/mattpocock/sk ... y/grilling/SKILL.md](https://github.com/mattpocock/skills/blob/main/skills/productivity/grilling/SKILL.md)
+
