@@ -4543,3 +4543,16 @@ hypervisior版也剛出現
 萨菲罗斯怎么打啊我60级还是被血虐</blockquote>
 P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上二级奥义都能速杀，P2实在不想配弱点属性的话对着抗性打也是可以的
 
+
+*****
+
+####  christiny  
+##### 440#       发表于 2026-10-25 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420363&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-25 17:25</a>
+
+联邦的黑色恶魔什么鬼</blockquote>
+原作里面是隶属于联邦的黑魔法师，世界第二强。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+人送外号，联邦的黑色恶魔。
+

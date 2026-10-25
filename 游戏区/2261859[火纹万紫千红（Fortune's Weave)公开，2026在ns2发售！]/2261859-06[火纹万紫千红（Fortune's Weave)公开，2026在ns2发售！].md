@@ -7605,3 +7605,21 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 ——来自 23049RAD8C 上的 S1er 客户端 ...</blockquote>
 迪哥：“力量才是全部”<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 8109#       发表于 2026-10-25 22:10
+
+寇恩那关还好，我觉得最难打的是德雷克，虽然那关可能是因为我没上主力
+
+
+*****
+
+####  廖化  
+##### 8110#       发表于 2026-10-25 22:13
+
+为什么你们都说霸罗尔好打，我打了三个小时还没打过……人都破防了……<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+但是寇恩和德雷克都还挺容易的……<img src="https://static.stage1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
