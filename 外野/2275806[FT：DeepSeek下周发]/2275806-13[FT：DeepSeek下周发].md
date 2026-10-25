@@ -4577,3 +4577,21 @@ pi vcc在codemode有点问题，跟K3.1讨论了一下用大肥鱼执行魔改�
 
 有没有坛友试试，我测了一下，在codemode下应该比之前好用很多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 18173#       发表于 2026-10-25 23:09
+
+ 本帖最后由 andychen 于 2026-10-25 23:11 编辑 
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421452&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-25 22:57</a>
+
+到这个规模的体量，如果还是现在这样的 Pro Max 版本的话，我觉得是不是可以考虑换个路线了 ...</blockquote>
+
+LLM模型本身的发展方向我觉得没有大问题，应用侧的潜力现在其实还没怎么挖掘。但应用侧的发展受到成本制约很严重，时间和金钱成本都是
+
+按我个人的体感要让我敞开了用每天差不多要消费50-100亿token，但我现在的花销只能支撑我每周消费这么多。这还是在当下的Harness和自动化水平下
+
+假设要达到很多人想象中的所谓Abundance社会，每个人每天消费的token可能是1000-10000亿这个级别，而且还要求服务的模型至少是100T这个规模。所以我认为后续成本问题会越来越突出
+
