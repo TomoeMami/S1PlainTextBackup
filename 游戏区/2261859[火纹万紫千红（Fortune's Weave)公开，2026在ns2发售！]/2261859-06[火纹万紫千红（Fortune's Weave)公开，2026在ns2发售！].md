@@ -7497,3 +7497,36 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 借船给新娘让最终战的体验直接爽一倍。
 
+
+*****
+
+####  Antidote丶  
+##### 8103#       发表于 2026-10-25 16:20
+
+我这迪哥剑客游侠上来的，都不加速度，真难受呀 
+
+<img src="https://img.stage1st.com/forum/202610/25/162017ueak0a0te1k0202t.png" referrerpolicy="no-referrer">
+
+<strong>Image_3606212075982666.png</strong> (2.39 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 16:20 上传
+
+<img src="https://img.stage1st.com/forum/202610/25/162023voh5959b4qr55ssj.png" referrerpolicy="no-referrer">
+
+<strong>Image_3606234463719689.png</strong> (1.44 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 16:20 上传
+
+——来自 23049RAD8C 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  真田源次郎信繁  
+##### 8104#       发表于 2026-10-25 16:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，看了b站才知道，原来第三部仓库里的布克发拉斯的孩子不是真的是布克发拉斯生的，是合并仓库的时候为了防重名系统改的……平行世界里的天马直接差辈了是吧
+
