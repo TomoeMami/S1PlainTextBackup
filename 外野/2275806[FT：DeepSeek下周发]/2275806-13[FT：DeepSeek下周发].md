@@ -4536,3 +4536,44 @@ opus5.5和ds坐一桌，astra是真的强
 抛开AGI和ASI这种模糊的概念不谈，如果Scaling Law不变，那么50-100T规模的模型就能对人类的智力劳动进行 ...</blockquote>
 到这个规模的体量，如果还是现在这样的 Pro Max 版本的话，我觉得是不是可以考虑换个路线了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  自由之紫roy  
+##### 18171#       发表于 2026-10-25 22:59
+
+本地部署deepseek v4.1 flash 1017 的质量
+
+这两个都是maya-s跑的。单卡还是太吃力了。
+[https://realsquall1980-art.github.io/pelican-ride-3d/](https://realsquall1980-art.github.io/pelican-ride-3d/)
+[https://www.bilibili.com/video/BV1xVns6AEtP/#reply117487504988853](https://www.bilibili.com/video/BV1xVns6AEtP/#reply117487504988853)
+
+maya-s-dualgpu-1017-community-report-20261025.jpg
+(1.15 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 22:57 上传
+
+<img src="https://img.stage1st.com/forum/202610/25/225719vbhhbckbyrncyl0h.jpg" referrerpolicy="no-referrer">
+
+strata-dsv41-1017-gpu1-community-report-20261025.jpg
+(1.05 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 22:57 上传
+
+<img src="https://img.stage1st.com/forum/202610/25/225726k41668k8058358z5.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 18172#       发表于 2026-10-25 23:01
+
+[https://github.com/qwased/pi-vcc-codemode](https://github.com/qwased/pi-vcc-codemode)
+
+pi vcc在codemode有点问题，跟K3.1讨论了一下用大肥鱼执行魔改了一版
+
+有没有坛友试试，我测了一下，在codemode下应该比之前好用很多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
