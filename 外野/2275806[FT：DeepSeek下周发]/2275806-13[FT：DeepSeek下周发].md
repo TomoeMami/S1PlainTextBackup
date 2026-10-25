@@ -4514,3 +4514,25 @@ kimi code把主动subagent砍了，倒是额度耐用了不少
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  龙骑士尹志平  
+##### 18169#       发表于 2026-10-25 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421354&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-25 22:35</a>
+
+【Opus 5.5 vs Deepseek V4.1 Flash-1017 vs GPT 6 Astra vs Kimi K3.1 Pro-哔哩哔哩】 https://b23.tv/BV1 ...</blockquote>
+opus5.5和ds坐一桌，astra是真的强
+
+
+*****
+
+####  moekyo  
+##### 18170#       发表于 2026-10-25 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421135&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-25 21:34</a>
+
+抛开AGI和ASI这种模糊的概念不谈，如果Scaling Law不变，那么50-100T规模的模型就能对人类的智力劳动进行 ...</blockquote>
+到这个规模的体量，如果还是现在这样的 Pro Max 版本的话，我觉得是不是可以考虑换个路线了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
