@@ -3988,3 +3988,20 @@ DRAM我们现在已经稳定量产了，HBM还在攻关阶段性能和良率有�
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  qwased  
+##### 18121#       发表于 2026-10-25 15:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">qoder的免费K3.1用的好爽啊，300积分如水一样流走但是问题也解决了
+
+另外K3.1确实是非常吃多轮迭代的，多讨论几轮让他获取信息和发散，可以极大提升表现
+
+*****
+
+####  The_Ether_  
+##### 18122#       发表于 2026-10-25 15:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">困扰了我两周的有限元建模相关的问题，之前用5.6sol最高档四五个五小时最大额度都没搞定。昨天用1017，睡觉之前交了最后一版让它自己迭代，今天睡醒发现已经算好了，跟预期的结果比较接近。才花了opencodego10%的月额度，如果直接用官方api也才五六十
+
