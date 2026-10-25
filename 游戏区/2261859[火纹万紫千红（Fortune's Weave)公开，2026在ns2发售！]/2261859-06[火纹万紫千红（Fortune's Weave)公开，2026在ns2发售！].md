@@ -7582,3 +7582,13 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 干脆等DLC出齐了再删档重玩吧。万一有超难呢。
 
+
+*****
+
+####  Losange  
+##### 8107#       发表于 2026-10-25 20:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">不打第五区的寇恩是不完整的，巴罗尔可以不打寇恩关一定要体验，可以见到本作最畜生的的东西
+
+暗魔法第三部没啥大用，锁就锁了吧，只有三格魔法能上桌
+
