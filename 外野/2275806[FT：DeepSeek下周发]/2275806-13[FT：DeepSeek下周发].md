@@ -4069,3 +4069,31 @@ ocg的ds和官方的比智力差距大吗？</blockquote>
 
 ——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  The_Ether_  
+##### 18129#       发表于 2026-10-25 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420224&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-10-25 16:29</a>
+
+ocg的ds和官方的比智力差距大吗？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/25/164116idry7umkrn7f77fh.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>HVXlQajXoAAYc3m.jpeg</strong> (418.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 16:41 上传
+
+<img src="https://img.stage1st.com/forum/202610/25/164122rxycka92xt7vllaa.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>HVbMHaOXQAApHFO.jpeg</strong> (113.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 16:41 上传
+
+差距最大的貌似是TTFT，缓存命中率比官方的低不少
+
