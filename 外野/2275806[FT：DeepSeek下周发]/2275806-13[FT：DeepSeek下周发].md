@@ -4320,3 +4320,45 @@ DF41好像正在新的检查点灰测， svg画鹈鹕风格变了
 
 2026-10-25 19:03 上传
 
+
+*****
+
+####  frankCC  
+##### 18150#       发表于 2026-10-25 20:49
+
+看屎山挑战，原来opus后端那么区啊，我一直觉得现在这种用oneshot测能力越来越像苹果的宣发路径了，苹果把天赋全点在艺术创作一样，然后美其名曰生产力，但实际只不过是苹果的生产力只不过是一小部分，但这部分容易做视频展示，其他生产力很难量化展示。现在全在用oneshot来判断模型能力也是如此。
+
+
+*****
+
+####  静哮苍穹  
+##### 18151#       发表于 2026-10-25 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420928&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-25 20:40</a></blockquote>
+deepseek真🐂🍺
+
+
+*****
+
+####  奈落的孤火花  
+##### 18152#       发表于 2026-10-25 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420967&amp;ptid=2275806" target="_blank">frankCC 发表于 2026-10-25 20:49</a>
+
+看屎山挑战，原来opus后端那么区啊，我一直觉得现在这种用oneshot测能力越来越像苹果的宣发路径了，苹果把 ...</blockquote>
+gpt严谨所以防御，claude发散灵活所以不严谨。没办法。
+
+换fable来会好很多
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18153#       发表于 2026-10-25 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420967&amp;ptid=2275806" target="_blank">frankCC 发表于 2026-10-25 20:49</a>
+看屎山挑战，原来opus后端那么区啊，我一直觉得现在这种用oneshot测能力越来越像苹果的宣发路径了，苹果把 ...</blockquote>
+其实是肥鱼1017太强了，显得跟肥鱼一样钻石2轮王者3轮的opus5.5跟条蛆一样，如果换grok4.7来陪衬，就显得很牛逼了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
