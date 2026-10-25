@@ -3771,3 +3771,46 @@ kimi现在又被怼了，说3d建模会调用tripo 3D
 
 屎山挑战k3.1比astra多一轮干掉了王者，看来实力还是有的<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  云卷花开  
+##### 18103#       发表于 2026-10-25 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419844&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-25 14:12</a>
+kimi现在又被怼了，说3d建模会调用tripo 3D
+
+不过这个是kimi自己主页报告上说的</blockquote>
+某些贱畜在 dsf 上憋着一肚子呢，好容易有发泄口不得赶紧抓住
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  lactone  
+##### 18104#       发表于 2026-10-25 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419862&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-10-25 14:20</a>
+
+某些贱畜在 dsf 上憋着一肚子呢，好容易有发泄口不得赶紧抓住
+
+Re:Source</blockquote>
+kimi自己这次宣发也不地道
+
+现在的问题是，当年llama作弊的时候，人们只说meta畜，现在kimi自己宣发玩擦边，一帮人直接攻击整个国模群体
+
+
+*****
+
+####  cscbzcbz  
+##### 18105#       发表于 2026-10-25 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419847&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-25 14:14</a>
+【用王者BUG祭旗，Kimi K3.1打响国模反击第一枪｜屎山论剑-哔哩哔哩】 https://b23.tv/BV1j9Hu6CEMx
+
+屎山 ...</blockquote>
+看完了，kimi实力还是有的嘛
+然而我的关注点是1017和5.5，每次对也是一起对，错也是一起错，最后分也是一样的，好闺蜜<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
