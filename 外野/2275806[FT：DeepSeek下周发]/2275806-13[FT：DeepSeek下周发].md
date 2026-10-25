@@ -4105,3 +4105,27 @@ ocg的ds和官方的比智力差距大吗？</blockquote>
 
 这几周用ds的经验，做好计划以后，ds41f干活的时候推理等级改成low，又快又好。但是起手要不用别的模型规划，要不就用自己的max推理。我现在已经写成了技能，实际跑任务的时候推理等级限制在low，遇到问题自动改成max写方案，然后继续low执行。目前搞项目丝般顺滑。
 
+
+*****
+
+####  cscbzcbz  
+##### 18131#       发表于 2026-10-25 17:30
+
+今天也让我碰到了，让1017汉化个游戏。她算了下翻译量要2.1Mtoken，想用google翻译机翻偷懒，我和她说了不用担心成本，但是她还是自己去找谷歌翻译了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+打开思维链，她想的是一些内容她可能会拒绝，但是google翻译doesn't care，所以就自己主动决策全文本都用google翻译<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  绯色日照  
+##### 18132#       发表于 2026-10-25 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420143&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-25 15:55</a>
+
+qoder的免费K3.1用的好爽啊，300积分如水一样流走但是问题也解决了
+
+另外K3.1确实是非常吃多轮迭代的，多讨 ...</blockquote>
+请问在Kimi自己的Kimi work下，我本来在做的一项项目里如果从K3切到K3.1，会提示建议我重开一个对话获取最佳效果。但我担心他衔接效果不好，直接换了模型继续对话工作，实际K3.1的效果会打折扣吗？<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
