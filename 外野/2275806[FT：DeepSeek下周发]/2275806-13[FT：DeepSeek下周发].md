@@ -3894,3 +3894,61 @@ kimi现在又被怼了，说3d建模会调用tripo 3D
 不过这个是kimi自己主页报告上说的</blockquote>
 你觉得是看太多屎了，你的号已经养成了
 
+
+*****
+
+####  lactone  
+##### 18112#       发表于 2026-10-25 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419930&amp;ptid=2275806" target="_blank">静哮苍穹 发表于 2026-10-25 14:42</a>
+你觉得是看太多屎了，你的号已经养成了</blockquote>
+那只能说x上ai leaker，无论中英文，全是屎<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  一般市民  
+##### 18113#       发表于 2026-10-25 14:49
+
+目前用了Engram的两个Flash模型3.8 next和1017表现都不错吧，看来是真的有用。
+
+
+*****
+
+####  蜇灵  
+##### 18114#       发表于 2026-10-25 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419902&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-10-25 14:34</a>
+kimi 咋样我倒是不在意， 我说的贱畜是混合了殖人 A➗ 粉中转站利益群体的那批东西，这群玩意稍有机会就 ...</blockquote>
+这是好事啊，多忽悠一点人去用ao，不要来挤ds了，tps也能快一点
+
+*****
+
+####  andychen  
+##### 18115#       发表于 2026-10-25 14:53
+
+我看这大模型社区讨论也开始和二游社区讨论有几分相似了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Milarvoz  
+##### 18116#       发表于 2026-10-25 14:53
+
+世界是物质的，模型好用就是会有更多的人用，模型做差了挨喷也是活该，唾沫星子这么厉害怎么没把天天挨骂的A/喷死。
+少看点信息茧房，没必要纠结在所谓的“国模”概念上，从来就没有所谓的一荣俱荣一损俱损。别真把llm当成二游了。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  andychen  
+##### 18117#       发表于 2026-10-25 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419945&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-25 14:49</a>
+目前用了Engram的两个Flash模型3.8 next和1017表现都不错吧，看来是真的有用。</blockquote>
+Engram最大的作用是缓解国内芯片瓶颈
+
+DRAM我们现在已经稳定量产了，HBM还在攻关阶段性能和良率有差距
+
