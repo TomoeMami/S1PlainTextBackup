@@ -4039,3 +4039,33 @@ qoder的免费K3.1用的好爽啊，300积分如水一样流走但是问题也�
 
 1017有为了减轻消耗减少工具调用和判断的倾向，需要告知她不用在乎成本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 18126#       发表于 2026-10-25 16:29
+
+ocg的ds和官方的比智力差距大吗？
+
+
+*****
+
+####  squallx2  
+##### 18127#       发表于 2026-10-25 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420224&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-10-25 16:29</a>
+
+ocg的ds和官方的比智力差距大吗？</blockquote>
+之前的差距明显 1017目前感觉不大
+
+
+*****
+
+####  noneoneone  
+##### 18128#       发表于 2026-10-25 16:33
+
+说到二游，早7,8年前偶尔逛了下k岛的手游板块，当时应该有些国产二游已经在日榜登顶了，但对岸玩家对国产二游还是不屑一顾，提到就是大陆凭什么和日本人比二次元，完全是自找死路。
+还真有点像现在这个味道。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
