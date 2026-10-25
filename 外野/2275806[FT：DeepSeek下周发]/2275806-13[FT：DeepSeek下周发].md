@@ -4259,3 +4259,18 @@ jio的话可能会被限额，现在我只能每天聊大概30轮了<img src="ht
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  冤枉呐  
+##### 18144#       发表于 2026-10-25 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420542&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-10-25 18:34</a>
+你你你，你问我吗
+
+我没遇到短信验证，所以我不知道，我的都是老乌龟账号。Pro订阅不提供api，agy反代我也 ...</blockquote>
+agy给我搞定了但是jio不能用argon
+抠的哦Google
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
