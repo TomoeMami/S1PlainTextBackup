@@ -4494,3 +4494,13 @@ GPT做文档撰写和维护很容易犯边界过多，措辞过严的问题，�
 
 甚至自带防截断，我的酒馆相关已经全换成这个了
 
+
+*****
+
+####  Promeus  
+##### 18167#       发表于 2026-10-25 22:35
+
+【Opus 5.5 vs Deepseek V4.1 Flash-1017 vs GPT 6 Astra vs Kimi K3.1 Pro-哔哩哔哩】 https://b23.tv/BV1HDHV6wEUS
+
+有个不太对的混进去了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
