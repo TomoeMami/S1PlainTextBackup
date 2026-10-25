@@ -4504,3 +4504,13 @@ GPT做文档撰写和维护很容易犯边界过多，措辞过严的问题，�
 
 有个不太对的混进去了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 18168#       发表于 2026-10-25 22:43
+
+kimi code把主动subagent砍了，倒是额度耐用了不少
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
