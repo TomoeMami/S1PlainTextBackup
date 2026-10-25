@@ -4640,3 +4640,31 @@ https://cdn.sta1n.cn/
 甚至自带防截断，我的酒馆相关已经全换成这个了</blockquote>
 请教一下酒馆搞瑟瑟推荐用的哪个模型，性价比高点的，我指的这个网址里的
 
+
+*****
+
+####  浪子龙飞z  
+##### 18177#       发表于 2026-10-26 00:07
+
+<blockquote>Promeus 发表于 2026-10-25 22:35
+【Opus 5.5 vs Deepseek V4.1 Flash-1017 vs GPT 6 Astra vs Kimi K3.1 Pro-哔哩哔哩】 https://b23.tv/BV1 ...</blockquote>
+
+据说你告诉它预算无上限不用省token，会有提升，没实测但貌似有实例
+
+*****
+
+####  The_Ether_  
+##### 18178#       发表于 2026-10-26 00:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">dsh现在不能读取程序的实际截图只能读取模型信息，导致不同部件接触面的理解有问题，只能手动设置，不过其他方面可以直接许愿让它解决了。我日常工作已经完全胜任，和6.1sol不相上下。 翻了下账单，从24年1月到现在已经连续订阅快3年多chatgpt，现在可以停了。
+
+
+*****
+
+####  xuanwu_lei  
+##### 18179#       发表于 2026-10-26 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421452&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-25 22:57</a>
+到这个规模的体量，如果还是现在这样的 Pro Max 版本的话，我觉得是不是可以考虑换个路线了 ...</blockquote>
+拿这个规模的大模型作为教师，蒸出来对应各领域的RWKV呗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
