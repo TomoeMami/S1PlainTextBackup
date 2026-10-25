@@ -4229,3 +4229,21 @@ jio的话可能会被限额，现在我只能每天聊大概30轮了<img src="ht
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  knnknn  
+##### 18142#       发表于 2026-10-25 18:34
+
+<blockquote>冤枉呐 发表于 2026-10-25 17:59
+用了个次新号，申请改区到美国成功，jio成功
+
+但是，这个玩意能干啥呢
+
+好像api必须反代出来？我下载了反重 ...</blockquote>
+你你你，你问我吗<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+我没遇到短信验证，所以我不知道，我的都是老乌龟账号。Pro订阅不提供api，agy反代我也停留在听说过的程度，我拿agy直接写代码的。
+
+所以我一个Argon task是23~24%的五小时额度的，真的有人一次5%的吗
+
