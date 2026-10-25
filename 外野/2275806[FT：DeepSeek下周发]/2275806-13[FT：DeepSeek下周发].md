@@ -4129,3 +4129,62 @@ qoder的免费K3.1用的好爽啊，300积分如水一样流走但是问题也�
 另外K3.1确实是非常吃多轮迭代的，多讨 ...</blockquote>
 请问在Kimi自己的Kimi work下，我本来在做的一项项目里如果从K3切到K3.1，会提示建议我重开一个对话获取最佳效果。但我担心他衔接效果不好，直接换了模型继续对话工作，实际K3.1的效果会打折扣吗？<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 18133#       发表于 2026-10-25 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420394&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-10-25 17:36</a>
+
+请问在Kimi自己的Kimi work下，我本来在做的一项项目里如果从K3切到K3.1，会提示建议我重开一个对话获取 ...</blockquote>
+会有干扰，建议写交接或者让新模型压缩一下上下文再继续
+
+*****
+
+####  洛拉斯  
+##### 18134#       发表于 2026-10-25 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420378&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-25 17:30</a>
+
+今天也让我碰到了，让1017汉化个游戏。她算了下翻译量要2.1Mtoken，想用google翻译机翻偷懒，我和她说了不 ...</blockquote>
+我也遇到过类似问题，小鲸鱼有时候觉得自己做翻译太浪费了，经常调用工具解决
+
+不过那次她拉了个网页版qwen，把mod的本地化文件丢进去，然后读结果
+
+
+*****
+
+####  十个印地男孩  
+##### 18135#       发表于 2026-10-25 17:42
+
+求教下，我把deepseek网页端的账户退了重登提示我 检测到设备风险，暂时无法登录 这是怎么一回事？我还特意用邮箱验证改了密码
+
+神奇的是手机端反而可以登的上
+
+
+*****
+
+####  巨魔型美羽  
+##### 18136#       发表于 2026-10-25 17:45
+
+单位离线部署的ds只能用网页对话，有什么办法把它转成api让我蹬吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andychen  
+##### 18137#       发表于 2026-10-25 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420378&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-10-25 17:30</a>
+今天也让我碰到了，让1017汉化个游戏。她算了下翻译量要2.1Mtoken，想用google翻译机翻偷懒，我和她说了不 ...</blockquote>
+强烈不推荐用ds4.1f做翻译工作
+想要便宜大碗的翻译模型去PC区搞那个便宜google套餐，然后反代gemini3.8f。性价比爆棚
+
+*****
+
+####  飞剪号  
+##### 18138#       发表于 2026-10-25 17:47
+
+倾向于减少token消耗，换句话不就是懒吗，你这肥鱼！
+
