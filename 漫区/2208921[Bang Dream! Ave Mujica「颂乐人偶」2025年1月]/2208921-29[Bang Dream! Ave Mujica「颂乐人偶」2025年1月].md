@@ -4094,3 +4094,163 @@ X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
 
        [https://x.com/sasakirico/status/2114192252469907537](https://x.com/sasakirico/status/2114192252469907537)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42166#       发表于 2026-10-25 18:13
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/25/181324j537vpf8nwp9szhy.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-25_18-12-54.png</strong> (523.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 18:13 上传
+
+       [https://x.com/bang_dream_info/status/2114297779753521574](https://x.com/bang_dream_info/status/2114297779753521574)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42167#       发表于 2026-10-25 18:14
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/25/181403kkfe6nnz6d3nnke8.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-25_18-13-42.png</strong> (350.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 18:14 上传
+
+       [https://x.com/bang_dream_info/status/2114297862507127162](https://x.com/bang_dream_info/status/2114297862507127162)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42168#       发表于 2026-10-25 18:17
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/25/181643zllcnxbbpeaf6ahr.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-25_18-14-18.png</strong> (226.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 18:16 上传
+
+       [https://x.com/bang_dream_info/status/2114297993759465704](https://x.com/bang_dream_info/status/2114297993759465704)
+
+       [https://www.youtube.com/watch?v=RL0kTGdR_4M](https://www.youtube.com/watch?v=RL0kTGdR_4M)
+
+       <strong>TV动画「BanG Dream! MyGO!!!!! // Ave Mujica」先导PV第2弹 Side Ave Mujica</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/25/181643qsv3v3av10w50sr1.png" referrerpolicy="no-referrer">
+
+<strong>f57025fc8da46ab14a309aa3fdb19eddab090b4b.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 18:16 上传
+
+☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽
+
+すべて神の手に委ねられている
+
+☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽•✦•☽
+
+TV动画「BanG Dream! MyGO!!!!! // Ave Mujica」先导PV第2弹 Side Ave Mujica 正式公开。
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+TV动画「BanG Dream! MyGO!!!!! // Ave Mujica」
+
+日本电视台「FRIDAY ANIME NIGHT（フラアニ）」时段
+
+2027/1/8(周五)日本时间23:30正式播出📺
+
+详情：[https://anime.bang-dream.com/mygo-avemujica/](https://anime.bang-dream.com/mygo-avemujica/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+2027年5月29日(周六)・30日(周日)
+
+Ave Mujica 8th LIVE「Discrimen Fati」
+
+Kアリーナ横浜 
+
+至今为止最大规模的单独公演2DAYS。
+
+最速先行抽选券封入于Ave Mujica mini Album「神の名を」的「初回生産分」中。
+
+详情：[https://bang-dream.com/events/avemujica_8th/](https://bang-dream.com/events/avemujica_8th/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+剧场版「BanG Dream! Ave Mujica prima aurora」
+
+上映中！
+
+详情：[https://avemujica-movie.bang-dream.com/](https://avemujica-movie.bang-dream.com/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica mini Album「神の名を」
+
+好评发售中！
+
+收录了剧场版「BanG Dream! Ave Mujica prima aurora」的全4首插曲。
+
+详情：[https://bang-dream.com/discographies/4238/](https://bang-dream.com/discographies/4238/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+MyGO!!!!! 9th Single「世点彩（Sepia）」
+
+2026年11月11日(周三)发售
+
+「Blu-ray付生産限定盤」中将会封入2026年7月举办的MyGO!!!!! 9th LIVE「つなぎ目の向こうに」两日的影像。
+
+详情：[https://bang-dream.com/discographies/4236/](https://bang-dream.com/discographies/4236/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+新手游「BanG Dream! Our Notes」
+
+正式上线！
+
+详情：[https://bdon.biligames.com/?lang=zh-cn](https://bdon.biligames.com/?lang=zh-cn)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+✦・━━━━━━━━━━━━━━━ ・✦⁡⁡
+
+◇バンドリ！
+
+公式サイト：[https://bang-dream.com/](https://bang-dream.com/)
+
+公式X：[https://x.com/bang_dream_info](https://x.com/bang_dream_info)
+
+◇Ave Mujica
+
+公式YouTubeチャンネル：[https://www.youtube.com/channel/UCrWC59UUMETuCp9IYUdjVbg](https://www.youtube.com/channel/UCrWC59UUMETuCp9IYUdjVbg)
+
+公式X：[https://x.com/BDP_AveMujica](https://x.com/BDP_AveMujica)
+
+◇MyGO!!!!!
+
+公式YouTubeチャンネル：
+[https://youtube.com/@bang_dream_mygo?si=QE0KlgFkDwBV-VSn](https://youtube.com/@bang_dream_mygo?si=QE0KlgFkDwBV-VSn)
+
+公式X：[https://x.com/bang_dream_mygo](https://x.com/bang_dream_mygo)
+
+✦・━━━━━━━━━━━━━━━ ・✦⁡⁡"</blockquote>
+       [https://www.bilibili.com/video/BV1KWH56zEgV](https://www.bilibili.com/video/BV1KWH56zEgV)
+
