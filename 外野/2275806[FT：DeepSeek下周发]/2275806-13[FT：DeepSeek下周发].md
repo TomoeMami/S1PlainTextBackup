@@ -4433,3 +4433,32 @@ opus的前端审美真不是吹的，但后端我感觉比1017强的有限。opu
 
 2026-10-25 21:15 上传
 
+
+*****
+
+####  andychen  
+##### 18161#       发表于 2026-10-25 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421067&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-10-25 21:15</a>
+
+傻逼GPT 天天和他的防御措辞搏斗</blockquote>
+GPT做文档撰写和维护很容易犯边界过多，措辞过严的问题，尤其是没有给它明确指示的时候
+
+我现在主要用Argon进行这些工作，GPT还是更适合作为执行者
+
+
+*****
+
+####  平昭·南宫司卿  
+##### 18162#       发表于 2026-10-25 21:21
+
+话是一回事，但绝大部分用户哪有什么需求非要磕 astra 这个上限的，觉得 claude 家族更好很正常很容易理解啊
+
+
+*****
+
+####  一般市民  
+##### 18163#       发表于 2026-10-25 21:24
+
+看投票贴，S1码农用AI的没有略懂和不懂的多，所以模型实现许愿的能力还是很受非码农欢迎的。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
