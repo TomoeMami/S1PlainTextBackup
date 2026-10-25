@@ -4457,3 +4457,19 @@ hypervisior版也剛出現
 
 有个缺点就是居然没做怪物图鉴，明明有不少精英怪都有独特偷盗物来着。b站看人做了个mod，不知道能不能移植到ns上
 
+
+*****
+
+####  新HGCG  
+##### 432#       发表于 2026-10-25 17:25
+
+联邦的黑色恶魔什么鬼
+
+<img src="https://img.stage1st.com/forum/202610/25/172355o6z3wt3n9w13jqde.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-25 17:23 上传
+
