@@ -4362,3 +4362,50 @@ gpt严谨所以防御，claude发散灵活所以不严谨。没办法。
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  他们都是啥b  
+##### 18154#       发表于 2026-10-25 20:58
+
+话说 1017 是真会节省, 写了个上下文预算监测插件, 以前快撞上了也是老老实实等压缩, 现在直接强停了, 子代理直接说我做不完了交接给父代理继续做, 反正就是不压缩.
+
+
+*****
+
+####  真红之闪电  
+##### 18155#       发表于 2026-10-25 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420328&amp;ptid=2275806" target="_blank">艾诺琳 发表于 2026-10-25 17:11</a>
+
+这几周用ds的经验，做好计划以后，ds41f干活的时候推理等级改成low，又快又好。但是起手要不用别的模型规划 ...</blockquote>
+老哥求个skill参考下
+
+*****
+
+####  有鱼  
+##### 18156#       发表于 2026-10-25 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420967&amp;ptid=2275806" target="_blank">frankCC 发表于 2026-10-25 20:49</a>
+
+看屎山挑战，原来opus后端那么区啊，我一直觉得现在这种用oneshot测能力越来越像苹果的宣发路径了，苹果把 ...</blockquote>
+opus确实过誉了，但是屎山的测试方式其实是放大了Astra的优势：做题和推理深度。
+
+*****
+
+####  andychen  
+##### 18157#       发表于 2026-10-25 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420967&amp;ptid=2275806" target="_blank">frankCC 发表于 2026-10-25 20:49</a>
+
+看屎山挑战，原来opus后端那么区啊，我一直觉得现在这种用oneshot测能力越来越像苹果的宣发路径了，苹果把 ...</blockquote>
+真的用模型进行实际工程开发的人都知道oneshot纯看个乐
+
+
+*****
+
+####  蛋黄酱Release  
+##### 18158#       发表于 2026-10-25 21:05
+
+opus的前端审美真不是吹的，但后端我感觉比1017强的有限。opus5.5写的plan和review交给1017基本都能挑出来很多错。astra这方面就好很多，但gpt祖传的究极防御编程又太恶心了
+
