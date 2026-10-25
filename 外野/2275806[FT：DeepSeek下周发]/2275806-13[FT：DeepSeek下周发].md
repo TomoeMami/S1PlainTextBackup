@@ -3814,3 +3814,58 @@ kimi自己这次宣发也不地道
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  云卷花开  
+##### 18106#       发表于 2026-10-25 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419863&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-25 14:21</a>
+kimi自己这次宣发也不地道
+
+现在的问题是，当年llama作弊的时候，人们只说meta畜，现在kimi自己宣发玩擦 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">kimi 咋样我倒是不在意， 我说的贱畜是混合了殖人 A➗ 粉中转站利益群体的那批东西，这群玩意稍有机会就想跳出来定调踩头，如前段时间所谓国模二游化节奏一般，这种东西在泥潭都不在少数，只是纪律性极好逆风不出头而已
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  绯色日照  
+##### 18107#       发表于 2026-10-25 14:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">原来在跑K3 极致的，现在推荐改成K3.1PRO 极致吗？消耗差多少？有大佬指点下不
+
+
+*****
+
+####  zhongjie  
+##### 18108#       发表于 2026-10-25 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419903&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-10-25 14:35</a>
+
+原来在跑K3 极致的，现在推荐改成K3.1PRO 极致吗？消耗差多少？有大佬指点下不 ...</blockquote>
+我看测试，基本上消耗是降低的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 绯色日照 + 1好评加鹅
+
+查看全部评分
+
+*****
+
+####  绯色日照  
+##### 18109#       发表于 2026-10-25 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419905&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-10-25 14:36</a>
+
+我看测试，基本上消耗是降低的</blockquote>
+感谢，我看前面坛友的发言，K3.1能力较K3是稍微提升了点吧？
+
