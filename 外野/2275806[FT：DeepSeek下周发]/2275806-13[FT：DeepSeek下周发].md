@@ -6597,3 +6597,15 @@ terra感觉打不过1017
 
 大炼小我理解，自己炼自己不合理啊。
 
+
+*****
+
+####  木谷高明  
+##### 18343#       发表于 2026-10-27 05:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426904&amp;ptid=2275806" target="_blank">AraTurambar 发表于 2026-10-27 05:11</a>
+不是，RL这个路径怎么能用合成数据自己炼自己呢？
+
+大炼小我理解，自己炼自己不合理啊。 ...</blockquote>
+OpenAI那个沙盒逃逸就是，把一堆智能体关在独立的沙盒里，让他们解决问题，能解决的就留下，作为新训练材料，本质抽卡。
+
