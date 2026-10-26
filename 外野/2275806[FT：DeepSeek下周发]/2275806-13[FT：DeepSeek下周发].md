@@ -5784,3 +5784,33 @@ bro是不是有什么错觉，0813之前v4更新是4月份的事情，大参数�
 等Strata再优化下 ...</blockquote>
 资源放谷歌盘可以直接加载吧
 
+
+*****
+
+####  bartholo4  
+##### 18274#       发表于 2026-10-26 17:44
+
+其实在大模型这个赛道上，知道能做出来后再追赶依然是最高效的
+再追的过程中开源还能加快进度
+顶尖模型现在来看哪怕有规模效应，硬件基础也不会从地里长出来，所以并不会有什么奇点时刻
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  弗里德里希大帝  
+##### 18275#       发表于 2026-10-26 17:44
+
+网页版Genimi4a的额度烧的也太快了吧，才几轮对话就没额度了
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  lubo  
+##### 18276#       发表于 2026-10-26 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425158&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-26 17:37</a>
+资源放谷歌盘可以直接加载吧</blockquote>
+网盘太慢了，不到40MB/s，直接下载快4倍
+
