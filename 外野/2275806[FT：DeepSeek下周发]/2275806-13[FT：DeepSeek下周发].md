@@ -4789,3 +4789,21 @@ sol差距不大而且容易过度设计给你塞满门禁 astra明显强一截 �
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Milarvoz  
+##### 18190#       发表于 2026-10-26 08:31
+
+kimi这发个重置也扣扣嗖嗖的，只给补偿月额度的25％。还煞有介事的发个公告。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  Promeus  
+##### 18191#       发表于 2026-10-26 08:36
+
+Kimi也是真没算力<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不知道牢扬上次进京干啥了，不会真就当去听个座谈会吧
+
