@@ -8281,3 +8281,15 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 有人去挖了数据，dlc追加的角色不少。。。。。。
 
+
+*****
+
+####  Humpy  
+##### 8168#       发表于 2026-10-26 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426141&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-10-26 22:04</a>
+有人去挖了数据，dlc追加的角色不少。。。。。。</blockquote>
+除了那几个神和dlc四主角队外还有？
+
+不会是某些反派也能加入吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

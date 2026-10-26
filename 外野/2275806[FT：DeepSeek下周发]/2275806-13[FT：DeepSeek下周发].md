@@ -6318,3 +6318,24 @@ anthropic正式提交了S-1，进入IPO冲刺阶段。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没有长期合同之前还一直用 arr
 
+
+*****
+
+####  diohanmilton  
+##### 18318#       发表于 2026-10-26 22:14
+
+a畜招股书发了。
+
+另外用百度搭子写过一个调查。[https://mp.weixin.qq.com/s?__biz ... 329#wechat_redirect](https://mp.weixin.qq.com/s?__biz=Mzg3MTUxMzI4OQ==&amp;mid=2247484180&amp;idx=1&amp;sn=01583928b75bb7f6e9efbec89254cb75&amp;chksm=cefc2eb2f98ba7a4f396cbfdc55e943826f877045b029f8838d00d005e36487378c757115d23&amp;scene=329#wechat_redirect)
+
+目前看融资规模，ds比其他三家要大一个数量级，资本市场对它信心很足。
+
+我觉得将来要过盈利线，也是ds先过，到时候美国那些泡沫爆了是什么样子就好看了。
+
+*****
+
+####  拯救节操希灵宅  
+##### 18319#       发表于 2026-10-26 22:15
+
+A/要上市了，ds会不会把内部大模限量地放出来狙击一下fable5.5
+
