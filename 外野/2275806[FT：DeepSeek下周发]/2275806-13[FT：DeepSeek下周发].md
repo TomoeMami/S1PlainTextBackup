@@ -6564,3 +6564,13 @@ luna更加尴尬了<img src="https://static.stage1st.com/image/smiley/face2017/0
 
 当deepseek4pro和gpt6跟我用同样的句式开头 最后使用一摸一样的emoji 我就知道 ai泡沫要炸了 这是真傻吧
 
+
+*****
+
+####  qwased  
+##### 18340#       发表于 2026-10-27 04:31
+
+qoder里面的opus55好像是他们远程调用的，思考块里面会冒出莫名其妙的虚空工具调用，还说自己很有收获
+
+阿里真牛逼吧
+
