@@ -4933,3 +4933,13 @@ https://cdn.sta1n.cn/
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lactone  
+##### 18203#       发表于 2026-10-26 10:08
+
+qwen4 27b的id出现了
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

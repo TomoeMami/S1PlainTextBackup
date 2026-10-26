@@ -2418,3 +2418,19 @@ ult武装还是不错，变形也能用，红蛇弱点没了
 
 目前环境不可能30W
 
+
+*****
+
+####  gpx234mqx  
+##### 4919#       发表于 2026-10-26 10:13
+
+限定称号别忘记拿
+
+<img src="https://img.stage1st.com/forum/202610/26/101326kx4v1cqpq4qsszuv.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9564.png</strong> (812.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 10:13 上传
+
