@@ -6310,3 +6310,11 @@ anthropic正式提交了S-1，进入IPO冲刺阶段。
 
 但那7500亿都是类似的SPV，除非A/把coding plan卖给地球上的每只老鼠，否则这窟窿怎么也填不上了...
 
+
+*****
+
+####  御坂MKII  
+##### 18317#       发表于 2026-10-26 21:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没有长期合同之前还一直用 arr
+
