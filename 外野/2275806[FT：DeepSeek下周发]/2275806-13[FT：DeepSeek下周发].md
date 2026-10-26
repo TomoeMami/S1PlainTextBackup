@@ -5171,3 +5171,15 @@ kimi现在最重要的就是得把提示缓存保存时间给拉长，否则根�
 论坛助手,iPhone</blockquote>
 要的，肯定不会自带破甲的，这个只是防截断
 
+
+*****
+
+####  bartholo4  
+##### 18220#       发表于 2026-10-26 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70423307&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-26 11:26</a>
+kimi现在这样不行，那些闭源sota用的人多，用户数据就多，蒸馏用户数据，数据飞轮都能转的飞快，能力提升自 ...</blockquote>
+你这么一说就应该 Kimi 和 DeepSeek 官方联动，直接把 DeepSeek 接到客户端里做默认子代理
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
