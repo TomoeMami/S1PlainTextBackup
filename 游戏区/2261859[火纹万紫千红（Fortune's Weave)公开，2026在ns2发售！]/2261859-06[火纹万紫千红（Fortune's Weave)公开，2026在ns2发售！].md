@@ -8293,3 +8293,16 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 不会是某些反派也能加入吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 8169#       发表于 2026-10-26 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426160&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-10-26 22:11</a>
+
+除了那几个神和dlc四主角队外还有？
+
+不会是某些反派也能加入吧</blockquote>
+就那俩人，还有一个值得注意的人，他的名字没在正片出现过。
+
