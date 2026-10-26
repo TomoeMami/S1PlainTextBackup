@@ -7902,3 +7902,13 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 可能吗？他是凯线重要角色，阿猫阿狗都没忘，能把他忘了。</blockquote>
 这不简单。这个角色是最后才决定做成自机就给忘了呗
 
+
+*****
+
+####  DancingAndy  
+##### 8134#       发表于 2026-10-26 12:32
+
+打马哈杜哈，那个友军重甲直接踩瘴气被劈死了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">感觉有点难救不回溯了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

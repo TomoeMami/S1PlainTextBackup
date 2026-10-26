@@ -4738,3 +4738,14 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 —— 来自 HONOR AAK-AN00, Android 17, 鹅球 v3.5.99-alpha</blockquote>
 还挺有用。。。那晚上还是去收了w<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  diectt  
+##### 458#       发表于 2026-10-26 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421467&amp;ptid=2283081" target="_blank">Evilgurren 发表于 2026-10-25 23:01</a>
+
+有wiki网站吗，好多精英不知道伤害类型，试错成本有点高</blockquote>
+其实不用试，克劳德有个技能是分析，带着这个技能开头用一下就行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
