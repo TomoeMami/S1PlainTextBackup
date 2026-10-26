@@ -8306,3 +8306,49 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 不会是某些反派也能加入吧</blockquote>
 就那俩人，还有一个值得注意的人，他的名字没在正片出现过。
 
+
+*****
+
+####  纪寞  
+##### 8170#       发表于 2026-10-26 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426214&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-10-26 22:23</a>
+
+就那俩人，还有一个值得注意的人，他的名字没在正片出现过。</blockquote>
+不会连岩进也能进队吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  巴尔干炮  
+##### 8171#       发表于 2026-10-26 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426234&amp;ptid=2261859" target="_blank">纪寞 发表于 2026-10-26 22:28</a>
+
+不会连岩进也能进队吧</blockquote>
+目前不能确定是DLC还是残留数据，只知道的是另外4个主角也有方尖碑和小金人，当然这都是玩家意料之中的。
+
+*****
+
+####  Humpy  
+##### 8172#       发表于 2026-10-26 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426214&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-10-26 22:23</a>
+就那俩人，还有一个值得注意的人，他的名字没在正片出现过。</blockquote>
+所有角色包括路人的对话里也没提到过？那我倒真开始好奇了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lbj5454  
+##### 8173#       发表于 2026-10-26 22:37
+
+迪哥这次可以压倒屠夫成为FE最强主角了吧
+
+*****
+
+####  Jabeck  
+##### 8174#       发表于 2026-10-26 22:37
+
+我只想知道君子兰夫人能用吗？
+

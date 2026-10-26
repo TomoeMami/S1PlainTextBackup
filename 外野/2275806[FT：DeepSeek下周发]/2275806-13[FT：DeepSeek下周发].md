@@ -6352,3 +6352,16 @@ A/要上市了，ds会不会把内部大模限量地放出来狙击一下fable5.
 
 公开能获取的人类语料已经耗尽了，去年还讨论过专有数据价值的问题，今年也没见多少后续。估计前沿实验室已经得出结论使用合成数据已经足够让模型性能继续提高
 
+
+*****
+
+####  绯色日照  
+##### 18321#       发表于 2026-10-26 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426054&amp;ptid=2275806" target="_blank">谎称 发表于 2026-10-26 21:44</a>
+
+补偿了500积分……
+
+至于用的积分，我是没见到……</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">啊这，我还指望这点积分撑过月底。。。
+

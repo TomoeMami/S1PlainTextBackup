@@ -5015,3 +5015,16 @@ cloud自回+洋葱3倍按一下就涨不少了吧，还有用完奥义自回20�
 
 我看b站有人发过无限奥义循环的
 
+
+*****
+
+####  diectt  
+##### 479#       发表于 2026-10-26 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424919&amp;ptid=2283081" target="_blank">kokyou 发表于 2026-10-26 16:46</a>
+
+说起来这个XX者就是FF13开始的那个什么B（破坏）、D（防卫）HJ等等那一套吧
+
+所以雷霆姐什么时候能收到啊， ...</blockquote>
+火帝国这章结束，下一章就有雷霆了
+
