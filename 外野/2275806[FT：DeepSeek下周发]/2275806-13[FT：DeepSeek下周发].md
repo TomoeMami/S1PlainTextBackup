@@ -5907,3 +5907,66 @@ ds4类模型prefill性能不重要的，缓存命中率太高了，在我自己�
 
 等下，不是说的明年5-10T么，怎么规模一下子变成50-100T了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18286#       发表于 2026-10-26 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425393&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-10-26 18:43</a>
+等下，不是说的明年5-10T么，怎么规模一下子变成50-100T了</blockquote>
+楼友说的应该是提供给社会的推理服务等效的算力，不是模型参数吧
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  startraveller  
+##### 18287#       发表于 2026-10-26 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425389&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-26 18:41</a>
+另外好像在谣传arena那个kalmia是qwen4-27b，也不知道从哪知道的</blockquote>
+如果27b就有那个能力，达里奥该瘫坐不起了
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  qwased  
+##### 18288#       发表于 2026-10-26 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425393&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-10-26 18:43</a>
+
+等下，不是说的明年5-10T么，怎么规模一下子变成50-100T了</blockquote>
+目前跟业内聊的消息是国内有人投了大钱搞模型烧到芯片上那条路，现在已经跑通K3+fpga加速
+
+等明年模型能力进入平台期，加上专用芯片加速，推理服务能力有希望大幅提升
+
+
+*****
+
+####  lactone  
+##### 18289#       发表于 2026-10-26 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425442&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-26 18:52</a>
+目前跟业内聊的消息是国内有人投了大钱搞模型烧到芯片上那条路，现在已经跑通K3+fpga加速
+
+等明年模型能力 ...</blockquote>
+这不回到矿机时代了吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  andychen  
+##### 18290#       发表于 2026-10-26 18:56
+
+ 本帖最后由 andychen 于 2026-10-26 18:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425393&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-10-26 18:43</a>
+
+等下，不是说的明年5-10T么，怎么规模一下子变成50-100T了</blockquote>
+OA的Astra和Fable已经是5-10T等级了。国内实验室上半年发的模型也已经是2-4T规模的，年底如果要更新旗舰模型必定是5T以上参数
+
+去年到今年旗舰模型规模翻了10倍。如果明年规模提升速度不减缓，到年底基本就要达到50-100T规模
+
