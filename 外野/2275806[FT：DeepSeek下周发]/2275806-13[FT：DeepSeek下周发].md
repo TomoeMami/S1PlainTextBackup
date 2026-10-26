@@ -6133,3 +6133,25 @@ Re:Source ...</blockquote>
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  GJRstone  
+##### 18304#       发表于 2026-10-26 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425449&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-26 18:55</a>
+这不回到矿机时代了吗
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+主要是商业模型能不能跑通，固定模型固定harness固定agent固定方法论，能否稳定提供代替某种专用功能。
+就比如对ds4p的需求，世界知识更好就是会有更多的需求，能在五年周期长期供给这个需求的话，完全可以固化当前使用的模型。
+
+说实话，以目前ai大炼世界知识的场景，人类目前成文总结下来的知识应该已经烧到瓶颈期了
+
+*****
+
+####  Promeus  
+##### 18305#       发表于 2026-10-26 19:31
+
+你美最大的问题是别被民主党上来把数据中心灭了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
