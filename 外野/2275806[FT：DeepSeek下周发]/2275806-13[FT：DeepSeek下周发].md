@@ -5814,3 +5814,14 @@ bro是不是有什么错觉，0813之前v4更新是4月份的事情，大参数�
 资源放谷歌盘可以直接加载吧</blockquote>
 网盘太慢了，不到40MB/s，直接下载快4倍
 
+
+*****
+
+####  love4aids  
+##### 18277#       发表于 2026-10-26 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425145&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-10-26 17:34</a>
+
+前面的屎山代码里opus早就和哈吉米4坐一桌了，被astra大人和他小弟sol大人揍得屁滚尿流，现在和大肥鱼坐一 ...</blockquote>
+大部分是中转站，我抖音刷到opus5.5秒杀Astra，下面评论都会有中转站的评论。毕竟中转站a出的模型最挣钱，gpt便宜大碗，opus最贵的
+

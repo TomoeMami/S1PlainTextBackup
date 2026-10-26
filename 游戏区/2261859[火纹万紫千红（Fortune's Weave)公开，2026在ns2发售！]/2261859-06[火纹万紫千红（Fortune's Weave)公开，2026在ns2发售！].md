@@ -8144,3 +8144,14 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 还是看他送死了
 
+
+*****
+
+####  nancygreenlife  
+##### 8156#       发表于 2026-10-26 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425056&amp;ptid=2261859" target="_blank">エリ 发表于 2026-10-26 17:17</a>
+
+这逼是真的难崩，又菜又爱冲，强度还不如他带的三个无名重甲杂兵，回溯救了他三四次，每次还能开欧若拉才 ...</blockquote>
+这关一开始不是有个敌方弓手在这伙人附近吗？别杀那个弓箭手，能争取好几个回合，只能说IS故意在那放个弓手不是没理由的
+
