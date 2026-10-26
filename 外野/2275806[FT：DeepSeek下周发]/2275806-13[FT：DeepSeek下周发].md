@@ -6032,3 +6032,54 @@ OA的Astra和Fable已经是5-10T等级了。国内实验室上半年发的模型
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wjxforever  
+##### 18296#       发表于 2026-10-26 19:09
+
+照这么说，后年就是500t-1000t的模型了。刻舟求剑也要有个限度
+
+
+*****
+
+####  andychen  
+##### 18297#       发表于 2026-10-26 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425490&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-26 19:03</a>
+
+到没到平台得看用什么标准
+
+如果用说人话标准，平台都回去了</blockquote>
+这个问题恰恰说明了更大参数模型的优势
+
+要把Agentic Coding能力训上去，小参数模型对其他能力的牺牲明显比大参数模型要大得多
+
+*****
+
+####  sellboy  
+##### 18298#       发表于 2026-10-26 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425442&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-26 18:52</a>
+
+目前跟业内聊的消息是国内有人投了大钱搞模型烧到芯片上那条路，现在已经跑通K3+fpga加速
+
+等明年模型能力 ...</blockquote>
+用6nm固化Llama 3.1 8B的Taalas HC1，面积是815 mm²。
+
+K3的权重？怕不是一整12寸张晶圆都给了还不够。
+
+
+*****
+
+####  andychen  
+##### 18299#       发表于 2026-10-26 19:12
+
+ 本帖最后由 andychen 于 2026-10-26 19:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425511&amp;ptid=2275806" target="_blank">wjxforever 发表于 2026-10-26 19:09</a>
+
+照这么说，后年就是500t-1000t的模型了。刻舟求剑也要有个限度</blockquote>
+那要看硬件规模允不允许，训练方法能不能继续进步，还有服务能力能不能跟上。就目前的迹象来看，到100T这个规模目前没有明显障碍
+
+对于前沿实验室来说，只要Scaling Law没有放缓的迹象肯定是千方百计追求扩大规模
+
