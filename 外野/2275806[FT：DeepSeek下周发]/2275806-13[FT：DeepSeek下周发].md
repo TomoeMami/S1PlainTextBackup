@@ -6155,3 +6155,13 @@ Re:Source ...</blockquote>
 
 你美最大的问题是别被民主党上来把数据中心灭了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noneoneone  
+##### 18306#       发表于 2026-10-26 19:50
+
+我不懂瞎问，如果大模型固化到FPGA上了，还需要配大量内存颗粒吗
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
