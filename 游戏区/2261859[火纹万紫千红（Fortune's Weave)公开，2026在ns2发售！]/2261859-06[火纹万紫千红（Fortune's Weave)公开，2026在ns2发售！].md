@@ -7933,3 +7933,36 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 程序员真就忘了大叔也不是不可能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  诡计  
+##### 8137#       发表于 2026-10-26 12:49
+
+捏麻麻的第一部终于打完了，我要进战争篇！
+
+列位大佬请问战争篇用哪个档打比较合适啊，听说小红小绿是路线限定的
+
+
+*****
+
+####  Losange  
+##### 8138#       发表于 2026-10-26 12:52
+
+<blockquote>诡计 发表于 2026-10-26 12:49
+捏麻麻的第一部终于打完了，我要进战争篇！
+
+列位大佬请问战争篇用哪个档打比较合适啊，听说小红小绿是路线 ...</blockquote>
+只有雷达和迪哥线有，前提是做了第一部小绿的支线任务，第二章结束小绿自动加入，小红要第三章小绿给小红尾刀
+
+
+*****
+
+####  tachikoma27  
+##### 8139#       发表于 2026-10-26 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70423728&amp;ptid=2261859" target="_blank">5ew47 发表于 2026-10-26 12:43</a>
+
+这大哥直接就朝马哈杜哈冲进去了确实不好救，但能救下来的话会多一段剧情 ...</blockquote>
+直接派一个救援白魔专人盯防他<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
