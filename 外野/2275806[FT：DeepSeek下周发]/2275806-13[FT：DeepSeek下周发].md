@@ -6365,3 +6365,14 @@ A/要上市了，ds会不会把内部大模限量地放出来狙击一下fable5.
 至于用的积分，我是没见到……</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">啊这，我还指望这点积分撑过月底。。。
 
+
+*****
+
+####  med  
+##### 18322#       发表于 2026-10-26 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426006&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-10-26 21:34</a>
+
+可怕，自己拉屎自己吃，要是祂变成怪物都没实现agi就搞笑了</blockquote>
+请学会使用智能涌现这个术语，相信弥撒亚，相信agi
+
