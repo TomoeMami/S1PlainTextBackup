@@ -5267,3 +5267,56 @@ Tibo又重置了？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绕指流光  
+##### 18227#         楼主| 发表于 2026-10-26 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422588&amp;ptid=2275806" target="_blank">谎称 发表于 2026-10-26 09:40</a>
+
+老哥，问一下，这个按次啥意思，我发一句话就算一次？哪怕就是个你好，也算一次吗？ ...</blockquote>
+一个吞吐交互算一次，不限吞吐量，你发本圣经和发句hello都是一次，可以在结算页面看到调用的详情
+
+酒馆加载预设的页面可以看到输入token量，你会发现很多预设为了破甲和微调提示第一轮对话就能干上几万token，输出的部分还有各种段中思考、代码块、正则不显示的token。玩的楼层多了后面可能单轮就能有10W-20W的输入，按次就显得特别实惠
+
+类脑有些预设为了防截断都能做到本体体积好几M，有些甚至需要你搞个万字小说塞进去用来影响哈基米的注意力来实现防截断效果，这家的自带防截断基本90%+场景下都能实现，所以专心搞破甲部分就好
+
+
+*****
+
+####  谎称  
+##### 18228#       发表于 2026-10-26 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424128&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-26 14:17</a>
+一个吞吐交互算一次，不限吞吐量，你发本圣经和发句hello都是一次，可以在结算页面看到调用的详情
+
+酒馆 ...</blockquote>
+还有这么多门道，受教了，感谢老哥科普
+
+
+*****
+
+####  绕指流光  
+##### 18229#         楼主| 发表于 2026-10-26 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422635&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-10-26 09:47</a>
+
+没有人类了，最近在linuxdo看到一个叫magpie的项目，含人量无限接近于0，全程ai开发，ai监视github issue收 ...</blockquote>
+是说模型网关那个喜鹊么，出来好久了，刚瞅了一眼都21K star了
+
+*****
+
+####  Cloude_L  
+##### 18230#       发表于 2026-10-26 14:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一定不要用上周说活动上周日截止这周说活动这周日截止的qoder限免1017啊
+
+
+*****
+
+####  Freewolf  
+##### 18231#       发表于 2026-10-26 14:25
+
+你们的kimi网页端还能用吗？我刚刚准备用Kimi网页端做个ppt，发现只转圈不输出了
+
