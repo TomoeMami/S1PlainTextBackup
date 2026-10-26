@@ -6267,3 +6267,15 @@ C52DA956FF510EB238FD66FD24165F94.jpg
 
 <img src="https://img.stage1st.com/forum/202610/26/213644msia7gzdhkhis8am.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  谎称  
+##### 18315#       发表于 2026-10-26 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426020&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-10-26 21:36</a>
+为什么我workbuddy的deepseek使用积分补偿还没有到账，难道我的官方公众号看到的是假的？我应该没看错呀， ...</blockquote>
+补偿了500积分……
+
+至于用的积分，我是没见到……
+

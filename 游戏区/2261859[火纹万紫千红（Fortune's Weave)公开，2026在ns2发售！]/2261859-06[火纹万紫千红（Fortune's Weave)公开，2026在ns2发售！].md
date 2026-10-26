@@ -8255,3 +8255,21 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 想问一下大家我打完蕾达线之后打狄托利希线地图上所有采集点都是空的这正常的吗 ...</blockquote>
 世界地图探索与采集点情报在一位主角第1部通关后 开新主角也需要从第1章开线带入 并非全​​​​​​​‌​​‌​‌​‌​​‌​‌‌​​​​​​​‌​​‌​‌‌‌​​​​‌​‌‌‌​​‌局即时共享的
 
+
+*****
+
+####  5ew47  
+##### 8166#       发表于 2026-10-26 21:46
+
+*动图有第三部剧透警告
+
+压了张gif，怎么有迪哥这么强的角色<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.stage1st.com/forum/202610/26/214523y5fhoko7fe6xkefq.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8970.gif</strong> (1.83 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 21:45 上传
+
