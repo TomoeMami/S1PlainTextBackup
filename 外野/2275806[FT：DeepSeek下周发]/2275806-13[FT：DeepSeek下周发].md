@@ -4868,3 +4868,54 @@ kimi这发个重置也扣扣嗖嗖的，只给补偿月额度的25％。还煞�
 注意有些预设的输入是分段的，可能会增加消耗 ...</blockquote>
 老哥，问一下，这个按次啥意思，我发一句话就算一次？哪怕就是个你好，也算一次吗？
 
+
+*****
+
+####  此誓的守望  
+##### 18197#       发表于 2026-10-26 09:47
+
+没有人类了，最近在linuxdo看到一个叫magpie的项目，含人量无限接近于0，全程ai开发，ai监视github issue收集反馈，ai根据收集的反馈修复，ai自主判断pr是否合并，ai自主发版，一天能发好几个版
+好像很厉害的样子<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  龙骑士尹志平  
+##### 18198#       发表于 2026-10-26 09:50
+
+<blockquote>绕指流光 发表于 2026-10-26 08:50
+哈基米3.8按次，2分5一次请求无输入输出限制，爽玩
+
+注意有些预设的输入是分段的，可能会增加消耗 ...</blockquote>
+看不懂他的价格，我看不是0.25一次吗，那不是2毛5一次吗
+
+
+*****
+
+####  zfy1989  
+##### 18199#       发表于 2026-10-26 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422652&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-10-26 09:50</a>
+
+看不懂他的价格，我看不是0.25一次吗，那不是2毛5一次吗</blockquote>
+0.25是积分，1块钱10积分
+
+*****
+
+####  小野賢章  
+##### 18200#       发表于 2026-10-26 09:53
+
+kimi 周末发模型，是怕工作日上线算力不足吗，还没试，不知道是好模型还是刷分啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龙骑士尹志平  
+##### 18201#       发表于 2026-10-26 09:56
+
+<blockquote>zfy1989 发表于 2026-10-26 09:52
+0.25是积分，1块钱10积分</blockquote>
+哦哦，那非常便宜了，我看上面的按量计费的也都很便宜啊
+

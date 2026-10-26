@@ -4678,3 +4678,15 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 
 刚打到第三章，军师加入龘龘提高战斗力啊，技工妹实在太特么鶸了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kirito_wst  
+##### 453#       发表于 2026-10-26 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422286&amp;ptid=2283081" target="_blank">ztkong 发表于 2026-10-26 08:44</a>
+求问这东西给的饰品是干啥用的，我就差这只了，血这么多有点不想打了都。== ...</blockquote>
+全技能魔法消耗变成1mp
+
+—— 来自 HONOR AAK-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
