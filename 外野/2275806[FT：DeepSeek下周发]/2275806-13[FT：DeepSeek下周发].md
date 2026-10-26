@@ -5606,3 +5606,81 @@ k3.1卡得没法用了<img src="https://static.stage1st.com/image/smiley/face201
 
 其实感觉还不如四蛆兄弟那期有节目效果
 
+
+*****
+
+####  jyj256  
+##### 18258#       发表于 2026-10-26 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424943&amp;ptid=2275806" target="_blank">Yeelolo 发表于 2026-10-26 16:50</a>
+
+请教坛友 我现在在用ds 4.1flash 做小游戏，美术素材都是现成的，编程和数值设计靠flash够用么，我个人没有 ...</blockquote>
+让ai下一个开源的游戏引擎 然后让他根据你的素材做一个游戏  
+
+*****
+
+####  lactone  
+##### 18259#       发表于 2026-10-26 17:10
+
+arena上出现了一个新模型fe-raichu，看这个名字fe好像是前端特化
+
+但是raichu雷丘好像不太符合现存厂商的习惯
+
+难道是牢日的模型？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  绕指流光  
+##### 18260#         楼主| 发表于 2026-10-26 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424964&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-10-26 16:55</a>
+
+总感觉DeepSeek在等GPT Bel 和 Fable 5.5 出来，距离 V4 Pro 0813 已经过去2个多月了，没道理炼不出来新Pro ...</blockquote>
+bro是不是有什么错觉，0813之前v4更新是4月份的事情，大参数在没卡情况下不可能那么快
+
+*****
+
+####  Yeelolo  
+##### 18261#       发表于 2026-10-26 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425009&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-26 17:05</a>
+
+我个人经验搞 Ren’Py的问题不大，godot遇到过怎么都搞不定的情况
+
+当然动作游戏我没啥经验，直觉应该是状 ...</blockquote>
+我现在用的就是godot，有些东西我都是自己进编辑器手改的，ui和技能特效动画都是我靠我手摆，不过可以让ai先在编辑器里搭个壳子。代码部分我都交给ai做了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">很多视觉效果还是要我自己手调，ds这块感觉有点做不来。。
+
+
+*****
+
+####  Promeus  
+##### 18262#       发表于 2026-10-26 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425033&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-26 17:11</a>
+bro是不是有什么错觉，0813之前v4更新是4月份的事情，大参数在没卡情况下不可能那么快
+
+ ...</blockquote>
+按小道消息华为应该是紧急把一批950给ds了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在状态肯定不是开年能比的
+
+*****
+
+####  lactone  
+##### 18263#       发表于 2026-10-26 17:14
+
+主要是v4到0731到4.1到1017算挺快的
+
+按理说4.1系列可能在0731推出前就开始训了，指纹上也有四月的标志
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  发呆的龙虾  
+##### 18264#       发表于 2026-10-26 17:15
+
+美国豆包4A降智严重，无语了。刚写了几段没后续了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
