@@ -6584,3 +6584,16 @@ terra感觉打不过1017
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  AraTurambar  
+##### 18342#       发表于 2026-10-27 05:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425857&amp;ptid=2275806" target="_blank">Azcarlo 发表于 2026-10-26 20:49</a>
+
+现在是强化学习的时代了，都是沙盒里现造的合成数据</blockquote>
+不是，RL这个路径怎么能用合成数据自己炼自己呢？
+
+大炼小我理解，自己炼自己不合理啊。
+
