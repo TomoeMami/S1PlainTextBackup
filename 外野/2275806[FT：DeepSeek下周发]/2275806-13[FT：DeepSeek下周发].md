@@ -4943,3 +4943,94 @@ qwen4 27b的id出现了
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Promeus  
+##### 18204#       发表于 2026-10-26 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422664&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-26 09:53</a>
+kimi 周末发模型，是怕工作日上线算力不足吗，还没试，不知道是好模型还是刷分啊 ...</blockquote>
+周末各大测试下来基本可以认为能力有，整体略弱于闭源sota，oneshot和审美能力不足需要使用者指挥，长程任务有优势，然而这个坑逼价格和套餐导致没人用得起长程任务<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lorraine_Kinney  
+##### 18205#       发表于 2026-10-26 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422635&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-10-26 09:47</a>
+
+没有人类了，最近在linuxdo看到一个叫magpie的项目，含人量无限接近于0，全程ai开发，ai监视github issue收 ...</blockquote>
+这个用来反代workbuddy确实还挺方便
+
+
+*****
+
+####  bartholo4  
+##### 18206#       发表于 2026-10-26 10:35
+
+有个还没搞明白原理的小技巧
+随便哪个 harness 里先用 k3.1pro 对话一下，比如让它回复收到，再切到 1017，能稳定的触发 dsh 极简模式才有的那种 weneed 思维链
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  last_regret  
+##### 18207#       发表于 2026-10-26 10:35
+
+<blockquote>CCauchy 发表于 2026-10-26 10:02
+这个定价看不懂啊，一个🍪多少钱
+
+论坛助手,iPhone</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/26/103322wxfqc4qk9q9ckmc4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-10-26-10-32-32-366_com.android.browser.jpg</strong> (101.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-26 10:33 上传
+
+<img src="https://img.stage1st.com/forum/202610/26/103327kbf18iux2uiv2abb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-10-26-10-32-43-123_com.android.browser.jpg</strong> (90.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-26 10:33 上传
+
+<img src="https://img.stage1st.com/forum/202610/26/103333azvvbhjeca72jjvv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-10-26-10-32-58-872_com.android.browser.jpg</strong> (85.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-26 10:33 上传
+
+另外我试了一下，即使是标明每次0.25的模型，单纯问了句简单的问题，消耗也不到那么多
+
+<img src="https://img.stage1st.com/forum/202610/26/103550ihzhoxnnnqkgzxkj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-10-26-10-33-54-844_com.android.browser.jpg</strong> (101.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-26 10:35 上传
+
+*****
+
+####  黑夜中的冥想  
+##### 18208#       发表于 2026-10-26 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421320&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-25 22:23</a>
+
+https://cdn.sta1n.cn/
+
+甚至自带防截断，我的酒馆相关已经全换成这个了</blockquote>
+gmail邮箱注册不了啊什么情况
+
