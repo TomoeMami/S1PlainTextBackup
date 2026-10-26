@@ -5700,3 +5700,87 @@ bro是不是有什么错觉，0813之前v4更新是4月份的事情，大参数�
 
 过去几年，痛心疾首说差距大而且还在拉大的，无一不是“业内”中的边缘人物，拜托真的有料就爆点猛料
 
+
+*****
+
+####  lubo  
+##### 18267#       发表于 2026-10-26 17:30
+
+<img src="https://img.stage1st.com/forum/202610/26/172644z61c19nnq6nnzszh.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-10-26 172616.png</strong> (62.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 17:26 上传
+
+在Colab G4（PRO 6000 96G+174G）上测试了下DeepSeek-V4.1-Flash-1017-GSQ-RCO-IQ2_XXS
+
+等Strata再优化下，感觉tps能破百
+
+消耗8.9 CU/小时，AI pro会员每月有200CU额度，如果是30块每月学生会员，每小时消耗不到1.5元
+
+不过调试这个好折磨，每次下载、加载模型要花35分钟
+
+
+*****
+
+####  ycjiang1337  
+##### 18268#       发表于 2026-10-26 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425099&amp;ptid=2275806" target="_blank">买码！注册！ 发表于 2026-10-26 17:25</a>
+过去几年，痛心疾首说差距大而且还在拉大的，无一不是“业内”中的边缘人物，拜托真的有料就爆点猛料 ...</blockquote>
+并且每次都被秒打脸
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  StrangerJ  
+##### 18269#       发表于 2026-10-26 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425064&amp;ptid=2275806" target="_blank">akabari 发表于 2026-10-26 17:18</a>
+推上有去deepseek交流的人说国模跟oa的差距比看起来的还要大得多</blockquote>
+“差距”，指训练卡规模，“看起来”，指训练出来模型的能力<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zfy1989  
+##### 18270#       发表于 2026-10-26 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425064&amp;ptid=2275806" target="_blank">akabari 发表于 2026-10-26 17:18</a>
+
+推上有去deepseek交流的人说国模跟oa的差距比看起来的还要大得多</blockquote>
+这是很奇怪的一句话，除非这个人同时对国模和oa的内部情况非常了解，否则凭什么说出这个结论。如果他只在国模有内部消息，甚至国模还分了5家以上，他对oa的进度就是脑补。反之也差不多，这个结论就是个氛围口号吧。
+
+
+*****
+
+####  龙骑士尹志平  
+##### 18271#       发表于 2026-10-26 17:34
+
+前面的屎山代码里opus早就和哈吉米4坐一桌了，被astra大人和他小弟sol大人揍得屁滚尿流，现在和大肥鱼坐一桌也不奇怪，在下面哀嚎接受不了的一半是远程养殖onshot爱好者一半是中转站老板吧，毕竟断人财路犹如杀人父母。
+
+*****
+
+####  qwased  
+##### 18272#       发表于 2026-10-26 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425042&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-26 17:13</a>
+按小道消息华为应该是紧急把一批950给ds了现在状态肯定不是开年能比的</blockquote>
+950上个月开始发货，三个月前华子就在组织培训infra了
+
+
+*****
+
+####  qwased  
+##### 18273#       发表于 2026-10-26 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425119&amp;ptid=2275806" target="_blank">lubo 发表于 2026-10-26 17:30</a>
+在Colab G4（PRO 6000 96G+174G）上测试了下DeepSeek-V4.1-Flash-1017-GSQ-RCO-IQ2_XXS
+
+等Strata再优化下 ...</blockquote>
+资源放谷歌盘可以直接加载吧
+
