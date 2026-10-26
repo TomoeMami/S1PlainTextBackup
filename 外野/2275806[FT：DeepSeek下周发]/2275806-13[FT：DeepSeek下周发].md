@@ -5859,3 +5859,16 @@ bro是不是有什么错觉，0813之前v4更新是4月份的事情，大参数�
 我现在用的就是godot，有些东西我都是自己进编辑器手改的，ui和技能特效动画都是靠我手摆，当然手操教程我 ...</blockquote>
 godot有MCP呀，AI时代界面上点点点的工作交给agent去做好了，鬼才记得那些乱七八糟的布局和功能按钮藏在哪里<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mitzvah  
+##### 18281#       发表于 2026-10-26 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425119&amp;ptid=2275806" target="_blank">lubo 发表于 2026-10-26 17:30</a>
+
+在Colab G4（PRO 6000 96G+174G）上测试了下DeepSeek-V4.1-Flash-1017-GSQ-RCO-IQ2_XXS
+
+等Strata再优化下 ...</blockquote>
+ds4类模型prefill性能不重要的，缓存命中率太高了，在我自己的集群上，自然推进任务基本都是99%的命中率，回答全部秒出。所以对mac系的适配特别好
+
