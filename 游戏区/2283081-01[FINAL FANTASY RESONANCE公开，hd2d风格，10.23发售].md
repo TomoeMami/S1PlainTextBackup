@@ -4659,3 +4659,22 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 最高难度过了，可以封盘了，真是磨到天荒地老......熬过反击模式就一帆风顺了，700w左右的时候崩防了一次 ...</blockquote>
 求问这东西给的饰品是干啥用的，我就差这只了，血这么多有点不想打了都。==
 
+
+*****
+
+####  ztkong  
+##### 451#       发表于 2026-10-26 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419728&amp;ptid=2283081" target="_blank">hkguty 发表于 2026-10-25 13:27</a>
+
+这游戏到底做了手游的剧本里的几成剧情啊，感觉剧情也还行啊，音乐也很好，但是如果第一部才做了3-4成左右 ...</blockquote>
+手游原本结局是雷因决战后失踪，实际上去了另一个世界，然后第二部男二菲娜寻夫记<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">，这次改了成直接大团圆结局了。后面还有同等体量的3个大章节，第三部菲娜女主不带两个男主玩了2333，第四部大结局。
+
+
+*****
+
+####  隔壁老黄  
+##### 452#       发表于 2026-10-26 09:34
+
+刚打到第三章，军师加入龘龘提高战斗力啊，技工妹实在太特么鶸了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
