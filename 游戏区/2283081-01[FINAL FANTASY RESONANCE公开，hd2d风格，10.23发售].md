@@ -4899,3 +4899,14 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 
 这啥耸立在天空下的钢铁之城啊
 
+
+*****
+
+####  focus  
+##### 472#       发表于 2026-10-26 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425127&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-26 17:31</a>
+
+有人算过魔法和物理各自能叠的最高倍率都是多少吗？应该是魔法上限更高？这游戏有托付机会应该一个输出就够 ...</blockquote>
+体感最后应该是物理高点。陆行鸟造弱点后魔法剑8连，flare和ultima都只有4连。不过最后的电音蟑螂防御极高，打不满5个9
+

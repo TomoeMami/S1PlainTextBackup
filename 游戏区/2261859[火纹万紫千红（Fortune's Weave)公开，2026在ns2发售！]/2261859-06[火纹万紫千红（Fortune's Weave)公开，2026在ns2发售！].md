@@ -8175,3 +8175,13 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 目前第三部要保证主线队里对话量最大化的话，至少要带四个表主角+红花+老奶奶吧，四个里主角现在在没dlc的情况下第三部基本没什么剧情
 
+
+*****
+
+####  fireadol  
+##### 8159#       发表于 2026-10-26 19:24
+
+吐了，阳炎的勋章前置选错了，现在就剩凯伊线没打还做不了前置任务，没有这个后面刷熟练度影响大吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

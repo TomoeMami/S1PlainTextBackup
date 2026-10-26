@@ -6083,3 +6083,53 @@ K3的权重？怕不是一整12寸张晶圆都给了还不够。
 
 对于前沿实验室来说，只要Scaling Law没有放缓的迹象肯定是千方百计追求扩大规模
 
+
+*****
+
+####  龙骑士尹志平  
+##### 18300#       发表于 2026-10-26 19:20
+
+ 互联网上的语料不是已经10T了，怎么还能往上提？
+
+*****
+
+####  qwased  
+##### 18301#       发表于 2026-10-26 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425477&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-10-26 19:01</a>
+
+我这没听说过，大概率不知道哪儿传的谣言，或者是有人看什么可重构之类的术语望文生义了。
+
+Re:Source ...</blockquote>
+没上市之前就当核中核消息听听得了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moekyo  
+##### 18302#       发表于 2026-10-26 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420928&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-25 20:40</a></blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/26/192223l44650jcjp765657.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-10-26_19-21-35.png</strong> (402.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 19:22 上传
+
+不就是我这楼发的这篇吗，说的是下一代的事情，不是明年
+
+
+*****
+
+####  云卷花开  
+##### 18303#       发表于 2026-10-26 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425553&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-26 19:22</a>
+没上市之前就当核中核消息听听得了</blockquote>
+我的意思是，我也是业内的，目前国内搞算力芯片这块的方向还挺明确的，这种花活我是没听说过有人整，再说接近 3t 的模型也不可能搞什么权重静态化之类
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
