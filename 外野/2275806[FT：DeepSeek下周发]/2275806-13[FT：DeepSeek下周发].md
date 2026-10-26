@@ -4777,3 +4777,15 @@ pi的codemode体验真比dsh的ptc模式强多了，大肥鱼跑脚本返工次�
 codemode用过都说好，pi算是把脚本组合工具调用这个理念真正跑通了，完全可以担得起所有日常工作，真正的无成本节省工具调用上下文。dsh的ptc虽然功能类似但是实际用起来就是差很多。
 感觉codemode可以作为下一阶段各家agent基础功能之一了。
 
+
+*****
+
+####  squallx2  
+##### 18189#       发表于 2026-10-26 08:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421830&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-10-26 00:58</a>
+实际开发，用GPT6.1规划和DS4.1F规划一个功能方案，差距能有多大？</blockquote>
+sol差距不大而且容易过度设计给你塞满门禁 astra明显强一截 但是也怂 不想做的太慢要给他说按敏捷开发流程来
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
