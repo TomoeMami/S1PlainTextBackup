@@ -6574,3 +6574,13 @@ qoder里面的opus55好像是他们远程调用的，思考块里面会冒出莫
 
 阿里真牛逼吧
 
+
+*****
+
+####  lactone  
+##### 18341#       发表于 2026-10-27 04:56
+
+terra感觉打不过1017
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
