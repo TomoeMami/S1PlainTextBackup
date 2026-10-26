@@ -6240,3 +6240,30 @@ anthropic正式提交了S-1，进入IPO冲刺阶段。
 
 S-1文件里提到了claude code是招股书的头号英雄，然而CC团队现在大面积离职<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙骑士尹志平  
+##### 18313#       发表于 2026-10-26 21:34
+
+<blockquote>Azcarlo 发表于 2026-10-26 20:49
+现在是强化学习的时代了，都是沙盒里现造的合成数据</blockquote>
+可怕，自己拉屎自己吃，要是祂变成怪物都没实现agi就搞笑了
+
+
+*****
+
+####  绯色日照  
+##### 18314#       发表于 2026-10-26 21:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么我workbuddy的deepseek使用积分补偿还没有到账，难道我的官方公众号看到的是假的？我应该没看错呀，有没有收到补偿的坛友？
+
+C52DA956FF510EB238FD66FD24165F94.jpg
+(239.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 21:36 上传
+
+<img src="https://img.stage1st.com/forum/202610/26/213644msia7gzdhkhis8am.jpg" referrerpolicy="no-referrer">
+
