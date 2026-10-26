@@ -8512,3 +8512,16 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 第九门特么的不分上下部啊，害我整章白玩，刷了84回合的神将等级重头来过，我日is他妈，一个存档真有点恶心了。
 
+
+*****
+
+####  lmclmc2  
+##### 8191#       发表于 2026-10-27 02:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426533&amp;ptid=2261859" target="_blank">fireadol 发表于 2026-10-26 23:55</a>
+
+那重新降临就打第一部做完任务道具保留吗，如果降难度后面还能改回去吗
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+你没打完第二部应该可以,如果打完了,就只能去圣柜里用碎片拿出来了
+
