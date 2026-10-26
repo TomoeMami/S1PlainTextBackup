@@ -5034,3 +5034,11 @@ https://cdn.sta1n.cn/
 甚至自带防截断，我的酒馆相关已经全换成这个了</blockquote>
 gmail邮箱注册不了啊什么情况
 
+
+*****
+
+####  燕山雪  
+##### 18209#       发表于 2026-10-26 10:40
+
+请问下，在国内订阅opencodego并挂梯子，可以用其中的Gemini 4 Argon和Claude Haiku 5.5吗？用alipay支付会有影响么？
+
