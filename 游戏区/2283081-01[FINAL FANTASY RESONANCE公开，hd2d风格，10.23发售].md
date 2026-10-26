@@ -4725,3 +4725,16 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">其实第7章开头之后开始刷99级比较合适，幻兵全齐，双倍经验饰品也能在飞空艇上买到了
 
+
+*****
+
+####  ztkong  
+##### 457#       发表于 2026-10-26 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422632&amp;ptid=2283081" target="_blank">kirito_wst 发表于 2026-10-26 09:47</a>
+
+全技能魔法消耗变成1mp
+
+—— 来自 HONOR AAK-AN00, Android 17, 鹅球 v3.5.99-alpha</blockquote>
+还挺有用。。。那晚上还是去收了w<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

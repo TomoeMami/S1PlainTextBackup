@@ -5145,3 +5145,29 @@ kimi现在最重要的就是得把提示缓存保存时间给拉长，否则根�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  last_regret  
+##### 18218#       发表于 2026-10-26 11:48
+
+<blockquote>CCauchy 发表于 2026-10-26 11:38
+这个站还要自己准备破甲词吗
+
+论坛助手,iPhone</blockquote>
+
+这就不知道了，我之前没用过，在帖子里看到随便试了下。注册会送10个积分可以自己看看
+
+
+*****
+
+####  zfy1989  
+##### 18219#       发表于 2026-10-26 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70423383&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-10-26 11:38</a>
+
+这个站还要自己准备破甲词吗
+
+论坛助手,iPhone</blockquote>
+要的，肯定不会自带破甲的，这个只是防截断
+
