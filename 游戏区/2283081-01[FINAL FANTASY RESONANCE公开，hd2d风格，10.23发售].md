@@ -4854,3 +4854,26 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 —— 来自 S1Fun</blockquote>
 刚开始的那个白魔幻兵不是就有分析吗
 
+
+*****
+
+####  u2deack  
+##### 468#       发表于 2026-10-26 17:23
+
+开头那个雷鸣山不选付钱带路另一条需要上梯子的路是走不了了么还是之后可以解锁
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  黑暗之眼  
+##### 469#       发表于 2026-10-26 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425087&amp;ptid=2283081" target="_blank">u2deack 发表于 2026-10-26 17:23</a>
+
+开头那个雷鸣山不选付钱带路另一条需要上梯子的路是走不了了么还是之后可以解锁
+
+论坛助手,iPhone ...</blockquote>
+雷鸣山总共五个入口，别的入口可以绕回来从最上层放梯子，之后路就通了
+
