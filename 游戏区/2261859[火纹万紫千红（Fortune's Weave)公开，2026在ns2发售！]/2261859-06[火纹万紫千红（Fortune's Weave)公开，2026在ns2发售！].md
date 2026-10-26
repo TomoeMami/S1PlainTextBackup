@@ -8090,3 +8090,18 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 话说紫毛菲亚娜是败犬啊，还是吉尔奇鲁斯的败犬，这也太挫了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了和得斯哇的羁绊瞳孔地震，我说怎么用她击杀吉尔奇鲁斯的时候对话不明不白的
 不浪费300块在她身上了
 
+
+*****
+
+####  エリ  
+##### 8152#       发表于 2026-10-26 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70413209&amp;ptid=2261859" target="_blank">月华刹那 发表于 2026-10-23 17:24</a>
+
+仓库拿啥都要几百碎片，哪来这么多碎片
+
+怎么还没更新更多获取碎片的途径，根本不敢换仓库里的东西，因为第 ...</blockquote>
+其实正常打四线的话第三部啥都不缺
+
+有啥值得要花碎片兑的呢
+

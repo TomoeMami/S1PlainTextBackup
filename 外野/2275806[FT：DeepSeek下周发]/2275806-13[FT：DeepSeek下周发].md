@@ -5513,3 +5513,37 @@ k3.1卡得没法用了<img src="https://static.stage1st.com/image/smiley/face201
 不保真</blockquote>
 这人后来又发推了，说没有什么内裤消息，他只是按常理推断的。
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 18249#       发表于 2026-10-26 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424876&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-26 16:40</a>
+看屎山测试，opus5.5后端拉了呀，评论区好热闹，很多oneshot爱好者接受不了</blockquote>
+有一说一屎山论剑里 opus-5.5 都上了好几轮了，表现都差不太多吧，怎么还会吵这个
+
+*****
+
+####  Yeelolo  
+##### 18250#       发表于 2026-10-26 16:50
+
+请教坛友 我现在在用ds 4.1flash 做小游戏，美术素材都是现成的，编程和数值设计靠flash够用么，我个人没有编程能力，最多修修美术素材。
+
+
+*****
+
+####  Hattle  
+##### 18251#       发表于 2026-10-26 16:55
+
+总感觉DeepSeek在等GPT Bel 和 Fable 5.5 出来，距离 V4 Pro 0813 已经过去2个多月了，没道理炼不出来新Pro
+
+*****
+
+####  Promeus  
+##### 18252#       发表于 2026-10-26 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424937&amp;ptid=2275806" target="_blank">平昭·南宫司卿 发表于 2026-10-26 16:49</a>
+有一说一屎山论剑里 opus-5.5 都上了好几轮了，表现都差不太多吧，怎么还会吵这个 ...</blockquote>
+跟大肥鱼坐一桌还是太震撼了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
