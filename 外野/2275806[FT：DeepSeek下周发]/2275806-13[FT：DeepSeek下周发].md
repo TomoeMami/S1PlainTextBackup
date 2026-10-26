@@ -4919,3 +4919,17 @@ kimi 周末发模型，是怕工作日上线算力不足吗，还没试，不知
 0.25是积分，1块钱10积分</blockquote>
 哦哦，那非常便宜了，我看上面的按量计费的也都很便宜啊
 
+
+*****
+
+####  CCauchy  
+##### 18202#       发表于 2026-10-26 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421320&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-25 22:23</a>
+https://cdn.sta1n.cn/
+
+甚至自带防截断，我的酒馆相关已经全换成这个了</blockquote>
+这个定价看不懂啊，一个🍪多少钱
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
