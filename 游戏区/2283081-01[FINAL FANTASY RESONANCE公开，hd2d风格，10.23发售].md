@@ -5036,3 +5036,14 @@ cloud自回+洋葱3倍按一下就涨不少了吧，还有用完奥义自回20�
 
 看了一眼商店居然有个卖100的DLC，给1个皮肤和几个垃圾道具，这些破玩意也好意思卖100？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑暗之眼  
+##### 481#       发表于 2026-10-26 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426357&amp;ptid=2283081" target="_blank">妄想中毒 发表于 2026-10-26 23:03</a>
+
+看了一眼商店居然有个卖100的DLC，给1个皮肤和几个垃圾道具，这些破玩意也好意思卖100？ ...</blockquote>
+胸大的那个多一个极限技带CG的，为什么不好意思？
+

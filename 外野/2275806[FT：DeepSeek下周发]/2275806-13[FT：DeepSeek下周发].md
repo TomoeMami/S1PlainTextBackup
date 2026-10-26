@@ -6407,3 +6407,43 @@ fable5.5出了ds怎么阻击呢，出个超越fable5.1，接近Astra的4.1pro吗
 只能说腾子依旧是那个腾子 ...</blockquote>
 并不是，专门页面领的是额外500分。退的积分估计是都吃了，理由是免费的积分不算补偿范围。
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 18326#       发表于 2026-10-26 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426317&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-26 22:52</a>
+
+fable5.5出了ds怎么阻击呢，出个超越fable5.1，接近Astra的4.1pro吗，我的预计里4.1pro能完全跨过fable5已 ...</blockquote>
+单论后端能力的话，ds4f1017在dsh ptc搭配合理的提示词的情况下，差不多是5.6sol的水平。线性外推的话，pro能到astra水平不是完全不可能，当然大参数模型更难训练也是客观的问题。
+
+*****
+
+####  startraveller  
+##### 18327#       发表于 2026-10-26 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425524&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-26 19:12</a>
+那要看硬件规模允不允许，训练方法能不能继续进步，还有服务能力能不能跟上。就目前的迹象来看，到100T这 ...</blockquote>
+看看前几日GLM的访谈吧，国内普遍2T级还没训太明白呢。Qwen 上个月发布会也就许愿明年5～10T。NVL72也就200T内存，咋训500T模型
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  绯色日照  
+##### 18328#       发表于 2026-10-26 23:27
+
+<blockquote>tillnight 发表于 2026-10-26 22:54
+并不是，专门页面领的是额外500分。退的积分估计是都吃了，理由是免费的积分不算补偿范围。 ...</blockquote>
+那就不奇怪了，那就不奇怪了，哎
+
+*****
+
+####  蜇灵  
+##### 18329#       发表于 2026-10-26 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420269&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-10-25 16:44</a>
+差距最大的貌似是TTFT，缓存命中率比官方的低不少</blockquote>
+这个首字速度差这么多吗？
+
