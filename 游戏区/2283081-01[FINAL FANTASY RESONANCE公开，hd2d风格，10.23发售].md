@@ -5002,3 +5002,16 @@ r² 如果0.5 ≤ r &lt; 1
 
 奥义槽怎么加啊
 
+
+*****
+
+####  requiem116  
+##### 478#       发表于 2026-10-26 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425797&amp;ptid=2283081" target="_blank">新HGCG 发表于 2026-10-26 20:27</a>
+
+奥义槽怎么加啊</blockquote>
+cloud自回+洋葱3倍按一下就涨不少了吧，还有用完奥义自回20想不起来是谁
+
+我看b站有人发过无限奥义循环的
+

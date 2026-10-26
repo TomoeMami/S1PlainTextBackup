@@ -6199,3 +6199,14 @@ Re:Source ...</blockquote>
 
 啥时候百亿千亿往里扔应该就有风声了
 
+
+*****
+
+####  Azcarlo  
+##### 18310#       发表于 2026-10-26 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425547&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-10-26 19:20</a>
+
+互联网上的语料不是已经10T了，怎么还能往上提？</blockquote>
+现在是强化学习的时代了，都是沙盒里现造的合成数据<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
