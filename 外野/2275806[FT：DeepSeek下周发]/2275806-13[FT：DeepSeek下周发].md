@@ -6376,3 +6376,34 @@ A/要上市了，ds会不会把内部大模限量地放出来狙击一下fable5.
 可怕，自己拉屎自己吃，要是祂变成怪物都没实现agi就搞笑了</blockquote>
 请学会使用智能涌现这个术语，相信弥撒亚，相信agi
 
+
+*****
+
+####  空き地卯木  
+##### 18323#       发表于 2026-10-26 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426020&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-10-26 21:36</a>
+为什么我workbuddy的deepseek使用积分补偿还没有到账，难道我的官方公众号看到的是假的？我应该没看错呀， ...</blockquote>
+前面几页也有人问，回复说是得专门去哪个页面上领才有
+只能说腾子依旧是那个腾子
+
+*****
+
+####  qz66618  
+##### 18324#       发表于 2026-10-26 22:52
+
+fable5.5出了ds怎么阻击呢，出个超越fable5.1，接近Astra的4.1pro吗，我的预计里4.1pro能完全跨过fable5已经算是国模的一次大突破了
+
+
+*****
+
+####  tillnight  
+##### 18325#       发表于 2026-10-26 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426314&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-10-26 22:51</a>
+
+前面几页也有人问，回复说是得专门去哪个页面上领才有
+
+只能说腾子依旧是那个腾子 ...</blockquote>
+并不是，专门页面领的是额外500分。退的积分估计是都吃了，理由是免费的积分不算补偿范围。
+

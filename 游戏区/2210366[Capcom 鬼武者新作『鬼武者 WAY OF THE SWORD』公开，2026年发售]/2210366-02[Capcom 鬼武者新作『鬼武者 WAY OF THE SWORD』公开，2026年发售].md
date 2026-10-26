@@ -53,3 +53,15 @@ CNMD卡婊，通马桶我倒是无所谓，你TM自己标记的点位能不能�
 
 很不错的游戏，不过以卡婊的尿性，起码再出2作通马桶积累素材的鬼武者，才会迎来一个GOTY级别的鬼武者，不过这一座底子打得非常好是个好的开始。<img src="https://static.stage1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  saberlee  
+##### 1990#       发表于 2026-10-26 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426163&amp;ptid=2210366" target="_blank">hentianwuya 发表于 2026-10-26 22:11</a>
+很不错的游戏，不过以卡婊的尿性，起码再出2作通马桶积累素材的鬼武者，才会迎来一个GOTY级别的鬼武者，不 ...</blockquote>
+这一作让这个ip 活下来了，已经成功了。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
