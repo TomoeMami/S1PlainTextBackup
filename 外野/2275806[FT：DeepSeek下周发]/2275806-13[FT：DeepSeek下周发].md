@@ -5234,3 +5234,15 @@ kimi现在这样不行，那些闭源sota用的人多，用户数据就多，蒸
  ...</blockquote>
 我昨晚尝试了一下酒馆，用了抗截断前缀 3.8flash 和 4a，除非上下文超级长（具体阈值我忘了，你可以测试一下），否则按量更便宜。而且“抗截断”模型按次版本，我碰到好几次破不了甲，同样的内容按量就能破甲。具体输出质量还没测试，不过这个抗截断相对于官方源确实有效。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  cscbzcbz  
+##### 18224#       发表于 2026-10-26 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70423719&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-10-26 12:42</a>
+试了试我的预算不设上限提示词  两轮提示词干掉8亿token  不过成品真行  没有可见bug  也完全满足提示词要 ...</blockquote>
+奶龙开会模式，非常花token的<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
