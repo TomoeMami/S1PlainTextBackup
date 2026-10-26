@@ -6526,3 +6526,11 @@ fable5.5先把astra干了再说吧。那么快就忘了fable5.1被astra吊打么
 （其实是在串）</blockquote>
 要是DS真端出来一个15T的模型，要么他们在效率上取得了重大突破，要么会成为全球定价最贵的模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  The_Ether_  
+##### 18336#       发表于 2026-10-27 01:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">A\的招股书里直接说今年前九个月有5-7%的收入来自违规使用的客户，都是封的老中的号吧
+
