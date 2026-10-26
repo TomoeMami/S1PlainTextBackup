@@ -5028,3 +5028,11 @@ cloud自回+洋葱3倍按一下就涨不少了吧，还有用完奥义自回20�
 所以雷霆姐什么时候能收到啊， ...</blockquote>
 火帝国这章结束，下一章就有雷霆了
 
+
+*****
+
+####  妄想中毒  
+##### 480#       发表于 2026-10-26 23:03
+
+看了一眼商店居然有个卖100的DLC，给1个皮肤和几个垃圾道具，这些破玩意也好意思卖100？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
