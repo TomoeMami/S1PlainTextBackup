@@ -5825,3 +5825,26 @@ bro是不是有什么错觉，0813之前v4更新是4月份的事情，大参数�
 前面的屎山代码里opus早就和哈吉米4坐一桌了，被astra大人和他小弟sol大人揍得屁滚尿流，现在和大肥鱼坐一 ...</blockquote>
 大部分是中转站，我抖音刷到opus5.5秒杀Astra，下面评论都会有中转站的评论。毕竟中转站a出的模型最挣钱，gpt便宜大碗，opus最贵的
 
+
+*****
+
+####  med  
+##### 18278#       发表于 2026-10-26 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424964&amp;ptid=2275806" target="_blank">Hattle 发表于 2026-10-26 16:55</a>
+
+总感觉DeepSeek在等GPT Bel 和 Fable 5.5 出来，距离 V4 Pro 0813 已经过去2个多月了，没道理炼不出来新Pro ...</blockquote>
+真不一定哦，v4pro不好说是架构炸了还是炼丹炼炸了。v4.1f和v4f也不是一个架构。
+
+
+*****
+
+####  lactone  
+##### 18279#       发表于 2026-10-26 18:03
+
+很神奇，把去ds和自己的个人判断差距大混在一起说，然后别人转述直接说有人去ds看过说差距比看起来更大
+
+就这种人的小心思懂得都懂
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
