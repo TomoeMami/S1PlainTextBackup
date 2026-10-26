@@ -5131,3 +5131,17 @@ kimi现在最重要的就是得把提示缓存保存时间给拉长，否则根�
 
 就现在这德行，真不如部署自己的1017模型，真的，根本没法用
 
+
+*****
+
+####  CCauchy  
+##### 18217#       发表于 2026-10-26 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422968&amp;ptid=2275806" target="_blank">last_regret 发表于 2026-10-26 10:35</a>
+另外我试了一下，即使是标明每次0.25的模型，单纯问了句简单的问题，消耗也不到那么多
+
+ ...</blockquote>
+这个站还要自己准备破甲词吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
