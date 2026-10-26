@@ -6232,3 +6232,11 @@ anthropic正式提交了S-1，进入IPO冲刺阶段。
 
 解读：官方明确承认，他们最近（recently）有一个新的前沿基础模型（new frontier base model），因为安全原因（防止模型权重泄露），推迟了超过一个月的预训练（pre-training）。
 
+
+*****
+
+####  lactone  
+##### 18312#       发表于 2026-10-26 21:25
+
+S-1文件里提到了claude code是招股书的头号英雄，然而CC团队现在大面积离职<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
