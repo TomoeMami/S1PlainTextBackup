@@ -5547,3 +5547,62 @@ k3.1卡得没法用了<img src="https://static.stage1st.com/image/smiley/face201
 有一说一屎山论剑里 opus-5.5 都上了好几轮了，表现都差不太多吧，怎么还会吵这个 ...</blockquote>
 跟大肥鱼坐一桌还是太震撼了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 18253#       发表于 2026-10-26 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424943&amp;ptid=2275806" target="_blank">Yeelolo 发表于 2026-10-26 16:50</a>
+请教坛友 我现在在用ds 4.1flash 做小游戏，美术素材都是现成的，编程和数值设计靠flash够用么，我个人没有 ...</blockquote>
+小游戏够的，但是大肥鱼有个问题就是瑕疵比较厉害，比如我用她做3d城市车会横着走<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">这种要盯着让她改，还要及时压缩上下文防跑偏
+
+
+*****
+
+####  小止  
+##### 18254#       发表于 2026-10-26 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424937&amp;ptid=2275806" target="_blank">平昭·南宫司卿 发表于 2026-10-26 16:49</a>
+
+有一说一屎山论剑里 opus-5.5 都上了好几轮了，表现都差不太多吧，怎么还会吵这个 ...</blockquote>
+比较接受不了和大肥鱼坐一桌吧<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绕指流光  
+##### 18255#         楼主| 发表于 2026-10-26 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424943&amp;ptid=2275806" target="_blank">Yeelolo 发表于 2026-10-26 16:50</a>
+
+请教坛友 我现在在用ds 4.1flash 做小游戏，美术素材都是现成的，编程和数值设计靠flash够用么，我个人没有 ...</blockquote>
+我个人经验搞 Ren’Py的问题不大，godot遇到过怎么都搞不定的情况
+
+当然动作游戏我没啥经验，直觉应该是状态机部分出问题了，但是没有分析能力只能根据反馈让它硬修，没法达到想要效果
+
+以上经验均靠DSH获得
+
+
+*****
+
+####  cscbzcbz  
+##### 18256#       发表于 2026-10-26 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424943&amp;ptid=2275806" target="_blank">Yeelolo 发表于 2026-10-26 16:50</a>
+请教坛友 我现在在用ds 4.1flash 做小游戏，美术素材都是现成的，编程和数值设计靠flash够用么，我个人没有 ...</blockquote>
+看游戏规模，之前0910尝试过完全从零开始（连像素人物素材和bgm都是让0910编的）， 做了一个类似吸血鬼幸存者的游戏
+规模再大没尝试过了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  平昭·南宫司卿  
+##### 18257#       发表于 2026-10-26 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424968&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-26 16:55</a>
+跟大肥鱼坐一桌还是太震撼了</blockquote>
+1017 没出的时候都已经平过一次了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过那期确实播放量也一般，可能还是 ds1017+k3.1 连续登场导致看的人多了很多。
+
+其实感觉还不如四蛆兄弟那期有节目效果
+

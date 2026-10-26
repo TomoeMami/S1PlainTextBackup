@@ -4841,3 +4841,16 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 
 所以雷霆姐什么时候能收到啊，我现在到了火帝国，这个地图拿到了两个还没有……
 
+
+*****
+
+####  Ares  
+##### 467#       发表于 2026-10-26 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424265&amp;ptid=2283081" target="_blank">zhai68 发表于 2026-10-26 14:41</a>
+
+这次除了克劳德有分析技能，还有谁有分析技能么？
+
+—— 来自 S1Fun</blockquote>
+刚开始的那个白魔幻兵不是就有分析吗
+
