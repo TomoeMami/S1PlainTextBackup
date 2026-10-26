@@ -6491,3 +6491,27 @@ aa榜有利于大尺寸模型，1017在和尺寸无关的项目里超过fable5�
 
 fable5.5先把astra干了再说吧。那么快就忘了fable5.1被astra吊打么
 
+
+*****
+
+####  qwased  
+##### 18334#       发表于 2026-10-27 00:40
+
+<img src="https://img.stage1st.com/forum/202610/27/004001fxw4immpwvo4bgw6.jpg" referrerpolicy="no-referrer">
+
+<strong>03EF12C183EDC73A3620CACE6352EF38.jpg</strong> (42.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-27 00:40 上传
+
+<img src="https://img.stage1st.com/forum/202610/27/004007apnl7pn77rppf5ls.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-10-27_00-39-41.jpg</strong> (6.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-27 00:40 上传
+
+（其实是在串）
+
