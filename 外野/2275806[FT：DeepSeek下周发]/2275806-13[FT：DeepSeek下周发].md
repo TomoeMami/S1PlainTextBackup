@@ -6556,3 +6556,11 @@ wrting 吗<img src="https://static.stage1st.com/image/smiley/face2017/076.png" r
 
 luna更加尴尬了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绿色食品  
+##### 18339#       发表于 2026-10-27 04:26
+
+当deepseek4pro和gpt6跟我用同样的句式开头 最后使用一摸一样的emoji 我就知道 ai泡沫要炸了 这是真傻吧
+
