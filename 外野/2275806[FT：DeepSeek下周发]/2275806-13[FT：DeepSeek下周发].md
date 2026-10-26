@@ -5042,3 +5042,30 @@ gmail邮箱注册不了啊什么情况
 
 请问下，在国内订阅opencodego并挂梯子，可以用其中的Gemini 4 Argon和Claude Haiku 5.5吗？用alipay支付会有影响么？
 
+
+*****
+
+####  浅夏晴雨  
+##### 18210#       发表于 2026-10-26 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70423005&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-10-26 10:40</a>
+
+请问下，在国内订阅opencodego并挂梯子，可以用其中的Gemini 4 Argon和Claude Haiku 5.5吗？用alipay支付会 ...</blockquote>
+应该可以用吧。我是 google 登录 opencode，alipay 支付的，可以用 argon
+
+
+*****
+
+####  qwased  
+##### 18211#       发表于 2026-10-26 10:53
+
+ 本帖最后由 qwased 于 2026-10-26 10:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422960&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-10-26 10:35</a>
+
+有个还没搞明白原理的小技巧
+
+随便哪个 harness 里先用 k3.1pro 对话一下，比如让它回复收到，再切到 1017， ...</blockquote>
+不需要啊，现在随便用啥harness都会在执行阶段切换成we need + let's
+
+let me是他拿不准在思考设计的时候用的
+
