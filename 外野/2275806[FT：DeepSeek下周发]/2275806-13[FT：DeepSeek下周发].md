@@ -5406,3 +5406,41 @@ grok给我生的图没法发hhhh
 
 现在问题来了，为什么我发个贴结果啥内容都出不来
 
+
+*****
+
+####  Hattle  
+##### 18239#       发表于 2026-10-26 15:21
+
+opecode go 的 DeepSeek-V4.1-Flash 卡爆了，ttft 到了7秒多，难以理解
+
+
+*****
+
+####  云卷花开  
+##### 18240#       发表于 2026-10-26 15:22
+
+<img src="https://img.stage1st.com/forum/202610/26/152209xrbph7h14bbybpph.jpg" referrerpolicy="no-referrer">
+
+<strong>1000017580.jpg</strong> (1.69 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 15:22 上传
+
+喜闻乐见，cmg 让人锤了
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  Litccc  
+##### 18241#       发表于 2026-10-26 15:24
+
+ 本帖最后由 Litccc 于 2026-10-26 15:26 编辑 
+
+想了解哈基米或者其他模型破限原理的可以看看这个仓库，也可以喂给ai让它帮你写破限预设：https://github.com/SilenceSik/rp-anti-refusal-playbook
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
