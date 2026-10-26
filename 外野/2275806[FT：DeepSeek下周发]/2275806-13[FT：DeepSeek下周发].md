@@ -5183,3 +5183,54 @@ kimi现在这样不行，那些闭源sota用的人多，用户数据就多，蒸
 
 —— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  mitzvah  
+##### 18221#       发表于 2026-10-26 12:38
+
+ 本帖最后由 mitzvah 于 2026-10-26 12:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70423546&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-10-26 12:08</a>
+
+你这么一说就应该 Kimi 和 DeepSeek 官方联动，直接把 DeepSeek 接到客户端里做默认子代理
+
+—— 来自 Xi ...</blockquote>
+现在最大的问题是搞研究写计划也不行，提示缓存寿命太短了，每五个小时全量prefill一次整个session，简直逆天不知怎么想的！glm都不是这样的！月之暗面的人自己用过自己的这玩意吗
+
+说这家贵也就是贵在这东西上，简直逆天，199套餐顶天能跑600k上下文就必须重启session
+
+
+*****
+
+####  唠叨  
+##### 18222#       发表于 2026-10-26 12:42
+
+<img src="https://img.stage1st.com/forum/202610/26/124009jmwh3ghynwgkgqyh.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-10-26_123910_586.jpg</strong> (22.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 12:40 上传
+
+<img src="https://img.stage1st.com/forum/202610/26/124015fxvqqwy5484qrryx.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-10-26_123936_460.jpg</strong> (18.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 12:40 上传
+
+试了试我的预算不设上限提示词  两轮提示词干掉8亿token  不过成品真行  没有可见bug  也完全满足提示词要求
+
+*****
+
+####  孔祈  
+##### 18223#       发表于 2026-10-26 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422968&amp;ptid=2275806" target="_blank">last_regret 发表于 2026-10-26 10:35</a>
+另外我试了一下，即使是标明每次0.25的模型，单纯问了句简单的问题，消耗也不到那么多
+
+ ...</blockquote>
+我昨晚尝试了一下酒馆，用了抗截断前缀 3.8flash 和 4a，除非上下文超级长（具体阈值我忘了，你可以测试一下），否则按量更便宜。而且“抗截断”模型按次版本，我碰到好几次破不了甲，同样的内容按量就能破甲。具体输出质量还没测试，不过这个抗截断相对于官方源确实有效。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

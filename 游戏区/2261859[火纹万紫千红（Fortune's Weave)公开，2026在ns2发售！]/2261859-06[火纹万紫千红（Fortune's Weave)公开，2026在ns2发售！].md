@@ -7912,3 +7912,24 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  5ew47  
+##### 8135#       发表于 2026-10-26 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70423662&amp;ptid=2261859" target="_blank">DancingAndy 发表于 2026-10-26 12:32</a>
+打马哈杜哈，那个友军重甲直接踩瘴气被劈死了感觉有点难救不回溯了
+
+论坛助手,iPhone ...</blockquote>
+这大哥直接就朝马哈杜哈冲进去了确实不好救，但能救下来的话会多一段剧情<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Humpy  
+##### 8136#       发表于 2026-10-26 12:44
+
+你们不要忘了IS草台班子以前就整出过把一个角色的死亡台词弄到另一个角色身上，最后索性将错就错搞出狗血三角恋设定的狠活<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+程序员真就忘了大叔也不是不可能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

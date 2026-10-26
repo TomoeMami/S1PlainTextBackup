@@ -4749,3 +4749,16 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 有wiki网站吗，好多精英不知道伤害类型，试错成本有点高</blockquote>
 其实不用试，克劳德有个技能是分析，带着这个技能开头用一下就行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stoiorz  
+##### 459#       发表于 2026-10-26 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70423650&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-26 12:29</a>
+
+其实不用试，克劳德有个技能是分析，带着这个技能开头用一下就行</blockquote>
+克劳德满了后可以用军师，军师固定技最下面是分析。
+
+老14有个技能是分析后的伤害+10%？对于刷固定怪有点效果。
+
