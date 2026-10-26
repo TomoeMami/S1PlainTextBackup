@@ -5320,3 +5320,18 @@ Tibo又重置了？
 
 你们的kimi网页端还能用吗？我刚刚准备用Kimi网页端做个ppt，发现只转圈不输出了
 
+
+*****
+
+####  SmterC  
+##### 18232#       发表于 2026-10-26 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422014&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-26 05:50</a>
+
+pi的codemode体验真比dsh的ptc模式强多了，大肥鱼跑脚本返工次数显著低于ptc模式，体感可以减少一半的工具 ...</blockquote>
+是这样的，dsh目前的ptc模式感觉不怎么完善，模型用起来很容易碰壁
+
+可以试试这个插件：[https://github.com/muyuanjin/dsh-ptc-plus](https://github.com/muyuanjin/dsh-ptc-plus)
+
+能优化ptc模式，增加模型调用的容错、复用已有的函数等等
+
