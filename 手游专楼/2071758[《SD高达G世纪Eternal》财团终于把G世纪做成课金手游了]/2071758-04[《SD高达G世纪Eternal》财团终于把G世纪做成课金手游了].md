@@ -2468,3 +2468,14 @@ V2AB在大师联盟好猛，试验机撑地了
 
 恨啊！！！铁甲面船是我唯一没拿到的限定船，那次F91池200抽大败而归，只拿到一个F90，换了一个F91。
 
+
+*****
+
+####  captoon  
+##### 4924#       发表于 2026-10-26 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419265&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-10-25 11:10</a>
+
+代孙设置竞技场金牌30万分到底是不是用脑想的，今天运气好一点5次都打完全胜并且MAX就涨了10000多点，我就 ...</blockquote>
+明显是为了给以后膨胀做的准备
+
