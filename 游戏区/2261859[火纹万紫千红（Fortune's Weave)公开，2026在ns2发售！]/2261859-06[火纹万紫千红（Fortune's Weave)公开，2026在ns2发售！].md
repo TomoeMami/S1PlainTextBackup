@@ -8460,3 +8460,17 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 迪哥这次可以压倒屠夫成为FE最强主角了吧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">这个在天上转圈的必杀动画和超强性能确实令人想起屠夫
 
+
+*****
+
+####  fireadol  
+##### 8187#       发表于 2026-10-26 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425698&amp;ptid=2261859" target="_blank">lmclmc2 发表于 2026-10-26 19:58</a>
+会麻烦不少,不是找个重甲就开刷
+
+也不是完全不行,但后面重甲的物防真的高,50多级就要70多物攻才砍的动,能 ...</blockquote>
+那重新降临就打第一部做完任务道具保留吗，如果降难度后面还能改回去吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
