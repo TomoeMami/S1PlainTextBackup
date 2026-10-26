@@ -6165,3 +6165,16 @@ Re:Source ...</blockquote>
 
 ——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  andychen  
+##### 18307#       发表于 2026-10-26 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425662&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-10-26 19:50</a>
+
+我不懂瞎问，如果大模型固化到FPGA上了，还需要配大量内存颗粒吗
+
+——来自 2410DPN6CC 上的 S1er 客户端 ...</blockquote>
+需要，KV Cache的需求逃不掉
+
