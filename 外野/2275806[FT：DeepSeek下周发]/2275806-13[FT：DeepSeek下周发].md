@@ -6447,3 +6447,14 @@ fable5.5出了ds怎么阻击呢，出个超越fable5.1，接近Astra的4.1pro吗
 差距最大的貌似是TTFT，缓存命中率比官方的低不少</blockquote>
 这个首字速度差这么多吗？
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 18330#       发表于 2026-10-26 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426432&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-10-26 23:27</a>
+
+这个首字速度差这么多吗？</blockquote>
+首字速度主要取决于prefill的速度，目前只有官方能做到1s以下，属于ds还没有开源的魔法infra的一部分。当然opencode的水平特别差就是了，属于除了便宜之外没什么可称道，只有在确实不急的情况可以用用
+
