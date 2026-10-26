@@ -5246,3 +5246,14 @@ kimi现在这样不行，那些闭源sota用的人多，用户数据就多，蒸
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jyj256  
+##### 18225#       发表于 2026-10-26 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421245&amp;ptid=2275806" target="_blank">毒品 发表于 2026-10-25 22:01</a>
+
+现在哪里的哈基米便宜啊，只想用来写瑟瑟</blockquote>
+找别人家庭组加你最便宜 不要钱
+

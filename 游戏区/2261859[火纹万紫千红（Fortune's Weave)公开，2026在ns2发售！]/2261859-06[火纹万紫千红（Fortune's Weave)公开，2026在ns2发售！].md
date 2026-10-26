@@ -7966,3 +7966,11 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 这大哥直接就朝马哈杜哈冲进去了确实不好救，但能救下来的话会多一段剧情 ...</blockquote>
 直接派一个救援白魔专人盯防他<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古畑任三郎2015  
+##### 8140#       发表于 2026-10-26 13:12
+
+这个因果合成感觉没多大用啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

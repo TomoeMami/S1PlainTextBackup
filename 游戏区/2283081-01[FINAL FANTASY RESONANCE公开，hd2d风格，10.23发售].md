@@ -4762,3 +4762,14 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 
 老14有个技能是分析后的伤害+10%？对于刷固定怪有点效果。
 
+
+*****
+
+####  Evilgurren  
+##### 460#       发表于 2026-10-26 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70423650&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-26 12:29</a>
+
+其实不用试，克劳德有个技能是分析，带着这个技能开头用一下就行</blockquote>
+分析也看不了怪物出招到底是物理伤害还是魔法伤害，还有免疫的debuff图标不知道对应哪个技能
+
