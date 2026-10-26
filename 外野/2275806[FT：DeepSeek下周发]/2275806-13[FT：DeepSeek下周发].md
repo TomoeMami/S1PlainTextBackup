@@ -6178,3 +6178,24 @@ Re:Source ...</blockquote>
 ——来自 2410DPN6CC 上的 S1er 客户端 ...</blockquote>
 需要，KV Cache的需求逃不掉
 
+
+*****
+
+####  飞剪号  
+##### 18308#       发表于 2026-10-26 20:18
+
+我后知后觉，今日的AI在历史上的定位可能不亚于核武器吧，拥有AI产业链就相当于拥有制造核武器的能力，有和没有是断崖级的实力差距，至于有了以后是第一代还是第二代的差距就不那么重要了
+
+
+*****
+
+####  qwased  
+##### 18309#       发表于 2026-10-26 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425573&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-10-26 19:24</a>
+
+我的意思是，我也是业内的，目前国内搞算力芯片这块的方向还挺明确的，这种花活我是没听说过有人整，再说 ...</blockquote>
+是跟我聊这人在做的项目<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">目前投资不到十亿，应该还是非常早期的阶段吧
+
+啥时候百亿千亿往里扔应该就有风声了
+

@@ -4994,3 +4994,11 @@ r² 如果0.5 ≤ r &lt; 1
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉极限伤害应该还是魔法了，魔力增幅能用在奥义上，2级奥义又全是高段数伤害，试过没怎么准备的情况下就打了接近百万伤害
 
+
+*****
+
+####  新HGCG  
+##### 477#       发表于 2026-10-26 20:27
+
+奥义槽怎么加啊
+
