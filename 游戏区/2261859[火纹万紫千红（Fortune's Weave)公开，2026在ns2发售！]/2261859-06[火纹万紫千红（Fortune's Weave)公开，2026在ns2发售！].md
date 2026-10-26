@@ -8041,3 +8041,16 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 —— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  maojiashu  
+##### 8148#       发表于 2026-10-26 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424102&amp;ptid=2261859" target="_blank">chiziru 发表于 2026-10-26 14:13</a>
+
+救世篇 前几区把图都探完了，拆五队感觉没事干了 怎么快速刷熟练度职业精通 ？ 找洞刷怪一直撤退吗
+
+——  ...</blockquote>
+对 珂雷神殿上面那个地牢有成队的重甲兵
+

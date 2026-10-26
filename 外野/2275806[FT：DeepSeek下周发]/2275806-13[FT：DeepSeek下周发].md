@@ -5335,3 +5335,21 @@ pi的codemode体验真比dsh的ptc模式强多了，大肥鱼跑脚本返工次�
 
 能优化ptc模式，增加模型调用的容错、复用已有的函数等等
 
+
+*****
+
+####  宏.  
+##### 18233#       发表于 2026-10-26 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424166&amp;ptid=2275806" target="_blank">Freewolf 发表于 2026-10-26 14:25</a>
+
+你们的kimi网页端还能用吗？我刚刚准备用Kimi网页端做个ppt，发现只转圈不输出了 ...</blockquote>
+429错误超载限流了，kimi官方群都是哀嚎的，今天kimi重置了，用户嘴上说着太贵，蹬起来一个比一个狠<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leina0602  
+##### 18234#       发表于 2026-10-26 14:49
+
+deepseek抽风了，思考一直在输出the
+

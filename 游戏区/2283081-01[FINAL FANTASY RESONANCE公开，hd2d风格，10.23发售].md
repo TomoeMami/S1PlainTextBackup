@@ -4796,3 +4796,16 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kirito_wst  
+##### 463#       发表于 2026-10-26 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424265&amp;ptid=2283081" target="_blank">zhai68 发表于 2026-10-26 14:41</a>
+
+这次除了克劳德有分析技能，还有谁有分析技能么？
+
+—— 来自 S1Fun</blockquote>
+梵，莉亚，艾琳，彩花（后面三个都是原创角色)
+
