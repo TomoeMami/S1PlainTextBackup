@@ -5444,3 +5444,13 @@ opecode go 的 DeepSeek-V4.1-Flash 卡爆了，ttft 到了7秒多，难以理解
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cscbzcbz  
+##### 18242#       发表于 2026-10-26 16:24
+
+k3.1卡得没法用了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
