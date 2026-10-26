@@ -5353,3 +5353,56 @@ pi的codemode体验真比dsh的ptc模式强多了，大肥鱼跑脚本返工次�
 
 deepseek抽风了，思考一直在输出the
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18235#       发表于 2026-10-26 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422928&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-26 10:30</a>
+周末各大测试下来基本可以认为能力有，整体略弱于闭源sota，oneshot和审美能力不足需要使用者指挥，长程 ...</blockquote>
+已经降价了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  Hattle  
+##### 18236#       发表于 2026-10-26 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70424301&amp;ptid=2275806" target="_blank">宏. 发表于 2026-10-26 14:47</a>
+
+429错误超载限流了，kimi官方群都是哀嚎的，今天kimi重置了，用户嘴上说着太贵，蹬起来一个比一个狠 ...</blockquote>
+买都买了，不蹬不就浪费了.jpg
+
+不过KIMI真是国产模型里最喜欢429的了，连GLM现在都比较稳定了。
+
+国产模型真就最不看好Kimi，不能提供稳定服务的模型，根本就不可能获得用户基础
+
+
+*****
+
+####  ytrfegd  
+##### 18237#       发表于 2026-10-26 15:14
+
+今天codex灾难性的慢，astra和6.1sol的缓慢程度堪比乌龟
+
+*****
+
+####  冤枉呐  
+##### 18238#       发表于 2026-10-26 15:15
+
+<img src="https://img.stage1st.com/forum/202610/26/151429f5zb84olw4o5w84g.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20261026150053_105_37.jpg</strong> (34.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 15:14 上传
+
+用你知道的关于我的所有东西填满这个房间，夸张一点
+
+grok给我生的图没法发hhhh
+
+现在问题来了，为什么我发个贴结果啥内容都出不来
+
