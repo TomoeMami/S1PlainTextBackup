@@ -6458,3 +6458,28 @@ fable5.5出了ds怎么阻击呢，出个超越fable5.1，接近Astra的4.1pro吗
 这个首字速度差这么多吗？</blockquote>
 首字速度主要取决于prefill的速度，目前只有官方能做到1s以下，属于ds还没有开源的魔法infra的一部分。当然opencode的水平特别差就是了，属于除了便宜之外没什么可称道，只有在确实不急的情况可以用用
 
+
+*****
+
+####  lactone  
+##### 18331#       发表于 2026-10-26 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426317&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-26 22:52</a>
+fable5.5出了ds怎么阻击呢，出个超越fable5.1，接近Astra的4.1pro吗，我的预计里4.1pro能完全跨过fable5已 ...</blockquote>
+如果看屎山，那1017也不怕fable5<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+aa榜有利于大尺寸模型，1017在和尺寸无关的项目里超过fable5是没问题的
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  游公子  
+##### 18332#       发表于 2026-10-26 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426253&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-10-26 22:35</a>
+
+啊这，我还指望这点积分撑过月底。。。</blockquote>
+你可以学我，同时在TRAE等平台也领着积分，WorkBuddy用光了就用TRAE嘛，每天100啊。
+
