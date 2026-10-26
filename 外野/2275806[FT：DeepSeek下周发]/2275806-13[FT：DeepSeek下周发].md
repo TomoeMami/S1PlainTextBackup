@@ -6534,3 +6534,15 @@ fable5.5先把astra干了再说吧。那么快就忘了fable5.1被astra吊打么
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">A\的招股书里直接说今年前九个月有5-7%的收入来自违规使用的客户，都是封的老中的号吧
 
+
+*****
+
+####  御坂MKII  
+##### 18337#       发表于 2026-10-27 03:35
+
+Day 22/ Terra is back! 
+
+Our first model that is significantly better at writing,  personality and nuanced understanding of requests.
+
+wrting 吗<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
