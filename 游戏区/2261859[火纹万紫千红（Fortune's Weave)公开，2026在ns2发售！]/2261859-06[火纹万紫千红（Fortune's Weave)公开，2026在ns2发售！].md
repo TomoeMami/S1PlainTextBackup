@@ -7684,3 +7684,25 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 最后一章想早点打完看结局，基本没练，结果最后傻眼了
 
+
+*****
+
+####  mai6696  
+##### 8116#       发表于 2026-10-26 08:54
+
+ 本帖最后由 mai6696 于 2026-10-26 08:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420828&amp;ptid=2261859" target="_blank">Losange 发表于 2026-10-25 20:12</a>
+
+不打第五区的寇恩是不完整的，巴罗尔可以不打寇恩关一定要体验，可以见到本作最畜生的的东西
+
+暗魔法第三部 ...</blockquote>
+可是我就是报丧Θ的卷轴都用掉了。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+史莱姆的卷轴倒是入手方法更多。
+
+主要是这个弱智存档机制导致大家多少进了第三部都会踩坑。
+
+最功利的做法应该是第一部把卷轴全留着，第三部继承仓库之后，以后如果有机会重玩第一部再让角色吃卷轴继承上来。
+
+第三部仓库里的卷轴就可以留给剩下的人吃了。（虽说新娘红花好像也有托隆啊大地之颚，但是多多益善嘛）
+

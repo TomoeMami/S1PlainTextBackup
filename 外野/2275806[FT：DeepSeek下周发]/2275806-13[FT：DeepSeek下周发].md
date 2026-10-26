@@ -4820,3 +4820,38 @@ https://cdn.sta1n.cn/
 甚至自带防截断，我的酒馆相关已经全换成这个了</blockquote>
 现在没法注册了吧，获取验证码说邮箱不在白名单
 
+
+*****
+
+####  tillnight  
+##### 18193#       发表于 2026-10-26 08:47
+
+<blockquote>Milarvoz 发表于 2026-10-26 08:31
+kimi这发个重置也扣扣嗖嗖的，只给补偿月额度的25％。还煞有介事的发个公告。
+
+—— 来自 samsung SM-S9380 ...</blockquote>
+这个真没啥问题，tibo重置的也是周限（实际上比真正的周限往往还有缩水），只是kimi新套餐没有周限只有月限，所以他说月限的1/4，本质和oa的重置是一样的。
+
+*****
+
+####  绕指流光  
+##### 18194#         楼主| 发表于 2026-10-26 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422276&amp;ptid=2275806" target="_blank">muermaru 发表于 2026-10-26 08:42</a>
+
+现在没法注册了吧，获取验证码说邮箱不在白名单</blockquote>
+仔细读注册页面说明，QQ邮箱就行
+
+
+*****
+
+####  绕指流光  
+##### 18195#         楼主| 发表于 2026-10-26 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421637&amp;ptid=2275806" target="_blank">uncian 发表于 2026-10-25 23:47</a>
+
+请教一下酒馆搞瑟瑟推荐用的哪个模型，性价比高点的，我指的这个网址里的 ...</blockquote>
+哈基米3.8按次，2分5一次请求无输入输出限制，爽玩
+
+注意有些预设的输入是分段的，可能会增加消耗
+
