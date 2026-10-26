@@ -5478,3 +5478,38 @@ k3.1卡得没法用了<img src="https://static.stage1st.com/image/smiley/face201
 
 别人家的肥鱼闺女是怎么训练的，为啥我家这头肥鱼这么冷漠！<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hattle  
+##### 18245#       发表于 2026-10-26 16:39
+
+国内模型发展除了官方内部放料其他的第三方完全不可信吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 18246#       发表于 2026-10-26 16:40
+
+看屎山测试，opus5.5后端拉了呀，评论区好热闹，很多oneshot爱好者接受不了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿刚  
+##### 18247#       发表于 2026-10-26 16:42
+
+<blockquote>Hattle 发表于 2026-10-26 16:39
+国内模型发展除了官方内部放料其他的第三方完全不可信吧，DeepSeek内部我感觉都没有明确的发版时间表 ...</blockquote>
+还时间表，感觉他们自己对发布这个事都不是特别上心，反正不是agi随便发发得了（
+
+
+*****
+
+####  tillnight  
+##### 18248#       发表于 2026-10-26 16:44
+
+<blockquote>Promeus 发表于 2026-10-26 16:33
+不保真</blockquote>
+这人后来又发推了，说没有什么内裤消息，他只是按常理推断的。
+

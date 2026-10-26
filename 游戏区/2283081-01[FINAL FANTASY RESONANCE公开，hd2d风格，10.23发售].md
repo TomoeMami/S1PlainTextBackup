@@ -4823,3 +4823,21 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  requiem116  
+##### 465#       发表于 2026-10-26 16:41
+
+看到坛友分享的汉化地图里面的以太涡轮真的是感觉梦回十几年前了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kokyou  
+##### 466#       发表于 2026-10-26 16:46
+
+说起来这个XX者就是FF13开始的那个什么B（破坏）、D（防卫）HJ等等那一套吧
+
+所以雷霆姐什么时候能收到啊，我现在到了火帝国，这个地图拿到了两个还没有……
+
