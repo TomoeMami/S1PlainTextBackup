@@ -6546,3 +6546,13 @@ Our first model that is significantly better at writing,  personality and nuan
 
 wrting 吗<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 18338#       发表于 2026-10-27 03:43
+
+6.1terra应该oai第一个能用的flash模型，很好的执行者
+
+luna更加尴尬了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
