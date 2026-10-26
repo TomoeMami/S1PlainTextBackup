@@ -6210,3 +6210,25 @@ Re:Source ...</blockquote>
 互联网上的语料不是已经10T了，怎么还能往上提？</blockquote>
 现在是强化学习的时代了，都是沙盒里现造的合成数据<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 18311#       发表于 2026-10-26 21:17
+
+<img src="https://img.stage1st.com/forum/202610/26/211449w9tx4et9mwzmqbqx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-26 21:14 上传
+
+anthropic正式提交了S-1，进入IPO冲刺阶段。
+
+但是文中只字未提Fable5.5，不过提到了：    
+
+"For example, we recently chose to delay pre-training a new frontier base model for more than a month to allow time to further enhance our security measures related to preventing model weight exfiltration and protecting our intellectual property."
+
+解读：官方明确承认，他们最近（recently）有一个新的前沿基础模型（new frontier base model），因为安全原因（防止模型权重泄露），推迟了超过一个月的预训练（pre-training）。
+
