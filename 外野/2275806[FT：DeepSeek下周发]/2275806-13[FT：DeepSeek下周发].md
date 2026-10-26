@@ -5970,3 +5970,65 @@ OA的Astra和Fable已经是5-10T等级了。国内实验室上半年发的模型
 
 去年到今年旗舰模型规模翻了10倍。如果明年规模提升速度不减缓，到年底基本就要达到50-100T规模
 
+
+*****
+
+####  misuzu0723  
+##### 18291#       发表于 2026-10-26 18:59
+
+年初2-4T年底5-10T还能接受
+
+跳到50-100T感觉拉的太大了点吧
+
+
+*****
+
+####  andychen  
+##### 18292#       发表于 2026-10-26 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425442&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-26 18:52</a>
+
+目前跟业内聊的消息是国内有人投了大钱搞模型烧到芯片上那条路，现在已经跑通K3+fpga加速
+
+等明年模型能力 ...</blockquote>
+现在看不到平台在哪，如果明年进入平台期，那现在肯定能看见Scaling Law开始放缓的迹象，可现在一点迹象都没有
+
+芯片上直接固化模型权重本身没有技术障碍，服务成本和效率肯定也完爆现在的通用方案。问题是按当下的模型前沿能力迭代速度，一个模型的保质期短则三个月长则六个月。六个月时间大厂刚做完流片模型就过时了
+
+*****
+
+####  云卷花开  
+##### 18293#       发表于 2026-10-26 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425442&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-26 18:52</a>
+目前跟业内聊的消息是国内有人投了大钱搞模型烧到芯片上那条路，现在已经跑通K3+fpga加速
+
+等明年模型能力 ...</blockquote>
+我这没听说过，大概率不知道哪儿传的谣言，或者是有人看什么可重构之类的术语望文生义了。
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  qwased  
+##### 18294#       发表于 2026-10-26 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425449&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-26 18:55</a>
+
+这不回到矿机时代了吗
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+国内没有老黄那么强的对手，跑通这条路线确实有希望的
+
+
+*****
+
+####  lactone  
+##### 18295#       发表于 2026-10-26 19:03
+
+到没到平台得看用什么标准
+
+如果用说人话标准，平台都回去了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
