@@ -4807,3 +4807,16 @@ kimi这发个重置也扣扣嗖嗖的，只给补偿月额度的25％。还煞�
 
 Kimi也是真没算力<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不知道牢扬上次进京干啥了，不会真就当去听个座谈会吧
 
+
+*****
+
+####  muermaru  
+##### 18192#       发表于 2026-10-26 08:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70421320&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-25 22:23</a>
+
+https://cdn.sta1n.cn/
+
+甚至自带防截断，我的酒馆相关已经全换成这个了</blockquote>
+现在没法注册了吧，获取验证码说邮箱不在白名单
+

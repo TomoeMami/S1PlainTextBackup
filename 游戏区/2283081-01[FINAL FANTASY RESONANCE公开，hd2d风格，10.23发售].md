@@ -4630,3 +4630,32 @@ P2别用无属性伤害就行了，会触发反击，平时军师拉满buff上�
 说个题外话 kickstarter在众筹ff1-3桌游
 [https://www.kickstarter.com/proj ... -fantasy-board-game](https://www.kickstarter.com/projects/kessent/origins-of-light-a-final-fantasy-board-game)
 
+
+*****
+
+####  新HGCG  
+##### 448#       发表于 2026-10-26 08:41
+
+魔法剑八连击有点恐怖啊……
+
+*****
+
+####  ztkong  
+##### 449#       发表于 2026-10-26 08:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70419664&amp;ptid=2283081" target="_blank">YukariK 发表于 2026-10-25 13:09</a>
+
+商船是纯随机刷，还是要靠住旅店之类的操作刷？逛了大半天没见到了。</blockquote>
+商船有固定点位。。。只会在一个小范围区域内出没的。一共也就几次，买完就没了
+
+
+*****
+
+####  ztkong  
+##### 450#       发表于 2026-10-26 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420776&amp;ptid=2283081" target="_blank">火红之眼 发表于 2026-10-25 19:55</a>
+
+最高难度过了，可以封盘了，真是磨到天荒地老......熬过反击模式就一帆风顺了，700w左右的时候崩防了一次 ...</blockquote>
+求问这东西给的饰品是干啥用的，我就差这只了，血这么多有点不想打了都。==
+
