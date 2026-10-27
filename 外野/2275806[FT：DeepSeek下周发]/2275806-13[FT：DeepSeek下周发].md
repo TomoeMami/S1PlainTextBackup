@@ -7282,3 +7282,24 @@ GPT现在纯粹是个干活模型
 GPT现在纯粹是个干活模型</blockquote>
 干活也看得我头疼. 每次让他审查就来一句 证据不足以xxx. 心里没底.
 
+
+*****
+
+####  RookieTnT  
+##### 18400#       发表于 2026-10-27 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429355&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-10-27 14:55</a>
+
+主要是我也不知道现在AI生成视频是什么样的，我中午拿着DS1017软文里面几个3D视频找DS问，他说都可以用H5 ...</blockquote>
+很多视频都是three.js做的..
+
+
+*****
+
+####  魔法师lain  
+##### 18401#       发表于 2026-10-27 17:31
+
+dsf在qoder又陷入无限排队中。现在minimax 3.1f 和glm 5.3f哪个好？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
