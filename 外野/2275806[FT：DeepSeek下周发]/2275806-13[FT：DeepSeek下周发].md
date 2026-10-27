@@ -6630,3 +6630,17 @@ OpenAI那个沙盒逃逸就是，把一堆智能体关在独立的沙盒里，�
 你可以学我，同时在TRAE等平台也领着积分，WorkBuddy用光了就用TRAE嘛，每天100啊。 ...</blockquote>
 好的，我去了解一下，多谢！
 
+
+*****
+
+####  中国人  
+##### 18346#       发表于 2026-10-27 08:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70427070&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-27 07:51</a>
+【大伟哥谈米哈游AI大模型：“要做前所未有的事情”-哔哩哔哩】 https://b23.tv/h1X4Iej
+
+这就是前面某个坛 ...</blockquote>
+为什么不吹登火星呢，被老马吹烂了吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

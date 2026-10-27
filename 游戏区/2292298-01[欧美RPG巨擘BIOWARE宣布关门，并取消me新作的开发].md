@@ -1369,3 +1369,29 @@ Dantics，游戏 YouTuber、Mass Effect 社区参与者。
 
 管理混乱的连锁反应 [15:58]：由于《影障守护者》开发极为不顺，缺乏核心领导力，导致《质量效应》团队的人员被抽调去“救火”。作者愤怒地表示，正是这种管理不善直接拖垮了原本进展顺利、充满潜力的《质量效应》新作。
 
+
+*****
+
+####  karastar  
+##### 131#       发表于 2026-10-27 08:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426851&amp;ptid=2292298" target="_blank">perfect_duck 发表于 2026-10-27 02:51</a>
+
+https://www.youtube.com/watch?v=ZOWrTNazZxM
+
+Dantics，游戏 YouTuber、Mass Effect 社区参与者。</blockquote>
+每一款死掉的游戏都是充满潜力的，影障守护者在发布前也是充满潜力
+
+
+*****
+
+####  karastar  
+##### 131#       发表于 2026-10-27 08:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426851&amp;ptid=2292298" target="_blank">perfect_duck 发表于 2026-10-27 02:51</a>
+
+https://www.youtube.com/watch?v=ZOWrTNazZxM
+
+Dantics，游戏 YouTuber、Mass Effect 社区参与者。</blockquote>
+每一款死掉的游戏都是充满潜力的，影障守护者在发布前也是充满潜力
+
