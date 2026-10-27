@@ -7711,3 +7711,44 @@ Re:Source</blockquote>
 
 下午v4pro的api异常过。
 
+
+*****
+
+####  qwased  
+##### 18436#       发表于 2026-10-27 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431096&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-27 21:00</a>
+
+按说这个指纹明文算是核心信息，要真没有重要变化指纹会变吗？
+
+—— 来自 vivo V2520A, Android 16, 鹅球  ...</blockquote>
+模型吐字几率和之前完全一致，说明模型没变，md5撞不出来说明命名方式改了，有可能现在还加上了对应哪个机房
+
+*****
+
+####  Promeus  
+##### 18437#       发表于 2026-10-27 21:39
+
+要是真发4.1p可就真有点冲着恶心A/去了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白日依山尽  
+##### 18438#       发表于 2026-10-27 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431014&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-27 20:35</a>
+
+传话太监一个就够了，其余朝廷诸公需要各司其职</blockquote>
+会传歪，还会擅改圣旨，前段时间尝试过，特别是各种风格模型混用时
+
+*****
+
+####  lactone  
+##### 18439#       发表于 2026-10-27 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431221&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-27 21:39</a>
+模型吐字几率和之前完全一致，说明模型没变，md5撞不出来说明命名方式改了，有可能现在还加上了对应哪个 ...</blockquote>
+问题在于，如果是换了集群，速度也不会完全不变
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
