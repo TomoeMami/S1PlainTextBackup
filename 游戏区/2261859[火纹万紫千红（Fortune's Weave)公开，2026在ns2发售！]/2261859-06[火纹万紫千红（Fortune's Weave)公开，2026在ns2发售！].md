@@ -9129,3 +9129,20 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 迪托利希战争篇通了，剩下的跳过算了~
 
+
+*****
+
+####  ling1234567890  
+##### 8257#       发表于 2026-10-27 19:33
+
+这年头玩家不都是三观跟着五官走的么？真会看当初红秋裤会吵成那样？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卡拉德利姆  
+##### 8258#       发表于 2026-10-27 19:36
+
+白发鬼强度在哪 盟军的时候确实能一人单扛一条线
+第三部不是手短又脆皮的弱鸡？<img src="https://static.stage1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+

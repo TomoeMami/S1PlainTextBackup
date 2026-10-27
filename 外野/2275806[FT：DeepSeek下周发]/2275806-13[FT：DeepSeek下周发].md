@@ -7550,3 +7550,15 @@ https://github.com/anomalyco/opencode/blob/dev/AGENTS.md#style-guide 说是 open
 
 我们目前产品、开发、测试之间都是互相发长篇大论的 GPT 写的文档，然后让 GPT 自己看，真人真的看的下去吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  StrangerJ  
+##### 18421#       发表于 2026-10-27 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430701&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-27 19:18</a>
+我们目前产品、开发、测试之间都是互相发长篇大论的 GPT 写的文档，然后让 GPT 自己看，真人真的看的下去吗 ...</blockquote>
+以后趋势就是全流程都让ai来啊
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
