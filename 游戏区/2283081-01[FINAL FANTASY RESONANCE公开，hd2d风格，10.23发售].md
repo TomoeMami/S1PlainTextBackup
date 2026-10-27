@@ -5327,3 +5327,14 @@ JRPG大部分绝对内容都不太多，砍掉一些复古的傻逼设计，全�
 用樱是因为魔力最高吗？？想换魔女可不可以</blockquote>
 樱应该是自己buff有倍率提升，而黑菲的倍率提升只在能力值上，按伤害公式这个能力值提升影响没那么大，所以是樱强。
 
+
+*****
+
+####  focus  
+##### 510#       发表于 2026-10-27 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429144&amp;ptid=2283081" target="_blank">godless2020 发表于 2026-10-27 14:17</a>
+
+用樱是因为魔力最高吗？？想换魔女可不可以</blockquote>
+当然可以。三个法师 樱&gt;魔人菲&gt;菲， 其实就两三个隐藏boss可能有点区别，其它都是溢出的。
+
