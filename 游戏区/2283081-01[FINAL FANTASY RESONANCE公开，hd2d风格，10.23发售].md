@@ -5544,3 +5544,20 @@ JRPG ...</blockquote>
 陨石不就是黑魔法吗，我记得神马核爆陨石都是黑魔法，神圣是白魔法，反正雅修多拉的那些啥盟约魔法都能反 ...</blockquote>
 我知道陨石是黑魔法，我意思是这作是不是只有那种系列作三连命名的魔法才能反射。
 
+
+*****
+
+####  u2deack  
+##### 529#       发表于 2026-10-27 19:51
+
+幻兵男人太多了，我们最终幻想不是这样的世界<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  liliguo1  
+##### 530#       发表于 2026-10-27 19:53
+
+究极反不了，这就有点emmm
+
