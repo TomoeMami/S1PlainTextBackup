@@ -5348,3 +5348,14 @@ JRPG大部分绝对内容都不太多，砍掉一些复古的傻逼设计，全�
 樱应该是自己buff有倍率提升，而黑菲的倍率提升只在能力值上，按伤害公式这个能力值提升影响没那么大，所 ...</blockquote>
 但是迅雷自身没有强力群攻魔法吧？
 
+
+*****
+
+####  纪寞  
+##### 512#       发表于 2026-10-27 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429405&amp;ptid=2283081" target="_blank">DARK_HGCG 发表于 2026-10-27 15:03</a>
+
+但是迅雷自身没有强力群攻魔法吧？</blockquote>
+让幻兵提供就行了，樱这buff无可替代
+

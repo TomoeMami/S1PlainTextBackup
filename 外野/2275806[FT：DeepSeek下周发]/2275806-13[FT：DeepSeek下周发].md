@@ -7045,3 +7045,44 @@ ds、chatgpt、kimi 这家都太喜欢叠甲了
 额，这个需求，你试试使用workbuddy，白嫖的ai生成提示词，然后用豆包或者其他可以白嫖生视频的App或者网 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主要是我也不知道现在AI生成视频是什么样的，我中午拿着DS1017软文里面几个3D视频找DS问，他说都可以用H5编掉，说真的不是很懂，我还停留在本地装个软件自己渲染的年代……
 
+
+*****
+
+####  tonyunreal  
+##### 18380#       发表于 2026-10-27 15:17
+
+ds pro服务出现性能下降
+难道说
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  RookieTnT  
+##### 18381#       发表于 2026-10-27 15:17
+
+ChatGPT 已经彻底失去了说人话的能力：
+
+你说今天天气真好。它说：确实，但今天晴朗不代表明天晴朗，更不足以证明当地气候正在改善。
+
+大哥，我是想出门散步，不是让你给 ICLR 审稿。
+
+ChatGPT 三句话里有两句在叠甲：不能推出、并不代表、尚不足以确认、没有证据表明……
+
+于是我们愤怒骂他，不要再防御性回复了，少说废话。
+
+它诚恳道歉，然后补一句：但个别回答出现防御性表达，并不足以证明模型整体存在这个问题。
+
+ChatGPT 现在已经习惯了给每句话都套了十层 try/except...
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cody198879  
+##### 18382#       发表于 2026-10-27 15:18
+
+感觉今天是不是瞪的人太多了，workbuddy这边的4.1f出现性能下降了
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
