@@ -7148,3 +7148,21 @@ V4 Pro API 性能下降，难道说<img src="https://static.stage1st.com/image/s
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 18388#       发表于 2026-10-27 15:52
+
+要聊天就直接 chat 啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+总觉得我和漏油用的不是一个 gpt，我还觉得 o÷ chat 侧的产品做的挺好的，远比垃圾 codex 强多了
+
+*****
+
+####  warlock228  
+##### 18389#       发表于 2026-10-27 15:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">嘎啦嘛还没有消息更新吗，现在又回到之前天天发鸡蛋的日子了，每晚3亿
+
+<img src="https://picui.ogmua.cn/s1/2026/10/27/6ae05830124b4.webp" referrerpolicy="no-referrer">
+
