@@ -7752,3 +7752,14 @@ Re:Source</blockquote>
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  andychen  
+##### 18440#       发表于 2026-10-27 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431224&amp;ptid=2275806" target="_blank">白日依山尽 发表于 2026-10-27 21:40</a>
+
+会传歪，还会擅改圣旨，前段时间尝试过，特别是各种风格模型混用时</blockquote>
+进行提炼总结时一定会损失部分原始信息，这是金字塔型组织的固有缺陷
+

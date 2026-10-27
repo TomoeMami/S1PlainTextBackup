@@ -9384,3 +9384,14 @@ cp算个屁啊，白发鬼最有含金量的是朱拉结局钦定没有白发鬼
 有结局，在贴吧里另一个贴里</blockquote>
 哪个贴啊，没找到。。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 8284#       发表于 2026-10-27 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431259&amp;ptid=2261859" target="_blank">1wq1 发表于 2026-10-27 21:52</a>
+
+猫猫头肯定只能和自捏爱情结局啊，只有自捏牛别人的份，哪有别人牛自捏的道理啊，更不要谈这作自捏也有牛不 ...</blockquote>
+正论是这样，但是在朱紫这个专门让欧若拉出来把绿帽点出来的游戏里说这个有点……<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
