@@ -5396,3 +5396,20 @@ JRPG大部分绝对内容都不太多，砍掉一些复古的傻逼设计，全�
 缇娜？</blockquote>
 用陨石啊
 
+
+*****
+
+####  requiem116  
+##### 516#       发表于 2026-10-27 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428896&amp;ptid=2283081" target="_blank">liuqy 发表于 2026-10-27 13:19</a>
+
+玩多了感觉地图做的实在太烂了，探索感几乎等于0，感觉可以把迷宫里小地图取消了，反正都没有岔路。
+
+JRPG ...</blockquote>
+其实我对现在这个迷宫地图接受度还挺不错的，已经不是以前年轻时候的热情和精力了
+
+就这我核查了下还有漏的地图碎片
+
+现在这个年头，暗雷+复杂迷宫那不是要被人喷死
+
