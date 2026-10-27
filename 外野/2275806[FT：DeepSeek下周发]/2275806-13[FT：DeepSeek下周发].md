@@ -7939,3 +7939,16 @@ K3.1p什么🐶巴玩意，这速度能用啊？    [Re:Source](https://stage1
 
 qoder发了20刀的astra专用积分，让他做了一次计划，第一版我看就挺好的，然后他就在那不停的来回改添加防御性措辞<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">用上正版了
 
+
+*****
+
+####  qwased  
+##### 18458#       发表于 2026-10-28 01:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431775&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-28 01:25</a>
+
+关于让模型写项目日志或者利用外部记忆这件事，请问有什么最佳实践吗？
+
+比如说，在给它提示词的时候应该注 ...</blockquote>
+就告诉他写交接文档就行了，如果确实需要长期记忆文档就在agents.md里面约定记忆文档在哪，此文档只包含执行任务下一步最关键的信息，每一次执行任务后更新记忆文档并将下一步任务已不需要的信息归档至何处，保持记忆文档在100~150行以内
+
