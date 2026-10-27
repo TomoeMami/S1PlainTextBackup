@@ -7211,3 +7211,29 @@ kimi炸了？
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  startraveller  
+##### 18394#       发表于 2026-10-27 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429802&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-27 16:14</a>
+
+kimi炸了？
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+kimi每天中国下午和 美国下午都得疯狂429
+
+
+*****
+
+####  andychen  
+##### 18395#       发表于 2026-10-27 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429481&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-27 15:17</a>
+
+ChatGPT 已经彻底失去了说人话的能力：
+
+你说今天天气真好。它说：确实，但今天晴朗不代表明天晴朗，更不足 ...</blockquote>
+GPT现在纯粹是个干活模型
+
