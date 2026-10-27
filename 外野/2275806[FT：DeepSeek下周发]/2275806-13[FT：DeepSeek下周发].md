@@ -7303,3 +7303,16 @@ dsf在qoder又陷入无限排队中。现在minimax 3.1f 和glm 5.3f哪个好？
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  neptunehs  
+##### 18402#       发表于 2026-10-27 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430235&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-27 17:25</a>
+接了 mercury-3 来做翻译 太爽了.  DLLM再多点吧 😭</blockquote>
+多少钱来着？
+dllm认不认你的词汇表的？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
