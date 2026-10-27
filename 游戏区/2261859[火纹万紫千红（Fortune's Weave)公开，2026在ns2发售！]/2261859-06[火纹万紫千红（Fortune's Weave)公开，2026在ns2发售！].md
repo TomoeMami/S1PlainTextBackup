@@ -9365,3 +9365,22 @@ cp算个屁啊，白发鬼最有含金量的是朱拉结局钦定没有白发鬼
 
 现在这部分内容肯定是不全的，像支援对话结局cg啥的就完全没有，绝大多数dlc内容is就没放进本体里
 
+
+*****
+
+####  1wq1  
+##### 8282#       发表于 2026-10-27 21:52
+
+猫猫头肯定只能和自捏爱情结局啊，只有自捏牛别人的份，哪有别人牛自捏的道理啊，更不要谈这作自捏也有牛不到的
+
+
+*****
+
+####  HazukiShion  
+##### 8283#       发表于 2026-10-27 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430806&amp;ptid=2261859" target="_blank">六至九 发表于 2026-10-27 19:40</a>
+
+有结局，在贴吧里另一个贴里</blockquote>
+哪个贴啊，没找到。。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
