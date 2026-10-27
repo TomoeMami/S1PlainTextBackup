@@ -5514,3 +5514,13 @@ JRPG ...</blockquote>
 对，男主反射戒指+袒护全体就行了。w腕+魔法乱击+神官双次行动是16次魔法，每次劈30万，樱一次行动就480万 ...</blockquote>
 反射戒指是在啥时候拿到的
 
+
+*****
+
+####  隔壁老黄  
+##### 526#       发表于 2026-10-27 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430441&amp;ptid=2283081" target="_blank">requiem116 发表于 2026-10-27 18:16</a>
+反射戒指是在啥时候拿到的</blockquote>
+用召唤兽就行了，红玉洞那只
+

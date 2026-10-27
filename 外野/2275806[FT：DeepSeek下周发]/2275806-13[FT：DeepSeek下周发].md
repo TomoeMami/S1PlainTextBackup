@@ -7337,3 +7337,24 @@ dllm认不认你的词汇表的？</blockquote>
 
 现在 gpt 应该比我还熟悉我的网络<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lmclmc2  
+##### 18405#       发表于 2026-10-27 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430239&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-27 17:27</a>
+
+干活也看得我头疼. 每次让他审查就来一句 证据不足以xxx. 心里没底.</blockquote>
+GPT有很强的防御性编程,而且它会极度尝试撇清任何责任,所以不管是代码还是回复都是极尽可能的兜底
+
+当然该出问题还是出问题,另说(
+
+
+*****
+
+####  qz66618  
+##### 18406#       发表于 2026-10-27 18:36
+
+dsflash好像换了模型指纹，不清楚是不是部署问题或者只是换了检查点<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
