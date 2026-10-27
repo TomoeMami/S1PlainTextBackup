@@ -6644,3 +6644,26 @@ OpenAI那个沙盒逃逸就是，把一堆智能体关在独立的沙盒里，�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  zzy516232108  
+##### 18347#       发表于 2026-10-27 09:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">工作上有点需求，来问问楼友
+
+我要用一些图片 生成一些3d视频，是直接在对话框里问AI生成需要什么软件，修改提示词，先手动安装一堆内容，然后再新开一个任务复制提示词丢进去然后等奇迹发生？
+
+
+*****
+
+####  zfy1989  
+##### 18348#       发表于 2026-10-27 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70427509&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-10-27 09:38</a>
+
+工作上有点需求，来问问楼友
+
+我要用一些图片 生成一些3d视频，是直接在对话框里问AI生成需要什么软件，修改 ...</blockquote>
+你这个需求好模糊啊，你是要用照片生成运动的3d模型还是直接想生成一个ai视频，如果是ai视频，那基本上就是Seed2.5了，本地模型对硬件要求很高
+
