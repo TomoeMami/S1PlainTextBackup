@@ -7124,3 +7124,16 @@ V4 Pro API 性能下降，难道说<img src="https://static.stage1st.com/image/s
 
 2026-10-27 15:25 上传
 
+
+*****
+
+####  cscbzcbz  
+##### 18386#       发表于 2026-10-27 15:36
+
+ 本帖最后由 cscbzcbz 于 2026-10-27 15:37 编辑 
+
+一般是性能下降后，等几天发新模型<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+已经恢复了，就挂了14min，就挂了pro的API，感觉有戏<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
