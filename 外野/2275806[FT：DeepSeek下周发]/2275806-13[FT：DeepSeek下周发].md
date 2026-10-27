@@ -7498,3 +7498,47 @@ ds的指纹是md5，有相关日期和技术信息的，可以撞一下看看
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  qz66618  
+##### 18416#       发表于 2026-10-27 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430642&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-27 19:06</a>
+ds的指纹是md5，有相关日期和技术信息的，可以撞一下看看
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3. ...</blockquote>
+这个新的目前还没撞出来，估计变化比较大
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qz66618  
+##### 18417#       发表于 2026-10-27 19:09
+
+可能是华子的卡到了，放了一部分推理到新集群上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  奈落的孤火花  
+##### 18418#       发表于 2026-10-27 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430595&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-27 18:55</a>
+
+建议直接换个模型写文档</blockquote>
+但是还是gpt严谨……哎，没办法
+
+*****
+
+####  奈落的孤火花  
+##### 18419#       发表于 2026-10-27 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430617&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-27 19:01</a>
+
+https://github.com/anomalyco/opencode/blob/dev/AGENTS.md#style-guide 说是 opencode agent.md 的 sty ...</blockquote>
+任何事前的告诫都拦不住gpt从天性上去习惯写，他能前脚刚答应自己不要这么干，后脚立刻就开始输出这种话。所以只能是采取事后让他逐个核对再删改的方式。<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
