@@ -9349,3 +9349,11 @@ cp算个屁啊，白发鬼最有含金量的是朱拉结局钦定没有白发鬼
 
 <img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">看到猫猫头和自捏的结局了，is快把dlc端上来吧，正好重新打超难
 
+
+*****
+
+####  hkguty  
+##### 8280#       发表于 2026-10-27 21:20
+
+会不会是还有没解包出的结局，只跟自捏有恋爱结局的话这不是现代火纹第一深情+钦定官配了
+

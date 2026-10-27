@@ -7668,3 +7668,14 @@ Re:Source</blockquote>
 
 但是现在似乎好像没有模型变化报告
 
+
+*****
+
+####  UncleDracula  
+##### 18432#       发表于 2026-10-27 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431065&amp;ptid=2275806" target="_blank">dalarmar 发表于 2026-10-27 20:53</a>
+
+看了一下我的也到了，居然拖这么久，还以为免费积分没人权</blockquote>
+我用的DSH跑CodeBuddyAPI，没返还，不会区别对待吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
