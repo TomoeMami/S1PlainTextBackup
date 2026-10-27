@@ -9485,3 +9485,13 @@ cp算个屁啊，白发鬼最有含金量的是朱拉结局钦定没有白发鬼
 
 前者可领取道具袋 材料袋 后者另到依凭圣柜花碎片生成 
 
+
+*****
+
+####  cig2  
+##### 8293#       发表于 2026-10-28 06:47
+
+奶龙真的不行啊，只要是那张脸是谁都行，就这，凭什么猫猫头不能二婚<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
