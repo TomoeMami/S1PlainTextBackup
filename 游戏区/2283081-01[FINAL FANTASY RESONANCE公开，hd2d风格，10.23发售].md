@@ -5384,3 +5384,15 @@ JRPG大部分绝对内容都不太多，砍掉一些复古的傻逼设计，全�
 缇娜？</blockquote>
 蒂娜、雅喵都能用吧，乌托托应该也能
 
+
+*****
+
+####  隔壁老黄  
+##### 515#       发表于 2026-10-27 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429509&amp;ptid=2283081" target="_blank">DARK_HGCG 发表于 2026-10-27 15:21</a>
+有强力群攻魔法的幻兵求推荐
+
+缇娜？</blockquote>
+用陨石啊
+

@@ -7137,3 +7137,14 @@ V4 Pro API 性能下降，难道说<img src="https://static.stage1st.com/image/s
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  LANGWANG  
+##### 18387#       发表于 2026-10-27 15:38
+
+4.1pro要来了吗。
+十月惊奇！
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
