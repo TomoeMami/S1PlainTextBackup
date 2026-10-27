@@ -6690,3 +6690,22 @@ OpenAI那个沙盒逃逸就是，把一堆智能体关在独立的沙盒里，�
 
 刚买了gpt 问下是不是和哈吉米一样 要tun模式翻墙才能用gpt 还是普通模式就行了 用的codex桌面版 
 
+
+*****
+
+####  inpachi  
+##### 18351#       发表于 2026-10-27 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70427575&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-10-27 09:51</a>
+
+刚买了gpt 问下是不是和哈吉米一样 要tun模式翻墙才能用gpt 还是普通模式就行了 用的codex桌面版  ...</blockquote>
+应该不需要，只要开系统代理就行了
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 18352#       发表于 2026-10-27 10:04
+
+15T纯串了，dpsk没有魔法，手头硬件玩出花来也不可能<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
