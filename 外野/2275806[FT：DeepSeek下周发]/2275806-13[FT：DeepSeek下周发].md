@@ -7931,3 +7931,11 @@ K3.1p什么🐶巴玩意，这速度能用啊？    [Re:Source](https://stage1
 
 比如说，在给它提示词的时候应该注意什么？
 
+
+*****
+
+####  qwased  
+##### 18457#       发表于 2026-10-28 01:38
+
+qoder发了20刀的astra专用积分，让他做了一次计划，第一版我看就挺好的，然后他就在那不停的来回改添加防御性措辞<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">用上正版了
+
