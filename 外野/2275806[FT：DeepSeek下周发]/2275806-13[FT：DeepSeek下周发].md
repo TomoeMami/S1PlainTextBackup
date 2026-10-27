@@ -7870,3 +7870,24 @@ ds的压缩上下文效果比gpt差了不少，好不容易感觉对这个项目
 ds的压缩上下文效果比gpt差了不少，好不容易感觉对这个项目上手了，一压缩又什么都忘了 ...</blockquote>
 不能指望压缩，跨会话项目还是让他自己规划好交接日志，尤其是关键数据节点的索引
 
+
+*****
+
+####  洛拉斯  
+##### 18451#       发表于 2026-10-28 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431608&amp;ptid=2275806" target="_blank">拯救节操希灵宅 发表于 2026-10-27 23:54</a>
+
+ds的压缩上下文效果比gpt差了不少，好不容易感觉对这个项目上手了，一压缩又什么都忘了 ...</blockquote>
+你不写项目文档和交接日志吗？
+
+*****
+
+####  qwased  
+##### 18452#       发表于 2026-10-28 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431608&amp;ptid=2275806" target="_blank">拯救节操希灵宅 发表于 2026-10-27 23:54</a>
+
+ds的压缩上下文效果比gpt差了不少，好不容易感觉对这个项目上手了，一压缩又什么都忘了 ...</blockquote>
+不能一个对话窗口跑太久，压缩1~2次还行，先拆分任务再发对应的任务书
+
