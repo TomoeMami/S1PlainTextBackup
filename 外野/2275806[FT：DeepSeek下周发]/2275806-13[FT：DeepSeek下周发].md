@@ -7859,3 +7859,14 @@ Astra强力和Astra喜欢造屎其实一点也不矛盾...
 
 ds的压缩上下文效果比gpt差了不少，好不容易感觉对这个项目上手了，一压缩又什么都忘了
 
+
+*****
+
+####  阿刚  
+##### 18450#       发表于 2026-10-27 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431608&amp;ptid=2275806" target="_blank">拯救节操希灵宅 发表于 2026-10-27 23:54</a>
+
+ds的压缩上下文效果比gpt差了不少，好不容易感觉对这个项目上手了，一压缩又什么都忘了 ...</blockquote>
+不能指望压缩，跨会话项目还是让他自己规划好交接日志，尤其是关键数据节点的索引
+
