@@ -9341,3 +9341,11 @@ cp算个屁啊，白发鬼最有含金量的是朱拉结局钦定没有白发鬼
 
 味大得很
 
+
+*****
+
+####  Losange  
+##### 8279#       发表于 2026-10-27 21:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">看到猫猫头和自捏的结局了，is快把dlc端上来吧，正好重新打超难
+
