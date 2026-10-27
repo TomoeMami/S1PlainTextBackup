@@ -5200,3 +5200,33 @@ cloud自回+洋葱3倍按一下就涨不少了吧，还有用完奥义自回20�
 刚看到别人用魔法aoe打自己人然后反射给boss的打法真没招了，怎么我就没想到这样的思路，这下非自限的情况 ...</blockquote>
 这么做有啥好处
 
+
+*****
+
+####  diectt  
+##### 497#       发表于 2026-10-27 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428439&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-27 11:56</a>
+
+奇怪，那我就不知道了，是不是有什么地方看漏了？</blockquote>
+重新开关下游戏图标没了，应该是个小bug<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  隔壁老黄  
+##### 498#       发表于 2026-10-27 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428192&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-27 11:20</a>
+刚看到别人用魔法aoe打自己人然后反射给boss的打法真没招了，怎么我就没想到这样的思路，这下非自限的情况 ...</blockquote>
+FF6魔导塔的杂兵全都会这招，给自己上反射然后给自己放大魔法，也会给你上反射，不给你用回复魔法
+
+*****
+
+####  隔壁老黄  
+##### 499#       发表于 2026-10-27 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428634&amp;ptid=2283081" target="_blank">达达葱2 发表于 2026-10-27 12:27</a>
+这么做有啥好处</blockquote>
+全体魔法可以连打四次
+
