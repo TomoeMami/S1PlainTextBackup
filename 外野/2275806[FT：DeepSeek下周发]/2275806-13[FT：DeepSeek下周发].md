@@ -6619,3 +6619,14 @@ OpenAI那个沙盒逃逸就是，把一堆智能体关在独立的沙盒里，�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是前面某个坛友神神道道的超牛逼新加坡算力中心ai吗
 
+
+*****
+
+####  绯色日照  
+##### 18345#       发表于 2026-10-27 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426511&amp;ptid=2275806" target="_blank">游公子 发表于 2026-10-26 23:46</a>
+
+你可以学我，同时在TRAE等平台也领着积分，WorkBuddy用光了就用TRAE嘛，每天100啊。 ...</blockquote>
+好的，我去了解一下，多谢！
+
