@@ -9022,3 +9022,26 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 —— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  Jabeck  
+##### 8246#       发表于 2026-10-27 18:48
+
+不是，白发鬼都进监狱了被做实验人都变样了还被NTR了都能算要啥有啥吗。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 8247#       发表于 2026-10-27 18:49
+
+说来搞笑，贴吧前几天就开贴争论凯伊是不是真主角，今天就是白发鬼内部爱了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  flyingover  
+##### 8248#       发表于 2026-10-27 18:51
+
+比之前欧若拉是不是亲生好多了
+
