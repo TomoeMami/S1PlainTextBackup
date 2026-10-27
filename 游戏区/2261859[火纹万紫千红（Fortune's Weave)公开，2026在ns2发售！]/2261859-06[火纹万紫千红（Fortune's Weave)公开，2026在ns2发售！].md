@@ -8904,3 +8904,28 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 —— 来自 鹅球 v3.5.99 ...</blockquote>
 什么界之轨迹2<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oniwarud  
+##### 8235#       发表于 2026-10-27 17:17
+
+<blockquote>freedom12 发表于 2026-10-27 15:56
+怎么看出来 救世篇少了一大半？
+
+我之前也觉得 芙托娜神殿/安娜/方尖大厅的那个大钟 这些都是给真主角线准 ...</blockquote>
+那个大钟实际上是个模拟太阳系的星盘，八颗行星（八主角）围着太阳（奶龙/自捏）转动，并在最后在正北方排成一条直线。这种天象在古代代表什么就不用多说了，自从看到有人发现这点后基本就可以确定这代自捏+八主角的构思是很早就确定下来的了
+
+
+*****
+
+####  freedom12  
+##### 8236#       发表于 2026-10-27 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430194&amp;ptid=2261859" target="_blank">oniwarud 发表于 2026-10-27 17:17</a>
+
+那个大钟实际上是个模拟太阳系的星盘，八颗行星（八主角）围着太阳（奶龙/自捏）转动，并在最后在正北方 ...</blockquote>
+我的意思 是那个大钟可能会在八个主角达成条件后会有变化 作为开启真主角线的标志
+
+而且可能是作为连接芙托娜神殿的入口
+

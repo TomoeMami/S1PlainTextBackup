@@ -7263,3 +7263,22 @@ GPT现在纯粹是个干活模型
 
 微软开始大规模劝退员工了
 
+
+*****
+
+####  RookieTnT  
+##### 18398#       发表于 2026-10-27 17:25
+
+接了 mercury-3 来做翻译 太爽了.  DLLM再多点吧 😭
+
+
+*****
+
+####  RookieTnT  
+##### 18399#       发表于 2026-10-27 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429991&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-27 16:46</a>
+
+GPT现在纯粹是个干活模型</blockquote>
+干活也看得我头疼. 每次让他审查就来一句 证据不足以xxx. 心里没底.
+
