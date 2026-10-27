@@ -6738,3 +6738,16 @@ terra6.1不行，早泄太厉害，做一点就停工了，被dot拿鞭子抽<im
 刚买了gpt 问下是不是和哈吉米一样 要tun模式翻墙才能用gpt 还是普通模式就行了 用的codex桌面版  ...</blockquote>
 以前可能会出现梯子不支持WebSocket导致重试5次后退回https通信模式的问题，现在应该没了吧？还有就加个.env文件让codex强制走代理
 
+
+*****
+
+####  SmterC  
+##### 18356#       发表于 2026-10-27 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70427070&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-27 07:51</a>
+
+【大伟哥谈米哈游AI大模型：“要做前所未有的事情”-哔哩哔哩】 https://b23.tv/h1X4Iej
+
+这就是前面某个坛 ...</blockquote>
+M字头刷分大家族即将迎来新成员
+
