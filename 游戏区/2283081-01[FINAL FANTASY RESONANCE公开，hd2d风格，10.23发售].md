@@ -5167,3 +5167,14 @@ cloud自回+洋葱3倍按一下就涨不少了吧，还有用完奥义自回20�
 看了，甲板上没任务啊</blockquote>
 奇怪，那我就不知道了，是不是有什么地方看漏了？
 
+
+*****
+
+####  喵喵叫的猫  
+##### 494#       发表于 2026-10-27 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428333&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-27 11:41</a>
+第五章末尾，飞空艇上有个蓝色的支线图标，可进去一看啥都没，现在第六章了还是这样，谁知道咋回事 ...</blockquote>
+试试不直接传送到飞艇
+从地上进飞艇 记得探测器改造的任务要这样才触发
+

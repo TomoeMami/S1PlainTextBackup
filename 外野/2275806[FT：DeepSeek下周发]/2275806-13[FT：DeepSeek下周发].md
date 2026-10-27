@@ -6919,3 +6919,11 @@ ds、chatgpt、kimi 这家都太喜欢叠甲了<img src="https://static.stage1st
 今天遇到一个搞笑的事情，我让他帮我拿起安全中心，结果安全中心把他写的脚本当木 ...</blockquote>
 这才哪到哪他敢的事情多了。。。而且次数多了还会有那种那咋啦的状态
 
+
+*****
+
+####  Promeus  
+##### 18370#       发表于 2026-10-27 12:00
+
+<img src="https://p.sda1.dev/35/be9f08abf4261540ab381dea9fcdb9b4/image.jpg" referrerpolicy="no-referrer">
+
