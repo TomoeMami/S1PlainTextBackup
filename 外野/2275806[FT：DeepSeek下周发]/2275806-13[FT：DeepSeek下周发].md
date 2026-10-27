@@ -7022,3 +7022,26 @@ ds、chatgpt、kimi 这家都太喜欢叠甲了
 
 —— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zfy1989  
+##### 18378#       发表于 2026-10-27 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428727&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-10-27 12:42</a>
+
+领导也是随口提一嘴，不知道他想搞什么
+
+应该就是根据几个静态的产品图片材料 生成一套动态的演示视频demo ...</blockquote>
+额，这个需求，你试试使用workbuddy，白嫖的ai生成提示词，然后用豆包或者其他可以白嫖生视频的App或者网站（让ai帮你找哪些可以白嫖）的生成视频试试，感觉你这个需求并不用上付费
+
+*****
+
+####  zzy516232108  
+##### 18379#       发表于 2026-10-27 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429348&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-10-27 14:53</a>
+
+额，这个需求，你试试使用workbuddy，白嫖的ai生成提示词，然后用豆包或者其他可以白嫖生视频的App或者网 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主要是我也不知道现在AI生成视频是什么样的，我中午拿着DS1017软文里面几个3D视频找DS问，他说都可以用H5编掉，说真的不是很懂，我还停留在本地装个软件自己渲染的年代……
+
