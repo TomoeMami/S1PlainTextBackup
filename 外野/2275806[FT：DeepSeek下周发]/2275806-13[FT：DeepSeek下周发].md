@@ -7824,3 +7824,15 @@ Astra强力和Astra喜欢造屎其实一点也不矛盾...
 
 现在X好像在大规模针对kimi，正面的内容发了强制要求加付费合作标识，不加就封号
 
+
+*****
+
+####  startraveller  
+##### 18447#       发表于 2026-10-27 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431518&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-10-27 23:24</a>
+现在X好像在大规模针对kimi，正面的内容发了强制要求加付费合作标识，不加就封号 ...</blockquote>
+我看是很多人玩梗
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
