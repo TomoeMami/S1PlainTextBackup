@@ -6849,3 +6849,23 @@ env➕proxifier即可
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  洛拉斯  
+##### 18365#       发表于 2026-10-27 11:35
+
+大肥鱼活人感的确挺强的
+
+今天遇到一个搞笑的事情，我让他帮我拿起安全中心，结果安全中心把他写的脚本当木马杀了
+
+大肥鱼回了我一句<blockquote>现在连我的辅助程序都敢拦</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/27/113638ffakrbz4qq4obkbi.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-10-27_113606_855.png</strong> (117.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-27 11:36 上传
+
