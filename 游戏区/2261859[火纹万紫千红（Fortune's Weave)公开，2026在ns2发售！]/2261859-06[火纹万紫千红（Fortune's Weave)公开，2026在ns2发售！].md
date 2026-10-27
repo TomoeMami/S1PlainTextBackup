@@ -8778,3 +8778,11 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 现实多加几个神，再加个boss和一点自捏剧情划划水就完事了
 
+
+*****
+
+####  刑部姬真可爱  
+##### 8220#       发表于 2026-10-27 16:13
+
+迪哥和蕾达这俩和白发爹的双人结局可以争抽象结局的一二名<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

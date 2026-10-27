@@ -7191,3 +7191,23 @@ ChatGPT 已经彻底失去了说人话的能力：
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  zzy516232108  
+##### 18392#       发表于 2026-10-27 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429497&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-27 15:19</a>
+
+你可以试着问一下ds给你做一个，主要是你这个动态是要怎么样的动态</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我也很迷惑，我先让DS尝试做一个3D模型转来转去的吧，虽然不知道有什么用……
+
+*****
+
+####  lactone  
+##### 18393#       发表于 2026-10-27 16:14
+
+kimi炸了？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
