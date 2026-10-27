@@ -6751,3 +6751,49 @@ terra6.1不行，早泄太厉害，做一点就停工了，被dot拿鞭子抽<im
 这就是前面某个坛 ...</blockquote>
 M字头刷分大家族即将迎来新成员
 
+
+*****
+
+####  Promeus  
+##### 18357#       发表于 2026-10-27 10:50
+
+15t他们不止一次串过，应该是明年的目标<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  phorcys02  
+##### 18358#       发表于 2026-10-27 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70427965&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-27 10:50</a>
+
+15t他们不止一次串过，应该是明年的目标</blockquote>
+之前不是谣传 小中大  0.5/2/8 么
+
+下一代变成 2/15/40 ?
+
+
+*****
+
+####  icedew  
+##### 18359#       发表于 2026-10-27 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425662&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-10-26 19:50</a>
+我不懂瞎问，如果大模型固化到FPGA上了，还需要配大量内存颗粒吗
+
+——来自 2410DPN6CC 上的 S1er 客户端 ...</blockquote>
+固化现在有好几种，最贵的把模型权重都烧进去的不需要内存，但这种贵且规模上不去，但快，单位token成本也低个量级，理论上28nm成熟制程能打3nm的，而且母版投入大不能换，现在这种快速迭代期就一家搞个8b小模型的。
+fpga也能内化权重，但问题也是贵，而且fpga规模也上不去。
+还有一种就是fpga固化算法，这种与显卡类似，但理论上就与普通显卡拉不开差距（只有独特算子这些才有用）甚至由于制程功率等原因比高端显卡更慢。老黄显卡内也都是专用电炉丝，fpga这种查表的比直连慢很多。但现在llm都快趋同了，重量级算子都覆盖了，这条路线基本变渣渣了。
+
+*****
+
+####  Promeus  
+##### 18360#       发表于 2026-10-27 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70427991&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-10-27 10:53</a>
+之前不是谣传 小中大  0.5/2/8 么
+
+下一代变成 2/15/40 ?</blockquote>
+我是说8月的时候他们内部那几个串子就串过15t参数，有概率是内部有个未来目标
+
