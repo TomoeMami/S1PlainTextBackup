@@ -7329,3 +7329,11 @@ dllm认不认你的词汇表的？
 dllm认不认你的词汇表的？</blockquote>
 认.  目前打折好像每百万输入Token 为0.10 美元，输出为0.35 美元. 能力和luna差不多.
 
+
+*****
+
+####  moekyo  
+##### 18404#       发表于 2026-10-27 18:23
+
+现在 gpt 应该比我还熟悉我的网络<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
