@@ -7891,3 +7891,25 @@ ds的压缩上下文效果比gpt差了不少，好不容易感觉对这个项目
 ds的压缩上下文效果比gpt差了不少，好不容易感觉对这个项目上手了，一压缩又什么都忘了 ...</blockquote>
 不能一个对话窗口跑太久，压缩1~2次还行，先拆分任务再发对应的任务书
 
+
+*****
+
+####  andychen  
+##### 18453#       发表于 2026-10-28 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431608&amp;ptid=2275806" target="_blank">拯救节操希灵宅 发表于 2026-10-27 23:54</a>
+
+ds的压缩上下文效果比gpt差了不少，好不容易感觉对这个项目上手了，一压缩又什么都忘了 ...</blockquote>
+要长期使用的会话最好用外部记忆
+
+
+*****
+
+####  tonyunreal  
+##### 18454#       发表于 2026-10-28 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431605&amp;ptid=2275806" target="_blank">char1st 发表于 2026-10-27 23:53</a>
+
+现在必须要绑定邮箱了？</blockquote>
+AdBlock或者写Stylus脚本屏蔽 .ds-modal-focus-lock 和 .ds-modal-overlay 两个class，好像还能接着用
+
