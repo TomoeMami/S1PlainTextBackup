@@ -5295,3 +5295,13 @@ JRPG大部分绝对内容都不太多，砍掉一些复古的傻逼设计，全�
 
 还有两个呢
 
+
+*****
+
+####  隔壁老黄  
+##### 507#       发表于 2026-10-27 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428924&amp;ptid=2283081" target="_blank">DARK_HGCG 发表于 2026-10-27 13:25</a>
+魔法输出，迅雷和魔人哪个更高</blockquote>
+一起上
+
