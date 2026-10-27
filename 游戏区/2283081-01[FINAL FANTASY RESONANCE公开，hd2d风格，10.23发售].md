@@ -5119,3 +5119,51 @@ cloud自回+洋葱3倍按一下就涨不少了吧，还有用完奥义自回20�
 
 第五章末尾，飞空艇上有个蓝色的支线图标，可进去一看啥都没，现在第六章了还是这样，谁知道咋回事
 
+
+*****
+
+####  纪寞  
+##### 490#       发表于 2026-10-27 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428333&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-27 11:41</a>
+
+第五章末尾，飞空艇上有个蓝色的支线图标，可进去一看啥都没，现在第六章了还是这样，谁知道咋回事 ...</blockquote>
+飞空艇正中间的门可以到甲板上
+
+
+*****
+
+####  DARK_HGCG  
+##### 491#       发表于 2026-10-27 11:54
+
+私密马赛
+
+<img src="https://img.stage1st.com/forum/202610/27/115358fxbal3h666af7bqb.jpg" referrerpolicy="no-referrer">
+
+<strong>31364.jpg</strong> (295.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-27 11:53 上传
+
+*****
+
+####  diectt  
+##### 492#       发表于 2026-10-27 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428383&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-27 11:49</a>
+
+飞空艇正中间的门可以到甲板上</blockquote>
+看了，甲板上没任务啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纪寞  
+##### 493#       发表于 2026-10-27 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428432&amp;ptid=2283081" target="_blank">diectt 发表于 2026-10-27 11:56</a>
+
+看了，甲板上没任务啊</blockquote>
+奇怪，那我就不知道了，是不是有什么地方看漏了？
+
