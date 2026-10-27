@@ -7627,3 +7627,26 @@ v4.1 flash 好像指纹发生变化了
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qwased  
+##### 18428#       发表于 2026-10-27 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431034&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-10-27 20:44</a>
+
+v4.1 flash 好像指纹发生变化了
+
+Re:Source</blockquote>
+接入新机房了
+
+
+*****
+
+####  dalarmar  
+##### 18429#       发表于 2026-10-27 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430968&amp;ptid=2275806" target="_blank">lambl 发表于 2026-10-27 20:21</a>
+返还了，刚才看我突然多了2000多积分。</blockquote>
+看了一下我的也到了，居然拖这么久，还以为免费积分没人权
+
