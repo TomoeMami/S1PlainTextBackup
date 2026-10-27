@@ -6965,3 +6965,23 @@ submit feedback
 
 Request ID:
 
+
+*****
+
+####  zzy516232108  
+##### 18373#       发表于 2026-10-27 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70427559&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-10-27 09:47</a>
+
+你这个需求好模糊啊，你是要用照片生成运动的3d模型还是直接想生成一个ai视频，如果是ai视频，那基本上就 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">领导也是随口提一嘴，不知道他想搞什么
+
+应该就是根据几个静态的产品图片材料 生成一套动态的演示视频demo的样子？
+
+*****
+
+####  needagf  
+##### 18374#       发表于 2026-10-27 12:42
+
+workbudyy里的kimi 3.1，我让他生成一个科普类的小视频，别说跟opus 5.5了，连1017都比不了一点，作为普通用户，这前端强的特点看不出来啊。而且，那额度消耗的，嗷嗷的。用不了一点。
+
