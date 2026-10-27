@@ -7679,3 +7679,35 @@ Re:Source</blockquote>
 看了一下我的也到了，居然拖这么久，还以为免费积分没人权</blockquote>
 我用的DSH跑CodeBuddyAPI，没返还，不会区别对待吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 18433#       发表于 2026-10-27 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431014&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-27 20:35</a>
+
+传话太监一个就够了，其余朝廷诸公需要各司其职</blockquote>
+我最近也在研究智能体团队是使用传统的金字塔型组织结构合理还是使用更扁平的网状组织结构更合理
+
+后者上下文信息管理的难度更大，但是沟通效率上限更高
+
+*****
+
+####  lactone  
+##### 18434#       发表于 2026-10-27 21:31
+
+我刚才测了一下，不是随机路由，是所有flash 都路由到了新指纹
+
+如果是换机房，那可能是把原来的机房要腾出来给新模型？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  tillnight  
+##### 18435#       发表于 2026-10-27 21:35
+
+下午v4pro的api异常过。
+
