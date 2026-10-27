@@ -1395,3 +1395,20 @@ https://www.youtube.com/watch?v=ZOWrTNazZxM
 Dantics，游戏 YouTuber、Mass Effect 社区参与者。</blockquote>
 每一款死掉的游戏都是充满潜力的，影障守护者在发布前也是充满潜力
 
+
+*****
+
+####  qqq2142  
+##### 132#       发表于 2026-10-27 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70410504&amp;ptid=2292298" target="_blank">ak123 发表于 2026-10-23 08:33</a>
+
+但是ea因为嫡系独爱基软，他家别的组别说质量扑街了，死亡空间只是卖不好一次就解散，基软可是三连扑烧没 ...</blockquote>
+有一说一，是卖不好几次次
+
+但是说实话V组一点问题都没有
+
+DS3开发当时管理层觉得游戏太恐怖了导致销量受限，然后吧DS3改成一个射击要素跟多的游戏，结果变成新玩家没兴趣，老玩家觉得忘本。
+
+后面V组做了BFH，可惜题材有问题，游戏本身没啥问题，但是就是IP不对，最后也暴死了。
+
