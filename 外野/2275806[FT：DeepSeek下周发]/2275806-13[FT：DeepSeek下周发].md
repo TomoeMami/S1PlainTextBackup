@@ -7542,3 +7542,11 @@ ds的指纹是md5，有相关日期和技术信息的，可以撞一下看看
 https://github.com/anomalyco/opencode/blob/dev/AGENTS.md#style-guide 说是 opencode agent.md 的 sty ...</blockquote>
 任何事前的告诫都拦不住gpt从天性上去习惯写，他能前脚刚答应自己不要这么干，后脚立刻就开始输出这种话。所以只能是采取事后让他逐个核对再删改的方式。<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小野賢章  
+##### 18420#       发表于 2026-10-27 19:18
+
+我们目前产品、开发、测试之间都是互相发长篇大论的 GPT 写的文档，然后让 GPT 自己看，真人真的看的下去吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
