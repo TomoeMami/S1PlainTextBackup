@@ -9417,3 +9417,14 @@ cp算个屁啊，白发鬼最有含金量的是朱拉结局钦定没有白发鬼
 
 不过按照小日子的喜好，下一作是芙朵拉西北方向的阿尔比聂的可能性最大，原型英国正好整个亚瑟王和罗宾汉的故事大集合<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  inf91  
+##### 8287#       发表于 2026-10-27 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430801&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-10-27 19:39</a>
+
+白发鬼的强度也就是战争篇前一半还能支棱两下，到后面几关一样戳不住，自己的圣焰战技又一次只有一格，武器 ...</blockquote>
+白发鬼控制圣焰一键爆气攒条干什么……
+

@@ -7836,3 +7836,26 @@ Astra强力和Astra喜欢造屎其实一点也不矛盾...
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  char1st  
+##### 18448#       发表于 2026-10-27 23:53
+
+<img src="https://img.stage1st.com/forum/202610/27/235314xebo5ldisoil5iii.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-27 23:53 上传
+
+ 现在必须要绑定邮箱了？
+
+*****
+
+####  拯救节操希灵宅  
+##### 18449#       发表于 2026-10-27 23:54
+
+ds的压缩上下文效果比gpt差了不少，好不容易感觉对这个项目上手了，一压缩又什么都忘了
+
