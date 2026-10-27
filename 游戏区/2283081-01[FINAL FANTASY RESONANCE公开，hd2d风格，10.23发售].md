@@ -5503,3 +5503,14 @@ JRPG ...</blockquote>
 另外这么反射吃得到收束之理吗？ ...</blockquote>
 吃得到，我试过了，全体化不减伤应该也能吃到，太特么暴力了，一次打十几万血，我还只是用普通属性魔法<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  requiem116  
+##### 525#       发表于 2026-10-27 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428900&amp;ptid=2283081" target="_blank">focus 发表于 2026-10-27 13:20</a>
+
+对，男主反射戒指+袒护全体就行了。w腕+魔法乱击+神官双次行动是16次魔法，每次劈30万，樱一次行动就480万 ...</blockquote>
+反射戒指是在啥时候拿到的
+
