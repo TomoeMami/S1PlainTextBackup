@@ -5075,3 +5075,20 @@ cloud自回+洋葱3倍按一下就涨不少了吧，还有用完奥义自回20�
 
 还差一些挑战内容就全成就了，算上demo时长，专家难度预计60+小时结束，整体还不错，最后结局节奏安排有些差
 
+
+*****
+
+####  u2deack  
+##### 485#       发表于 2026-10-27 10:59
+
+做机械鸟修复的那些任务怪不给我出倒是猛出仙人掌，经验直接吃饱了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  kirito_wst  
+##### 486#       发表于 2026-10-27 10:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">希望能有dlc或者续作，以及等续作期间能整出有趣的mod来玩玩
+

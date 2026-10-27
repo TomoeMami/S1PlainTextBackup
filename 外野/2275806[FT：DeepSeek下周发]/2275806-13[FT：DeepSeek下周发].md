@@ -6797,3 +6797,55 @@ fpga也能内化权重，但问题也是贵，而且fpga规模也上不去。
 下一代变成 2/15/40 ?</blockquote>
 我是说8月的时候他们内部那几个串子就串过15t参数，有概率是内部有个未来目标
 
+
+*****
+
+####  phorcys02  
+##### 18361#       发表于 2026-10-27 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428016&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-27 10:57</a>
+
+我是说8月的时候他们内部那几个串子就串过15t参数，有概率是内部有个未来目标 ...</blockquote>
+这帮人太能串了，反而显得讨论他们串串的人显得很傻，比如我。
+
+*****
+
+####  龙骑士尹志平  
+##### 18362#       发表于 2026-10-27 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70427766&amp;ptid=2275806" target="_blank">dark_saber 发表于 2026-10-27 10:23</a>
+
+以前可能会出现梯子不支持WebSocket导致重试5次后退回https通信模式的问题，现在应该没了吧？还有就加个. ...</blockquote>
+刚才试了下，似乎还是要开tun模式，关闭了就5次重连，算了懒得搞了，感谢
+
+
+*****
+
+####  dark_saber  
+##### 18363#       发表于 2026-10-27 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428048&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-10-27 11:01</a>
+
+刚才试了下，似乎还是要开tun模式，关闭了就5次重连，算了懒得搞了，感谢 ...</blockquote>
+可以在.codex目录下新建一个.env文件，里面填入：
+
+HTTP_PROXY="http://127.0.0.1:port"
+
+HTTPS_PROXY="http://127.0.0.1:port"
+
+NO_PROXY="localhost, 127.0.0.1, ::1"
+
+port就是自己梯子的端口号
+
+
+*****
+
+####  umamusume  
+##### 18364#       发表于 2026-10-27 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428048&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-10-27 11:01</a>
+刚才试了下，似乎还是要开tun模式，关闭了就5次重连，算了懒得搞了，感谢 ...</blockquote>
+env➕proxifier即可
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
