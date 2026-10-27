@@ -7793,3 +7793,14 @@ Re:Source</blockquote>
 
 为什么看你们的Astra表现有那么差，我只怕Astra额度烧的太快了。。。
 
+
+*****
+
+####  phorcys02  
+##### 18444#       发表于 2026-10-27 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431392&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-10-27 22:40</a>
+
+为什么看你们的Astra表现有那么差，我只怕Astra额度烧的太快了。。。</blockquote>
+Astra强力和Astra喜欢造屎其实一点也不矛盾...
+
