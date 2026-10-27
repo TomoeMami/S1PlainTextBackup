@@ -9457,3 +9457,16 @@ cp算个屁啊，白发鬼最有含金量的是朱拉结局钦定没有白发鬼
 
 谁能白字说一下怎么绿的
 
+
+*****
+
+####  mario21a  
+##### 8291#       发表于 2026-10-28 02:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70415392&amp;ptid=2261859" target="_blank">苍蓝之枪 发表于 2026-10-24 09:12</a>
+
+没通就不做数，通了就补不了仓库
+
+致敬传奇is左右互搏</blockquote>
+意思是第一次通关记录才能补仓库？
+
