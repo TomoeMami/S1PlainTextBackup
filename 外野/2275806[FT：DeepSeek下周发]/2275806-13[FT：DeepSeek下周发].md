@@ -7804,3 +7804,23 @@ Re:Source</blockquote>
 为什么看你们的Astra表现有那么差，我只怕Astra额度烧的太快了。。。</blockquote>
 Astra强力和Astra喜欢造屎其实一点也不矛盾...
 
+
+*****
+
+####  StrangerJ  
+##### 18445#       发表于 2026-10-27 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431392&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-10-27 22:40</a>
+为什么看你们的Astra表现有那么差，我只怕Astra额度烧的太快了。。。</blockquote>
+最终成果不算差，但是过程真的很让人恼火
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  The_Ether_  
+##### 18446#       发表于 2026-10-27 23:24
+
+现在X好像在大规模针对kimi，正面的内容发了强制要求加付费合作标识，不加就封号
+
