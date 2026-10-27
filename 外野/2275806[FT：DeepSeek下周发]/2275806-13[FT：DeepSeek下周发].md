@@ -7562,3 +7562,36 @@ https://github.com/anomalyco/opencode/blob/dev/AGENTS.md#style-guide 说是 open
 
 —— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lambl  
+##### 18422#       发表于 2026-10-27 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70426253&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-10-26 22:35</a>
+
+啊这，我还指望这点积分撑过月底。。。</blockquote>
+返还了，刚才看我突然多了2000多积分。
+
+
+*****
+
+####  绕指流光  
+##### 18423#         楼主| 发表于 2026-10-27 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430701&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-27 19:18</a>
+
+我们目前产品、开发、测试之间都是互相发长篇大论的 GPT 写的文档，然后让 GPT 自己看，真人真的看的下去吗 ...</blockquote>
+下一步就是每人一个agent拉个群让他们在里面疯狂做……哦是疯狂烧token，有结论了再通知人类<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 18424#       发表于 2026-10-27 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430987&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-27 20:25</a>
+
+下一步就是每人一个agent拉个群让他们在里面疯狂做……哦是疯狂烧token，有结论了再通知人类 ...</blockquote>
+那不就是奶龙开会模式
+

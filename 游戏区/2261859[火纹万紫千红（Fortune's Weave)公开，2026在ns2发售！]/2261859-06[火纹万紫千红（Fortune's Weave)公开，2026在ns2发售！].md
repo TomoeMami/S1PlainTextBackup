@@ -9280,3 +9280,36 @@ cp算个屁啊，白发鬼最有含金量的是朱拉结局钦定没有白发鬼
 
 更好奇is打算怎么搞白发鬼第一部，他呆在牢里转职都转不了
 
+
+*****
+
+####  lagarto  
+##### 8273#       发表于 2026-10-27 20:21
+
+所以保留经典模式是对的，能把看着不顺眼的直接送了，眼不见为净。
+
+—— 来自 OnePlus PLZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  superlink  
+##### 8274#       发表于 2026-10-27 20:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不爽不凑结局不就行了
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+
+*****
+
+####  未熟串烧  
+##### 8275#       发表于 2026-10-27 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430801&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-10-27 19:39</a>
+
+白发鬼的强度也就是战争篇前一半还能支棱两下，到后面几关一样戳不住，自己的圣焰战技又一次只有一格，武器 ...</blockquote>
+白发鬼第二部的强度一直在线吧，不用攒条一键爆发。
+
+打大帝的时候我的迪哥尴尬没暴击没能秒一条命，白发鬼应该是不用暴击能打一条命。
+
