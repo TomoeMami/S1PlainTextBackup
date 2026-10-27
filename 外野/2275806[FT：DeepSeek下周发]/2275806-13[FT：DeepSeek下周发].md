@@ -6869,3 +6869,25 @@ env➕proxifier即可
 
 2026-10-27 11:36 上传
 
+
+*****
+
+####  tillnight  
+##### 18366#       发表于 2026-10-27 11:40
+
+<blockquote>龙骑士尹志平 发表于 2026-10-27 11:01
+刚才试了下，似乎还是要开tun模式，关闭了就5次重连，算了懒得搞了，感谢 ...</blockquote>
+这个问题你让codex自己或者任何agent工具自己分析自己修都能解决。
+
+
+*****
+
+####  木谷高明  
+##### 18367#       发表于 2026-10-27 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425662&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-10-26 19:50</a>
+我不懂瞎问，如果大模型固化到FPGA上了，还需要配大量内存颗粒吗
+
+——来自 2410DPN6CC 上的 S1er 客户端 ...</blockquote>
+FPGA一般比通用处理器能做的逻辑门更少，频率更低，也只在实时性上有优势了。
+
