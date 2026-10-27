@@ -7973,3 +7973,24 @@ qoder发了20刀的astra专用积分，让他做了一次计划，第一版我�
 我试了一下，一个任务没跑完就g了，8倍credit太夸张了</blockquote>
 做只读审计、讨论、创建计划还是挺好的
 
+
+*****
+
+####  FACS  
+##### 18461#       发表于 2026-10-28 07:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431392&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-10-27 22:40</a>
+
+为什么看你们的Astra表现有那么差，我只怕Astra额度烧的太快了。。。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最后不差，就是看着满屏的不能肯定、暂未确认、冒烟、全量回归、再做一次全量回归有点气笑了
+
+
+*****
+
+####  umamusume  
+##### 18462#       发表于 2026-10-28 07:46
+
+说明用少了，啥约束都不给
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
