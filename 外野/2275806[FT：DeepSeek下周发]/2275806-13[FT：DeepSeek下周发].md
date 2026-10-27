@@ -7921,3 +7921,13 @@ AdBlock或者写Stylus脚本屏蔽 .ds-modal-focus-lock 和 .ds-modal-overlay �
 
 K3.1p什么🐶巴玩意，这速度能用啊？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  pure_liquid  
+##### 18456#       发表于 2026-10-28 01:25
+
+关于让模型写项目日志或者利用外部记忆这件事，请问有什么最佳实践吗？
+
+比如说，在给它提示词的时候应该注意什么？
+
