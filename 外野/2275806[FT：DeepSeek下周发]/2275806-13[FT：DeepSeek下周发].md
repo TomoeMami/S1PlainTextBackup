@@ -6927,3 +6927,19 @@ ds、chatgpt、kimi 这家都太喜欢叠甲了<img src="https://static.stage1st
 
 <img src="https://p.sda1.dev/35/be9f08abf4261540ab381dea9fcdb9b4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sue  
+##### 18371#       发表于 2026-10-27 12:24
+
+<img src="https://img.stage1st.com/forum/202610/27/122355hgxs1tg00vtv1t9v.png" referrerpolicy="no-referrer">
+
+<strong>BTMHLD[Y]G{(@XJ6L(P3`TC.png</strong> (84.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-27 12:23 上传
+
+尼玛的这头肥鱼让它翻小说居然直接给我剧透了！！！！
+
