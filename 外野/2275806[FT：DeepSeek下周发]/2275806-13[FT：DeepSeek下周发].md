@@ -7475,3 +7475,26 @@ dllm没有什么壁垒，如果商业上能跑通，搞不好就是下一个jev�
 
 可能是更换了推理部署导致的
 
+
+*****
+
+####  moekyo  
+##### 18414#       发表于 2026-10-27 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430567&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-10-27 18:48</a>
+
+我现在让gpt出文档，写完文档之后再用hook让它必须再按照这个自检一遍，迭代了N个版本，现在这个版本终于能 ...</blockquote>
+[https://github.com/anomalyco/ope ... ENTS.md#style-guide](https://github.com/anomalyco/opencode/blob/dev/AGENTS.md#style-guide) 说是 opencode agent.md 的 style-guide 能治这个，不过我没实际试过
+
+
+*****
+
+####  lactone  
+##### 18415#       发表于 2026-10-27 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430600&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-27 18:56</a>
+可能是更换了推理部署导致的</blockquote>
+ds的指纹是md5，有相关日期和技术信息的，可以撞一下看看
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
