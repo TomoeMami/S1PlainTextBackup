@@ -7913,3 +7913,11 @@ ds的压缩上下文效果比gpt差了不少，好不容易感觉对这个项目
 现在必须要绑定邮箱了？</blockquote>
 AdBlock或者写Stylus脚本屏蔽 .ds-modal-focus-lock 和 .ds-modal-overlay 两个class，好像还能接着用
 
+
+*****
+
+####  静哮苍穹  
+##### 18455#       发表于 2026-10-28 01:12
+
+K3.1p什么🐶巴玩意，这速度能用啊？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
