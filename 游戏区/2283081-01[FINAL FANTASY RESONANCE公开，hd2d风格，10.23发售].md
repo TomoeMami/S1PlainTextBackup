@@ -5423,3 +5423,38 @@ JRPG ...</blockquote>
 用陨石啊</blockquote>
 三连命名的那种黑白魔法才能反射吧？陨石这种独立词条的可以吗，我还没试过。
 
+
+*****
+
+####  观世透  
+##### 518#       发表于 2026-10-27 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428192&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-27 11:20</a>
+
+刚看到别人用魔法aoe打自己人然后反射给boss的打法真没招了，怎么我就没想到这样的思路，这下非自限的情况 ...</blockquote>
+这算是最终幻想的基本操作吧
+
+
+*****
+
+####  隔壁老黄  
+##### 519#       发表于 2026-10-27 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429907&amp;ptid=2283081" target="_blank">kokyou 发表于 2026-10-27 16:33</a>
+三连命名的那种黑白魔法才能反射吧？陨石这种独立词条的可以吗，我还没试过。 ...</blockquote>
+陨石不就是黑魔法吗，我记得神马核爆陨石都是黑魔法，神圣是白魔法，反正雅兔的那些啥盟约魔法都能反弹
+
+*****
+
+####  liuqy  
+##### 520#       发表于 2026-10-27 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429849&amp;ptid=2283081" target="_blank">requiem116 发表于 2026-10-27 16:23</a>
+
+其实我对现在这个迷宫地图接受度还挺不错的，已经不是以前年轻时候的热情和精力了
+
+就这我核查了下还有漏 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">所以才要加开关啊，长时间纯暗雷加跑图玩久了肯定要红温的
+
+这游戏遇敌其实也不算高，而且可以先攻加陆行鸟逃跑顺便刷技能伤害，而且有些稀有怪出现率太低了，要刷的话巴不得他遇敌率高点
+
