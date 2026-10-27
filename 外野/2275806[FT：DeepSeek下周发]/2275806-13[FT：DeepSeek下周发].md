@@ -6709,3 +6709,11 @@ OpenAI那个沙盒逃逸就是，把一堆智能体关在独立的沙盒里，�
 
 15T纯串了，dpsk没有魔法，手头硬件玩出花来也不可能<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  misuzu0723  
+##### 18353#       发表于 2026-10-27 10:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来公司不久还不大会串的cty还以为15T说的是训练数据
+

@@ -8599,3 +8599,11 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  duraa  
+##### 8200#       发表于 2026-10-27 10:13
+
+利用跳过第二部嫖属性也是基础属性，嫖属性的原理是利用职业不同成长率可以在跳过第二部后升5级自动因果融合，比如a职业升了3力1防，再次开启第二部b职业升了1力3防，跳过第二部就变成5级获得3力3防<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
