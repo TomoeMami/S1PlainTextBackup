@@ -5305,3 +5305,25 @@ JRPG大部分绝对内容都不太多，砍掉一些复古的傻逼设计，全�
 魔法输出，迅雷和魔人哪个更高</blockquote>
 一起上
 
+
+*****
+
+####  godless2020  
+##### 508#       发表于 2026-10-27 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428900&amp;ptid=2283081" target="_blank">focus 发表于 2026-10-27 13:20</a>
+
+对，男主反射戒指+袒护全体就行了。w腕+魔法乱击+神官双次行动是16次魔法，每次劈30万，樱一次行动就480万 ...</blockquote>
+用樱是因为魔力最高吗？？想换魔女可不可以
+
+
+*****
+
+####  纪寞  
+##### 509#       发表于 2026-10-27 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429144&amp;ptid=2283081" target="_blank">godless2020 发表于 2026-10-27 14:17</a>
+
+用樱是因为魔力最高吗？？想换魔女可不可以</blockquote>
+樱应该是自己buff有倍率提升，而黑菲的倍率提升只在能力值上，按伤害公式这个能力值提升影响没那么大，所以是樱强。
+
