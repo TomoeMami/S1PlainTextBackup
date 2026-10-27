@@ -6609,3 +6609,13 @@ terra感觉打不过1017
 大炼小我理解，自己炼自己不合理啊。 ...</blockquote>
 OpenAI那个沙盒逃逸就是，把一堆智能体关在独立的沙盒里，让他们解决问题，能解决的就留下，作为新训练材料，本质抽卡。
 
+
+*****
+
+####  qwased  
+##### 18344#       发表于 2026-10-27 07:51
+
+【大伟哥谈米哈游AI大模型：“要做前所未有的事情”-哔哩哔哩】 https://b23.tv/h1X4Iej
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是前面某个坛友神神道道的超牛逼新加坡算力中心ai吗
+
