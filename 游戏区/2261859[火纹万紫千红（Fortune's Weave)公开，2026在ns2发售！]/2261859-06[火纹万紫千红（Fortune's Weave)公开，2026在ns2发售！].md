@@ -9012,3 +9012,13 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 白发鬼剧情里极其伟光正，比自捏这个奶龙还要伟光正，结局各个圆满无比，对比商人结局各种莫名其妙的配偶早逝，再加上形象是个黑哥，那风评肯定不会好啊，说白了，白发鬼要啥有啥，对比一些要啥没啥的角色有点太强了。反正过两天这事就过去了，又不是红秋裤这种黑粉都多的角色
 
+
+*****
+
+####  superlink  
+##### 8245#       发表于 2026-10-27 18:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">都能当舞女了，那不是标准的黑暗歇斯底里写法，性格就那样了。
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

@@ -7358,3 +7358,33 @@ GPT有很强的防御性编程,而且它会极度尝试撇清任何责任,所以
 
 dsflash好像换了模型指纹，不清楚是不是部署问题或者只是换了检查点<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dreki  
+##### 18407#       发表于 2026-10-27 18:40
+
+因为copilot能报销最近一直在用GPT，感觉他真的是各种防总体用下来很慢，比之前自费ds API的体验差好多    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  小野賢章  
+##### 18408#       发表于 2026-10-27 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430469&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-10-27 18:23</a>
+
+现在 gpt 应该比我还熟悉我的网络</blockquote>
+我写了一个排查网络问题的skill，把我所有设备、**、路由器的关系都写里面了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 18409#       发表于 2026-10-27 18:46
+
+dllm没有什么壁垒，如果商业上能跑通，搞不好就是下一个jev，大厂入局，直接拿自己的顶模蒸一个，mercury很难搞
+
+现在这种卖新范式而不是能力的模型，不开源是不明智的
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

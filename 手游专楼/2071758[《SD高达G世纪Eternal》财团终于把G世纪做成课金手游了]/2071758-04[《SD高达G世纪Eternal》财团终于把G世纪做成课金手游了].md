@@ -2479,3 +2479,14 @@ V2AB在大师联盟好猛，试验机撑地了
 代孙设置竞技场金牌30万分到底是不是用脑想的，今天运气好一点5次都打完全胜并且MAX就涨了10000多点，我就 ...</blockquote>
 明显是为了给以后膨胀做的准备
 
+
+*****
+
+####  gpx234mqx  
+##### 4925#       发表于 2026-10-27 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70425363&amp;ptid=2071758" target="_blank">captoon 发表于 2026-10-26 18:36</a>
+
+明显是为了给以后膨胀做的准备</blockquote>
+看龙珠手游，还会有66,88,120这种加成的
+
