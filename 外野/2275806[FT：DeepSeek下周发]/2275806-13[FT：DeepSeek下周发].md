@@ -7086,3 +7086,41 @@ ChatGPT 现在已经习惯了给每句话都套了十层 try/except...
 
 —— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Promeus  
+##### 18383#       发表于 2026-10-27 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429355&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-10-27 14:55</a>
+主要是我也不知道现在AI生成视频是什么样的，我中午拿着DS1017软文里面几个3D视频找DS问，他说都可以用H5 ...</blockquote>
+你可以试着问一下ds给你做一个，主要是你这个动态是要怎么样的动态
+
+
+*****
+
+####  Promeus  
+##### 18384#       发表于 2026-10-27 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429486&amp;ptid=2275806" target="_blank">cody198879 发表于 2026-10-27 15:18</a>
+感觉今天是不是瞪的人太多了，workbuddy这边的4.1f出现性能下降了
+
+—— 来自 HONOR WKL-AN80, Android 17, ...</blockquote>
+官网好像没有
+
+
+*****
+
+####  小野賢章  
+##### 18385#       发表于 2026-10-27 15:25
+
+V4 Pro API 性能下降，难道说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/27/152526ka2aq4hrb46a666v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (130.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-27 15:25 上传
+
