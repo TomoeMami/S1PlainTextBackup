@@ -8892,3 +8892,15 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 别说，续作还真有可能是魔改新三国
 
+
+*****
+
+####  古畑任三郎2015  
+##### 8234#       发表于 2026-10-27 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430037&amp;ptid=2261859" target="_blank">燃烧的石头 发表于 2026-10-27 16:53</a>
+下一作同世界观的应该是东方几个国家，最后来一部收尾作上月球干掉弗栗多
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+什么界之轨迹2<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

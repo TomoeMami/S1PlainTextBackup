@@ -7247,3 +7247,19 @@ GPT现在纯粹是个干活模型
 
 先回到deepseek的怀抱吧
 
+
+*****
+
+####  andychen  
+##### 18397#       发表于 2026-10-27 17:17
+
+<img src="https://img.stage1st.com/forum/202610/27/171708s6x84pzaqpepue6e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-27 17:17 上传
+
+微软开始大规模劝退员工了
+
