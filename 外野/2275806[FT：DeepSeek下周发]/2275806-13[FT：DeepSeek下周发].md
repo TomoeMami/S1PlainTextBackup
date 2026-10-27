@@ -7617,3 +7617,13 @@ https://github.com/anomalyco/opencode/blob/dev/AGENTS.md#style-guide 说是 open
 每人一个吗？不是几十上百个？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/030.png">传话太监一个就够了，其余朝廷诸公需要各司其职
 
+
+*****
+
+####  云卷花开  
+##### 18427#       发表于 2026-10-27 20:44
+
+v4.1 flash 好像指纹发生变化了
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
