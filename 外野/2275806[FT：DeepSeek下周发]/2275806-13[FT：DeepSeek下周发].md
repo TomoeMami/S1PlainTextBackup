@@ -6985,3 +6985,40 @@ Request ID:
 
 workbudyy里的kimi 3.1，我让他生成一个科普类的小视频，别说跟opus 5.5了，连1017都比不了一点，作为普通用户，这前端强的特点看不出来啊。而且，那额度消耗的，嗷嗷的。用不了一点。
 
+
+*****
+
+####  wandeeees  
+##### 18375#       发表于 2026-10-27 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428730&amp;ptid=2275806" target="_blank">needagf 发表于 2026-10-27 12:42</a>
+
+workbudyy里的kimi 3.1，我让他生成一个科普类的小视频，别说跟opus 5.5了，连1017都比不了一点，作为普通 ...</blockquote>
+3.1的前端比K3还退步了。。。这次更新应该是后端和推理提升大，针对大型软件工程提升大。
+
+
+*****
+
+####  瑕在瑾中  
+##### 18376#       发表于 2026-10-27 13:02
+
+gpt6.1terra什么水平呀 处理文档写写材料啥的能直接替代sol吗
+
+—— 来自 Xiaomi 24122RKC7C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  qqwliao  
+##### 18377#       发表于 2026-10-27 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428384&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-27 11:49</a>
+日常聊天确实 argon 很不错，就是额度太少
+
+ds、chatgpt、kimi 这家都太喜欢叠甲了
+
+「大方向成立，但有几处 ...</blockquote>
+防御性写作的问题，最近有人研究过，在astra上最明显，改一下提示词会好一些。https://arxiv.org/html/2610.11355#abstract1
+
+—— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
