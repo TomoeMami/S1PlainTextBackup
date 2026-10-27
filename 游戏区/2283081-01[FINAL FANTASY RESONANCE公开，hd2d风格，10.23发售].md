@@ -5491,3 +5491,15 @@ JRPG ...</blockquote>
 
 竞技场有遇敌率减半饰品后感觉还好，不过确实不如直接给开关。这又不是八方需要限制玩家探索高级区域。唯一需要限制玩家的只有龙之鄂，让龙之鄂把开关失效就行了。结果不遇敌饰品基本要最后才给
 
+
+*****
+
+####  隔壁老黄  
+##### 524#       发表于 2026-10-27 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430142&amp;ptid=2283081" target="_blank">liliguo1 发表于 2026-10-27 17:10</a>
+群体化高手是那个魔法群体化不减威力的吧，应该说的是横扫全体？
+
+另外这么反射吃得到收束之理吗？ ...</blockquote>
+吃得到，我试过了，全体化不减伤应该也能吃到，太特么暴力了，一次打十几万血，我还只是用普通属性魔法<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

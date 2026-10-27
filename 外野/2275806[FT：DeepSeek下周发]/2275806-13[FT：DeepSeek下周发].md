@@ -7316,3 +7316,16 @@ dllm认不认你的词汇表的？
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  RookieTnT  
+##### 18403#       发表于 2026-10-27 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430292&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-10-27 17:40</a>
+
+多少钱来着？
+
+dllm认不认你的词汇表的？</blockquote>
+认.  目前打折好像每百万输入Token 为0.10 美元，输出为0.35 美元. 能力和luna差不多.
+
