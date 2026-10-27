@@ -8577,3 +8577,25 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 
 当然不能按兵种加成后的数值比高低，不然会有可能亏属性的
 
+
+*****
+
+####  嘲风  
+##### 8198#       发表于 2026-10-27 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70427531&amp;ptid=2261859" target="_blank">苍蓝之枪 发表于 2026-10-27 09:41</a>
+
+当然不能按兵种加成后的数值比高低，不然会有可能亏属性的</blockquote>
+我看前面帖子有人说因果融合可以嫖职业属性啊
+
+*****
+
+####  yangchunsiyue  
+##### 8199#       发表于 2026-10-27 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70427591&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-10-27 09:54</a>
+我看前面帖子有人说因果融合可以嫖职业属性啊</blockquote>
+那是低保吧，比如这个职业保底魔防
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -6667,3 +6667,26 @@ OpenAI那个沙盒逃逸就是，把一堆智能体关在独立的沙盒里，�
 我要用一些图片 生成一些3d视频，是直接在对话框里问AI生成需要什么软件，修改 ...</blockquote>
 你这个需求好模糊啊，你是要用照片生成运动的3d模型还是直接想生成一个ai视频，如果是ai视频，那基本上就是Seed2.5了，本地模型对硬件要求很高
 
+
+*****
+
+####  小野賢章  
+##### 18349#       发表于 2026-10-27 09:50
+
+虽然 k3.1 pro 说自己削弱了网安能力，但是实际上一点都不弱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/27/094933hgm5gb3nvnpfhkfv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (312.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-27 09:49 上传
+
+*****
+
+####  龙骑士尹志平  
+##### 18350#       发表于 2026-10-27 09:51
+
+刚买了gpt 问下是不是和哈吉米一样 要tun模式翻墙才能用gpt 还是普通模式就行了 用的codex桌面版 
+
