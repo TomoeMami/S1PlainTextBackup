@@ -7595,3 +7595,25 @@ https://github.com/anomalyco/opencode/blob/dev/AGENTS.md#style-guide 说是 open
 下一步就是每人一个agent拉个群让他们在里面疯狂做……哦是疯狂烧token，有结论了再通知人类 ...</blockquote>
 那不就是奶龙开会模式
 
+
+*****
+
+####  andychen  
+##### 18425#       发表于 2026-10-27 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430987&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-10-27 20:25</a>
+
+下一步就是每人一个agent拉个群让他们在里面疯狂做……哦是疯狂烧token，有结论了再通知人类 ...</blockquote>
+每人一个吗？不是几十上百个？
+
+
+*****
+
+####  绕指流光  
+##### 18426#         楼主| 发表于 2026-10-27 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431005&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-27 20:30</a>
+
+每人一个吗？不是几十上百个？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/030.png">传话太监一个就够了，其余朝廷诸公需要各司其职
+
