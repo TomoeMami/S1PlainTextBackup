@@ -5561,3 +5561,13 @@ JRPG ...</blockquote>
 
 究极反不了，这就有点emmm
 
+
+*****
+
+####  隔壁老黄  
+##### 531#       发表于 2026-10-27 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430585&amp;ptid=2283081" target="_blank">kokyou 发表于 2026-10-27 18:52</a>
+我知道陨石是黑魔法，我意思是这作是不是只有那种系列作三连命名的魔法才能反射。 ...</blockquote>
+不是啊
+
