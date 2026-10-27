@@ -7166,3 +7166,28 @@ V4 Pro API 性能下降，难道说<img src="https://static.stage1st.com/image/s
 
 <img src="https://picui.ogmua.cn/s1/2026/10/27/6ae05830124b4.webp" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 18390#       发表于 2026-10-27 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70429481&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-27 15:17</a>
+
+ChatGPT 已经彻底失去了说人话的能力：
+
+你说今天天气真好。它说：确实，但今天晴朗不代表明天晴朗，更不足 ...</blockquote>
+平常讨论需求时我很少看他有这种句式，但不知道为什么各种自动生成的系统提示特别多XXX，但不足以证XXX
+
+这也太弱智了，一看就是gpt写的代码<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 18391#       发表于 2026-10-27 16:02
+
+这个6.1terra怕不是就是魔改6sol，tm蒸馏都不至于蒸出这么稀烂的模型
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
