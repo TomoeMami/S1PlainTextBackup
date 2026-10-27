@@ -9146,3 +9146,42 @@ Vestaria的剧本和BGM包你满意 特别是BGM水平和千丝万缕是同一�
 白发鬼强度在哪 盟军的时候确实能一人单扛一条线
 第三部不是手短又脆皮的弱鸡？<img src="https://static.stage1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘲风  
+##### 8259#       发表于 2026-10-27 19:39
+
+白发鬼的强度也就是战争篇前一半还能支棱两下，到后面几关一样戳不住，自己的圣焰战技又一次只有一格，武器熟练度不够拿不起咒怨武器，攒个条都费死劲，到最后两关斧A了才好攒点儿
+
+*****
+
+####  六至九  
+##### 8260#       发表于 2026-10-27 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430722&amp;ptid=2261859" target="_blank">HazukiShion 发表于 2026-10-27 19:21</a>
+
+女王和新娘都有结局和猫猫头居然没结局吗？</blockquote>
+有结局，在贴吧里另一个贴里
+
+
+*****
+
+####  六至九  
+##### 8261#       发表于 2026-10-27 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430777&amp;ptid=2261859" target="_blank">卡拉德利姆 发表于 2026-10-27 19:36</a>
+
+白发鬼强度在哪 盟军的时候确实能一人单扛一条线
+
+第三部不是手短又脆皮的弱鸡？ ...</blockquote>
+目前官方数值下毒是没办法，等DLC出来手操等级升上去会好很多
+
+
+*****
+
+####  1wq1  
+##### 8262#       发表于 2026-10-27 19:47
+
+等自己能练了，白发鬼妥妥强度美啊，光一个30回避就是一票角色的一辈子了
+
