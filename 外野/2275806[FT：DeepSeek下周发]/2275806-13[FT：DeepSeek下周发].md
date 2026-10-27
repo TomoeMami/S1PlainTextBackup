@@ -7785,3 +7785,11 @@ Re:Source</blockquote>
 返还了，刚才看我突然多了2000多积分。</blockquote>
 感谢提醒，我刚去看，我的积分也到了，多了5000多，太好了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  神必迷你龙  
+##### 18443#       发表于 2026-10-27 22:40
+
+为什么看你们的Astra表现有那么差，我只怕Astra额度烧的太快了。。。
+
