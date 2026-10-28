@@ -8805,3 +8805,29 @@ Astra是炒作agi（computeruse），最开始的评价是这模型喜欢偷懒�
 
 — from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  cube  
+##### 18526#       发表于 2026-10-28 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432548&amp;ptid=2275806" target="_blank">coldhot3 发表于 2026-10-28 09:42</a>
+
+dsh的外部记忆，请问有什么好的插件吗？谢谢</blockquote>
+我用的是dsh-tiddlywiki+@a9i5k4/dsh-auto-memory
+
+前者用来做记账本，可以远程push到自己的git库存档，后者用来实时管理和一键给新对话交接上下文。
+
+
+*****
+
+####  洛拉斯  
+##### 18527#       发表于 2026-10-28 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434268&amp;ptid=2275806" target="_blank">cube 发表于 2026-10-28 15:19</a>
+
+我用的是dsh-tiddlywiki+@a9i5k4/dsh-auto-memory
+
+前者用来做记账本，可以远程push到自己的git库存档，后 ...</blockquote>
+你这个的原理是什么？什么都写到全局记忆不会干扰不同的项目和模块吗？
+
