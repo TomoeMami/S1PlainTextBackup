@@ -9615,3 +9615,13 @@ attention is all you need<img src="https://static.stage1st.com/image/smiley/face
 
 2026-10-28 19:44 上传
 
+
+*****
+
+####  lactone  
+##### 18587#       发表于 2026-10-28 20:37
+
+dsv41f新指纹到底是啥，有结论了吗
+
+—— 来自 vivo V2520A, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
