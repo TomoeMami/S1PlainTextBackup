@@ -9663,3 +9663,39 @@ Windows商店里的PowerShell升级了，应用商店安装的都去升级一下
 —— 来自 vivo V2405A, ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">该买张去蒙古的机票到现场监工了
 
+
+*****
+
+####  warlock228  
+##### 18592#       发表于 2026-10-28 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435754&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-28 20:49</a>
+
+Windows商店里的PowerShell升级了，应用商店安装的都去升级一下。AI经过检测后说，现在已经是默认PS7了。之 ...</blockquote>
+用命令行安装pwsh的大肥鱼还是偶尔会突然用powershell然后冒红字
+
+装了插件摁他头用bash才舒服了
+
+
+*****
+
+####  andychen  
+##### 18593#       发表于 2026-10-28 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434930&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-28 17:28</a>
+
+先提个要求让llm写修改文档包括完整的目的，动机与付诸于实现的准代码块文档写完后对其中准代码块进行逐个 ...</blockquote>
+这个思路好啊，我回头试下我这好不好用已让Astra偷师
+
+*****
+
+####  andychen  
+##### 18594#       发表于 2026-10-28 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434998&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-28 17:41</a>
+
+现在我才是产品好吧，AI只是个跟他提什么需求都只会傻乎乎地答应的实习生开发，我还得拉住它不要乱搞 ...</blockquote>
+现在就是这样的啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+所以我这产品出身的人现在就很爽
+
