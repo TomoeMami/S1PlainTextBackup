@@ -5870,3 +5870,25 @@ alinea估算steam+ps+xbox首发5天销量超40万。没有算上switch是因为�
 
 专家模式是敌人数值更高还是行动更加恶心？
 
+
+*****
+
+####  蟹粉小笼  
+##### 556#       发表于 2026-10-28 13:57
+
+<blockquote>达达达达葱 发表于 2026-10-28 13:08
+专家模式是敌人数值更高还是行动更加恶心？</blockquote>
+
+根据攻略站说法，专家模式怪物血量破防槽和伤害更高，玩家伤害更低
+
+Screenshot_20261028-135214~2.png
+(192 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 13:56 上传
+
+由手机上传
+
+<img src="https://img.stage1st.com/forum/202610/28/135622dpbfgabohs8gpsfn.png" referrerpolicy="no-referrer">
+
