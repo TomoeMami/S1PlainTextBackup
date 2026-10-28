@@ -45,3 +45,35 @@
 
 新配色
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 863#       发表于 2026-10-28 23:53
+
+楼上这图糊得过分了。实际是彩透，渲染图通透感不错还比较好看。
+
+<img src="https://img.stage1st.com/forum/202610/28/235343ki7roz7bmf7rxzyc.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (976.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 23:53 上传
+
+<img src="https://img.stage1st.com/forum/202610/28/235344sd7ltc71c7aet1rl.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (991.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 23:53 上传
+
+<img src="https://img.stage1st.com/forum/202610/28/235344dttzvj0dvbegqvsj.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (958.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 23:53 上传
+
