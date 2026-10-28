@@ -8916,3 +8916,14 @@ sora也是，刚出来时改变世界，后来被sd一脚踢死，现在视频�
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  schneehertz  
+##### 18533#       发表于 2026-10-28 15:44
+
+现在的模型还是不适合添加记忆模块，只会产生副作用
+可能性还是在模型本体上
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
