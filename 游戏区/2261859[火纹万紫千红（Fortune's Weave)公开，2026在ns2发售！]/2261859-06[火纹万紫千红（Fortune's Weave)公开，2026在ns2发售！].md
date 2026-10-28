@@ -9534,3 +9534,18 @@ https://tieba.baidu.com/p/11140853922?fr=frs这个贴，下面有人翻译</bloc
 
 强又怎么样 我缺你一个吗<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  廖化  
+##### 8298#       发表于 2026-10-28 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432755&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-10-28 10:22</a>
+
+如果真有白发鬼和蕾达的结婚结局 我直接就把白发鬼送了
+
+强又怎么样 我缺你一个吗 ...</blockquote>
+我把迪哥和雷达凑一块了，然后然老毕和初音败犬结局。
+
+好爽<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
