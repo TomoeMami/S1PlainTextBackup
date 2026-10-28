@@ -10096,3 +10096,13 @@ dlc的售价是本体的一半，体量也是一半吗。
 
 2026-10-28 22:33 上传
 
+
+*****
+
+####  古畑任三郎2015  
+##### 8356#       发表于 2026-10-28 23:04
+
+原来第三部那几个地底人据点还能传送啊，还有些意义不明的隐藏人物语音<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
