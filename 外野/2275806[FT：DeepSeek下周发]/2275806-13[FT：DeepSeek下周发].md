@@ -9537,3 +9537,28 @@ OpenRouter 是最成功的模型路由器，你几乎可以用单个 GB300 机�
 
 有PRD了让ai根据PRD生成提示词，用干净会话发提示词分模块开工，提示词里记得让AI写交接文档方便新会话接手。
 
+
+*****
+
+####  绕指流光  
+##### 18581#         楼主| 发表于 2026-10-28 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434833&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-10-28 17:13</a>
+
+我觉得大部分人需要的记忆就是偷懒，懒得显式的告诉ai，这个事情你记下来，记到项目/全局纪律中。
+
+但偏偏效 ...</blockquote>
+说管理学也没错，的确就是就是个引领注意力的问题，类似人类开会后老板拍板
+
+attention is all you need<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lambl  
+##### 18582#       发表于 2026-10-28 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434806&amp;ptid=2275806" target="_blank">shimotsuki14 发表于 2026-10-28 17:08</a>
+新手问个问题，前段时间用自己的google账号在aistudio充钱买了api，然后用chatbox用了几天，这两天发现a ...</blockquote>
+跳那页面就是你梯子的问题啊，你改成新加坡啥的开全局就是了。
+
