@@ -9187,3 +9187,104 @@ GLM 5.3 Flash逆向真强，哪怕只是本地部署q4量化版。
 
 你现在知道用框架和mcp，而不需要自己从头底层搓轮子，再去用grill-me又会是不一样的感受了
 
+
+*****
+
+####  andychen  
+##### 18555#       发表于 2026-10-28 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434728&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-28 16:48</a>
+
+其实我觉得用grill-me根据不同模型风格还是有很多不同技巧的，比如Astra我用得最多的一句话就是不要考虑 ...</blockquote>
+我觉得不管模型能力怎么演进，对信息流的管理始终是最重要的
+
+LLM的原理决定了它没有“记忆”，每轮对话它所能获取的所有信息就是用户提供的上下文。在这个前提下要提高效率和质量就要想办法在上下文内塞入尽量多的有效信息
+
+具体到每个Agent上，首先得决定什么信息是有效的，然后再考虑怎么给它提供这些信息。记忆也好，智能体间通信也好，各种skill也好，本质上都是提供和组织信息的工具
+
+
+*****
+
+####  RookieTnT  
+##### 18556#       发表于 2026-10-28 17:00
+
+[https://github.com/deepseek-ai/d ... ovider.spec.ts#L154](https://github.com/deepseek-ai/deepseek-harness/blob/f3803c96974ad4a94195fb97e5c637e9c2a3afe3/packages/llm/llm-deepseek-account/tests/provider.spec.ts#L154)
+
+DeepSeek v5 现身 DeepSeek harness 仓库
+
+*****
+
+####  a4ac7  
+##### 18557#       发表于 2026-10-28 17:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爽啊，dsh猛猛充猛猛蹬，感觉工作效率涨了五六倍
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  misuzu0723  
+##### 18558#       发表于 2026-10-28 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434773&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-28 17:00</a>
+
+https://github.com/deepseek-ai/deepseek-harness/blob/f3803c96974ad4a94195fb97e5c637e9c2a3afe3/packag ...</blockquote>
+随手写的测试用例，没什么实际意义，看他 99.0.0-alpha.1 这个版本号就知道
+
+*****
+
+####  艾诺琳  
+##### 18559#       发表于 2026-10-28 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434557&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-28 16:14</a>
+你这不就是skill注入吗</blockquote>
+写成技能太浪费输入token了，写到全局规则省很多，本质上是一样东西，一段初始化提示词
+
+*****
+
+####  hugosol  
+##### 18560#       发表于 2026-10-28 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434733&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-10-28 16:49</a>
+
+我还是大概分了分事的类型
+
+明确知道改什么怎么改的，就用固定工作流，提需求，整理复述需求，调查确认， ...</blockquote>
+我现在觉得自己最有价值的部分就是怎么把需求拆出来分阶段实现迭代上去
+
+但是这个拆分往往不好做，有时候phase1的工作量是1，phase2就变成了4到5
+
+然后开始用matt pocock的wayfinder，然后就是坐着答题答个两三天才能搞出来一版，现在发现这个wayfinder的使用难度是grill-with-docs的好几倍，感觉这个方向是不是不太对啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sunyalche  
+##### 18561#       发表于 2026-10-28 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434733&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-10-28 16:49</a>
+
+我还是大概分了分事的类型
+
+明确知道改什么怎么改的，就用固定工作流，提需求，整理复述需求，调查确认， ...</blockquote>
+明确的闭合的东西ai一直都干的挺好
+
+模糊的开放性的东西, 只能人一直跟进了. 某种程度上也是人的问题, 不看到实际的东西很难明确自己的需求, 最好就是快速原型, 迭代几轮, 搞砸了再弄个原型, 直到问题转换成明确的.
+
+*****
+
+####  keamedes  
+##### 18562#       发表于 2026-10-28 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434773&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-28 17:00</a>
+
+https://github.com/deepseek-ai/deepseek-harness/blob/f3803c96974ad4a94195fb97e5c637e9c2a3afe3/packag ...</blockquote>
+测试边界 case 的
+
+*****
+
+####  阿刚  
+##### 18563#       发表于 2026-10-28 17:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">官网打不开了？大的……？
+
