@@ -9895,3 +9895,28 @@ dlc的售价是本体的一半，体量也是一半吗。
 
 贝特兰咋跑大陆？开后门吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nancygreenlife  
+##### 8335#       发表于 2026-10-28 19:43
+
+每个人肯定有不同的机制，再跑四遍也没啥，等超难出了一起玩，更有新鲜感
+
+
+*****
+
+####  ling1234567890  
+##### 8336#       发表于 2026-10-28 19:46
+
+这到底解包出了点啥啊。怎么就高概率了？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  星花  
+##### 8337#       发表于 2026-10-28 19:47
+
+<blockquote>ling1234567890 发表于 2026-10-28 19:46
+这到底解包出了点啥啊。怎么就高概率了？    Re:Source</blockquote>
+各人履历。
+

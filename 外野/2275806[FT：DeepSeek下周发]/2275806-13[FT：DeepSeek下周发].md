@@ -9599,3 +9599,19 @@ attention is all you need<img src="https://static.stage1st.com/image/smiley/face
 
 最强的模型也就是个很会写代码的实习生罢了
 
+
+*****
+
+####  moekyo  
+##### 18586#       发表于 2026-10-28 19:44
+
+现有代码参考的话可以用这个 [https://github.com/xerj-org/xerj](https://github.com/xerj-org/xerj)
+
+<img src="https://img.stage1st.com/forum/202610/28/194411bfwrss3acdcra8w3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (181.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 19:44 上传
+

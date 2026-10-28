@@ -5920,3 +5920,25 @@ Screenshot_20261028-135214~2.png
 
 男主搭塞西尔是不是最好？塞西尔自带反射，两次行动先给自己上反射再放全体替伤，撑过第一回合啥都灰飞烟灭了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  requiem116  
+##### 560#       发表于 2026-10-28 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435482&amp;ptid=2283081" target="_blank">隔壁老黄 发表于 2026-10-28 19:31</a>
+
+男主搭塞西尔是不是最好？塞西尔自带反射，两次行动先给自己上反射再放全体替伤，撑过第一回合啥都灰飞烟灭 ...</blockquote>
+jjc有反射戒指，省一步操作了
+
+
+*****
+
+####  新HGCG  
+##### 561#       发表于 2026-10-28 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435482&amp;ptid=2283081" target="_blank">隔壁老黄 发表于 2026-10-28 19:31</a>
+
+男主搭塞西尔是不是最好？塞西尔自带反射，两次行动先给自己上反射再放全体替伤，撑过第一回合啥都灰飞烟灭 ...</blockquote>
+咕杀女骑士吧，自带反射还有减伤
+
