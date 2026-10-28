@@ -9920,3 +9920,23 @@ dlc的售价是本体的一半，体量也是一半吗。
 这到底解包出了点啥啊。怎么就高概率了？    Re:Source</blockquote>
 各人履历。
 
+
+*****
+
+####  ling1234567890  
+##### 8338#       发表于 2026-10-28 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435543&amp;ptid=2261859" target="_blank">星花 发表于 2026-10-28 19:47</a>
+各人履历。因为都有协助女王对抗大帝。
+
+——只有些履历日后谈等文字信息而已，某人心态不好罢了。 ...</blockquote>
+那也不是一定会打一模一样的关卡吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  Jabeck  
+##### 8339#       发表于 2026-10-28 19:54
+
+商人可能不是直接对抗而是凑钱。
+
