@@ -5743,3 +5743,38 @@ FF14的无属性黑魔法穿透反射盾不能反射
 
 洋葱战士祠堂左边被山隔起来的那片飞地，在最左边那一小片几乎是必出中级仙人掌，再往左飞一点能刷出来大仙人掌，但是会出别的小怪。这两地方都是拿到飞空艇就能去，算是可以提前开刷了。中级仙人掌虽然ap少点，但是刷的更快，效率说不定还高点。
 
+
+*****
+
+####  隔壁老黄  
+##### 545#       发表于 2026-10-28 09:02
+
+40多级终于过了龙之颚去宝岛刷刷刷了<img src="https://static.stage1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+哪怕简单难度也是惊险刺激<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  godless2020  
+##### 546#       发表于 2026-10-28 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432215&amp;ptid=2283081" target="_blank">requiem116 发表于 2026-10-28 08:47</a>
+
+感觉反射流更容易打出伤害，同等级下反射魔法比菜刀硬砍伤害高多了
+
+40级去打专家萨，物理只能打打酱油，全 ...</blockquote>
+反射流，男主是不是不穿盔甲，更容易打出反射伤害？？？
+
+
+*****
+
+####  ff2077  
+##### 547#       发表于 2026-10-28 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431477&amp;ptid=2283081" target="_blank">bonnwang 发表于 2026-10-27 23:07</a>
+这游戏没有二周目吗</blockquote>
+没
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

@@ -8076,3 +8076,23 @@ Linux的workbuddy比win版顺畅不少，资源占用也少不少
 
 接下来打算让GPT接管我的小米BE6500PRO路由器，虽然还没想好接管了要干嘛。
 
+
+*****
+
+####  泰坦失足  
+##### 18469#       发表于 2026-10-28 09:03
+
+Astra/GPT的安全风控还好，一般就是提示下要额外时间然后继续。Cluade的风控能一路稳定从Fable-Opus5.5/5/4.8，最后Opus4.8下连人话都不会说了，让它执行个命令，它来了句尝试用sudo运行失败。直接关电脑休息去了，第二天开始改用GPT。
+
+
+*****
+
+####  bixinhaner  
+##### 18470#       发表于 2026-10-28 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432259&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-10-28 08:57</a>
+昨天让小chat帮忙接入了LG电视，root，然后把那些监听啥的全部关掉了，网上有详细的现成方案。
+
+中途居然触 ...</blockquote>
+怎么接管路由器，路由器要root才可以吗
+
