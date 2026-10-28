@@ -9438,3 +9438,53 @@ OpenRouter 是最成功的模型路由器，你几乎可以用单个 GB300 机�
 
 — from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  LeoDT  
+##### 18573#       发表于 2026-10-28 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434998&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-28 17:41</a>
+
+现在我才是产品好吧，AI只是个跟他提什么需求都只会傻乎乎地答应的实习生开发，我还得拉住它不要乱搞 ...</blockquote>
+是这个意思，反正开会也是浪费，不如定个方向让他们做，反正现在不是以前，这帮臭写代码的不会抱怨又不会累，给点小钱让他们改什么他们都愿意改。
+
+
+*****
+
+####  mitzvah  
+##### 18574#       发表于 2026-10-28 18:00
+
+ 本帖最后由 mitzvah 于 2026-10-28 18:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435010&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-28 17:44</a>
+
+这个有意思
+
+不过得是架构稳定才好使吧，从零开始其实最考验经验的就是架构的部分
+
+有意思的是AI时代人人都 ...</blockquote>
+启发性条件下ai其实很聪明的，反正是比绝大多数程序员强，有的时候是不说人话一下子人类理解不了而已
+
+我fork我的本地llm集群后端就是antirez的 ds4.c的时候，在vision上遇到了图文混合任务下提示缓存失效全量prefill的问题，因为整个集群上的提示缓存实现都是deepseekv4在我的命令下独立完成的，几乎没有任何参考资料，当时用修改文档法硬是用图片hash的法子给解决了。
+
+但是留了个尾巴，因为复杂的缓存问题，antirez在底层写死了一个session极限只能读16张图片，超过session就报销，我又用了一阵实在不能忍 我就在想为什么不能用文本占位符的形式在缓存中替代图片呢？反正图文混合任务中的图片都是用完即弃的，然后让老ds4.1照办，搞了下去还是不行，依旧每轮全量prefill
+
+后来静态工具结合dap得出的结论竟然是antirez本人故意的在每一张图片调用时加入随机数，且是每一轮对话中的过去图片都会被重算随机数，他在issue中说法大意为，想要在我的主枝中用占位符的方法破坏缓存的完美准确性想都不要想云云<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">，然后老ds4.1给出的建议就很明确了，干脆在前端的harness框架中植入图片的校验插件，然后移除后端变态的图片随机数机制，与前端校验插件结合保证图片的绝对准确性，然后用文档法一次突破，从此之后我的本地集群的图文混合任务的提示缓存命中完全与官方一致再也没有16张一session限制
+
+后来我做任务考古，发现antirez的问题是早就被4.1指出了，不过是当时不说人话没看懂罢了
+
+
+*****
+
+####  mitzvah  
+##### 18575#       发表于 2026-10-28 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435010&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-28 17:44</a>
+
+这个有意思
+
+不过得是架构稳定才好使吧，从零开始其实最考验经验的就是架构的部分
+
+有意思的是AI时代人人都 ...</blockquote>
+这样搞法最大优势是，每一次修改，都是建立在对项目的整体认识之上的，每一次修改的依赖腐败化都能控制到最小
+
