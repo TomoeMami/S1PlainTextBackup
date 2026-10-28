@@ -8043,3 +8043,36 @@ qoder发了20刀的astra专用积分，让他做了一次计划，第一版我�
 
 workbuddy的反代又收紧了，改系统提示词已经失效了，想用积分只能买会员开api了。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  squallx2  
+##### 18466#       发表于 2026-10-28 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431337&amp;ptid=2275806" target="_blank">StrangerJ 发表于 2026-10-27 22:20</a>
+真是服了astra这个沙雕了，2轮对话以前布置任务的时候，验证过的事情，这轮对话让他重新开始。他会把那套冗 ...</blockquote>
+用阿三造💩法对冲 起手就说是敏捷开发 能顺畅不少
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  tsubasa9  
+##### 18467#       发表于 2026-10-28 08:49
+
+Linux的workbuddy比win版顺畅不少，资源占用也少不少
+
+——来自 RMX6699 上的 [S1er 客户端](https://s1er.pages.dev)
+
+
+*****
+
+####  千千千千鸟  
+##### 18468#       发表于 2026-10-28 08:57
+
+昨天让小chat帮忙接入了LG电视，root，然后把那些监听啥的全部关掉了，网上有详细的现成方案。
+
+中途居然触发了一次OpenAI的安全审查我也是服了，好在直接让他继续工作。
+
+接下来打算让GPT接管我的小米BE6500PRO路由器，虽然还没想好接管了要干嘛。
+
