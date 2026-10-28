@@ -9788,3 +9788,13 @@ Gemini 4 Carbon来了，跑分干翻Opus 5.5了，但是还是虚空发布中。
 
 真的有点讨厌用删除线的了，用完以后传染的一屏幕都是。
 
+
+*****
+
+####  qwased  
+##### 18605#       发表于 2026-10-29 05:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70436271&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-28 23:33</a>
+这个思路好啊，我回头试下我这好不好用已让Astra偷师</blockquote>
+但是gpt系写文档默认就是这样啊
+
