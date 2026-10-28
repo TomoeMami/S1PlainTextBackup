@@ -8479,3 +8479,53 @@ Re:Source</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  lly778  
+##### 18496#       发表于 2026-10-28 12:00
+
+国模压过oa了？更新一下基准吧
+
+CC16801624E1DD066CF7BB49E8774820.png
+(1.35 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 12:00 上传
+
+<img src="https://img.stage1st.com/forum/202610/28/120034g1uppzqpzp5dzqpk.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  squallx2  
+##### 18497#       发表于 2026-10-28 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70433331&amp;ptid=2275806" target="_blank">lly778 发表于 2026-10-28 12:00</a>
+国模压过oa了？更新一下基准吧</blockquote>
+蜥蜴人就是不能掉 野榜闹麻了
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  lactone  
+##### 18498#       发表于 2026-10-28 12:05
+
+ 本帖最后由 lactone 于 2026-10-28 12:07 编辑 
+
+aa榜都改了两次标准了，我是不知道其公信力哪儿来的
+
+这个榜简直侮辱智商了，6.1terra能领先1017 19分？能有51？？？？？能赢argon？？？？？？？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  fzlong  
+##### 18499#       发表于 2026-10-28 12:07
+
+6.1 terra是区不便宜也不好用
+
