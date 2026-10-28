@@ -9726,3 +9726,36 @@ Gemini 4 Carbon来了，跑分干翻Opus 5.5了，但是还是虚空发布中。
 Gemini 4 Carbon来了，跑分干翻Opus 5.5了，但是还是虚空发布中。</blockquote>
 现在各家模型厂就Google还在搞这纸面发布，真挺丢人的
 
+
+*****
+
+####  sennheiser  
+##### 18598#       发表于 2026-10-29 01:48
+
+难道美国大豆包要翻身农奴把歌唱了么？
+
+*****
+
+####  jojog  
+##### 18599#       发表于 2026-10-29 01:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">argon已经都没几个人提了，carbon也无所谓吧
+
+
+*****
+
+####  lactone  
+##### 18600#       发表于 2026-10-29 01:55
+
+明天白天云栖大会可能会发布qwen4
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  jinuzuktII  
+##### 18601#       发表于 2026-10-29 01:57
+
+我没什么代码需求，argon 用着不赖，就是 5 h 额度太少了
+
