@@ -8022,3 +8022,14 @@ qoder发了20刀的astra专用积分，让他做了一次计划，第一版我�
 
 这些文档，该怎么处理比较好？社区中有没有处理这种的成熟的方案？
 
+
+*****
+
+####  mitzvah  
+##### 18464#       发表于 2026-10-28 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431392&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-10-27 22:40</a>
+
+为什么看你们的Astra表现有那么差，我只怕Astra额度烧的太快了。。。</blockquote>
+这个强力可能就是它内化了比其他模型更多的工具调用吧，那些工具用起来就是不说人话的
+

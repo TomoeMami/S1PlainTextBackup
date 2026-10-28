@@ -5717,3 +5717,11 @@ FF14的无属性黑魔法穿透反射盾不能反射
 
 怎么挨打还是掉血？
 
+
+*****
+
+####  diectt  
+##### 542#       发表于 2026-10-28 08:33
+
+刚反应过来，12武具之间的男主大剑挑战1阶段不就是标准的反射教程嘛，boss开场就给双方亲自上好反射<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
