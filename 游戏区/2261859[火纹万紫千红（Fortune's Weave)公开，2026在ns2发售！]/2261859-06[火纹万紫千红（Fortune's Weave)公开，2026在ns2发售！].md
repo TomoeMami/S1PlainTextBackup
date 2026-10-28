@@ -9729,3 +9729,22 @@ dlc又要打三遍战争篇了，白鸟七打达古札
 
 女王很适合转飞龙专心丢石头吧…第二部这么搞很有效果的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oniwarud  
+##### 8319#       发表于 2026-10-28 15:48
+
+猫猫头大概率是会有个专属的第二部剧情了，不知道会不会像gal那样锁线
+
+
+*****
+
+####  エリ  
+##### 8320#       发表于 2026-10-28 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70430801&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-10-27 19:39</a>
+
+白发鬼的强度也就是战争篇前一半还能支棱两下，到后面几关一样戳不住，自己的圣焰战技又一次只有一格，武器 ...</blockquote>
+不是，白发鬼不是一键爆气吗，你指的攒条费劲是指啥
+

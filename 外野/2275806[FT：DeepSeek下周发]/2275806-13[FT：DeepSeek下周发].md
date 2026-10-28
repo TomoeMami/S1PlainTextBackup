@@ -8927,3 +8927,11 @@ sora也是，刚出来时改变世界，后来被sd一脚踢死，现在视频�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  overflowal  
+##### 18534#       发表于 2026-10-28 15:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我从来不用所谓的记忆，原因就在于现在所谓的记忆无非都是些稍微fancy一点的rag。如果我需要记下某些东西，我会写到文件里，而不是通过什么记忆。
+
