@@ -9562,3 +9562,40 @@ attention is all you need<img src="https://static.stage1st.com/image/smiley/face
 新手问个问题，前段时间用自己的google账号在aistudio充钱买了api，然后用chatbox用了几天，这两天发现a ...</blockquote>
 跳那页面就是你梯子的问题啊，你改成新加坡啥的开全局就是了。
 
+
+*****
+
+####  阿刚  
+##### 18583#       发表于 2026-10-28 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435269&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-10-28 18:41</a>
+
+没有, 修复dns看看</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">手机也连不上，手机端倒是可以，什么情况，好奇怪
+
+*****
+
+####  洛拉斯  
+##### 18584#       发表于 2026-10-28 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435010&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-28 17:44</a>
+
+这个有意思
+
+不过得是架构稳定才好使吧，从零开始其实最考验经验的就是架构的部分
+
+有意思的是AI时代人人都 ...</blockquote>
+你不要只讲需求，你也要讲清楚目的，这样ai有时候能给你一个出乎意料的方案
+
+
+*****
+
+####  有鱼  
+##### 18585#       发表于 2026-10-28 19:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">第一次用grill me确实惊为天人，但是grill me这个skill也会被模型本身拖累，提问题的品味和解决问题的品味本质一回事。
+
+在模型进步到位之前，自己稍微学一下想一下se相关问题还是合适的。
+
+最强的模型也就是个很会写代码的实习生罢了
+
