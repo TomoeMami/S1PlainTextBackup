@@ -65,3 +65,15 @@ CNMD卡婊，通马桶我倒是无所谓，你TM自己标记的点位能不能�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  TKD53  
+##### 1991#       发表于 2026-10-28 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420750&amp;ptid=2210366" target="_blank">hentianwuya 发表于 2026-10-25 19:48</a>
+有对马岛垫底，它怎么也不能算时髦度最低。</blockquote>
+鬼武者的战斗和动作设计都没得说，但其他的减分项太多了，所有支线任务和给的奇谭故事全都在拉低时髦值，一点包装都没有。主线也很多槽点，比如佐佐木，这角色怎么做都能给游戏刷一波时髦值吧，卡普空偏把他做成一条毒狗，嘴上说要挑战强者，实际上除了杀老百姓磕魂没干别的。
+
+对马岛再不济，最终和舅舅的一战也能拔高整个游戏的时髦值
+
