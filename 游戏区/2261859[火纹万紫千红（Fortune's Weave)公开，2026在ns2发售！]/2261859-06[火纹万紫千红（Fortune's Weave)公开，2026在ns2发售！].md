@@ -10074,3 +10074,25 @@ dlc的售价是本体的一半，体量也是一半吗。
 
 例外第三部的剧情也不知道四人怎么增加，章节间的圆桌会好像没位置了，站后面吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 8355#       发表于 2026-10-28 22:34
+
+ 本帖最后由 kalavinka 于 2026-10-28 22:36 编辑 
+
+解包还一些有意思的东西，战前显示的基础命中率并不是实际命中率<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+实际命中率=基础命中率*约13.333%*sin【（基础命中率-50）*3.6‌°‌】
+
+做个曲线图就是这样的，目的应该也是减少高命中miss的挫败感吧
+
+<img src="https://img.stage1st.com/forum/202610/28/223335rauudqusuu2avs8q.png" referrerpolicy="no-referrer">
+
+<strong>img_2900.png</strong> (328.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 22:33 上传
+
