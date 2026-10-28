@@ -9127,3 +9127,63 @@ GLM 5.3 Flash逆向真强，哪怕只是本地部署q4量化版。
 
 坛友们，我是AI萌新用户，最近要写年终的工作报告了，有没有合适方便的方法，这个需求算不算现在大模型的甜点区？我现在只会用豆包和chatbox配置API来和AI简单对话，还有什么更高效的“创作”文字报告的方法吗
 
+
+*****
+
+####  hugosol  
+##### 18551#       发表于 2026-10-28 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434496&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-28 16:04</a>
+
+现在框架大家其实都是类似的，关键还是在细节上
+
+例如做规划大家都会尽量用能力强的模型，但是让模型大段 ...</blockquote>
+其实我觉得用grill-me根据不同模型风格还是有很多不同技巧的，比如Astra我用得最多的一句话就是不要考虑太多边界情况，先把happy flow做出来，它就会闭嘴了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，如果只会顺着AI问的问题一个一个答体验是很难受的
+
+但随着模型越来越强我也开始在想是不是有更高效一点的方法
+
+最近看poteto分享的那套方法就是啥也别管先跑通再说然后重构，但是模型越自由基本上就是token消耗指数级增长，不过就算我用自己魔改的那一套grill-me流程，跑到后面回归测试的token消耗也是自然而然变得非常恐怖了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeoDT  
+##### 18552#       发表于 2026-10-28 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434676&amp;ptid=2275806" target="_blank">Sunyalche 发表于 2026-10-28 16:38</a>
+
+我都是究极敏捷开发了, 开始规划什么的随便搞搞, 放弃一次生成上线代码的想法了.
+
+以前写代码这块太费人工 ...</blockquote>
+我还是大概分了分事的类型
+
+明确知道改什么怎么改的，就用固定工作流，提需求，整理复述需求，调查确认，出方案，讨论确认方案，最后看是写实施计划还是直接实施，这种一般都能一次搞定。
+
+模糊的只有大致设计的需求，靠想是想不出细节的，就靠迭代。一般来说迭代个两轮也做的差不多了，大多数时候都是眼睛看到了才真的知道自己要什么，设计才能细化，这跟古法其实是一样的。
+
+看代码也放弃看细节了，都是花个5-10分钟扫一遍，靠感觉找问题，味道大的屎基本都能发现，味道小的就等他大了再说，毕竟现在重构成本低多了。另外有些大活做完，让模型画个流程架构图之类，有问题也早发现了。
+
+
+*****
+
+####  当光停止  
+##### 18553#       发表于 2026-10-28 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434721&amp;ptid=2275806" target="_blank">huruii7 发表于 2026-10-28 16:47</a>
+
+坛友们，我是AI萌新用户，最近要写年终的工作报告了，有没有合适方便的方法，这个需求算不算现在大模型的甜 ...</blockquote>
+把工作成果之类的筛一下（别泄露信息啥的）塞一个文件夹，下workbuddy之类的harness，让deepseek之类的ai根据文件夹内材料做就行。
+
+如果有什么要求可以加个grill-me的skill（不知道怎么装，就拿名字让ai装就行），写之前先让ai用grill-me（或者grill-with-doc，这个是把东西保存在文档上作为参考）先定好你需要的标准就行。
+
+*****
+
+####  hugosol  
+##### 18554#       发表于 2026-10-28 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434522&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-28 16:08</a>
+
+你这个可能是grill me这套本身的问题吧，我以前在最早的deepseekv4上用grillme全家桶试着做游戏，结果效 ...</blockquote>
+其实就是AI没法让你做超出自己能力掌控范围以外的东西，但是比起一句话许愿最后生成出来乱七八糟的玩意，grill-me会让你停留在无尽的拷问地狱阶段<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+你现在知道用框架和mcp，而不需要自己从头底层搓轮子，再去用grill-me又会是不一样的感受了
+
