@@ -8278,3 +8278,40 @@ Agent给的方案多是网上现有信息的总结，想的坛友可能会有更
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  requiem116  
+##### 18478#       发表于 2026-10-28 09:41
+
+用qoder调用之前写的黄文破甲skill居然给我拒绝了
+
+果然还是ds官方的甲最薄吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 18479#       发表于 2026-10-28 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432454&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-10-28 09:26</a>
+Agent给的方案多是网上现有信息的总结，想的坛友可能会有更有真实性的经验 ...</blockquote>
+按我的理解就是把文档分成给人看的和给ai看的，如果事实与给人看的文档冲突了就以人为准修正代码，给ai看的文档让ai自己维护
+核心观念就是最终所有产物都是人类收货，如果屎山塌了还要人类指挥清理或者重构，所以人要看的文档是最重要的，不能让ai随便乱改，不然要重构的时候就无从下手了
+
+*****
+
+####  coldhot3  
+##### 18480#       发表于 2026-10-28 09:42
+
+<blockquote>andychen 发表于 2026-10-28 00:31
+要长期使用的会话最好用外部记忆</blockquote>
+dsh的外部记忆，请问有什么好的插件吗？谢谢
+
+
+*****
+
+####  千秋难诉  
+##### 18481#       发表于 2026-10-28 09:43
+
+WB今天怎么又送了500积分<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

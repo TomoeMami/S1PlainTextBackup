@@ -9514,3 +9514,13 @@ cp算个屁啊，白发鬼最有含金量的是朱拉结局钦定没有白发鬼
 哪个贴啊，没找到。。。</blockquote>
 [https://tieba.baidu.com/p/11140853922?fr=frs](https://tieba.baidu.com/p/11140853922?fr=frs)这个贴，下面有人翻译
 
+
+*****
+
+####  HazukiShion  
+##### 8296#       发表于 2026-10-28 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432381&amp;ptid=2261859" target="_blank">六至九 发表于 2026-10-28 09:15</a>
+https://tieba.baidu.com/p/11140853922?fr=frs这个贴，下面有人翻译</blockquote>
+谢了，但是这贴里我没找到，里面都是救世主和猫猫头的，还有猫猫头独身的。。。<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
