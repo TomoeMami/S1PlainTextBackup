@@ -5892,3 +5892,13 @@ Screenshot_20261028-135214~2.png
 
 <img src="https://img.stage1st.com/forum/202610/28/135622dpbfgabohs8gpsfn.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 557#       发表于 2026-10-28 18:43
+
+队友里最没用的是杰克吧
+
+大招都要消耗强运，根本无法连发
+

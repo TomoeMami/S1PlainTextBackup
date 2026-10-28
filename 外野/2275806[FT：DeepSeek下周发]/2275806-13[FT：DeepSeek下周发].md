@@ -9504,3 +9504,23 @@ OpenRouter 是最成功的模型路由器，你几乎可以用单个 GB300 机�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">我怎么一直连不上，甚至网页也打不开，真又崩了？
 
+
+*****
+
+####  →熙←  
+##### 18578#       发表于 2026-10-28 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435205&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-10-28 18:27</a>
+
+我怎么一直连不上，甚至网页也打不开，真又崩了？</blockquote>
+没有, 修复dns看看
+
+*****
+
+####  knnknn  
+##### 18579#       发表于 2026-10-28 18:41
+
+那我也来贴里许愿，我做神秘小需求全网都找不到一个的那种（至少我让LLM搜+自己搜找不到）spec老给我实现歪该怎么办<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+我现在自己摸索到拆模块分开上下文写+手搓测试必须实现了，但就这样还是会因为改spec改成一坨然后用这一坨把代码写成另一坨。反倒是oneshot做得出就做做不出拉倒换个方案效果好一点。
+
