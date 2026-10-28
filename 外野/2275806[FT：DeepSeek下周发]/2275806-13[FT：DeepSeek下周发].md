@@ -8831,3 +8831,88 @@ dsh的外部记忆，请问有什么好的插件吗？谢谢</blockquote>
 前者用来做记账本，可以远程push到自己的git库存档，后 ...</blockquote>
 你这个的原理是什么？什么都写到全局记忆不会干扰不同的项目和模块吗？
 
+
+*****
+
+####  lactone  
+##### 18528#       发表于 2026-10-28 15:28
+
+国模还是不会宣传，跟着别人走
+
+到现在范式革新就r1
+
+后面的都还在做别人出的题
+
+sora和genie4这种靠演示刷一波存在感，引诱别的竞争者入场，然后拍拍屁股走人的事情太多了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  hugosol  
+##### 18529#       发表于 2026-10-28 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434057&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-28 14:40</a>
+
+我目前的流程是区分开决策规划层和执行验证层。前者能接触到所有设计文档和工程节点报告，负责撰写未来开 ...</blockquote>
+继续聊点软件工程的干货吧，不然这楼里全是屁股大战太无聊了<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+现在对实施层大家基本都有共识了，梳理好文档然后用干净的上下文给到实施层自动跑就行了，后面的自动化测试验收之类的都没有太大分歧，各种oneshot模型跑这种流程都毫无压力
+
+关键分歧还是在前面规划的部分，我是用grill-me那一套入门的，一直不信任让模型自动生成的计划，因为我跟它讨论的过程中就会发现大量跑偏的设计，用再贵的模型都避免不了这一点
+
+而且讨论过程也有一个隐形收益，可以深化自己对代码库的理解
+
+不过我也知道另外一派是会把决策权更多地交给模型的，目前我也在寻求是不是有折衷一点的方式，就算用grilling我也不想一个个细节问题去回答，这一点贵的模型确实是理解能力和表达能力都会好上不少<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+但是似乎无论哪一派都同意跑完之后要对代码库做一次重构，否则不去主动打理一直这样下去就会变成AI slop
+
+
+*****
+
+####  飞剪号  
+##### 18530#       发表于 2026-10-28 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434319&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-28 15:28</a>
+
+国模还是不会宣传，跟着别人走
+
+到现在范式革新就r1</blockquote>
+sora就算了吧，开创一个领域然后自己死掉也能吹吗
+
+
+*****
+
+####  cube  
+##### 18531#       发表于 2026-10-28 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434286&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-28 15:22</a>
+
+你这个的原理是什么？什么都写到全局记忆不会干扰不同的项目和模块吗？
+
+ ...</blockquote>
+前者只是个自动化手账，会把一些关键的内容自动整理成笔记存储在本地，这个没啥好说的，而且清理过时内容也只需要对话框里和大肥鱼说一声就行。
+
+后者看它的用户手册就是了：
+[https://github.com/Aik358/dsh-au ... USER-GUIDE.zh-CN.md](https://github.com/Aik358/dsh-auto-memory/blob/main/docs/USER-GUIDE.zh-CN.md)
+
+这个插件把记忆分三层存：用户级（跨项目硬规则，很小）/ 工作区级（绝大部分内容，按目录隔离）/ 会话级（工具上下文）。
+
+不同项目的唤起判据与索引缓存是独立的，如果你需要跨项目之间共享记忆是要手动写用户规则的。
+
+
+*****
+
+####  lactone  
+##### 18532#       发表于 2026-10-28 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434339&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-10-28 15:31</a>
+sora就算了吧，开创一个领域然后自己死掉也能吹吗</blockquote>
+就是这种才恶心啊。genie4这种，如果国模追上了，马上谷歌就会去吹别的
+
+sora也是，刚出来时改变世界，后来被sd一脚踢死，现在视频模型几乎被国产垄断，然后sora一跑路，这个领域就不重要了
+
+别看现在gpt刷数学题刷的厉害，如果竞争对手也赶上，马上gpt就会去吹别的
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
