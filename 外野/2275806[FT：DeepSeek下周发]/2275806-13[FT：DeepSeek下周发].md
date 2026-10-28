@@ -8966,3 +8966,80 @@ ds现在逆向的效率好高啊，定位问题又快又准
 
 我前面在讨论One Shot问题时把用户比作赛博领导，我认为在Agentic Coding时代做软件工程的思路应该某种程度上跳出工程本身，而是思考应该搭建一个怎样的组织来实施工程。在这个组织搭建的过程中我看重的是信息流如何生成和流动，智能体角色如何与模型最高效的搭配，以及成本与效益如何平衡
 
+
+*****
+
+####  mitzvah  
+##### 18537#       发表于 2026-10-28 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434320&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-28 15:29</a>
+
+继续聊点软件工程的干货吧，不然这楼里全是屁股大战太无聊了
+
+现在对实施层大家基本都有共识了，梳理好文 ...</blockquote>
+你这个可能是grill me这套本身的问题吧，我以前在最早的deepseekv4上用grillme全家桶试着做游戏，结果效果一塌糊涂，当时啥也不懂，后来我才意识到这种涉及渲染的内容对于当时的瞎眼模型deepseekv4而言其实比后端难得多，做不出来才是正常的，但是grillme这套的流程本身也没有暴露出这个盲点
+
+合理的做法是直接用游戏引擎的mcp基于已成熟的框架的基础设施绕过底层渲染之类的难点才能做出点东西
+
+所以grillme本身无法帮助llm暴露出自己的盲点，把责任推给用户负担更重也不见得准确，我觉得这个事实本身就意味着grillme有效性非常可疑了。还是那些可以直接回馈准确事实的工具更可信
+
+*****
+
+####  andychen  
+##### 18538#       发表于 2026-10-28 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432548&amp;ptid=2275806" target="_blank">coldhot3 发表于 2026-10-28 09:42</a>
+
+dsh的外部记忆，请问有什么好的插件吗？谢谢</blockquote>
+我没有使用外部记忆的插件，我的外部记忆管理是和智能体团队结合在一起
+
+如果你只需要单个会话的持久记忆，用插件简单解决没问题。如果要在智能体团队内进行，那外部记忆管理和智能体团队设计是分不开的。因为只有决定了一个角色是什么才能决定他需要哪些长期和短期记忆。这时候就没法用通用解决方案，只能自己设计
+
+*****
+
+####  洛拉斯  
+##### 18539#       发表于 2026-10-28 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434352&amp;ptid=2275806" target="_blank">cube 发表于 2026-10-28 15:34</a>
+
+前者只是个自动化手账，会把一些关键的内容自动整理成笔记存储在本地，这个没啥好说的，而且清理过时内容 ...</blockquote>
+哦，那和我现在用的模式是一样的，3级模式，全局，工作区，项目3层，下级无法影响上级
+
+
+*****
+
+####  洛拉斯  
+##### 18540#       发表于 2026-10-28 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434409&amp;ptid=2275806" target="_blank">schneehertz 发表于 2026-10-28 15:44</a>
+
+现在的模型还是不适合添加记忆模块，只会产生副作用
+
+可能性还是在模型本体上</blockquote>
+有些记忆还是要的，比如我这边环境默认老是拉他自己的ps5，而不是我安装ps7，然后写命令行老是用gb5而不是utf，写到全局记忆以后就没遇到过这种问题了，不然每次都要报错，修复，白白浪费时间
+
+*****
+
+####  mitzvah  
+##### 18541#       发表于 2026-10-28 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434447&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-10-28 15:54</a>
+
+我从来不用所谓的记忆，原因就在于现在所谓的记忆无非都是些稍微fancy一点的rag。如果我需要记下某些东西， ...</blockquote>
+rag已经公认是效果远远差于grep文本匹配瞎猜了，而裸grep又远远不如静态工具建索配合dap补盲
+
+那么大的一个代码库建索完毕后，还需要啥记忆系统，有什么想用的直接让llm查索引不就得了
+
+长篇小说之所以难搞，主要原因就是小说没有代码库的结构性，像代码库的依赖索引几乎没啥成本，小说就不行了，图rag也是rag效果同样一坨
+
+
+*****
+
+####  mitzvah  
+##### 18542#       发表于 2026-10-28 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434544&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-28 16:11</a>
+
+有些记忆还是要的，比如我这边环境默认老是拉他自己的ps5，而不是我安装ps7，然后写命令行老是用gb5而不 ...</blockquote>
+你这不就是skill注入吗
+
