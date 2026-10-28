@@ -8327,3 +8327,21 @@ WB今天怎么又送了500积分<img src="https://static.stage1st.com/image/smil
 
 希望坛友用完能给点反馈
 
+
+*****
+
+####  hugosol  
+##### 18483#       发表于 2026-10-28 10:21
+
+ 本帖最后由 hugosol 于 2026-10-28 10:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432131&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-10-28 08:25</a>
+
+我有一个疑问：
+
+过去为了节省上下文，或是让代码之余的业务能够被更好的理解，以及补齐必要的信息，我会将 ...</blockquote>
+我个人理解的话matt的出发点其实是不想让太多乱七八糟的东西进入上下文
+
+如果是我的话其他那些文档如果某次开发用到我才会手动引入给agent读的，全放在仓库里其实跟AI自己生成的文档一样都是噪音
+
+还有就是matt那套感觉主要针对个人开发项目好用，团队开发的话成员之间要做的沟通还是跟以前差不多，其实提效没那么明显，如果指望靠文档代替交流是不太可能的
+

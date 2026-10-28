@@ -9524,3 +9524,13 @@ cp算个屁啊，白发鬼最有含金量的是朱拉结局钦定没有白发鬼
 https://tieba.baidu.com/p/11140853922?fr=frs这个贴，下面有人翻译</blockquote>
 谢了，但是这贴里我没找到，里面都是救世主和猫猫头的，还有猫猫头独身的。。。<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maojiashu  
+##### 8297#       发表于 2026-10-28 10:22
+
+如果真有白发鬼和蕾达的结婚结局 我直接就把白发鬼送了
+
+强又怎么样 我缺你一个吗<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
