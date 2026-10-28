@@ -8560,3 +8560,30 @@ dsh的外部记忆，请问有什么好的插件吗？谢谢</blockquote>
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  cscbzcbz  
+##### 18503#       发表于 2026-10-28 12:20
+
+又改标准还行<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">丢人
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Promeus  
+##### 18504#       发表于 2026-10-28 12:20
+
+应该是为了吧k3.1p踹出去改标准了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 18505#       发表于 2026-10-28 12:23
+
+这怎么玩，1017体感就是比terra强，能落后这么多分？terra能赢fable5.1？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
