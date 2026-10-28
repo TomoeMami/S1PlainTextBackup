@@ -404,3 +404,16 @@ demo玩了，手感有点💩
 
 哎也怪我，买都买了，继续品鉴。
 
+
+*****
+
+####  sanada  
+##### 45#       发表于 2026-10-28 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435554&amp;ptid=2281306" target="_blank">cot495 发表于 2026-10-28 19:51</a>
+
+进度推到第三张图，每一分钟都在变得更无聊。换皮怪看得快吐了。
+
+作为一个本质刷子游戏，背包学生化4的摆格 ...</blockquote>
+期待您打完的评测
+
