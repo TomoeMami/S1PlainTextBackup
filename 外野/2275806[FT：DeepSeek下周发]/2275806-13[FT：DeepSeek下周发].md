@@ -8793,3 +8793,15 @@ Astra是炒作agi（computeruse），最开始的评价是这模型喜欢偷懒�
 
 另外就是每个节点实施完成后要安排对文档进行一次统一的维护。注意不要笼统的让模型修订文档，这样做模型很容易会进行狗皮膏药式贴补丁，或者改了一处别的地方还是没动
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 18525#       发表于 2026-10-28 14:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+“最贵的资产是测评集”
+纳德拉你究竟看到了多远（
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
