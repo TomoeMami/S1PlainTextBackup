@@ -8410,3 +8410,13 @@ api下的d老师毫无负担，随便破别人的软件
 我看到都是说国内版每日送积分 ≈ 免费</blockquote>
 我偶尔用一下，印象里是扣积分的，这段时间都没看了
 
+
+*****
+
+####  蜇灵  
+##### 18490#       发表于 2026-10-28 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70433018&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-10-28 11:03</a>
+我偶尔用一下，印象里是扣积分的，这段时间都没看了</blockquote>
+国际版免费到月底啊，你是不是选成那个戴sg后缀的付费版本了
+

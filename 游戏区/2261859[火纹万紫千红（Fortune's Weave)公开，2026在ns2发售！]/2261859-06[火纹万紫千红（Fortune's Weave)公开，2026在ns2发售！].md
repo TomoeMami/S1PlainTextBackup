@@ -9567,3 +9567,22 @@ https://tieba.baidu.com/p/11140853922?fr=frs这个贴，下面有人翻译</bloc
 
 反正我到时候就把这两人配一起。
 
+
+*****
+
+####  flyingover  
+##### 8301#       发表于 2026-10-28 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432975&amp;ptid=2261859" target="_blank">燃烧的石头 发表于 2026-10-28 10:57</a>
+
+说到底，这些结局都要你专门去配种才能触发，搞不懂既然不想触发这个结局偏偏还要去给这两个人配种是什么心 ...</blockquote>
+其实最大的问题是，很多结局就是写的很无聊，而且加上有些好感度很容易刷高变成不喜欢的结局（比如女王和和波拿巴的那个挖出来的结局）
+
+
+*****
+
+####  北条早苗  
+##### 8302#       发表于 2026-10-28 11:14
+
+DLC给一个锁结局的功能就行，三房当年也是按名单顺序配的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
