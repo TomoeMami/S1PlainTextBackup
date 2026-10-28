@@ -4526,3 +4526,43 @@ MyGO!!!!! 9th Single「世点彩（Sepia）」
 游戏</blockquote>
        [https://www.bilibili.com/video/BV1GHxL6eE99](https://www.bilibili.com/video/BV1GHxL6eE99)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42178#       发表于 2026-10-28 21:38
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/28/213842ekmb3e3vsmzqfycy.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-28_21-37-48.png</strong> (1.29 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 21:38 上传
+
+       [https://x.com/bang_dream_info/status/2115361845968089518](https://x.com/bang_dream_info/status/2115361845968089518)
+
+       [https://t.co/hSHYf8NzoH](https://t.co/hSHYf8NzoH)
+
+       [https://t.co/5EalcOPqsc](https://t.co/5EalcOPqsc)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42179#       发表于 2026-10-28 21:41
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/28/214118tevqc7kbvrbr2csm.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-28_21-40-09.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 21:41 上传
+
+       [https://x.com/bang_dream_info/status/2115416883491213320](https://x.com/bang_dream_info/status/2115416883491213320)
+
