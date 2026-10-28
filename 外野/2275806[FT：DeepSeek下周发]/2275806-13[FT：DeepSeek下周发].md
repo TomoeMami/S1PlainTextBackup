@@ -8587,3 +8587,42 @@ dsh的外部记忆，请问有什么好的插件吗？谢谢</blockquote>
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  白日依山尽  
+##### 18506#       发表于 2026-10-28 12:28
+
+61terra唯一用处是比o家其他快点，执行简单既定任务流畅些
+
+
+*****
+
+####  RookieTnT  
+##### 18507#       发表于 2026-10-28 12:30
+
+AA榜本来就是野鸡榜. 估计是给钱就上那种.
+
+*****
+
+####  lactone  
+##### 18508#       发表于 2026-10-28 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70433480&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-10-28 12:30</a>
+AA榜本来就是野鸡榜. 估计是给钱就上那种.</blockquote>
+野鸡榜不假，但是现在都拿它说事，不知道为啥
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  →熙←  
+##### 18509#       发表于 2026-10-28 12:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">aa榜可太成功了, 天天说人家野鸡, 有一点风吹草动,就被一点不漏的搬运过来
+
+每次出新模型, aa一定会被搬
+
+这可是事实性的权威
+
