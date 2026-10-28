@@ -2578,3 +2578,29 @@ B游戏捅鸭子窝了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  captoon  
+##### 4936#       发表于 2026-10-29 03:04
+
+<img src="https://img.stage1st.com/forum/202610/29/030218akz9rtktal96xpa4.jpg" referrerpolicy="no-referrer">
+
+<strong>727b9dcb53e89d9ea2c797682bbbde6a.jpg</strong> (589.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-29 03:02 上传
+
+吉翁公国军赤色三连星，船虽然只有36，但是目前唯一能吃到双光环的队伍。
+
+<img src="https://img.stage1st.com/forum/202610/29/030302m679rrnrrvl9ilfr.jpg" referrerpolicy="no-referrer">
+
+<strong>e4e4ed533ab8d57a695da181333fee3a.jpg</strong> (500.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-29 03:03 上传
+
+新吉翁公国军，能用的船很多，独眼、新吉翁、精神感应，留的2个位置是给31号池子的。目前这2个空位置是留给卡碧尼和新吉翁标签的SSR
+
