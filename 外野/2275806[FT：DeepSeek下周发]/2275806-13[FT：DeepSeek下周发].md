@@ -8467,3 +8467,15 @@ WB今天怎么又送了500积分</blockquote>
 Re:Source</blockquote>
 我也搜了下没看有人说送分，之前ds故障的送分也领取过了，今天领日常100分直接多了500分，不知道这500分哪来的
 
+
+*****
+
+####  schneehertz  
+##### 18495#       发表于 2026-10-28 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70433133&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-10-28 11:24</a>
+别回复他，你看他的历史发言，这就是一个斩杀爱好者</blockquote>
+斩杀爱好者哈哈哈笑死我了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
