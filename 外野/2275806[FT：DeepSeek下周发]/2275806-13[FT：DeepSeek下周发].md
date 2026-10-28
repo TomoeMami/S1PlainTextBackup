@@ -8315,3 +8315,15 @@ dsh的外部记忆，请问有什么好的插件吗？谢谢
 
 WB今天怎么又送了500积分<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 18482#       发表于 2026-10-28 09:57
+
+[https://pi.dev/packages/pi-vcc-codemode](https://pi.dev/packages/pi-vcc-codemode)
+
+再推销一下自己魔改的PI codemode专用上下文压缩插件，找astra出方案迭代3个版本，大部分问题应该都修完了，只剩下具体的压缩配额还得再磨合下
+
+希望坛友用完能给点反馈
+
