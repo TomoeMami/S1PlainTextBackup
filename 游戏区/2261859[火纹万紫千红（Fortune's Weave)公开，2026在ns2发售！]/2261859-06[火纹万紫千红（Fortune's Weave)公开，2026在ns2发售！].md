@@ -9503,3 +9503,14 @@ cp算个屁啊，白发鬼最有含金量的是朱拉结局钦定没有白发鬼
 
 不需要那张脸也行啊，和部份自机又不是没爱情向结局，只不过是让猫猫头守个活寡罢了
 
+
+*****
+
+####  六至九  
+##### 8295#       发表于 2026-10-28 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431266&amp;ptid=2261859" target="_blank">HazukiShion 发表于 2026-10-27 21:54</a>
+
+哪个贴啊，没找到。。。</blockquote>
+[https://tieba.baidu.com/p/11140853922?fr=frs](https://tieba.baidu.com/p/11140853922?fr=frs)这个贴，下面有人翻译
+

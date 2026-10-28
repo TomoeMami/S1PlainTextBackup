@@ -5778,3 +5778,22 @@ FF14的无属性黑魔法穿透反射盾不能反射
 
 —— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  requiem116  
+##### 548#       发表于 2026-10-28 09:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432305&amp;ptid=2283081" target="_blank">godless2020 发表于 2026-10-28 09:05</a>
+
+反射流，男主是不是不穿盔甲，更容易打出反射伤害？？？</blockquote>
+没有仔细测，感觉区别不大
+
+理由是主角身上有没有魔防buff的时候伤害差距不大
+
+被boss上了减魔防buff也没有明显的伤害增幅
+
+感觉还是给boss上减魔防提升比较明显
+
+看了别人视频，后面被动带齐直接魔法乱打都能99999了，男主状态应该不是很重要了
+
