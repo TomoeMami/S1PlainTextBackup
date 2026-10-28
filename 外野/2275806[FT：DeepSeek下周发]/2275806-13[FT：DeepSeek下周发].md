@@ -8433,3 +8433,37 @@ api下的d老师毫无负担，随便破别人的软件
 — from motorola XT2603-1, Android 17, ...</blockquote>
 别回复他，你看他的历史发言，这就是一个斩杀爱好者
 
+
+*****
+
+####  臭P遇上臭脚  
+##### 18492#       发表于 2026-10-28 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432553&amp;ptid=2275806" target="_blank">千秋难诉 发表于 2026-10-28 09:43</a>
+WB今天怎么又送了500积分</blockquote>
+哪里，我怎么没收到<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  umamusume  
+##### 18493#       发表于 2026-10-28 11:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">terra确实垃圾，但是dot会用鞭子抽他，这就舒服多了。不过我还是选择6.1sol(不准computeruse
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  千秋难诉  
+##### 18494#       发表于 2026-10-28 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70433216&amp;ptid=2275806" target="_blank">臭P遇上臭脚 发表于 2026-10-28 11:38</a>
+
+哪里，我怎么没收到
+
+Re:Source</blockquote>
+我也搜了下没看有人说送分，之前ds故障的送分也领取过了，今天领日常100分直接多了500分，不知道这500分哪来的
+

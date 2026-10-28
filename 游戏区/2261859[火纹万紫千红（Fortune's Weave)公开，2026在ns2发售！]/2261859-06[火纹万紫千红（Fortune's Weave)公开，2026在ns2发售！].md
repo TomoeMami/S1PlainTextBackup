@@ -9627,3 +9627,11 @@ DLC给一个锁结局的功能就行，三房当年也是按名单顺序配的<i
 
 快速过一遍等DLC出来再认真重打了
 
+
+*****
+
+####  5ew47  
+##### 8307#       发表于 2026-10-28 11:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 来个迪哥和莱菈的结局吧，能成为我父亲的男人.jpg
+
