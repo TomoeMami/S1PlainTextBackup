@@ -8655,3 +8655,13 @@ frontiet code 2.0出现了6.1terra超过6.1sol，haiku 5.5超过fable5.1，argon
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  cscbzcbz  
+##### 18513#       发表于 2026-10-28 13:28
+
+所以以后别信什么榜了，这个榜那个榜本质就是为了赢学服务的，根据实际情况，选适合的就行了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
