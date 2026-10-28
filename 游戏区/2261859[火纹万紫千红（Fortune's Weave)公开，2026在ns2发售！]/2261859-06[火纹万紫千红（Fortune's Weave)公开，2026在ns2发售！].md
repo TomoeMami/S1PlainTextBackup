@@ -10062,3 +10062,15 @@ dlc的售价是本体的一半，体量也是一半吗。
 
    如果有的话    歌剧   算命   经商    垃圾游戏达古扎版   差不多就是这样了。
 
+
+*****
+
+####  索非亚  
+##### 8354#       发表于 2026-10-28 22:24
+
+对我来说最大的问题还是第三部冥护的问题，剑系以外的职业没有增加通用的解法第一部的养成热情还是不大。
+
+而且DLC真缓解了冥护问题我高低也要骂句吃相难看<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+例外第三部的剧情也不知道四人怎么增加，章节间的圆桌会好像没位置了，站后面吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
