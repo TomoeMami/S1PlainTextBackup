@@ -9288,3 +9288,30 @@ https://github.com/deepseek-ai/deepseek-harness/blob/f3803c96974ad4a94195fb97e5c
 
 <img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">官网打不开了？大的……？
 
+
+*****
+
+####  shimotsuki14  
+##### 18564#       发表于 2026-10-28 17:08
+
+新手问个问题，前段时间用自己的google账号在aistudio充钱买了api，然后用chatbox用了几天，这两天发现aistudio不能用了，无法查看apikey，用量，点了之后都直接跳回aistudio.google.com/docs/available-regions这个界面。也不能在线用playground对话
+
+在api创建界面提示failed to list imported projects：permission denied
+
+其他情况下google账号还是正常的，就ai相关的用不了
+这是啥情况，难道被封了？
+
+—— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  紧那罗  
+##### 18565#       发表于 2026-10-28 17:13
+
+我觉得大部分人需要的记忆就是偷懒，懒得显式的告诉ai，这个事情你记下来，记到项目/全局纪律中。
+但偏偏效果最好的就是你主动告诉他，什么东西要记下来。
+这已经不是AI模型能力问题，也不是agent工程实现的问题了，这是个管理学问题<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

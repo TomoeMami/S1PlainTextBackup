@@ -2542,3 +2542,13 @@ B游戏捅鸭子窝了
 
 遇事不决上鸭子<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 4932#       发表于 2026-10-28 17:09
+
+每个游戏都有自己的呆毛王<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
