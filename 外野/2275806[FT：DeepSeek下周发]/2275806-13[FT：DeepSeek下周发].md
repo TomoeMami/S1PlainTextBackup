@@ -8033,3 +8033,13 @@ qoder发了20刀的astra专用积分，让他做了一次计划，第一版我�
 为什么看你们的Astra表现有那么差，我只怕Astra额度烧的太快了。。。</blockquote>
 这个强力可能就是它内化了比其他模型更多的工具调用吧，那些工具用起来就是不说人话的
 
+
+*****
+
+####  Baccano  
+##### 18465#       发表于 2026-10-28 08:45
+
+ 本轮运行失败400: {"message":"workbuddy upstream client (http 400): 请求被拦截，请重新发送","type":"client","code":"client"}复制代码
+
+workbuddy的反代又收紧了，改系统提示词已经失效了，想用积分只能买会员开api了。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
