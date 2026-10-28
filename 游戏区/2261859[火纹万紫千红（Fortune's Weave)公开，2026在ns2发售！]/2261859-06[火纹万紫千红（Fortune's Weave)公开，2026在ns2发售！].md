@@ -9549,3 +9549,13 @@ https://tieba.baidu.com/p/11140853922?fr=frs这个贴，下面有人翻译</bloc
 
 好爽<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  燃烧的石头  
+##### 8299#       发表于 2026-10-28 10:57
+
+说到底，这些结局都要你专门去配种才能触发，搞不懂既然不想触发这个结局偏偏还要去给这两个人配种是什么心态
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
