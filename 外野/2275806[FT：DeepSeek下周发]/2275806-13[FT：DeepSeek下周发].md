@@ -8420,3 +8420,16 @@ api下的d老师毫无负担，随便破别人的软件
 我偶尔用一下，印象里是扣积分的，这段时间都没看了</blockquote>
 国际版免费到月底啊，你是不是选成那个戴sg后缀的付费版本了
 
+
+*****
+
+####  zfy1989  
+##### 18491#       发表于 2026-10-28 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70433009&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-10-28 11:02</a>
+
+6.1 terra 纯fw啊 内部的评测集不如deepseek1017 只是便宜了点
+
+— from motorola XT2603-1, Android 17, ...</blockquote>
+别回复他，你看他的历史发言，这就是一个斩杀爱好者
+

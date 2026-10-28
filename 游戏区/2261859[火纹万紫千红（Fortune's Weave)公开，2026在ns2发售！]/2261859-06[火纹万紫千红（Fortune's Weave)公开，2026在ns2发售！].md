@@ -9586,3 +9586,36 @@ https://tieba.baidu.com/p/11140853922?fr=frs这个贴，下面有人翻译</bloc
 
 DLC给一个锁结局的功能就行，三房当年也是按名单顺序配的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lls2388  
+##### 8303#       发表于 2026-10-28 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70431822&amp;ptid=2261859" target="_blank">whzfjd 发表于 2026-10-28 01:57</a>
+
+谁能白字说一下怎么绿的</blockquote>
+剧情里芙朵娜称欧若拉像是自己的妹妹，论辈分她又是龙二代，然后欧若拉剧情里又听信修道会放出的谣言怀疑自己不是索雷尔的女儿，在凯线结局惊天一巴掌后里就说自己就算不是索雷尔的女儿也无所谓，自己还是会认他这个爹。综上所述有人绿帽癖上脑就怀疑当初尤法斯和鞑古扎的交易是把索雷尔绿了。
+
+*****
+
+####  lls2388  
+##### 8304#       发表于 2026-10-28 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432561&amp;ptid=2261859" target="_blank">HazukiShion 发表于 2026-10-28 09:44</a>
+
+谢了，但是这贴里我没找到，里面都是救世主和猫猫头的，还有猫猫头独身的。。。 ...</blockquote>
+猫猫头解包只和自己队的西提斯，妮涅，迪亚哥，救世主有结局，只有救世主是再续前缘双宿双飞，其他全部算是友情结局
+
+
+*****
+
+####  燃烧的石头  
+##### 8305#       发表于 2026-10-28 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70433064&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-10-28 11:10</a>
+其实最大的问题是，很多结局就是写的很无聊，而且加上有些好感度很容易刷高变成不喜欢的结局（比如女王和 ...</blockquote>
+好感挺容易调控的，就算全员满好感之后，让想配对的人一起吃顿饭就能稳定触发结局了，我自己就是靠这种方式全员5级好感后，然后让配对的人吃饭微调，最后触发了自己想看的结局
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
