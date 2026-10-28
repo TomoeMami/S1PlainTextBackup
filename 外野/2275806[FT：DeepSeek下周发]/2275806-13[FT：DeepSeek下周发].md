@@ -8737,3 +8737,34 @@ Genie 4 的演示效果过于好了
 —— 来自 vivo V2520A, Android 16, ...</blockquote>
 其实两个都是你的回答里的<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 18520#       发表于 2026-10-28 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70433935&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-28 14:17</a>
+其实两个都是你的回答里的</blockquote>
+第二个我没看到，俺寻思coding是claude带起来的，oneshot不是astra炒热的？总不能炒热了不认账了吧？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  小野賢章  
+##### 18521#       发表于 2026-10-28 14:25
+
+oneshot 应该是 fable5 炒热的，包括路由论也是 fable5 炒热的
+
+
+*****
+
+####  小野賢章  
+##### 18522#       发表于 2026-10-28 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70433331&amp;ptid=2275806" target="_blank">lly778 发表于 2026-10-28 12:00</a>
+
+国模压过oa了？更新一下基准吧</blockquote>
+AA 看细分具体测试的排名还是可以的，但是他们自己加权算出来的这个评分不够透明，而且经常变。
+
