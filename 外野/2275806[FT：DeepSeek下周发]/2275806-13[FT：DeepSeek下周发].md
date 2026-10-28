@@ -8673,3 +8673,67 @@ frontiet code 2.0出现了6.1terra超过6.1sol，haiku 5.5超过fable5.1，argon
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这不是二游流水榜吗
 
+
+*****
+
+####  孤舟垂钓  
+##### 18515#       发表于 2026-10-28 14:10
+
+蛋糕太大了，这些做榜的要吃资本家糖衣炮弹，买榜成为必然，再加一套封禁套餐限制使用人群，等用的人少了就没人去戳破。好在我们主打一个开源，就突出一个封不住。
+
+
+*****
+
+####  omnitoken  
+##### 18516#       发表于 2026-10-28 14:14
+
+Genie 4 的演示效果过于好了
+
+*****
+
+####  Promeus  
+##### 18517#       发表于 2026-10-28 14:15
+
+<img src="https://img.stage1st.com/forum/202610/28/141512ylortt7clo6s7f7t.png" referrerpolicy="no-referrer">
+
+<strong>screenshot_20261028_141324_com.zhihu.hmos.png</strong> (67.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-28 14:15 上传
+
+<img src="https://img.stage1st.com/forum/202610/28/141512qtxqltdkdll2mmll.png" referrerpolicy="no-referrer">
+
+<strong>screenshot_20261028_141422_com.zhihu.hmos.png</strong> (73.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-10-28 14:15 上传
+
+都是你们不懂模型
+
+*****
+
+####  lactone  
+##### 18518#       发表于 2026-10-28 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70433924&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-28 14:15</a>
+都是你们不懂模型</blockquote>
+这个回答就是我写的，我都服了怎么出来这么多弱智评论
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  Promeus  
+##### 18519#       发表于 2026-10-28 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70433927&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-28 14:16</a>
+第一个评论的这个回答就是我写的，我都服了怎么出来这么多弱智评论
+
+—— 来自 vivo V2520A, Android 16, ...</blockquote>
+其实两个都是你的回答里的<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
