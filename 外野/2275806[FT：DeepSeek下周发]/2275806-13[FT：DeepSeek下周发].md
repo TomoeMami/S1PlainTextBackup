@@ -8641,3 +8641,17 @@ AA榜本来就是野鸡榜. 估计是给钱就上那种.</blockquote>
 
 忘了前两天美国把deepseek禁了，怎么可能还给国模打广告。玩盘外招搞宣传是白皮老传统了，怎么到ai就忘了
 
+
+*****
+
+####  lactone  
+##### 18512#       发表于 2026-10-28 12:56
+
+6.1 terra这个稀烂的水平比argon和fable5.1分高
+
+frontiet code 2.0出现了6.1terra超过6.1sol，haiku 5.5超过fable5.1，argon和6luna坐一桌
+
+就这个还有人有脸说变得不野了？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
