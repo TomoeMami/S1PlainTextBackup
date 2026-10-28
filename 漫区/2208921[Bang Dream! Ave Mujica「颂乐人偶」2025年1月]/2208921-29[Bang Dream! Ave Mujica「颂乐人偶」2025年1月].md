@@ -4507,3 +4507,22 @@ MyGO!!!!! 9th Single「世点彩（Sepia）」
 
        [https://avemujica-movie.bang-dream.com/news/post-14](https://avemujica-movie.bang-dream.com/news/post-14)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42177#       发表于 2026-10-28 21:37
+
+       <strong>怪物 （Game Ver.） - Ave Mujica（Cover）</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/28/213721h1cix6i2ry8b8m88.png" referrerpolicy="no-referrer">
+
+<strong>76a48a3c9701832f403e1dda65098d546fad6e7d.png</strong> (485.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 21:37 上传
+
+游戏</blockquote>
+       [https://www.bilibili.com/video/BV1GHxL6eE99](https://www.bilibili.com/video/BV1GHxL6eE99)
+
