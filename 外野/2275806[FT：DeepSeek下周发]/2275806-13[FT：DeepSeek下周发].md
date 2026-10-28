@@ -8361,3 +8361,52 @@ WB今天怎么又送了500积分<img src="https://static.stage1st.com/image/smil
 
 国际版wb不送积分的吗原来？
 
+
+*****
+
+####  宅男的爱  
+##### 18486#       发表于 2026-10-28 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432955&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-10-28 10:53</a>
+
+国际版wb不送积分的吗原来？</blockquote>
+国际版听说DS直接免费的？
+
+我看到都是说国内版每日送积分 ≈ 免费
+
+*****
+
+####  洛拉斯  
+##### 18487#       发表于 2026-10-28 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432464&amp;ptid=2275806" target="_blank">umamusume 发表于 2026-10-28 09:28</a>
+
+有现成方案的逆向，破解，代理，你们就不能用本地跑？号伐要啦？
+
+—— 来自 samsung SM-S9480, Android 16 ...</blockquote>
+api下的d老师毫无负担，随便破别人的软件
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 18488#       发表于 2026-10-28 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432900&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-10-28 10:43</a>
+新版kimi才发布几天，就被gpt6.1terra斩杀了</blockquote>
+6.1 terra 纯fw啊 内部的评测集不如deepseek1017 只是便宜了点
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  神必迷你龙  
+##### 18489#       发表于 2026-10-28 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432981&amp;ptid=2275806" target="_blank">宅男的爱 发表于 2026-10-28 10:58</a>
+
+国际版听说DS直接免费的？
+
+我看到都是说国内版每日送积分 ≈ 免费</blockquote>
+我偶尔用一下，印象里是扣积分的，这段时间都没看了
+
