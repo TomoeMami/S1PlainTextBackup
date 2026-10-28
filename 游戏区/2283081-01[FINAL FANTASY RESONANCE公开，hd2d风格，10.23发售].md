@@ -5902,3 +5902,21 @@ Screenshot_20261028-135214~2.png
 
 大招都要消耗强运，根本无法连发
 
+
+*****
+
+####  隔壁老黄  
+##### 558#       发表于 2026-10-28 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432602&amp;ptid=2283081" target="_blank">Squall25 发表于 2026-10-28 09:51</a>
+我也是40多级进去的，开专家难度过的。build成型后BOSS很容易砍死，小兵其实有投机取巧的方法，前面的吃 ...</blockquote>
+专家难度要试错太多次了，毕竟一个不小心就被全灭，不分析又不知道怪的弱点。最刺激是碰到68级的元素精灵，以为万策尽结果发现不抗即死，偏偏即死可以用魔法乱放叠两次行动连放8次，硬生生把两只都给即死了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  隔壁老黄  
+##### 559#       发表于 2026-10-28 19:31
+
+男主搭塞西尔是不是最好？塞西尔自带反射，两次行动先给自己上反射再放全体替伤，撑过第一回合啥都灰飞烟灭了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

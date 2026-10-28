@@ -77,3 +77,17 @@ CNMD卡婊，通马桶我倒是无所谓，你TM自己标记的点位能不能�
 
 对马岛再不济，最终和舅舅的一战也能拔高整个游戏的时髦值
 
+
+*****
+
+####  隔壁老黄  
+##### 1992#       发表于 2026-10-28 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70420779&amp;ptid=2210366" target="_blank">saberlee 发表于 2026-10-25 19:57</a>
+我觉得对马岛的战斗给鬼武者提鞋都不配～
+
+论坛助手,iPhone</blockquote>
+对马岛玩法多很多，不像鬼武者只有一闪这条路，当然哪种玩法都不如鬼武者带劲就是了。
+
+不过要说时髦，对马岛的连续一闪也很帅，后面战鬼模式就更帅了
+

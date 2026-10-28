@@ -9887,3 +9887,11 @@ dlc的售价是本体的一半，体量也是一半吗。
 
 按照解包高几率是这破大陆再跑4遍，再打3次战争篇啦
 
+
+*****
+
+####  kelveen  
+##### 8334#       发表于 2026-10-28 19:34
+
+贝特兰咋跑大陆？开后门吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
