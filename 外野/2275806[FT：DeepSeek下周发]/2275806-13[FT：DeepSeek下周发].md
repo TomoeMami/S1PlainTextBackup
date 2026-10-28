@@ -9715,3 +9715,14 @@ Gemini 4 Carbon来了，跑分干翻Opus 5.5了，但是还是虚空发布中。
 
 让本地ai例如qwen3.8 27b这种，给他较为详细且清楚的数据表，并详细告知其分析要点的写法，那么他写好后，现在有什么成熟的核对其稿子里数据正确的方法吗？特别是引用对不对和计算对不对
 
+
+*****
+
+####  andychen  
+##### 18597#       发表于 2026-10-29 01:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70436471&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-29 01:17</a>
+
+Gemini 4 Carbon来了，跑分干翻Opus 5.5了，但是还是虚空发布中。</blockquote>
+现在各家模型厂就Google还在搞这纸面发布，真挺丢人的
+
