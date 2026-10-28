@@ -9625,3 +9625,29 @@ dsv41f新指纹到底是啥，有结论了吗
 
 —— 来自 vivo V2520A, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  来都来了  
+##### 18588#       发表于 2026-10-28 20:49
+
+Windows商店里的PowerShell升级了，应用商店安装的都去升级一下。AI经过检测后说，现在已经是默认PS7了。之前存在过商店里的PS7装了以后，AI还是继续默认用5的问题。只有用MSI安装的才默认用7。
+
+
+*****
+
+####  Promeus  
+##### 18589#       发表于 2026-10-28 20:52
+
+反正目前没任何变化，只能说也许腾机房最可能吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  misuzu0723  
+##### 18590#       发表于 2026-10-28 20:55
+
+新指纹我让大肥鱼试着撞出来，试了半天没结果大肥鱼说要让我去机房看下日志。。。
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
