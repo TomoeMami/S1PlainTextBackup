@@ -9651,3 +9651,15 @@ Windows商店里的PowerShell升级了，应用商店安装的都去升级一下
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  空き地卯木  
+##### 18591#       发表于 2026-10-28 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435780&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-10-28 20:55</a>
+新指纹我让大肥鱼试着撞出来，试了半天没结果大肥鱼说要让我去机房看下日志。。。
+
+—— 来自 vivo V2405A, ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">该买张去蒙古的机票到现场监工了
+
