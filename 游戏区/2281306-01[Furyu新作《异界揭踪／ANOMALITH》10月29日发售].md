@@ -437,3 +437,11 @@ demo玩了，手感有点💩
 
 从试玩版就感觉不太行了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crosz1985  
+##### 48#       发表于 2026-10-28 23:11
+
+这价格把大陆玩家当凯子整么
+

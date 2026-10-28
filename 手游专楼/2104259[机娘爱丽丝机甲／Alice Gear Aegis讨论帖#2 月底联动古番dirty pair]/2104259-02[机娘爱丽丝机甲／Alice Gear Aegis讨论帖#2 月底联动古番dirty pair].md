@@ -8,3 +8,11 @@
 
 （明明ACGP自爆的时候开的UU还专门搜过没阿嘎来着，只有DMMPLAYER
 
+
+*****
+
+####  江戸前ルナ  
+##### 2156#         楼主| 发表于 2026-10-28 23:15
+
+卧槽，开了代理后切界面秒切好丝滑，甚至有些不习惯……我以前这么多年过的是什么苦日子<img src="https://static.stage1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
