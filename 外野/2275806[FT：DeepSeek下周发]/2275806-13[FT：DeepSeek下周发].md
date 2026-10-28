@@ -9391,3 +9391,50 @@ OpenRouter 是最成功的模型路由器，你几乎可以用单个 GB300 机�
 但是这个拆分往往不好做，有时候p ...</blockquote>
 先提个要求让llm写修改文档包括完整的目的，动机与付诸于实现的准代码块文档写完后对其中准代码块进行逐个的静态工具与现有构建的dap预检查让llm自行评估风险，修改的可行性与有效性，有问题就改准代码块，然后重复以上过程直到工具不报错为止，我要这个方法论fork ds4.c时每一次构建都是一次过
 
+
+*****
+
+####  hugosol  
+##### 18570#       发表于 2026-10-28 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434925&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-10-28 17:28</a>
+
+这跟做产品提的需求一样，为什么天天骂产品，就是因为这东西没法一次搞定，需求注定是要改来改去的。写代 ...</blockquote>
+现在我才是产品好吧，AI只是个跟他提什么需求都只会傻乎乎地答应的实习生开发，我还得拉住它不要乱搞<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hugosol  
+##### 18571#       发表于 2026-10-28 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434930&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-28 17:28</a>
+
+先提个要求让llm写修改文档包括完整的目的，动机与付诸于实现的准代码块文档写完后对其中准代码块进行逐个 ...</blockquote>
+这个有意思
+
+不过得是架构稳定才好使吧，从零开始其实最考验经验的就是架构的部分
+
+有意思的是AI时代人人都可以开始快速积累架构经验了，以前没工作个十年八年根本对这些东西没感受（因为人类开发太慢了
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 18572#       发表于 2026-10-28 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435010&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-28 17:44</a>
+这个有意思
+
+不过得是架构稳定才好使吧，从零开始其实最考验经验的就是架构的部分
+
+有意思的是AI时代人人都 ...</blockquote>
+快速积累架构经验 x
+完全没有架构经验 ✓
+
+体感有了ai之后大伙的脑子都被寄存了 
+只有老轱辘棒子还在想这玩意要怎么搞方便扩展方便维护
+问就是ai来维护，你还有astra聪明.jpg
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
