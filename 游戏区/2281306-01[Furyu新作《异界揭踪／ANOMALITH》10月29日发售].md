@@ -445,3 +445,36 @@ demo玩了，手感有点💩
 
 这价格把大陆玩家当凯子整么
 
+
+*****
+
+####  cot495  
+##### 49#       发表于 2026-10-29 05:13
+
+官方推送了更新补丁，但是似乎只是增加了雷达探测物品标绿的功能，读盘卡死的BUG依旧没有解决，并且多出了背包界面下人物外观只能维持默认状态的BUG。无语。
+
+目前应该是打完第三张图了，剧情依旧平淡如水。新的支线任务“收集医院情报”要求重新回去第一张图通马桶，但是呢地图导航又出了问题，会直接把玩家导向一个不能从这一侧打开的门。
+
+结果只能在导航完全实际失效的情况下在第一张图像无头苍蝇一样乱窜，为什么我完全不感到意外呢。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+非常整蛊，这纯粹一坨的关卡和毫无辨识度的美术还学什么不能从这一侧打开啊啊啊啊啊啊。
+
+另外地图UI也非常奇怪，有的图会在无法通过的地方画个叉，但又有的图完全不显示是否可以通过。并且部分实际连接的房间在地图上显示是断开的？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+伪装成二次元美少女的电子酷刑牢房马拉松。
+
+谢谢你异界揭踪，因为你，我与尘白禁区和解了，真的。
+
+尘白禁区都比日厂潮酷新怪谈GAME好玩十倍甚至九倍...
+
+
+*****
+
+####  cot495  
+##### 50#       发表于 2026-10-29 05:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70433497&amp;ptid=2281306" target="_blank">リンリー・グー 发表于 2026-10-28 12:34</a>
+
+遗失物的游戏真的做出来估计也就是这个感觉吧，就当代餐了</blockquote>
+代不了一点，喜欢类似题材的可以去玩控制<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
