@@ -9043,3 +9043,25 @@ rag已经公认是效果远远差于grep文本匹配瞎猜了，而裸grep又远
 有些记忆还是要的，比如我这边环境默认老是拉他自己的ps5，而不是我安装ps7，然后写命令行老是用gb5而不 ...</blockquote>
 你这不就是skill注入吗
 
+
+*****
+
+####  schneehertz  
+##### 18543#       发表于 2026-10-28 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434544&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-28 16:11</a>
+有些记忆还是要的，比如我这边环境默认老是拉他自己的ps5，而不是我安装ps7，然后写命令行老是用gb5而不 ...</blockquote>
+这种你应该手动让agent写到agents.md里，作为固定指令来用
+记忆一般指agent自行添加和管理的内容
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  Sunyalche  
+##### 18544#       发表于 2026-10-28 16:22
+
+现在的共识就是多重构吧, 每次做完稍微修一修, 屎山就别迭代了, 模型越堆视野越窄. 以前人写代码太慢没办法才这么做. 现在直接吸取教训下次重写的时候在开头prompt和规划避开小坑
+
+有精力可以规划时尽量分模块, 先小模块重构, 然后再全部重构
+
