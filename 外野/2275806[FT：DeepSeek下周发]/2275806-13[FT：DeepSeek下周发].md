@@ -9353,3 +9353,41 @@ https://github.com/deepseek-ai/deepseek-harness/blob/f3803c96974ad4a94195fb97e5c
 
 需要固化一条新经验、或做规则体检 → §8</blockquote>
 
+
+*****
+
+####  LeoDT  
+##### 18567#       发表于 2026-10-28 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434779&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-28 17:01</a>
+
+我现在觉得自己最有价值的部分就是怎么把需求拆出来分阶段实现迭代上去
+
+但是这个拆分往往不好做，有时候p ...</blockquote>
+这跟做产品提的需求一样，为什么天天骂产品，就是因为这东西没法一次搞定，需求注定是要改来改去的。写代码回不去古法了，但是做产品依然只能古法。
+
+grill答题可以想象坐在那跟产品开两三天会，能开出来结论才是稀奇，他的设计也要他看到实际效果他才能定。
+
+*****
+
+####  omnitoken  
+##### 18568#       发表于 2026-10-28 17:28
+
+OpenRouter 是最成功的模型路由器，你几乎可以用单个 GB300 机架来服务他们昨天 100% 的 DeepSeek 流量
+
+出处：Dax的X
+
+难怪那么卡
+
+*****
+
+####  mitzvah  
+##### 18569#       发表于 2026-10-28 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434779&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-28 17:01</a>
+
+我现在觉得自己最有价值的部分就是怎么把需求拆出来分阶段实现迭代上去
+
+但是这个拆分往往不好做，有时候p ...</blockquote>
+先提个要求让llm写修改文档包括完整的目的，动机与付诸于实现的准代码块文档写完后对其中准代码块进行逐个的静态工具与现有构建的dap预检查让llm自行评估风险，修改的可行性与有效性，有问题就改准代码块，然后重复以上过程直到工具不报错为止，我要这个方法论fork ds4.c时每一次构建都是一次过
+
