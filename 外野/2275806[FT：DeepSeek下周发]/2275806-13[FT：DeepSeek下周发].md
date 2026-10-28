@@ -8229,3 +8229,42 @@ SSH 接入成功后，先执行只读调查：
 
 现在开始第一阶段调查。未经批准，不要执行利用漏洞的请求或任何会修改路由器状态的操作。
 
+
+*****
+
+####  小野賢章  
+##### 18474#       发表于 2026-10-28 09:19
+
+我的路由器 C2000 就是 Codex 帮我弄好的，mihomo wireguard 之类的，还能帮忙优化配置减少内存占用。以前折腾软路由的那些都可以完全让 AI 操作好了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这些 IoT 的设备都可以让 AI 常识破解的，难度很低
+
+*****
+
+####  来都来了  
+##### 18475#       发表于 2026-10-28 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70428299&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-27 11:35</a>
+大肥鱼活人感的确挺强的
+
+今天遇到一个搞笑的事情，我让他帮我拿起安全中心，结果安全中心把他写的脚本当木 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/28/091957vhtjt4gjcylp4p4p.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1793150395949_1.webp</strong> (263.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-28 09:19 上传
+
+
+*****
+
+####  SmterC  
+##### 18476#       发表于 2026-10-28 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70432348&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-10-28 09:10</a>
+
+问你的agent啊 让他给你定制解决方案</blockquote>
+Agent给的方案多是网上现有信息的总结，想的坛友可能会有更有真实性的经验
+
