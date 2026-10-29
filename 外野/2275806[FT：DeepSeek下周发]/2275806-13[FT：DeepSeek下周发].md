@@ -9834,3 +9834,19 @@ GPT要根据PRO用户的订阅额度提供相等金额的API额度了。
 
 说明是在账单里面可以绑定API组织后使用，不过我的还没看到这个内容，有GPT PRO订阅的用户可以看看自己的账户有没有增加这个功能。
 
+
+*****
+
+####  小野賢章  
+##### 18609#       发表于 2026-10-29 09:30
+
+这个 vending bench 2 是什么玩意<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/29/093030tz4d0aaz8f0aaa22.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (465.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-29 09:30 上传
+
