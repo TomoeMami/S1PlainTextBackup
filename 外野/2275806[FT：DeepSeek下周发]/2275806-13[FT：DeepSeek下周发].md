@@ -10300,3 +10300,60 @@ Claude使用积分制。注册时账号获得初始分数，之后根据行为�
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  有土  
+##### 18647#       发表于 2026-10-29 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439303&amp;ptid=2275806" target="_blank">serj005 发表于 2026-10-29 15:34</a>
+
+发现今天ds4.1f的tps飙到300+了，这是新机房的威力吗</blockquote>
+官方 API？我这边这两天只有 150tps 左右，之前是 200tps
+
+
+*****
+
+####  startraveller  
+##### 18648#       发表于 2026-10-29 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439599&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-29 16:17</a>
+还有十五分钟李飞飞就要上台讲话了，千问在欧洲的云栖大会开幕演讲
+
+看看有没有新模型</blockquote>
+李飞飞不是去AMD了吗？
+
+*****
+
+####  startraveller  
+##### 18649#       发表于 2026-10-29 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439599&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-29 16:17</a>
+还有十五分钟李飞飞就要上台讲话了，千问在欧洲的云栖大会开幕演讲
+
+看看有没有新模型</blockquote>
+原来只是同名
+
+
+*****
+
+####  qwased  
+##### 18650#       发表于 2026-10-29 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439563&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-10-29 16:11</a>
+苹果账号确实比谷歌账号更好，我有一个23年用谷歌账号注册的claude，想订阅，在付费界面弹了KYC，放弃
+
+转 ...</blockquote>
+应该不用cc就能大幅降低被封几率，一个群友也是苹果账号自购的pro接omp用了两个月什么事情都没有
+
+*****
+
+####  lactone  
+##### 18651#       发表于 2026-10-29 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439632&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-29 16:21</a>
+原来只是同名</blockquote>
+不是那个吧，那个李飞飞怎么可能敢来中国ai企业任职，给多少钱都不敢吧<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
