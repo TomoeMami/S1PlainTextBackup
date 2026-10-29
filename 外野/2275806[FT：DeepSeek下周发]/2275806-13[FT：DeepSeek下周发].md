@@ -10716,3 +10716,24 @@ chatgpt 的 plan 可以免费领 api credit 了，是多少刀的套餐，就送
 
 感觉今天晚上的4.1f降智了，明显的错误也看不出来<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 18682#       发表于 2026-10-29 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441452&amp;ptid=2275806" target="_blank">rayaxu 发表于 2026-10-29 22:37</a>
+
+感觉今天晚上的4.1f降智了，明显的错误也看不出来</blockquote>
+可能是新机房还没调好，折腾过本地部署之后发现推理框架和硬件也会对推理质量产生非常显著的影响<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  knnknn  
+##### 18683#       发表于 2026-10-29 22:55
+
+<blockquote>qwased 发表于 2026-10-29 22:52
+可能是新机房还没调好，折腾过本地部署之后发现推理框架和硬件也会对推理质量产生非常显著的影响 ...</blockquote>
+有点好奇，是否能讲一下有什么地方会影响到呢
+
