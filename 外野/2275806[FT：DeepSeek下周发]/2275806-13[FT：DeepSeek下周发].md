@@ -10536,3 +10536,16 @@ coming soon你开这个会干啥？
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  startraveller  
+##### 18665#       发表于 2026-10-29 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70440282&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-10-29 18:14</a>
+
+coming soon你开这个会干啥？
+
+瓦特了</blockquote>
+人家又不是专门为模型开的会
+
