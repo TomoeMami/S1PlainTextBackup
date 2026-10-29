@@ -9919,3 +9919,16 @@ dsh调用workbuddy积分那个插件是不是被腾讯干掉了，昨天还好�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  overflowal  
+##### 18616#       发表于 2026-10-29 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437726&amp;ptid=2275806" target="_blank">便秘的猫 发表于 2026-10-29 11:04</a>
+
+dsh调用workbuddy积分那个插件是不是被腾讯干掉了，昨天还好好的今天就不能用了
+
+论坛助手,iPhone ...</blockquote>
+这种反代腾讯姥爷的插件，实属是初生vibe coder不怕虎。突然不能用是正常的
+

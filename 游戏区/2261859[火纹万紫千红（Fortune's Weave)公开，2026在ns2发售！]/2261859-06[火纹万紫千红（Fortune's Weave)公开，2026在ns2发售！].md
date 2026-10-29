@@ -10310,3 +10310,16 @@ engage也有的，代码差不多</blockquote>
 就现在DLC给的4把武器IS怎么解决的？要做任务才拿到吧，那已经通关第二部的线拿了只能柜子里拿点数换？还是 ...</blockquote>
 进第三部直接发
 
+
+*****
+
+####  DarkDawn  
+##### 8376#       发表于 2026-10-29 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437540&amp;ptid=2261859" target="_blank">hsyg 发表于 2026-10-29 10:35</a>
+
+就现在DLC给的4把武器IS怎么解决的？要做任务才拿到吧，那已经通关第二部的线拿了只能柜子里拿点数换？还是 ...</blockquote>
+第一部有个小支线给
+
+第三部按你完成了几个主角的路线直接给
+
