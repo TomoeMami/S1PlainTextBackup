@@ -10331,3 +10331,42 @@ engage也有的，代码差不多</blockquote>
 
 玩蕾达篇，第四章接了获取“虫之珍珠”的支线任务，想问问这个素材在哪里打得到？大地图也没有提示。
 
+
+*****
+
+####  lmclmc2  
+##### 8378#       发表于 2026-10-29 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437921&amp;ptid=2261859" target="_blank">finalstar099 发表于 2026-10-29 11:34</a>
+
+玩蕾达篇，第四章接了获取“虫之珍珠”的支线任务，想问问这个素材在哪里打得到？大地图也没有提示。 ...</blockquote>
+地图上有那种虫子怪,打了有概率掉
+
+这个任务还有一串后续,最好都留着不要卖,包括可能还能拿到大粒虫珍珠也有要用的.
+
+主要这玩意卖的还挺贵,容易缺钱就卖掉了.
+
+
+*****
+
+####  yangchunsiyue  
+##### 8379#       发表于 2026-10-29 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437921&amp;ptid=2261859" target="_blank">finalstar099 发表于 2026-10-29 11:34</a>
+玩蕾达篇，第四章接了获取“虫之珍珠”的支线任务，想问问这个素材在哪里打得到？大地图也没有提示。 ...</blockquote>
+打那种爬地的椭圆形虫子，地图上会随机刷出来。大粒虫珍珠也是打那个随机掉。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  finalstar099  
+##### 8380#       发表于 2026-10-29 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437952&amp;ptid=2261859" target="_blank">lmclmc2 发表于 2026-10-29 11:38</a>
+
+地图上有那种虫子怪,打了有概率掉
+
+这个任务还有一串后续,最好都留着不要卖,包括可能还能拿到大粒虫珍珠 ...</blockquote>
+感谢回复，我看攻略指引是潮虫，4月4日前交货，还有点紧。
+
