@@ -10281,3 +10281,14 @@ engage也有的，代码差不多
 engage也有的，代码差不多</blockquote>
 翻了下当年的视频 engage和if应该是命中率50以上时实际命中率会变高 但50以下时不会变低
 
+
+*****
+
+####  DarkDawn  
+##### 8373#       发表于 2026-10-29 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437318&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-10-29 09:59</a>
+
+那我问你，假如有人四条线第一次通都没拿到阳炎勋章，第三部还有机会继承吗？ ...</blockquote>
+只能用柜子。
+
