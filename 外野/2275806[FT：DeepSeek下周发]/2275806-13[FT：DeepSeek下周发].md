@@ -10557,3 +10557,17 @@ coming soon你开这个会干啥？
 
 openai送的api额度有什么好的用途吗？用来coding有点亏吧
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18667#       发表于 2026-10-29 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439913&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-10-29 17:03</a>
+第二张图他都拉出来Deepseek-R1-Distill-Qwen-32B还有GPT-OSS-120B对比了你就让让他吧
+
+第一张图里A\模型 ...</blockquote>
+不是，R1？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
