@@ -10737,3 +10737,26 @@ chatgpt 的 plan 可以免费领 api credit 了，是多少刀的套餐，就送
 可能是新机房还没调好，折腾过本地部署之后发现推理框架和硬件也会对推理质量产生非常显著的影响 ...</blockquote>
 有点好奇，是否能讲一下有什么地方会影响到呢
 
+
+*****
+
+####  qwased  
+##### 18684#       发表于 2026-10-29 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441512&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-10-29 22:55</a>
+有点好奇，是否能讲一下有什么地方会影响到呢</blockquote>
+硬件上的影响是性能变化后计算完成的顺序，以及不同硬件的舍入误差不一样，就会导致某些情况下token概率翻转然后跑到另一条推理轨迹上，这个问题在cpu混合推理的时候会变得非常明显
+软件上是不同框架，甚至不同的依赖版本也会产生计算顺序和舍入误差带来的token翻转，以及不同的推理框架为了计算效率往往会采用不同的快速近似计算，也是有误差的
+还有智谱最近发生的事件，gpu硬件损坏导致杭州地区用户用的glm特别弱智，他们查了一个月才查出来是哪坏了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">硬件问题带来的比特翻转更难调查
+
+
+*****
+
+####  飞剪号  
+##### 18685#       发表于 2026-10-29 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441536&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-29 23:02</a>
+
+硬件上的影响是性能变化后计算完成的顺序，以及不同硬件的舍入误差不一样，就会导致某些情况下token概率 ...</blockquote>
+够玄学的，让我想起了地板静电导致BUG和时钟晶振导致BUG的两个经典段子
+
