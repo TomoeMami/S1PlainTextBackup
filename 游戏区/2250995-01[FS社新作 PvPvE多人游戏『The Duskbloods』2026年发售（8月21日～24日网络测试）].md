@@ -50,3 +50,18 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  dydqydz  
+##### 510#       发表于 2026-10-29 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435048&amp;ptid=2250995" target="_blank">zakki 发表于 2026-10-28 17:52</a>
+
+网测版被解包了，说是有18个角色，14个眷属。pve结局有5个boss还可能只是第一张图的内容量
+
+ ...</blockquote>
+怎么看出是一张地图的boss
+
+当然如果pve一共就5个最终boss确实也不太可能
+
