@@ -115,3 +115,38 @@
 
 下次吧说不定，但是很难了，2ndlive排了20首曲子一个半小时已经全都是自己的曲子了，下次live的时候原创曲只有可能更多，那唱别人曲子的可能性更小了
 
+
+*****
+
+####  holofan  
+##### 11735#       发表于 2026-10-29 23:00
+
+说起来这个
+
+<img src="https://img.stage1st.com/forum/202610/29/225908d57vzbn5sdkknlyd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-29 22:59 上传
+
+别说全v圈了，整个日本国内娱乐圈都没见过几个能做到跟一个本土老牌品牌连续5年联动的，得要多深厚的信赖关系
+
+*****
+
+####  holofan  
+##### 11736#       发表于 2026-10-30 00:33
+
+<img src="https://img.stage1st.com/forum/202610/30/003203esc3sjrwxl3qrc2z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-30 00:32 上传
+
+不，你们出去了就别回来了
+
+看个管人还能反复横跳的多半是心智不成熟的小孩，再回来只会给以后多惹事
+
