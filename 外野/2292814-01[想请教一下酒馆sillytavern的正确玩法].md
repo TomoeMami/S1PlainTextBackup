@@ -426,3 +426,21 @@ RPG强者发现了自己的神国
 
 真的是活着的长风难度啊……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zero23333  
+##### 43#       发表于 2026-10-30 06:30
+
+我是让AI先根据世界卡审核玩家行动的后果，再推演接下来的剧情的。
+
+不过那就要有玩成高难度的准备了（顺带甲也会被自动加厚得一批）
+
+<img src="https://img.stage1st.com/forum/202610/30/063001kpco18iexe2zippx.png" referrerpolicy="no-referrer">
+
+<strong>screenshot_20261030_062904_xyz.chatboxapp.chatbox.png</strong> (362.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-30 06:30 上传
+
