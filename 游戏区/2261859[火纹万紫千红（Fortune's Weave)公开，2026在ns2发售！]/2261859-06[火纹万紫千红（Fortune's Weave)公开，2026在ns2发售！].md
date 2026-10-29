@@ -10411,3 +10411,15 @@ engage也有的，代码差不多</blockquote>
 有没有大佬知道ost什么时间发售</blockquote>
 按照风花雪月OST来看，估计得要后年
 
+
+*****
+
+####  IceZotaku  
+##### 8385#       发表于 2026-10-29 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437358&amp;ptid=2261859" target="_blank">Aresu 发表于 2026-10-29 10:04</a>
+
+翻了下当年的视频 engage和if应该是命中率50以上时实际命中率会变高 但50以下时不会变低 ...</blockquote>
+
+还有一个隐藏设定，被三角克制的话没有实际命中率补正，会就按照显示的命中率来
+
