@@ -10224,3 +10224,29 @@ api 定价 carbon 和 argon 是一样的。
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  臭P遇上臭脚  
+##### 18640#       发表于 2026-10-29 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70438206&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-10-29 12:25</a>
+Claude使用积分制。注册时账号获得初始分数，之后根据行为加分或扣分。低于阈值直接封号。回分很难
+
+影响分 ...</blockquote>
+什么规则怪谈<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  xuanwu_lei  
+##### 18641#       发表于 2026-10-29 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439179&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-29 15:14</a>
+不是，openai的chat work合并泥漏没人讨论吗？这tm怕不是要起大节奏
+
+—— 来自 vivo V2505A, Android 17,  ...</blockquote>
+能有啥节奏，Kimi不是早干过了吗
+
