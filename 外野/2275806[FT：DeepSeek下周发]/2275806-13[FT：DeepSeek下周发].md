@@ -10493,3 +10493,31 @@ chatgpt 的 plan 可以免费领 api credit 了，是多少刀的套餐，就送
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  CyborgIP  
+##### 18662#       发表于 2026-10-29 18:03
+
+<img src="https://img.stage1st.com/forum/202610/29/180237zz4977744enot54n.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1793268155979_1.webp</strong> (193.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-29 18:02 上传
+
+qwen4似乎下周
+
+—— 来自 vivo V2509A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  lactone  
+##### 18663#       发表于 2026-10-29 18:04
+
+这周不发下周和fable5.5，astra6.1打群架是吗？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

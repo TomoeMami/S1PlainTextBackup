@@ -16,3 +16,14 @@
 
 卧槽，开了代理后切界面秒切好丝滑，甚至有些不习惯……我以前这么多年过的是什么苦日子<img src="https://static.stage1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  イクイノックス  
+##### 2157#       发表于 2026-10-29 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70435598&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2026-10-28 20:04</a>
+
+坐标广东电信，这个昨天开始晚上PC端根本登录不了阿嘎，无限993，虽然平时也是要9点前提前登录，9点后完全 ...</blockquote>
+UU就是最近这段时间才加的，以前选DMM加速来玩一到晚上一样卡
+
