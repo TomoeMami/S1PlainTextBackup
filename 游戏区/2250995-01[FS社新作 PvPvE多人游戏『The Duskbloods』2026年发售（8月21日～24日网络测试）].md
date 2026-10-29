@@ -65,3 +65,15 @@
 
 当然如果pve一共就5个最终boss确实也不太可能
 
+
+*****
+
+####  zakki  
+##### 511#       发表于 2026-10-29 16:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70438840&amp;ptid=2250995" target="_blank">dydqydz 发表于 2026-10-29 14:23</a>
+怎么看出是一张地图的boss
+
+当然如果pve一共就5个最终boss确实也不太可能</blockquote>
+因为目前网测版就是一张地图，从网测版解包那可能就是第一张图的boss吧，不过这都不好说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

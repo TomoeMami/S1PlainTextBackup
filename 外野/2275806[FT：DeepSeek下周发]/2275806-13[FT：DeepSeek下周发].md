@@ -10403,3 +10403,16 @@ Claude使用积分制。注册时账号获得初始分数，之后根据行为�
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  BarricadeMKXX  
+##### 18655#       发表于 2026-10-29 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439791&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-29 16:46</a>
+
+这不是kimi后训练的吗，还有这个跑分是咋回事，连对比的模型型号都没有，只有一个厂商
+
+—— 来自 vivo V ...</blockquote>
+他都拉出来Deepseek-R1-Distill-Qwen-32B对比了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
