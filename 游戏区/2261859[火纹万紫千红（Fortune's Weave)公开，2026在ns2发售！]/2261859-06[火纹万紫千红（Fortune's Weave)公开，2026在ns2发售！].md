@@ -10400,3 +10400,14 @@ engage也有的，代码差不多</blockquote>
 
 有没有大佬知道ost什么时间发售
 
+
+*****
+
+####  月华刹那  
+##### 8384#       发表于 2026-10-29 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70438145&amp;ptid=2261859" target="_blank">光焰天下第一 发表于 2026-10-29 12:14</a>
+
+有没有大佬知道ost什么时间发售</blockquote>
+按照风花雪月OST来看，估计得要后年
+

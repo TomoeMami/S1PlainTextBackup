@@ -6026,3 +6026,13 @@ jjc有反射戒指，省一步操作了
 
 昨天在宝岛一晚上刷爽了，前期有点麻烦，等2个法师拿到陨石效率极其高，都是一回合带走，而且能力也是实打实的提升<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 570#       发表于 2026-10-29 13:27
+
+女仆为什么不能入队  谁要杰克这种啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
