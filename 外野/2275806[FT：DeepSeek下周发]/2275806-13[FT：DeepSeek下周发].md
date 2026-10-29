@@ -9977,3 +9977,43 @@ llama早就退出的今天，Qwen几乎是小实验室的唯一解了。想想�
 
 qwen4都难产多久了，还能出来吗
 
+
+*****
+
+####  jinuzuktII  
+##### 18622#       发表于 2026-10-29 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437236&amp;ptid=2275806" target="_blank">squallx2 发表于 2026-10-29 09:49</a>
+
+哈基米pro u 还是opencode的？</blockquote>
+几块钱的 PRO 订阅
+
+
+*****
+
+####  瑕在瑾中  
+##### 18623#       发表于 2026-10-29 11:53
+
+哈基米这新模型能用的起吗？pro会员用argon简单任务对话几轮就上限了
+
+—— 来自 Xiaomi 24122RKC7C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  来都来了  
+##### 18624#       发表于 2026-10-29 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437776&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-10-29 11:12</a>
+这种反代腾讯姥爷的插件，实属是初生vibe coder不怕虎。突然不能用是正常的 ...</blockquote>
+现在腾讯会匹配你请求的头部提示词，发现头部与DSH一致的话，就会封掉你。换句话说呢…<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  squallx2  
+##### 18625#       发表于 2026-10-29 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70438017&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-10-29 11:48</a>
+
+几块钱的 PRO 订阅</blockquote>
+阿三PRO有了吗？反重力还是studio的
+

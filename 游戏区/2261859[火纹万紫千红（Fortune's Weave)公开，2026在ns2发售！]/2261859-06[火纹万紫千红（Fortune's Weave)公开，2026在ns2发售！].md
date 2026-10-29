@@ -10370,3 +10370,15 @@ engage也有的，代码差不多</blockquote>
 这个任务还有一串后续,最好都留着不要卖,包括可能还能拿到大粒虫珍珠 ...</blockquote>
 感谢回复，我看攻略指引是潮虫，4月4日前交货，还有点紧。
 
+
+*****
+
+####  燃烧的石头  
+##### 8381#       发表于 2026-10-29 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437984&amp;ptid=2261859" target="_blank">finalstar099 发表于 2026-10-29 11:43</a>
+感谢回复，我看攻略指引是潮虫，4月4日前交货，还有点紧。</blockquote>
+还好，接了这个任务之后地图上很容易就刷潮虫了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
