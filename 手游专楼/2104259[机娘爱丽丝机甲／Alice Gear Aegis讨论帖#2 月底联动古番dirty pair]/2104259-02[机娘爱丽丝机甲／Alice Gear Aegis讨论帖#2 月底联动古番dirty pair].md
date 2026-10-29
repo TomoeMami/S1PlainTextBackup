@@ -38,3 +38,11 @@ UU就是最近这段时间才加的，以前选DMM加速来玩一到晚上一样
 UU就是最近这段时间才加的，以前选DMM加速来玩一到晚上一样卡</blockquote>
 以前的就只是个绕过地域限制的启动功能，就不是加速，比如虽然明说不支持但只要进了DMMPLAY千年战争R版一样可以拿来绕地域限制
 
+
+*****
+
+####  江戸前ルナ  
+##### 2159#         楼主| 发表于 2026-10-29 20:28
+
+30票，没事发生<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
