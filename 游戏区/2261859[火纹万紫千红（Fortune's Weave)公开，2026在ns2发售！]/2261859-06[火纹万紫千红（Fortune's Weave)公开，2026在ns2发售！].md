@@ -10382,3 +10382,13 @@ engage也有的，代码差不多</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  未熟串烧  
+##### 8382#       发表于 2026-10-29 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437984&amp;ptid=2261859" target="_blank">finalstar099 发表于 2026-10-29 11:43</a>
+感谢回复，我看攻略指引是潮虫，4月4日前交货，还有点紧。</blockquote>
+虫珍珠的任务直接交了，后续如果要交大粒虫珍珠的任务反而可以拖到期限为止，在那之前打潮虫必掉5粒大的，回城卖掉再出城可以反复刷钱。
+
