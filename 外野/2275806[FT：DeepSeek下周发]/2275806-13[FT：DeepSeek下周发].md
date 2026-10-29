@@ -10598,3 +10598,17 @@ openai送的api额度有什么好的用途吗？用来coding有点亏吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  lactone  
+##### 18670#       发表于 2026-10-29 19:40
+
+说是hy4正式版也要发
+
+预览版其实挺强，小k3
+
+正式版能打k3.1吗
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
