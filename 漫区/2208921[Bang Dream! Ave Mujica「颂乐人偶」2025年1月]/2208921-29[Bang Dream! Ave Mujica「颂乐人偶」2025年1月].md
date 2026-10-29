@@ -4584,3 +4584,92 @@ MyGO!!!!! 9th Single「世点彩（Sepia）」
 
        [https://x.com/wstcg/status/2115411304660041853](https://x.com/wstcg/status/2115411304660041853)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42181#       发表于 2026-10-29 20:13
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/29/201229yb8sw1wwgbgw1ww7.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-29_20-10-33.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-29 20:12 上传
+
+       [https://x.com/BDP_AveMujica/status/2115775671343477111](https://x.com/BDP_AveMujica/status/2115775671343477111)
+
+       [https://www.youtube.com/watch?v=uSOfMAT_Hqo](https://www.youtube.com/watch?v=uSOfMAT_Hqo)
+
+       <[strong>Ave Mujica - A Song Of Romance (Official Music Video)</strong>](https://www.bilibili.com/video/BV1JAxF6aEbM) <blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/29/201312pu66g4vpp63w3gnk.png" referrerpolicy="no-referrer">
+
+<strong>8ac4a462fbab2774f50768bc091f8fca18b8108b.png</strong> (610.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-29 20:13 上传
+
+...ようこそ。Ave Mujicaの世界へ
+
+...欢迎来到Ave Mujica的世界
+
+Ave Mujica mini Album「神の名を」
+
+Streaming/DL：[https://bmu.lnk.to/AveMujica_miniAL2026id](https://bmu.lnk.to/AveMujica_miniAL2026id)
+
+Ave Mujica “A Song Of Romance”
+
+作词：Diggy-MO’　[https://twitter.com/diggymo04](https://twitter.com/diggymo04)
+
+作曲：Diggy-MO’, ÐIK　[https://twitter.com/DIK_Gt](https://twitter.com/DIK_Gt)
+
+编曲：Diggy-MO’
+
+MV
+
+Director: Kosuke Tsukagawa (SIGNIF)
+
+Designer: Akari Kumagai (SIGNIF)
+
+[Illustration Team: Creative House Pocket Co.,Ltd.]
+
+Illustrator / Costume Design: Sakura Hoshi, Manaka Kusumoto
+
+Illustrator: Risa Tanemura, Anna Tazawa, Ayame Nabe, Yuuri Takeuchi, Mitsuru Hasegawa, XUANZI ZHANG
+
+Producer: Genki Aida
+
+Production Manager: Kana Shinoda
+
+Producer: Yoshiki Kawasaki (SIGNIF)
+
+Production: SIGNIF Inc.
+
+ーーーーーーーーーーーー
+
+NOW ON SALE
+
+Ave Mujica mini Album「神の名を」
+[https://bang-dream.com/discographies/4238/](https://bang-dream.com/discographies/4238/)
+
+2027.5.29 Sat. - 30 Sun.
+
+Ave Mujica 8th LIVE “Discrimen Fati”
+
+at K-Arena Yokohama
+[https://bang-dream.com/events/avemujica-8th/](https://bang-dream.com/events/avemujica-8th/)
+
+ーーーーーーーーーーーー
+
+HP：[https://avemujica.bang-dream.com/](https://avemujica.bang-dream.com/)
+
+X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
+
+#AveMujica#</blockquote>
+       [https://www.bilibili.com/video/BV1JAxF6aEbM](https://www.bilibili.com/video/BV1JAxF6aEbM)
+
