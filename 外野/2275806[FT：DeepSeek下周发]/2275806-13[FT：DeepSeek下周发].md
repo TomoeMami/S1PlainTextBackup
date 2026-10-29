@@ -10152,3 +10152,21 @@ Gemini 4 Carbon世界第一了？有什么渠道能用到吗？</blockquote>
 
 现在这些大模型吊胃口的发布方式真是太他妈傻逼了
 
+
+*****
+
+####  泰坦失足  
+##### 18633#       发表于 2026-10-29 12:54
+
+就不能简单点叫nano mini pro X.X吗，Argon接着是Carbon。还不如早期Android那样，按字母表来呢。
+
+
+*****
+
+####  发呆的龙虾  
+##### 18634#       发表于 2026-10-29 12:56
+
+4a都成弱智了，4c能牛几天？
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
