@@ -10813,3 +10813,12 @@ chatgpt 的 plan 可以免费领 api credit 了，是多少刀的套餐，就送
 让deepseek 自己画DC三巨头的标志，用来给暗黑地牢饰品mod测试用，结果画的多少有点抽象了，不说好不好看 ...</blockquote>
 你让ds出提示词，然后交给千问去画比较好
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 18690#       发表于 2026-10-30 01:22
+
+好消息！
+<img src="https://p.sda1.dev/35/38118021b2df6d394bbb8d6985425de0/image.jpg" referrerpolicy="no-referrer">
+
