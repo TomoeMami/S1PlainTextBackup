@@ -10862,3 +10862,17 @@ ds可以白嫖啊，还有ocgo
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  hugosol  
+##### 18695#       发表于 2026-10-30 01:40
+
+ 本帖最后由 hugosol 于 2026-10-30 01:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70442015&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-30 01:31</a>
+
+ds可以白嫖啊，还有ocgo
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+我的意思就是你一个月DS能用到600-700块可以开始考虑了，还不用考虑梁文峰梁文谷<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
