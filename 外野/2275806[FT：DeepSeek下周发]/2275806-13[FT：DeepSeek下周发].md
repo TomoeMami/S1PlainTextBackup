@@ -10628,3 +10628,24 @@ openai送的api额度有什么好的用途吗？用来coding有点亏吧
 
 国内有钱也买不到算力啊
 
+
+*****
+
+####  cscbzcbz  
+##### 18673#       发表于 2026-10-29 21:25
+
+k3.1这429太影响体验了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">梁圣快把pro端出来吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  zhongjie  
+##### 18674#       发表于 2026-10-29 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70440736&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-10-29 19:54</a>
+
+一到晚高峰杨圣这就疯狂429，有钱扩充算力不行么，拿去买通稿是何意味</blockquote>
+卡有钱也买不到啊
+
