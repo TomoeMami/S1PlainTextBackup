@@ -10659,3 +10659,21 @@ k3.1这429太影响体验了<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Acerola  
+##### 18676#       发表于 2026-10-29 21:51
+
+zcode果然有毒，一个日志占了我200g的c盘<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PLJ110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  绯色日照  
+##### 18677#       发表于 2026-10-29 21:52
+
+K3.1 PRO怎么卡住了，在官方客户端上提示要我排队，要么升级会员，问题是我已经升级了会员了。。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
