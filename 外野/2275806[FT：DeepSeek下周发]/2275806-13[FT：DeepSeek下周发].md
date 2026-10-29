@@ -9858,3 +9858,41 @@ GPT要根据PRO用户的订阅额度提供相等金额的API额度了。
 
 内部用Carbon至少一周了，只能说真的很爽<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  squallx2  
+##### 18611#       发表于 2026-10-29 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70436508&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-10-29 01:57</a>
+
+我没什么代码需求，argon 用着不赖，就是 5 h 额度太少了</blockquote>
+哈基米pro u 还是opencode的？
+
+
+*****
+
+####  startraveller  
+##### 18612#       发表于 2026-10-29 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437015&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-10-29 09:18</a>
+GPT要根据PRO用户的订阅额度提供相等金额的API额度了。
+
+说明是在账单里面可以绑定API组织后使用，不过我的 ...</blockquote>
+A/那边月初就提供了，爽用
+
+
+*****
+
+####  chaoswing  
+##### 18613#       发表于 2026-10-29 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437015&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-10-29 09:18</a>
+
+GPT要根据PRO用户的订阅额度提供相等金额的API额度了。
+
+说明是在账单里面可以绑定API组织后使用，不过我的 ...</blockquote>
+有了，收到$85，感觉在没做ChatGPT oauth或者sign in with ChatGPT的地方用用astra以外的模型应该还可以
+
+oai不是也出了decisions么，倒是可以试试
+
