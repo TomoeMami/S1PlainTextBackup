@@ -10430,3 +10430,14 @@ Claude使用积分制。注册时账号获得初始分数，之后根据行为�
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  奥柏伦亲王  
+##### 18657#       发表于 2026-10-29 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439644&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-29 16:22</a>
+
+应该不用cc就能大幅降低被封几率，一个群友也是苹果账号自购的pro接omp用了两个月什么事情都没有 ...</blockquote>
+确实，我一直怀疑CC是封号的罪魁祸首
+
