@@ -10708,3 +10708,11 @@ chatgpt 的 plan 可以免费领 api credit 了，是多少刀的套餐，就送
 咕咕鸽鸽的股价怎么跳水了</blockquote>
 财报低于预期，要去买算力导致现金流转负。
 
+
+*****
+
+####  rayaxu  
+##### 18681#       发表于 2026-10-29 22:37
+
+感觉今天晚上的4.1f降智了，明显的错误也看不出来<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
