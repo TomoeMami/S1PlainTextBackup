@@ -10822,3 +10822,43 @@ chatgpt 的 plan 可以免费领 api credit 了，是多少刀的套餐，就送
 好消息！
 <img src="https://p.sda1.dev/35/38118021b2df6d394bbb8d6985425de0/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 18691#       发表于 2026-10-30 01:28
+
+GPT这额度，如果每个月能用到100刀这个量的话，不算各种随机重置，性价比也已经超过DS了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 18692#       发表于 2026-10-30 01:28
+
+这不就是200套餐原来降额度现在不降了
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  lactone  
+##### 18693#       发表于 2026-10-30 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70442005&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-30 01:28</a>
+GPT这额度，如果每个月能用到100刀这个量的话，不算各种随机重置，性价比也已经超过DS了 ...</blockquote>
+ds可以白嫖啊，还有ocgo
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  rachepatty  
+##### 18694#       发表于 2026-10-30 01:31
+
+它IPO后能保持多久<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+总之趁现在大补贴狠狠蹬，以后就不会有这段好时光了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+当然也可能🐳卡够Pro出降价你不需要订阅了，最鲸幻想<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
