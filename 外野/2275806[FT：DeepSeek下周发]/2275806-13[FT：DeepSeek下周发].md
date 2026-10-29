@@ -10381,3 +10381,25 @@ Claude使用积分制。注册时账号获得初始分数，之后根据行为�
 
 2026-10-29 16:31 上传
 
+
+*****
+
+####  startraveller  
+##### 18653#       发表于 2026-10-29 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439706&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-29 16:32</a>
+为什么欧洲都喜欢说自己是Sovereign主权 AI  Mistral 也是这么说的。</blockquote>
+因为不这么说就没人会买这些区了
+
+
+*****
+
+####  lactone  
+##### 18654#       发表于 2026-10-29 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439706&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-29 16:32</a>
+为什么欧洲都喜欢说自己是Sovereign主权 AI  Mistral 也是这么说的。</blockquote>
+这不是kimi后训练的吗，还有这个跑分是咋回事，连对比的模型型号都没有，只有一个厂商<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
