@@ -10357,3 +10357,27 @@ Claude使用积分制。注册时账号获得初始分数，之后根据行为�
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  小野賢章  
+##### 18652#       发表于 2026-10-29 16:32
+
+为什么欧洲都喜欢说自己是Sovereign主权 AI<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  Mistral 也是这么说的。
+
+<img src="https://img.stage1st.com/forum/202610/29/163123jnu1hh2dd2hnu27z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-29 16:31 上传
+
+<img src="https://img.stage1st.com/forum/202610/29/163130d2xkm9xi9i92mb34.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-29 16:31 上传
+
