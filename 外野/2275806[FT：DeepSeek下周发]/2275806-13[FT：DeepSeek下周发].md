@@ -10690,3 +10690,21 @@ chatgpt 的 plan 可以免费领 api credit 了，是多少刀的套餐，就送
 在这里：https:// ...</blockquote>
 是不是pro纯享，我plus好像没看到
 
+
+*****
+
+####  来都来了  
+##### 18679#       发表于 2026-10-29 22:08
+
+咕咕鸽鸽的股价怎么跳水了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  startraveller  
+##### 18680#       发表于 2026-10-29 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441309&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-29 22:08</a>
+咕咕鸽鸽的股价怎么跳水了</blockquote>
+财报低于预期，要去买算力导致现金流转负。
+
