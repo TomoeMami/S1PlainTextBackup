@@ -9810,3 +9810,17 @@ https://github.com/memvid/memvid
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  overflowal  
+##### 18607#       发表于 2026-10-29 08:44
+
+<blockquote>neptunehs 发表于 2026-10-29 08:34
+https://github.com/memvid/memvid
+
+有人试过这个吗 号称能取代RAG</blockquote>
+所有的所谓记忆都是广义的RAG。用一个ai介入或者不介入的逻辑捣鼓捣鼓，然后塞到上下文里。这怎么就不是RAG了。
+
+这种所谓的记忆功能问题都是一样的，不是模型的原生机制，无非这个模块可能这个benchmark刷分比较高，那个刷那个benchmark 比较高。
+
