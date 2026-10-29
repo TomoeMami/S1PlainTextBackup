@@ -10173,3 +10173,11 @@ dlc的售价是本体的一半，体量也是一半吗。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Aresu  
+##### 8363#       发表于 2026-10-29 08:53
+
+实际命中率和显示命中率不一样也是传统艺能了 engage这种没有的反而是少数
+
