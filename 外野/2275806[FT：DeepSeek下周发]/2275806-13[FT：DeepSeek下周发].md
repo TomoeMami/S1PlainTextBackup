@@ -10416,3 +10416,17 @@ Claude使用积分制。注册时账号获得初始分数，之后根据行为�
 —— 来自 vivo V ...</blockquote>
 他都拉出来Deepseek-R1-Distill-Qwen-32B对比了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 18656#       发表于 2026-10-29 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439913&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-10-29 17:03</a>
+第二张图他都拉出来Deepseek-R1-Distill-Qwen-32B还有GPT-OSS-120B对比了你就让让他吧
+
+第一张图里A\模型 ...</blockquote>
+看这水平还打不过mistral，怎么敢吹欧洲最强的
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
