@@ -9896,3 +9896,16 @@ GPT要根据PRO用户的订阅额度提供相等金额的API额度了。
 
 oai不是也出了decisions么，倒是可以试试
 
+
+*****
+
+####  Gmlazy  
+##### 18614#       发表于 2026-10-29 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437015&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-10-29 09:18</a>
+
+GPT要根据PRO用户的订阅额度提供相等金额的API额度了。
+
+说明是在账单里面可以绑定API组织后使用，不过我的 ...</blockquote>
+关于这个API，GPT的API接入什么来用呢？用前面大家讨论的Pi吗？
+
