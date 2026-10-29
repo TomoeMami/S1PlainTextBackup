@@ -10884,3 +10884,16 @@ ds可以白嫖啊，还有ocgo
 
 tibo看来是不打算搞重置营销了，替换成更多的周限。接下来我猜会发几张重置卡，解决大部分用户同一天刷新额度、负载暴增的问题
 
+
+*****
+
+####  phorcys02  
+##### 18697#       发表于 2026-10-30 03:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70442035&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-30 01:40</a>
+
+我的意思就是你一个月DS能用到600-700块可以开始考虑了，还不用等梁文谷时间 ...</blockquote>
+workbuddy现在 70元可以用10-12B的 4.1f
+
+你plus 能用到 10B的 6.1sol么...
+
