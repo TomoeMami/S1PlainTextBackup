@@ -10258,3 +10258,26 @@ engage也有的，代码差不多
 你甚至可以利用这机制来复制一次坐骑，下坐骑和上坐骑分别通关一次
 然后你就发现为什么他这个坐骑继承设计为什么这么别扭了，如果通关存档的坐骑自动挤进第三部的背包，那么你就可以切换坐骑通关复制一堆坐骑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 8371#       发表于 2026-10-29 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437268&amp;ptid=2261859" target="_blank">北条早苗 发表于 2026-10-29 09:52</a>
+
+你甚至可以利用这机制来复制一次坐骑，下坐骑和上坐骑分别通关一次
+
+然后你就发现为什么他这个坐骑继承设计 ...</blockquote>
+那我问你，假如有人四条线第一次通都没拿到阳炎勋章，第三部还有机会继承吗？
+
+
+*****
+
+####  Aresu  
+##### 8372#       发表于 2026-10-29 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70436983&amp;ptid=2261859" target="_blank">DarkDawn 发表于 2026-10-29 09:12</a>
+engage也有的，代码差不多</blockquote>
+翻了下当年的视频 engage和if应该是命中率50以上时实际命中率会变高 但50以下时不会变低
+
