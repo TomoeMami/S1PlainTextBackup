@@ -10028,3 +10028,24 @@ qwen4都难产多久了，还能出来吗
 阿三PRO有了吗？反重力还是studio的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 庶民网页版
 
+
+*****
+
+####  Litccc  
+##### 18627#       发表于 2026-10-29 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437208&amp;ptid=2275806" target="_blank">zyuco 发表于 2026-10-29 09:44</a>
+内部用Carbon至少一周了，只能说真的很爽</blockquote>
+Google的大佬？Carbon的编程能力怎么样，想退订GPT Pro 转Gemini ultra了<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lactone  
+##### 18628#       发表于 2026-10-29 12:17
+
+刚才我的一个全靠国模指导的科研项目的文章接收了，打算写个科普专栏<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
