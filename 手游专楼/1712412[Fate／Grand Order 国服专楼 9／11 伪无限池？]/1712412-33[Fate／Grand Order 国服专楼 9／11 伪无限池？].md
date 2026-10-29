@@ -184,3 +184,22 @@ C狐终于强化了，那么，开局倒扣100的某魔法使大人会强化吗<
 
 90++第一把就掉礼装了，然后顺手就合了，害怕到时候点数毕业不了
 
+
+*****
+
+####  失落之翼  
+##### 48287#       发表于 2026-10-29 16:48
+
+BGO在赶我退坑了，近乎千石0五星了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hououmon  
+##### 48288#       发表于 2026-10-29 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70439800&amp;ptid=1712412" target="_blank">失落之翼 发表于 2026-10-29 16:48</a>
+
+BGO在赶我退坑了，近乎千石0五星了</blockquote>
+我已经好几次了，最近已经连吃3个井，还什么都没歪出来
+
