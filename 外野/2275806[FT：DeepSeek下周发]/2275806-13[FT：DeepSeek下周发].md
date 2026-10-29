@@ -10206,3 +10206,11 @@ Google的大佬？Carbon的编程能力怎么样，想退订GPT Pro 转Gemini ul
 —— 来自 Xiaomi 24122RKC7C, Andro ...</blockquote>
 api 定价 carbon 和 argon 是一样的。
 
+
+*****
+
+####  qwased  
+##### 18638#       发表于 2026-10-29 15:05
+
+未确认消息：Mistral订阅上了ds1017 价格峰价 但是14刀=660刀额度，系统刚搭好在测试，300~500tps但是缓存命中是0
+
