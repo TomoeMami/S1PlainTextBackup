@@ -10649,3 +10649,13 @@ k3.1这429太影响体验了<img src="https://static.stage1st.com/image/smiley/f
 一到晚高峰杨圣这就疯狂429，有钱扩充算力不行么，拿去买通稿是何意味</blockquote>
 卡有钱也买不到啊
 
+
+*****
+
+####  lactone  
+##### 18675#       发表于 2026-10-29 21:39
+
+刷了一个下午的arena，发现grok系的键政能力挺强的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是把马老板炼化了
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
