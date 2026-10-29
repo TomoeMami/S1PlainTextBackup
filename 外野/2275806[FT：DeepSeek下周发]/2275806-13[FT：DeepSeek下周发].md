@@ -10483,3 +10483,13 @@ chatgpt 的 plan 可以免费领 api credit 了，是多少刀的套餐，就送
 
 在这里：[https://chatgpt.com/settings/billing](https://chatgpt.com/settings/billing)
 
+
+*****
+
+####  lactone  
+##### 18661#       发表于 2026-10-29 17:56
+
+妈的，qwen4呢？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
