@@ -10181,3 +10181,13 @@ dlc的售价是本体的一半，体量也是一半吗。
 
 实际命中率和显示命中率不一样也是传统艺能了 engage这种没有的反而是少数
 
+
+*****
+
+####  嘲风  
+##### 8364#       发表于 2026-10-29 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434457&amp;ptid=2261859" target="_blank">エリ 发表于 2026-10-28 15:56</a>
+不是，白发鬼不是一键爆气吗，你指的攒条费劲是指啥</blockquote>
+看了下，原来一直都记错了把白发鬼的技能记成女王的减气技能了，感觉血亏
+
