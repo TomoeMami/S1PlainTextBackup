@@ -10571,3 +10571,18 @@ openai送的api额度有什么好的用途吗？用来coding有点亏吧
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  BarricadeMKXX  
+##### 18668#       发表于 2026-10-29 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70440414&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-10-29 18:49</a>
+
+不是，R1？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0</blockquote>
+仔细看，是发布R1的时候同步给的官方蒸馏版千问小模，不是R1本尊
+
+另外说句题外话，从25年到现在很多地方标榜R1仔细一看其实都是这堆蒸馏小模，只能说噱头还是管用
+
