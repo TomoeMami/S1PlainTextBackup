@@ -10300,3 +10300,13 @@ engage也有的，代码差不多</blockquote>
 
 就现在DLC给的4把武器IS怎么解决的？要做任务才拿到吧，那已经通关第二部的线拿了只能柜子里拿点数换？还是第三部直接给强化后的
 
+
+*****
+
+####  duraa  
+##### 8375#       发表于 2026-10-29 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437540&amp;ptid=2261859" target="_blank">hsyg 发表于 2026-10-29 10:35</a>
+就现在DLC给的4把武器IS怎么解决的？要做任务才拿到吧，那已经通关第二部的线拿了只能柜子里拿点数换？还是 ...</blockquote>
+进第三部直接发
+

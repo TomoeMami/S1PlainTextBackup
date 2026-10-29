@@ -6007,3 +6007,14 @@ jjc有反射戒指，省一步操作了
 
 不过ffbe后面几季的剧情其实挺那啥的。不知道后面会不会调整
 
+
+*****
+
+####  kokyou  
+##### 568#       发表于 2026-10-29 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70437140&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-10-29 09:34</a>
+
+看了一下原本手游ffbe的第二季剧情，假如这要做成单机感觉不好搞啊，双线叙事且视角切换很频繁，甚至有一个 ...</blockquote>
+弄成FF8那种，另一组直接套用对应能力？
+
