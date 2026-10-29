@@ -10157,3 +10157,19 @@ dlc的售价是本体的一半，体量也是一半吗。
  ...</blockquote>
 来人，换大桌·jpg
 
+
+*****
+
+####  bad_alloc  
+##### 8362#       发表于 2026-10-29 08:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70436125&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-10-28 22:34</a>
+解包还一些有意思的东西，战前显示的基础命中率并不是实际命中率
+
+实际命中率=基础命中率*约13.333%*sin【 ...</blockquote>
+实际玩过那种真随机游戏的话，大部分玩家受不了的
+比如战场兄弟的封顶95命中，随便打一场遭遇战可能都给你连续投个两三轮95miss，一般玩家这个时候就可以rage quit了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+像火纹这种，80命中体感比bb里面95命中还靠谱点
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
