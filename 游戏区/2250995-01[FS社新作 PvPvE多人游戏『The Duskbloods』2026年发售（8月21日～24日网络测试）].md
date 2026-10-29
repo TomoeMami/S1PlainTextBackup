@@ -77,3 +77,11 @@
 当然如果pve一共就5个最终boss确实也不太可能</blockquote>
 因为目前网测版就是一张地图，从网测版解包那可能就是第一张图的boss吧，不过这都不好说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zpl123  
+##### 512#       发表于 2026-10-29 22:05
+
+官宣延期到明年发售了
+
