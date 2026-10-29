@@ -10586,3 +10586,15 @@ openai送的api额度有什么好的用途吗？用来coding有点亏吧
 
 另外说句题外话，从25年到现在很多地方标榜R1仔细一看其实都是这堆蒸馏小模，只能说噱头还是管用
 
+
+*****
+
+####  大肥鱼  
+##### 18669#       发表于 2026-10-29 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70440124&amp;ptid=2275806" target="_blank">boeing 发表于 2026-10-29 17:41</a>
+没那么晚</blockquote>
+感恩！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
