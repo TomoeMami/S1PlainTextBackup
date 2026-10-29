@@ -418,3 +418,11 @@ RPG强者发现了自己的神国
 
 感觉滥强卡都没用，最后都变成斗智斗勇，在书信里面安排金丝雀钓NPC上钩什么的。
 
+
+*****
+
+####  广东  
+##### 42#       发表于 2026-10-30 06:10
+
+真的是活着的长风难度啊……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

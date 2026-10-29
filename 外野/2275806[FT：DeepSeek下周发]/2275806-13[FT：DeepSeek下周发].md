@@ -10897,3 +10897,241 @@ workbuddy现在 70元可以用10-12B的 4.1f
 
 你plus 能用到 10B的 6.1sol么...
 
+
+*****
+
+####  绯色日照  
+##### 18698#       发表于 2026-10-29 21:52
+
+K3.1 PRO怎么卡住了，在官方客户端上提示要我排队，要么升级会员，问题是我已经升级了会员了。。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BarricadeMKXX  
+##### 18699#       发表于 2026-10-29 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70440154&amp;ptid=2275806" target="_blank">浅夏晴雨 发表于 2026-10-29 17:47</a>
+
+chatgpt 的 plan 可以免费领 api credit 了，是多少刀的套餐，就送多少刀的 api credit。
+
+在这里：https:// ...</blockquote>
+是不是pro纯享，我plus好像没看到
+
+*****
+
+####  来都来了  
+##### 18700#       发表于 2026-10-29 22:08
+
+咕咕鸽鸽的股价怎么跳水了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 18701#       发表于 2026-10-29 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441309&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-10-29 22:08</a>
+咕咕鸽鸽的股价怎么跳水了</blockquote>
+财报低于预期，要去买算力导致现金流转负。
+
+*****
+
+####  rayaxu  
+##### 18702#       发表于 2026-10-29 22:37
+
+感觉今天晚上的4.1f降智了，明显的错误也看不出来<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 18703#       发表于 2026-10-29 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441452&amp;ptid=2275806" target="_blank">rayaxu 发表于 2026-10-29 22:37</a>
+
+感觉今天晚上的4.1f降智了，明显的错误也看不出来</blockquote>
+可能是新机房还没调好，折腾过本地部署之后发现推理框架和硬件也会对推理质量产生非常显著的影响<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  knnknn  
+##### 18704#       发表于 2026-10-29 22:55
+
+<blockquote>qwased 发表于 2026-10-29 22:52
+可能是新机房还没调好，折腾过本地部署之后发现推理框架和硬件也会对推理质量产生非常显著的影响 ...</blockquote>
+有点好奇，是否能讲一下有什么地方会影响到呢
+
+*****
+
+####  qwased  
+##### 18705#       发表于 2026-10-29 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441512&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-10-29 22:55</a>
+有点好奇，是否能讲一下有什么地方会影响到呢</blockquote>
+硬件上的影响是性能变化后计算完成的顺序，以及不同硬件的舍入误差不一样，就会导致某些情况下token概率翻转然后跑到另一条推理轨迹上，这个问题在cpu混合推理的时候会变得非常明显
+软件上是不同框架，甚至不同的依赖版本也会产生计算顺序和舍入误差带来的token翻转，以及不同的推理框架为了计算效率往往会采用不同的快速近似计算，也是有误差的
+还有智谱最近发生的事件，gpu硬件损坏导致杭州地区用户用的glm特别弱智，他们查了一个月才查出来是哪坏了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">硬件问题带来的比特翻转更难调查
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ knnknn + 1gotcha
+
+查看全部评分
+
+*****
+
+####  飞剪号  
+##### 18706#       发表于 2026-10-29 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441536&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-29 23:02</a>
+
+硬件上的影响是性能变化后计算完成的顺序，以及不同硬件的舍入误差不一样，就会导致某些情况下token概率 ...</blockquote>
+够玄学的，让我想起了地板静电导致BUG和时钟晶振导致BUG的两个经典段子
+
+*****
+
+####  StrangerJ  
+##### 18707#       发表于 2026-10-29 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441563&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-10-29 23:06</a>
+够玄学的，让我想起了地板静电导致BUG和时钟晶振导致BUG的两个经典段子</blockquote>
+所以之前训模型都叫炼丹啊
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  jf8350143  
+##### 18708#       发表于 2026-10-29 23:59
+
+<img src="https://img.stage1st.com/forum/202610/29/235434dnho78qq38a88hy1.png" referrerpolicy="no-referrer">
+
+<strong>40aec231b17cee8a6b685703edb85a10.png</strong> (8.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-29 23:54 上传
+
+让deepseek 自己画DC三巨头的标志，用来给暗黑地牢饰品mod测试用，结果画的多少有点抽象了，不说好不好看，主要是造型都不太对<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+啥时候再强化下多模态能力
+
+*****
+
+####  gammatau  
+##### 18709#       发表于 2026-10-30 00:13
+
+ 本帖最后由 gammatau 于 2026-10-30 00:18 编辑 
+
+不是玄学，就是实打实的软硬件配置做错了导致数算错了
+
+为了优化速度，计算过程写的太底层了，没有一般OS里用户级软件一个接口一个读写不对立马就给你报错kill掉这种硬纠错机制。
+
+而llm太大了，输出又只有数，中间错一部分数最终用户只能感觉到“最近模型好口胡啊”，不会像打游戏看到模型消失画面撕裂这种一眼就知道bug了的情况。(你也可以说这是高级系统有冗余的一种体现
+
+多卡infra引擎有大量把专家在不同卡之间动态分配之类的高端操作，调环境肯定要求也更高
+
+*****
+
+####  洛拉斯  
+##### 18710#       发表于 2026-10-30 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441766&amp;ptid=2275806" target="_blank">jf8350143 发表于 2026-10-29 23:59</a>
+
+让deepseek 自己画DC三巨头的标志，用来给暗黑地牢饰品mod测试用，结果画的多少有点抽象了，不说好不好看 ...</blockquote>
+你让ds出提示词，然后交给千问去画比较好
+
+*****
+
+####  unrealMeeSeeks  
+##### 18711#       发表于 2026-10-30 01:22
+
+好消息！
+<img src="https://p.sda1.dev/35/38118021b2df6d394bbb8d6985425de0/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hugosol  
+##### 18712#       发表于 2026-10-30 01:28
+
+GPT这额度，如果每个月能用到100刀这个量的话，不算各种随机重置，性价比也已经超过DS了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 18713#       发表于 2026-10-30 01:28
+
+这不就是200套餐原来降额度现在不降了
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 18714#       发表于 2026-10-30 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70442005&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-30 01:28</a>
+GPT这额度，如果每个月能用到100刀这个量的话，不算各种随机重置，性价比也已经超过DS了 ...</blockquote>
+ds可以白嫖啊，还有ocgo
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  rachepatty  
+##### 18715#       发表于 2026-10-30 01:31
+
+它IPO后能保持多久<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+总之趁现在大补贴狠狠蹬，以后就不会有这段好时光了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+当然也可能🐳卡够Pro出降价你不需要订阅了，最鲸幻想<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  hugosol  
+##### 18716#       发表于 2026-10-30 01:40
+
+ 本帖最后由 hugosol 于 2026-10-30 01:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70442015&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-30 01:31</a>
+
+ds可以白嫖啊，还有ocgo
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+我的意思就是你一个月DS能用到600-700块可以开始考虑了，还不用等梁文谷时间<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lubo  
+##### 18717#       发表于 2026-10-30 02:17
+
+tibo看来是不打算搞重置营销了，替换成更多的周限。接下来我猜会发几张重置卡，解决大部分用户同一天刷新额度、负载暴增的问题
+
+*****
+
+####  phorcys02  
+##### 18718#       发表于 2026-10-30 03:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70442035&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-30 01:40</a>
+
+我的意思就是你一个月DS能用到600-700块可以开始考虑了，还不用等梁文谷时间 ...</blockquote>
+workbuddy现在 70元可以用10-12B的 4.1f
+
+你plus 能用到 10B的 6.1sol么...
+
+*****
+
+####  紧那罗  
+##### 18719#       发表于 2026-10-30 06:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70440400&amp;ptid=2275806" target="_blank">拯救节操希灵宅 发表于 2026-10-29 18:46</a>
+openai送的api额度有什么好的用途吗？用来coding有点亏吧</blockquote>
+我准备接gpt-live玩玩，正好这个在原来的订阅里没有
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
