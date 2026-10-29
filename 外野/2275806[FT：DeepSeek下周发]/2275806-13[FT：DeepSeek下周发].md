@@ -10181,3 +10181,28 @@ Gemini 4 Carbon世界第一了？有什么渠道能用到吗？</blockquote>
 就不能简单点叫nano mini pro X.X吗，Argon接着是Carbon。还不如早期Android那样，按字母表来呢。 ...</blockquote>
 确实有Barium，可能没肘赢Argon吧
 
+
+*****
+
+####  qwased  
+##### 18636#       发表于 2026-10-29 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70438162&amp;ptid=2275806" target="_blank">Litccc 发表于 2026-10-29 12:17</a>
+
+Google的大佬？Carbon的编程能力怎么样，想退订GPT Pro 转Gemini ultra了
+
+论坛助手,iPhone ...</blockquote>
+土耳其ultra的额度也少的一比，有钱不如买两个gpt 100刀
+
+*****
+
+####  小野賢章  
+##### 18637#       发表于 2026-10-29 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70438054&amp;ptid=2275806" target="_blank">瑕在瑾中 发表于 2026-10-29 11:53</a>
+
+哈基米这新模型能用的起吗？pro会员用argon简单任务对话几轮就上限了
+
+—— 来自 Xiaomi 24122RKC7C, Andro ...</blockquote>
+api 定价 carbon 和 argon 是一样的。
+
