@@ -10431,3 +10431,20 @@ engage也有的，代码差不多</blockquote>
 
 打完了，200个小时，第二部只通了a少线，真是好长的一个游戏。第三部刚好刷了20个角色的神将和把所有物理角色都刷了剑s导致时间浪费的比较多，不这么玩的话第三部感觉也太短了。
 
+
+*****
+
+####  1wq1  
+##### 8387#       发表于 2026-10-30 00:06
+
+总算打完4个战争篇了，准备好迎接dlc出来后的3遍战争篇了，7打达古扎还是太变态了
+
+IMG_0509.jpeg
+(447.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-30 00:04 上传
+
+<img src="https://img.stage1st.com/forum/202610/30/000446kd91j9ds9ud57dvh.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
