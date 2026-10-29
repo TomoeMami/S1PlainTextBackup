@@ -10214,3 +10214,13 @@ api 定价 carbon 和 argon 是一样的。
 
 未确认消息：Mistral订阅上了ds1017 价格峰价 但是14刀=660刀额度，系统刚搭好在测试，300~500tps但是缓存命中是0
 
+
+*****
+
+####  lactone  
+##### 18639#       发表于 2026-10-29 15:14
+
+不是，openai的chat work合并泥漏没人讨论吗？这tm怕不是要起大节奏
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
