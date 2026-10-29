@@ -10441,3 +10441,45 @@ Claude使用积分制。注册时账号获得初始分数，之后根据行为�
 应该不用cc就能大幅降低被封几率，一个群友也是苹果账号自购的pro接omp用了两个月什么事情都没有 ...</blockquote>
 确实，我一直怀疑CC是封号的罪魁祸首
 
+
+*****
+
+####  boeing  
+##### 18658#       发表于 2026-10-29 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70436544&amp;ptid=2275806" target="_blank">大肥鱼 发表于 2026-10-29 02:42</a>
+
+10月也快结束了，倒是有点好奇V4 Pro到底能不能在今年结束之前出来？
+
+—— 来自 S1Fun ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202610/29/174127wtau0t0u10vziz29.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20261029-174011.jpg</strong> (216.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-29 17:41 上传
+
+没那么晚
+
+
+*****
+
+####  warlock228  
+##### 18659#       发表于 2026-10-29 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70440074&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-10-29 17:31</a>
+确实，我一直怀疑CC是封号的罪魁祸首</blockquote>
+就是harness上传指纹给上面，就跟之前智谱事件一样出事的是zcode不是嘎啦嘛，大模型应该不接那些额外的消息的
+
+
+*****
+
+####  浅夏晴雨  
+##### 18660#       发表于 2026-10-29 17:47
+
+chatgpt 的 plan 可以免费领 api credit 了，是多少刀的套餐，就送多少刀的 api credit。
+
+在这里：[https://chatgpt.com/settings/billing](https://chatgpt.com/settings/billing)
+
