@@ -10191,3 +10191,31 @@ dlc的售价是本体的一半，体量也是一半吗。
 不是，白发鬼不是一键爆气吗，你指的攒条费劲是指啥</blockquote>
 看了下，原来一直都记错了把白发鬼的技能记成女王的减气技能了，感觉血亏
 
+
+*****
+
+####  DarkDawn  
+##### 8365#       发表于 2026-10-29 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70436886&amp;ptid=2261859" target="_blank">Aresu 发表于 2026-10-29 08:53</a>
+
+实际命中率和显示命中率不一样也是传统艺能了 engage这种没有的反而是少数</blockquote>
+engage也有的，代码差不多
+
+
+*****
+
+####  DarkDawn  
+##### 8366#       发表于 2026-10-29 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70436717&amp;ptid=2261859" target="_blank">苍蓝之枪 发表于 2026-10-29 07:51</a>
+
+第二部通关数据上那个职业到底怎么显示的，我以为是角色当前的职业，但是战车状态的凯伊跳过后，数据上的显 ...</blockquote>
+战车是中级职业，游侠是上级职业
+
+你掌握的列表里面有上级，就会以上级职业出现
+
+顺便说一下这也是粉毛天马容易丢失的原因：
+
+天马没有上级职业，如果给粉毛学了某个上级，她五年后以上级职业入队，布西法拉斯就没了
+
