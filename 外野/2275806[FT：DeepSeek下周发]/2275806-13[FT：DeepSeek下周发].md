@@ -9909,3 +9909,13 @@ GPT要根据PRO用户的订阅额度提供相等金额的API额度了。
 说明是在账单里面可以绑定API组织后使用，不过我的 ...</blockquote>
 关于这个API，GPT的API接入什么来用呢？用前面大家讨论的Pi吗？
 
+
+*****
+
+####  便秘的猫  
+##### 18615#       发表于 2026-10-29 11:04
+
+dsh调用workbuddy积分那个插件是不是被腾讯干掉了，昨天还好好的今天就不能用了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
