@@ -9798,3 +9798,15 @@ Gemini 4 Carbon来了，跑分干翻Opus 5.5了，但是还是虚空发布中。
 这个思路好啊，我回头试下我这好不好用已让Astra偷师</blockquote>
 但是gpt系写文档默认就是这样啊
 
+
+*****
+
+####  neptunehs  
+##### 18606#       发表于 2026-10-29 08:34
+
+https://github.com/memvid/memvid
+
+有人试过这个吗 号称能取代RAG
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

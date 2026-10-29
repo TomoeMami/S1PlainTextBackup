@@ -6287,7 +6287,7 @@
     "newtitle": "[『剧场版 魔法少女小圆〈魔女之夜的回天〉​​​』2026年8月28日上映]",
     "lastedit": 1792974606,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2143156": {
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 18605,
+    "totalreply": 18606,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[DeepSeek V4.1 Flash 1017：许愿式编程一键成真 ｜ 大模型讨论专楼]",
-    "lastedit": 1793224205,
+    "lastedit": 1793234166,
     "category": "外野",
     "active": true,
     "update": false
@@ -13662,10 +13662,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 39701,
+    "totalreply": 39704,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1793233688,
+    "lastedit": 1793234166,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16848,10 +16848,10 @@
     "update": false
   },
   "2292405": {
-    "totalreply": 136,
+    "totalreply": 137,
     "title": "[调查一下坛友的 AI 使用程度]",
     "newtitle": "[调查一下坛友的 AI 使用程度]",
-    "lastedit": 1793199969,
+    "lastedit": 1793234166,
     "category": "外野",
     "active": true,
     "update": false
@@ -16893,10 +16893,10 @@
     "update": false
   },
   "2292420": {
-    "totalreply": 134,
+    "totalreply": 136,
     "title": "[兵部尚书在死谏的时候冻死 是什么概念]",
     "newtitle": "[兵部尚书在死谏的时候冻死 是什么概念]",
-    "lastedit": 1793202127,
+    "lastedit": 1793234289,
     "category": "外野",
     "active": true,
     "update": false
@@ -17793,10 +17793,10 @@
     "update": false
   },
   "2292697": {
-    "totalreply": 85,
+    "totalreply": 86,
     "title": "[华人猝死！生前听信ChatGPT，25天内将药减至零]",
     "newtitle": "[华人猝死！生前听信ChatGPT，25天内将药减至零]",
-    "lastedit": 1793232007,
+    "lastedit": 1793233808,
     "category": "外野",
     "active": true,
     "update": false
@@ -17928,19 +17928,19 @@
     "update": false
   },
   "2292729": {
-    "totalreply": 113,
+    "totalreply": 114,
     "title": "[关于米哈游对于ai领域的发言，我非常的不认同，感觉通篇都是一点也不浪漫的幻想]",
     "newtitle": "[关于米哈游对于ai领域的发言，我非常的不认同，感觉通篇都是一点也不浪漫的幻想]",
-    "lastedit": 1793231887,
+    "lastedit": 1793234168,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2292721": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "[樱井政博开炮AI游戏：只会抄，做不出上田文人那种东西]",
     "newtitle": "[樱井政博开炮AI游戏：只会抄，做不出上田文人那种东西]",
-    "lastedit": 1793230329,
+    "lastedit": 1793234288,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17973,10 +17973,10 @@
     "update": false
   },
   "2292736": {
-    "totalreply": 47,
+    "totalreply": 49,
     "title": "[【送福利】《影之刃零》《生化危机》等3A大作背刺Steam！留言赢取《最终幻想：回响》]",
     "newtitle": "[【送福利】《影之刃零》《生化危机》等3A大作背刺Steam！留言赢取《最终幻想：回响》]",
-    "lastedit": 1793233567,
+    "lastedit": 1793234049,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17996,6 +17996,15 @@
     "newtitle": "[佐佐木与文鸟小哔 TV动画化 2024年1月]",
     "lastedit": 1793211372,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2292692": {
+    "totalreply": 42,
+    "title": "[又到了几年一次的区人大投票了，这次能拿多少钱]",
+    "newtitle": "[又到了几年一次的区人大投票了，这次能拿多少钱]",
+    "lastedit": 1793234167,
+    "category": "外野",
     "active": true,
     "update": false
   }
