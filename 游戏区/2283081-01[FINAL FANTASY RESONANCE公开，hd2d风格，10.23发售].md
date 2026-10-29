@@ -6036,3 +6036,11 @@ jjc有反射戒指，省一步操作了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  纪寞  
+##### 571#       发表于 2026-10-29 16:04
+
+不过这游戏就算销量到了例如八方这种的续作线，出续作也有一个很大的弊端是第二季剧情是紧跟第一季的， 不够独立，也就是刚需你玩过现作<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

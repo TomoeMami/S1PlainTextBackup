@@ -10266,3 +10266,15 @@ Claude使用积分制。注册时账号获得初始分数，之后根据行为�
 
 国际版的wb是不是不能用人民币结算？
 
+
+*****
+
+####  warlock228  
+##### 18644#       发表于 2026-10-29 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70438206&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-10-29 12:25</a>
+Claude使用积分制。注册时账号获得初始分数，之后根据行为加分或扣分。低于阈值直接封号。回分很难
+
+影响分 ...</blockquote>
+网页版注册选谷歌登陆直接给我kyc了，换了果机选果id注册我聊到现在都没封，关键这个果id我一样绑着之前被kyc的邮箱，看来果大人确实威能隐藏了我的绑定邮箱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
