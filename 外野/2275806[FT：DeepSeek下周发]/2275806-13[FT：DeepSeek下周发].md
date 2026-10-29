@@ -10802,3 +10802,14 @@ chatgpt 的 plan 可以免费领 api credit 了，是多少刀的套餐，就送
 
 而llm又太大了，中间错一部分数最终用户只能感觉到“最近模型好口胡啊”，不会像打游戏看到模型消失画面撕裂这种一眼就知道bug了的情况。
 
+
+*****
+
+####  洛拉斯  
+##### 18689#       发表于 2026-10-30 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441766&amp;ptid=2275806" target="_blank">jf8350143 发表于 2026-10-29 23:59</a>
+
+让deepseek 自己画DC三巨头的标志，用来给暗黑地牢饰品mod测试用，结果画的多少有点抽象了，不说好不好看 ...</blockquote>
+你让ds出提示词，然后交给千问去画比较好
+
