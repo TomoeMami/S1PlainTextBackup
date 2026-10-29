@@ -10170,3 +10170,14 @@ Gemini 4 Carbon世界第一了？有什么渠道能用到吗？</blockquote>
 
 —— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  YoumuChan  
+##### 18635#       发表于 2026-10-29 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70438355&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-10-29 12:54</a>
+
+就不能简单点叫nano mini pro X.X吗，Argon接着是Carbon。还不如早期Android那样，按字母表来呢。 ...</blockquote>
+确实有Barium，可能没肘赢Argon吧
+
