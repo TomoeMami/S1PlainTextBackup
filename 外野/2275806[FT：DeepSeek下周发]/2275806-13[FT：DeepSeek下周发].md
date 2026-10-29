@@ -10760,3 +10760,15 @@ chatgpt 的 plan 可以免费领 api credit 了，是多少刀的套餐，就送
 硬件上的影响是性能变化后计算完成的顺序，以及不同硬件的舍入误差不一样，就会导致某些情况下token概率 ...</blockquote>
 够玄学的，让我想起了地板静电导致BUG和时钟晶振导致BUG的两个经典段子
 
+
+*****
+
+####  StrangerJ  
+##### 18686#       发表于 2026-10-29 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441563&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-10-29 23:06</a>
+够玄学的，让我想起了地板静电导致BUG和时钟晶振导致BUG的两个经典段子</blockquote>
+所以之前训模型都叫炼丹啊
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
