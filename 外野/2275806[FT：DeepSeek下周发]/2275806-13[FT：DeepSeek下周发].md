@@ -11972,3 +11972,42 @@ ds网页端崩了快两个小时了，只是上个cyber模型不至于吧</block
 关键不太符合马老板的风格，之前就是直接吹最强的</blockquote>
 只能说能好一点是一点。不过现在4.7的后端其实还不错的，前端确实依托。
 
+
+*****
+
+####  knnknn  
+##### 18793#       发表于 2026-10-30 18:08
+
+<blockquote>小川彩 发表于 2026-10-30 18:03
+想用agent（codex/dsh）帮我操控网页 现在用的playwright cli extension 但是老是被网页的反ai/机器人检查 ...</blockquote>
+computer use直接用键鼠屏幕接管。
+
+或者browser加参数运行，能开出CDP接口并接管带所有登录的常用游览器。
+
+但是模型不加提示词就不爱这么用，喜欢自己开游览器。。。
+
+*****
+
+####  小川彩  
+##### 18794#       发表于 2026-10-30 18:10
+
+codex可以用computer use我试试
+dsh呢….一直读屏幕我感觉我的套餐可能撑不住…
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  小川彩  
+##### 18795#       发表于 2026-10-30 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70445347&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-10-30 18:08</a>
+computer use直接用键鼠屏幕接管。
+
+或者browser加参数运行，能开出CDP接口并接管带所有登录的常用游览器 ...</blockquote>
+codex可以用computer use我试试
+dsh呢….一直读屏幕我感觉我的套餐可能撑不住…
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
