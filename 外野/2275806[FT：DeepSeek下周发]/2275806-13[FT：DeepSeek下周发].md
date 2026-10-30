@@ -11786,3 +11786,20 @@ https://mp.weixin.qq.com/s/lAHG4dO3-EbqHijWWuCEVg
 
 或者可以奶龙开会模式，10个 1017凑一起，方案也还行
 
+
+*****
+
+####  紧那罗  
+##### 18778#       发表于 2026-10-30 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444817&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-10-30 16:12</a>
+
+我理解你说的是pro订阅 配合现在一月重置 七八次，如果当黑奴24h蹬，astra也能蹬出15b/月来
+
+6.1sol有希望 ...</blockquote>
+dsf直接1:1对标6.1sol还是不行吧
+
+另外40b flash 2000块也要看时段 峰谷个半恐怕不止这个价。
+
+workbuddy高性价比是要靠签到这些凑积分的 全靠订阅的积分并不划算<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -18,3 +18,11 @@
 
 大概率环境又要演变成连击妖统治的天下了。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  icelord  
+##### 791#       发表于 2026-10-30 16:43
+
+烂完了吗 感觉这版本真算百花齐放吧 能玩的卡组挺多的
+
