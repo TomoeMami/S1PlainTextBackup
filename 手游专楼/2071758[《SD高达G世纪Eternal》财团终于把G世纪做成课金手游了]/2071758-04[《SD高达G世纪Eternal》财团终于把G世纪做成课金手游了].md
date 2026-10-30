@@ -2642,3 +2642,14 @@ UC后期和其他异界高达独眼机体非常之少
 
 反着来用
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 4940#       发表于 2026-10-31 04:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70422949&amp;ptid=2071758" target="_blank">alialex 发表于 2026-10-26 10:33</a>
+
+又是日服限定？</blockquote>
+国际服通用
+
