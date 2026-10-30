@@ -35,3 +35,12 @@ wds入坑的アイプラ
 
 感觉是踢人加速了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 844#         楼主| 发表于 2026-10-30 12:02
+
+还是无了<img src="https://static.stage1st.com/image/smiley/face2017/140.png">
+不过活了五年都没火也没马上挂也算耐活王了，内部人员没爱根本撑不了那么久
+
