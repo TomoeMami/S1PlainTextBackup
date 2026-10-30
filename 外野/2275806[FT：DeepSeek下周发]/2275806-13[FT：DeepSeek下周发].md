@@ -11188,3 +11188,26 @@ qwen3.8 27b可以承担轻量级代码任务，后端能力有claude4.6的八成
 内存有64G以上可以玩qwen3.8 ...</blockquote>
 那如果我想让模型帮我统计文档里面的内容 进行汇总的话呢？有些资料不太想在网上处理
 
+
+*****
+
+####  hugosol  
+##### 18724#       发表于 2026-10-30 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70442133&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-10-30 03:25</a>
+
+workbuddy现在 70元可以用10-12B的 4.1f
+
+你plus 能用到 10B的 6.1sol么...</blockquote>
+很明显我说的是pro……plus各方面原因用着会很难受
+
+不过不是重度编程用不到pro这个量就是了
+
+
+*****
+
+####  zzy516232108  
+##### 18725#       发表于 2026-10-30 10:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想要移植公司的一个会议软件到国产电脑上 QODER告诉我这是华为视频会议换皮 他不敢惹华为
+
