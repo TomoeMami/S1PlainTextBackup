@@ -12215,3 +12215,19 @@ plus额度砍成这鸟样，tps还慢的像乌龟
 
 穷哥们想整点啥项目还是日抛号+wb反代耍起吧
 
+
+*****
+
+####  andychen  
+##### 18811#       发表于 2026-10-30 22:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">是我便宜token羊毛撸太多吗，我觉得opencode go的ds4f稳定在100t/s以上速度还行啊
+
+
+*****
+
+####  bartholo4  
+##### 18812#       发表于 2026-10-30 22:54
+
+真的价格敏感 还是找个中转的DeepSeek来用吧
+
