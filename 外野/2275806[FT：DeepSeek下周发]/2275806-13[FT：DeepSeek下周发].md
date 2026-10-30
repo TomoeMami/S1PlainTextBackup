@@ -11711,3 +11711,14 @@ gemma5也快出来了，本地瑟瑟小说现在就指望这玩意
 
 我现在用的 Qwen3.8-27B-6bit
 
+
+*****
+
+####  novalli  
+##### 18773#       发表于 2026-10-30 16:04
+
+Kimi写了一个挺详细的3D模型生成指南，包括游戏和3D打印模型，看着还是挺不错的，有些工程建议很实用。
+https://mp.weixin.qq.com/s/lAHG4dO3-EbqHijWWuCEVg
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
