@@ -12205,3 +12205,13 @@ WorkBuddy的70元订阅 vs OpenCode Go的10美元订阅（价格刚好差不多�
 OCG看着额度还挺多的，我的用量用满能有10b，但很怀疑能不能用完。tps真的慢，还经常卡首字，开关梯子都差不多。肯定不续了
 <img src="https://p.sda1.dev/35/560f0828ded5ce463fda84063b8e155d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aimbot  
+##### 18810#       发表于 2026-10-30 22:34
+
+plus额度砍成这鸟样，tps还慢的像乌龟
+
+穷哥们想整点啥项目还是日抛号+wb反代耍起吧
+
