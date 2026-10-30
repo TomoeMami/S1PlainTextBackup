@@ -11211,3 +11211,60 @@ workbuddy现在 70元可以用10-12B的 4.1f
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想要移植公司的一个会议软件到国产电脑上 QODER告诉我这是华为视频会议换皮 他不敢惹华为
 
+
+*****
+
+####  umamusume  
+##### 18726#       发表于 2026-10-30 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443146&amp;ptid=2275806" target="_blank">lily-black 发表于 2026-10-30 10:39</a>
+那如果我想让模型帮我统计文档里面的内容 进行汇总的话呢？有些资料不太想在网上处理 ...</blockquote>
+让他做工具，而不是直接处理
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  lactone  
+##### 18727#       发表于 2026-10-30 11:03
+
+结合前面的传言，是不是pro要来了
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  noneoneone  
+##### 18728#       发表于 2026-10-30 11:04
+
+<blockquote>[zzy516232108](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443229&amp;ptid=2275806) 发表于 10-30 10:54
+想要移植公司的一个会议软件到国产电脑上 QODER告诉我这是华为视频会议换皮 他不敢惹华为</blockquote>
+
+gpt呢，快来出图
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  艾诺琳  
+##### 18729#       发表于 2026-10-30 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443146&amp;ptid=2275806" target="_blank">lily-black 发表于 2026-10-30 10:39</a>
+那如果我想让模型帮我统计文档里面的内容 进行汇总的话呢？有些资料不太想在网上处理 ...</blockquote>
+那就只能用本地模型了，用在线服务必然暴露，最好情况是仅用于训练，最坏情况就是明文被卖了
+
+不想上网的东西就不要交给公开大模型处理，你可以本地部署一个小模型进行处理
+
+*****
+
+####  lily-black  
+##### 18730#       发表于 2026-10-30 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443260&amp;ptid=2275806" target="_blank">umamusume 发表于 2026-10-30 11:01</a>
+
+让他做工具，而不是直接处理
+
+—— 来自 samsung SM-S9480, Android 16, 鹅球 v4.0</blockquote>
+求大佬指点一个大概的思路M— —M
+
