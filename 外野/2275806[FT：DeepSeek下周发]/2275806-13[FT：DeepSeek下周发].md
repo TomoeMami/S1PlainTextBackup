@@ -11874,3 +11874,29 @@ GPT 的 100Pro 额度增加后配合 6.1terramax 感觉真的是用不完
 
 ds网页端崩了快两个小时了，只是上个cyber模型不至于吧
 
+
+*****
+
+####  lactone  
+##### 18785#       发表于 2026-10-30 17:43
+
+grok4.8这个参数量应该跑分也不会太差
+
+不过马老板这么说感觉可能benchmark不会太好
+
+毕竟aa榜刚改
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  StrangerJ  
+##### 18786#       发表于 2026-10-30 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70445037&amp;ptid=2275806" target="_blank">lubo 发表于 2026-10-30 17:02</a>
+几分钟前的记录，这两天平均20，最低5，最高55</blockquote>
+55是输出，5是推理吧，看来确实是非常龟速
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
