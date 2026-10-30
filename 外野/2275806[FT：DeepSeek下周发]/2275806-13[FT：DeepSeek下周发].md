@@ -11645,3 +11645,53 @@ kimi3.1 pro完全没有网安训练资料泛化出来的网安能力都这么强
 oss120那个对齐甲当初号称有多神奇，现在早就被heretic给破得七七八八了</blockquote>
 要么就把参数放大到小组织都搞不起<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">K3.1这种2.8T的模型谁没个大几百万的机子根本玩不转
 
+
+*****
+
+####  startraveller  
+##### 18766#       发表于 2026-10-30 15:19
+
+老马在预告Grok 4.8了……
+
+*****
+
+####  有鱼  
+##### 18767#       发表于 2026-10-30 15:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要么ds有远超月之暗面的手术功底，能把网安能力剥离出来不影响肥鱼的后端能力（我觉得不可能，这两者本来就没有清晰的界限）。
+
+要么就是做了严格的对齐和拒答
+
+
+*****
+
+####  neptunehs  
+##### 18768#       发表于 2026-10-30 15:22
+
+严格对齐也影响能力值的吧
+但愿不要太大
+至于heretic什么的 我部署不起（
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  Milarvoz  
+##### 18769#       发表于 2026-10-30 15:22
+
+等不及了，科幻小说里的大断网什么时候到来。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  mitzvah  
+##### 18770#       发表于 2026-10-30 15:24
+
+ 本帖最后由 mitzvah 于 2026-10-30 15:25 编辑 
+
+社区玩得多的还是qwen的27b 和flash 能力强花样多，只要放出来一个星期内就能被各种heretic艹成rbq，到时候啥都能干，对齐有啥用呢，糊弄监管而已
+
+gemma5也快出来了，本地瑟瑟小说现在就指望这玩意
+
