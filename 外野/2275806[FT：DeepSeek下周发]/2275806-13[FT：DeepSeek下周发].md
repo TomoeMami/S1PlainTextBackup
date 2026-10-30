@@ -11767,3 +11767,22 @@ https://mp.weixin.qq.com/s/lAHG4dO3-EbqHijWWuCEVg
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  phorcys02  
+##### 18777#       发表于 2026-10-30 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444851&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-30 16:20</a>
+
+41flash的能力边界还是不如6.1sol的，而且astra出方案给肥鱼做比肥鱼自己想半天要好得多
+
+虽然很少需要这 ...</blockquote>
+那肯定啊，但你可以平时都用1017,
+
+偶尔碰到问题了花5块钱让astra review一下给个方案
+
+1017继续当黑奴就行了，每月可能花20块足够了...
+
+或者可以奶龙开会模式，10个 1017凑一起，方案也还行
+

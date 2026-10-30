@@ -150,3 +150,36 @@
 
 看个管人还能反复横跳的多半是心智不成熟的小孩，再回来只会给以后多惹事
 
+
+*****
+
+####  holofan  
+##### 11737#       发表于 2026-10-30 12:59
+
+懂的人其实当年一看画风就知道哪家做的了，怎么现在才有人反应过来
+
+我昨天晚上就直接把柚子官推通知开起来了就等消息了
+
+<img src="https://img.stage1st.com/forum/202610/30/125812mdh2nn8655ib5jhc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-30 12:58 上传
+
+*****
+
+####  holofan  
+##### 11738#       发表于 2026-10-30 16:29
+
+确定演出
+
+<img src="https://img.stage1st.com/forum/202610/30/162910de52sp2sfb2951zm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-30 16:29 上传
+
