@@ -12167,3 +12167,41 @@ WorkBuddy的70元订阅 vs OpenCode Go的10美元订阅（价格刚好差不多�
 
 但是这里不止有额度问题，还有很大的复杂性，wb的反代存在一定风险性，Opencode没有。但opencode的自部署明显辣鸡，智力这种有体感差异的不谈，tps明显低一档，首token巨大延迟（不排除国内网络原因，但是总之是使用体验，意味着实际任务时间会明显更久），缓存也比官key和wb的源低（99%比95~97%）。两者都有提示词注入，但是oc更严重，疑似注入了让模型不要太努力的提示词。总的来看，目前我个人会更倾向于使用体验更接近官方的wb，但按月订阅就行，反正哪天不行了再换就是。
 
+
+*****
+
+####  游公子  
+##### 18808#       发表于 2026-10-30 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446175&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-10-30 22:03</a>
+
+70块的积分太少了吧，签到送的不充钱也能领，我是主用gpt plus没额度了用workbuddy签到的补充 ...</blockquote>
+那是你主用gpt。
+
+如果你主用wb，不充值是没法用的，因为它有限额。
+
+随便搞个任务就告诉你到限额了，等24小时吧。
+
+有积分也没用，除非你拿去烧k3。
+
+充值会员就没限制了。
+
+所以要么充值用wb，要么充值外国货。
+
+单纯靠免费积分，是无法把wb作为主力的。
+
+
+*****
+
+####  unrealMeeSeeks  
+##### 18809#       发表于 2026-10-30 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446057&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-30 21:31</a>
+如果暂时不考虑签到送的积分
+
+WorkBuddy的70元订阅 vs OpenCode Go的10美元订阅（价格刚好差不多）
+
+哪家性价 ...</blockquote>
+OCG看着额度还挺多的，我的用量用满能有10b，但很怀疑能不能用完。tps真的慢，还经常卡首字，开关梯子都差不多。肯定不续了
+<img src="https://p.sda1.dev/35/560f0828ded5ce463fda84063b8e155d/image.jpg" referrerpolicy="no-referrer">
+
