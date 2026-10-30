@@ -11523,3 +11523,25 @@ gpt呢，快来出图
 
 api加外审，公众checkpoint不刻意训练网安只靠泛化获得能力提升，然后再从公众模型做网安RL做cyber checkpoint？感觉挺浪费算力的
 
+
+*****
+
+####  neptunehs  
+##### 18755#       发表于 2026-10-30 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444416&amp;ptid=2275806" target="_blank">买码！注册！ 发表于 2026-10-30 14:41</a>
+削网安攻防，那以后自部署小肥鱼1017不就成了平民神器AK-47</blockquote>
+毕竟模型b数就那么大 还有知识更新期 之后过两年各公司再用新模型cyber权限加固下 1017就用不上了吧？
+
+还不如担心会导致公众版跟开源版因此丢多少能力跟跑分 以及是不是以后用来做mod（不可避免的需要反编译游戏）不行了吧
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  mitzvah  
+##### 18756#       发表于 2026-10-30 14:57
+
+kimi3.1pro 的网安跑分又不低，该泛化还是能泛化出来的。加个甲又不难破，感觉就是糊弄
+
