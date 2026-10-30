@@ -12032,3 +12032,16 @@ dsh呢….一直读屏幕我感觉我的套餐可能撑不住…</blockquote>
 用mcp就行吧，我所有的agent都用的这个，可以访问我已打开网页或新开标签页，读取或者填写网页内容
 <img src="https://p.sda1.dev/35/e05f7418f7b4a210d3da661efe786f2f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小野賢章  
+##### 18798#       发表于 2026-10-30 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70445327&amp;ptid=2275806" target="_blank">小川彩 发表于 2026-10-30 18:03</a>
+
+想用agent（codex/dsh）帮我操控网页 现在用的playwright cli extension 但是老是被网页的反ai/机器人检查 ...</blockquote>
+用 chrome-devtools-mcp 的 autoConnect 模式，这个会连接到你当前使用chrome，几乎不会被风控。参考这个：
+
+[https://developer.chrome.com/doc ... to-connect?hl=zh-cn](https://developer.chrome.com/docs/devtools/agents/use-cases/auto-connect?hl=zh-cn)
+
