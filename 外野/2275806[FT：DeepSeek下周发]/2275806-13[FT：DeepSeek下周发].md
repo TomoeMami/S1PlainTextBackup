@@ -11602,3 +11602,46 @@ kimi3.1pro 的网安跑分又不低，该泛化还是能泛化出来的。加个
 那如果我想让模型帮我统计文档里面的内容 进行汇总的话呢？有些资料不太想在网上处理 ...</blockquote>
 让大模型帮你写代码，代码里面调用本地的小模型，数据不上网，这个很成熟了。之前就有人让ds翻译，然后它自己下载了qwen来翻译。
 
+
+*****
+
+####  love4aids  
+##### 18762#       发表于 2026-10-30 15:08
+
+现在 gpt 怎么破甲啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小野賢章  
+##### 18763#       发表于 2026-10-30 15:09
+
+开源模型发出去之后不能撤销，网安上谨慎一点是免责性质的，只要模型的后端、运维能力强，是不太可能单独大幅严格网安能力的，最多就是拒绝回答。
+
+
+*****
+
+####  mitzvah  
+##### 18764#       发表于 2026-10-30 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444543&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-30 15:06</a>
+
+不可能直接修权重的，后训练加强安全对齐拒答再加个外审就极限了，不然能力要烂完 ...</blockquote>
+oss120那个对齐甲当初号称有多神奇，现在早就被heretic给破得七七八八了
+
+对齐甲这东西就是防君子不防小人的 。
+
+kimi3.1 pro完全没有网安训练资料泛化出来的网安能力都这么强了，只要放出来权重，黑客们的攻击能力不可避免大幅进步
+
+
+*****
+
+####  qwased  
+##### 18765#       发表于 2026-10-30 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444586&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-30 15:13</a>
+
+oss120那个对齐甲当初号称有多神奇，现在早就被heretic给破得七七八八了</blockquote>
+要么就把参数放大到小组织都搞不起<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">K3.1这种2.8T的模型谁没个大几百万的机子根本玩不转
+
