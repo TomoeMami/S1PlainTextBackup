@@ -11173,3 +11173,18 @@ ds5仓库有两个分支，一个open一个next，open应该是砍掉安全权�
 
 大肥鱼好像有点问题？API请求了三次才成功
 
+
+*****
+
+####  lily-black  
+##### 18723#       发表于 2026-10-30 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70442824&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-30 09:43</a>
+
+翻译模型
+
+qwen3.8 27b可以承担轻量级代码任务，后端能力有claude4.6的八成吧
+
+内存有64G以上可以玩qwen3.8 ...</blockquote>
+那如果我想让模型帮我统计文档里面的内容 进行汇总的话呢？有些资料不太想在网上处理
+
