@@ -11292,3 +11292,58 @@ pro那个传言官方人员已辟谣，还是大概率下个月发<img src="http
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lily-black  
+##### 18733#       发表于 2026-10-30 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443284&amp;ptid=2275806" target="_blank">艾诺琳 发表于 2026-10-30 11:05</a>
+
+那就只能用本地模型了，用在线服务必然暴露，最好情况是仅用于训练，最坏情况就是明文被卖了
+
+不想上网的 ...</blockquote>
+16g内存 5060ti16g 这种的话 有没有推荐的小模型？哪怕处理起来慢一点也行
+
+*****
+
+####  zhongjie  
+##### 18734#       发表于 2026-10-30 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443352&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-30 11:15</a>
+
+pro那个传言官方人员已辟谣，还是大概率下个月发
+
+—— 来自 鹅球 v3.5.99</blockquote>
+辟谣和不辟谣有区别吗，今天是这个月的最后一个工作日
+
+
+*****
+
+####  sellboy  
+##### 18735#       发表于 2026-10-30 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443374&amp;ptid=2275806" target="_blank">lily-black 发表于 2026-10-30 11:17</a>
+
+16g内存 5060ti16g 这种的话 有没有推荐的小模型？哪怕处理起来慢一点也行</blockquote>
+Q4量化的Qwen3.8 27b呀。
+
+
+*****
+
+####  cscbzcbz  
+##### 18736#       发表于 2026-10-30 11:23
+
+dsh到0.2.1 rc5啦？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lactone  
+##### 18737#       发表于 2026-10-30 11:24
+
+官方人员说了下个月发吗？有截图吗？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
