@@ -11936,3 +11936,39 @@ ds网页端崩了快两个小时了，只是上个cyber模型不至于吧</block
 不过马老板自己之前也说，目标是4.9赶上astra和fab ...</blockquote>
 不过侧面的舅舅党都说比4.7好很多什么的，不知道了，等出来看看。 
 
+
+*****
+
+####  lactone  
+##### 18790#       发表于 2026-10-30 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70445297&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-30 17:55</a>
+不过侧面的舅舅党都说比4.7好很多什么的，不知道了，等出来看看。</blockquote>
+4.7都不如4.6，比这个好很多也不值得吹
+
+关键不太符合马老板的风格，之前就是直接吹最强的
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  小川彩  
+##### 18791#       发表于 2026-10-30 18:03
+
+想用agent（codex/dsh）帮我操控网页 现在用的playwright cli extension 但是老是被网页的反ai/机器人检查给检测到 应该是cdp协议之类的原因？有啥其它mcp/工具啥的选择吗 不容易被检测到
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  startraveller  
+##### 18792#       发表于 2026-10-30 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70445322&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-30 18:02</a>
+
+4.7都不如4.6，比这个好很多也不值得吹
+
+关键不太符合马老板的风格，之前就是直接吹最强的</blockquote>
+只能说能好一点是一点。不过现在4.7的后端其实还不错的，前端确实依托。
+
