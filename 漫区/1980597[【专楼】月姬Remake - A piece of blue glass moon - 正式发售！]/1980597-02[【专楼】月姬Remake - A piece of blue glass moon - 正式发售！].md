@@ -37,3 +37,12 @@
 
 再这样下去两届奥运会都要过了啊蘑菇<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月亮上的珊瑚  
+##### 1648#       发表于 2026-10-30 13:10
+
+昨天看到小黑盒上有人玩到了逆向破解移植到PC上的版本
+https://www.xiaoheihe.cn/bbs/post_share?link_id=5bb372b7df4a
+
