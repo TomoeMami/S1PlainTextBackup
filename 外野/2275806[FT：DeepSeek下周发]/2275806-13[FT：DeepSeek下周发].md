@@ -12241,3 +12241,11 @@ plus额度砍成这鸟样，tps还慢的像乌龟
 
 3个ai群伺候我一个人，我还只用花一分钱！
 
+
+*****
+
+####  绯色日照  
+##### 18814#       发表于 2026-10-30 23:17
+
+请教大佬，kimi自己的桌面版里，work和chat到底用哪个开项目好？对标workbuddy的话。我看chat里才有记忆和个性化等功能，work里的好像不构成其记忆？<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

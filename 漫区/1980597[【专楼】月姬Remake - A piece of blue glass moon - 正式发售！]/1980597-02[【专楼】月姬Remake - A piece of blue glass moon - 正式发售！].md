@@ -57,3 +57,11 @@ https://www.xiaoheihe.cn/bbs/post_share?link_id=5bb372b7df4a
 明年mb还有点新剧情已经能烧高香了</blockquote>
 MB新剧情号称量和一部GAL等量
 
+
+*****
+
+####  manyin1  
+##### 1650#       发表于 2026-10-30 23:26
+
+有个问题，现在玩AVG游戏，和看B站全流程视频，好像也没啥区别吧，那为啥还要去花钱或者花力气去下载游戏来看文字呢<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
