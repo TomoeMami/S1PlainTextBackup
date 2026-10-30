@@ -12428,3 +12428,266 @@ wb限额了要不试试华子的CodeArts，新账号4000积分，每天登陆和
 华子给的积分是多，他之后每天登录可以领1000积分，我很快就1W点积分了，不过他的问题是，他并发只有2，反 ...</blockquote>
 这个是反代插件的bug，你让大肥鱼给你修一下加上会话头就不会卡并发数了
 
+
+*****
+
+####  游公子  
+##### 18829#       发表于 2026-10-30 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446175&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-10-30 22:03</a>
+
+70块的积分太少了吧，签到送的不充钱也能领，我是主用gpt plus没额度了用workbuddy签到的补充 ...</blockquote>
+那是你主用gpt。
+
+如果你主用wb，不充值是没法用的，因为它有限额。
+
+随便搞个任务就告诉你到限额了，等24小时吧。
+
+有积分也没用，除非你拿去烧k3。
+
+充值会员就没限制了。
+
+所以要么充值用wb，要么充值外国货。
+
+单纯靠免费积分，是无法把wb作为主力的。
+
+*****
+
+####  unrealMeeSeeks  
+##### 18830#       发表于 2026-10-30 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446057&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-30 21:31</a>
+如果暂时不考虑签到送的积分
+
+WorkBuddy的70元订阅 vs OpenCode Go的10美元订阅（价格刚好差不多）
+
+哪家性价 ...</blockquote>
+OCG看着额度还挺多的，我的用量用满能有10b，但很怀疑能不能用完。tps真的慢，还经常卡首字，开关梯子都差不多。肯定不续了
+<img src="https://p.sda1.dev/35/560f0828ded5ce463fda84063b8e155d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aimbot  
+##### 18831#       发表于 2026-10-30 22:34
+
+ 本帖最后由 aimbot 于 2026-10-30 22:38 编辑 
+
+plus额度砍成这鸟样，tps还慢的像乌龟
+
+穷哥们想整点啥项目还是日抛号+wb反代耍起吧
+
+什么都不懂想研究角色渲染，几家模型试了下来，还是sol high好用一点。
+
+用renderdoc做开卷考试，第一版渲染效果出来只吃掉5小时额度50%
+
+不过后面微调就费劲了
+
+*****
+
+####  andychen  
+##### 18832#       发表于 2026-10-30 22:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">是我便宜token羊毛撸太多吗，我觉得opencode go的ds4f稳定在100t/s以上速度还行啊
+
+*****
+
+####  bartholo4  
+##### 18833#       发表于 2026-10-30 22:54
+
+真的价格敏感 还是找个中转的DeepSeek来用吧
+
+*****
+
+####  洛拉斯  
+##### 18834#       发表于 2026-10-30 23:12
+
+真价格敏感学我啊，2个不同电脑上的wb输出到同一个工作区，然后让dsh统筹工作
+
+3个ai群伺候我一个人，我还只用花一分钱！
+
+*****
+
+####  绯色日照  
+##### 18835#       发表于 2026-10-30 23:17
+
+请教大佬，kimi自己的桌面版里，work和chat到底用哪个开项目好？对标workbuddy的话。我看chat里才有记忆和个性化等功能，work里的好像不构成其记忆？<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  phorcys02  
+##### 18836#       发表于 2026-10-30 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446352&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-10-30 22:54</a>
+
+真的价格敏感 还是找个中转的DeepSeek来用吧</blockquote>
+现在市面上有 自称官转的 deepseek
+
+一般大概0.3x 倍率
+
+一般都是扫key的灰产，能用但基本都不稳定
+
+当然判断是不是灰产也很简单，首token延迟/速度/智力 ，分辨还是很容易的
+
+*****
+
+####  平昭·南宫司卿  
+##### 18837#       发表于 2026-10-30 23:54
+
+ 本帖最后由 平昭·南宫司卿 于 2026-10-30 23:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446150&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-10-30 21:55</a>
+
+【喵了个猫了个咪了个猫的个人空间-哔哩哔哩】 
+
+有人看这个博主的小游戏算法斗蛐蛐视频吗 ...</blockquote>
+这期 p2 好几局没拿到 p1 去讲太可惜了。gpt 队过于碾压了，实际对局比全胜还要逆天。ds 和 haiku 组队能摆大巴，互相对局要么中圈对狙要么三维弹球，互刷进球太有节目效果，看了能不笑的也是神人了
+
+*****
+
+####  此誓的守望  
+##### 18838#       发表于 2026-10-30 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446057&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-30 21:31</a>
+
+如果暂时不考虑签到送的积分
+
+WorkBuddy的70元订阅 vs OpenCode Go的10美元订阅（价格刚好差不多）
+
+哪家性价 ...</blockquote>
+如果只用df41并且先不考虑封号风险的话，WB订阅是目前最强的而且恐怕没有之一<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pure_liquid  
+##### 18839#       发表于 2026-10-31 00:13
+
+<blockquote>洛拉斯 发表于 2026-10-30 23:12
+真价格敏感学我啊，2个不同电脑上的wb输出到同一个工作区，然后让dsh统筹工作
+
+3个ai群伺候我一个人，我还 ...</blockquote>
+WorkBuddy的账号要绑定手机号，多开是怎么做到的？
+
+*****
+
+####  pure_liquid  
+##### 18840#       发表于 2026-10-31 00:17
+
+<blockquote>此誓的守望 发表于 2026-10-30 23:57
+如果只用df41并且先不考虑封号风险的话，WB订阅是目前最强的而且恐怕没有之一 ...</blockquote>
+不反代的话应该没有封号的风险吧
+
+其实我一直不了解大家为什么普遍喜欢把WorkBuddy的积分反代出来用
+
+它的本体的harness是有什么坑吗？
+
+
+*****
+
+####  med  
+##### 18841#       发表于 2026-10-31 00:23
+
+在qoder上改返修论文，测试了astra和kimi两款旗舰模型，积分上kimi大概是astra的一半。
+
+但是整体消耗都太夸张了，都快dsf的50-100倍率了。
+
+周末自己改改再评估一下质量
+
+*****
+
+####  aimbot  
+##### 18842#       发表于 2026-10-31 00:31
+
+<blockquote>pure_liquid 发表于 2026-10-31 00:17
+不反代的话应该没有封号的风险吧
+
+其实我一直不了解大家为什么普遍喜欢把WorkBuddy的积分反代出来用
+</blockquote>
+腾讯系软件通病，喜欢在c盘拉屎
+
+*****
+
+####  lactone  
+##### 18843#       发表于 2026-10-31 01:00
+
+ 本帖最后由 lactone 于 2026-10-31 01:07 编辑 
+
+我查了一下百度建立ai研究院比openai成立还早，而且那个时代毫无算力封锁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+百度最近的产品是五月份的文心5.1，主打一个搜索能力国模第一，然后就没有然后了
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cankao  
+##### 18844#       发表于 2026-10-31 01:01
+
+wb限额了要不试试华子的CodeArts，新账号4000积分，每天登陆和wb一样领100积分，这几天上线ds4.1f 1017
+
+*****
+
+####  Sacross  
+##### 18845#       发表于 2026-10-31 01:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446727&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-31 01:00</a>
+
+我查了一下百度建立ai研究院比openai成立还早，而且那个时代毫无算力封锁
+
+百度最近的产品是五月份的文心5. ...</blockquote>
+百度的ai研究院应该和腾讯的优图实验室一个定位，那会儿的ai一般都是指的深度学习那套，大多数都属于优化模型啥的， 那个节点也证明了深度学习无脑堆层数只会导致模型退化，transform架构和openai证明之前没有大型资方能认可大力出奇迹的
+
+如果说是现在帖子里说的llm这种ai，国内的所有公司起步都很晚，基本都是gpt时刻之后，23年开始出产品，已经是矿潮时代到制裁时代中间点了
+
+*****
+
+####  startraveller  
+##### 18846#       发表于 2026-10-31 01:32
+
+Command Code的X也发了个DeepSeek，难道真的有大的
+
+*****
+
+####  andychen  
+##### 18847#       发表于 2026-10-31 02:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446057&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-30 21:31</a>
+如果暂时不考虑签到送的积分
+
+WorkBuddy的70元订阅 vs OpenCode Go的10美元订阅（价格刚好差不多）
+
+哪家性价 ...</blockquote>
+wb能用的模型比较多，并且额度都还行。但是接到其他用途需要反代，随时可能被封
+
+oc现在光用ds4.1f应该是最牛的套餐，今天开始给100刀额度了。不过其他模型用量很有限，基本上就是df4.1f专用套餐。另外他们提供的是正经api接入点，拿去随便干啥都没事
+
+*****
+
+####  lambl  
+##### 18848#       发表于 2026-10-31 03:00
+
+ 本帖最后由 lambl 于 2026-10-31 03:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446730&amp;ptid=2275806" target="_blank">cankao 发表于 2026-10-31 01:01</a>
+
+wb限额了要不试试华子的CodeArts，新账号4000积分，每天登陆和wb一样领100积分，这几天上线ds4.1f 1017
+
+ ...</blockquote>
+华子给的积分是多，他之后每天登录可以领1000积分，我很快就1W点积分了，不过他的问题是，他并发只有2，反代的话，很容易就出错，然后最关键的是，他的DS4.1F居然是瞎子，不支持读图。说到白嫖积分，trae的积分也是可以的，而且也是1017，
+
+*****
+
+####  qwased  
+##### 18849#       发表于 2026-10-31 03:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446887&amp;ptid=2275806" target="_blank">lambl 发表于 2026-10-31 03:00</a>
+
+华子给的积分是多，他之后每天登录可以领1000积分，我很快就1W点积分了，不过他的问题是，他并发只有2，反 ...</blockquote>
+这个是反代插件的bug，你让大肥鱼给你修一下加上会话头就不会卡并发数了
+
+*****
+
+####  cscbzcbz  
+##### 18850#       发表于 2026-10-31 06:06
+
+opencodego的4.1f变成10刀换100刀了<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
