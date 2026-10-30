@@ -46,3 +46,14 @@
 昨天看到小黑盒上有人玩到了逆向破解移植到PC上的版本
 https://www.xiaoheihe.cn/bbs/post_share?link_id=5bb372b7df4a
 
+
+*****
+
+####  ナルバレック  
+##### 1649#       发表于 2026-10-30 22:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70441909&amp;ptid=1980597" target="_blank">岸波白野 发表于 2026-10-30 00:46</a>
+
+明年mb还有点新剧情已经能烧高香了</blockquote>
+MB新剧情号称量和一部GAL等量
+
