@@ -11803,3 +11803,13 @@ dsf直接1:1对标6.1sol还是不行吧
 
 workbuddy高性价比是要靠签到这些凑积分的 全靠订阅的积分并不划算<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  StrangerJ  
+##### 18779#       发表于 2026-10-30 16:51
+
+你们用astra max 一般tps多少
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
