@@ -12279,3 +12279,18 @@ plus额度砍成这鸟样，tps还慢的像乌龟
 有人看这个博主的小游戏算法斗蛐蛐视频吗 ...</blockquote>
 这期 p2 好几局没拿到 p1 去讲太可惜了。gpt 队过于碾压了，实际对局比全胜还要逆天。ds 和 haiku 组队能摆大巴，互相对局要么中圈对狙要么三维弹球，互刷进球太有节目效果了
 
+
+*****
+
+####  此誓的守望  
+##### 18817#       发表于 2026-10-30 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446057&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-30 21:31</a>
+
+如果暂时不考虑签到送的积分
+
+WorkBuddy的70元订阅 vs OpenCode Go的10美元订阅（价格刚好差不多）
+
+哪家性价 ...</blockquote>
+如果只用df41并且先不考虑封号风险的话，WB订阅是目前最强的而且恐怕没有之一<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
