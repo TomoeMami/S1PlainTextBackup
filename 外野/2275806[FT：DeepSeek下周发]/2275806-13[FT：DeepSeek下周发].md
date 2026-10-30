@@ -12045,3 +12045,11 @@ dsh呢….一直读屏幕我感觉我的套餐可能撑不住…</blockquote>
 
 [https://developer.chrome.com/doc ... to-connect?hl=zh-cn](https://developer.chrome.com/docs/devtools/agents/use-cases/auto-connect?hl=zh-cn)
 
+
+*****
+
+####  Promeus  
+##### 18799#       发表于 2026-10-30 20:06
+
+没有中期选举楼就放这吧，中期选举民调现在基本都预测民主党会取得51到53的大胜一举控制两院，而美国ai产业大概率要吃两党双打<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
