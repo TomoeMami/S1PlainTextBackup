@@ -12345,3 +12345,22 @@ WorkBuddy的账号要绑定手机号，多开是怎么做到的？
 </blockquote>
 腾讯系软件通病，喜欢在c盘拉屎
 
+
+*****
+
+####  lactone  
+##### 18822#       发表于 2026-10-31 01:00
+
+我查了一下百度建立ai研究院比openai成立还早，而且那个时代毫无算力封锁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+百度最近的产品是文心5.1，主打一个搜索能力国模第一，然后就没有然后了
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cankao  
+##### 18823#       发表于 2026-10-31 01:01
+
+wb限额了要不试试华子的CodeArts，新账号4000积分，每天登陆和wb一样领100积分，这几天上线ds4.1f 1017
+
