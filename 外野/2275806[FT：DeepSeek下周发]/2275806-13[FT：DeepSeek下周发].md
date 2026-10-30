@@ -11545,3 +11545,60 @@ api加外审，公众checkpoint不刻意训练网安只靠泛化获得能力提�
 
 kimi3.1pro 的网安跑分又不低，该泛化还是能泛化出来的。加个甲又不难破，感觉就是糊弄
 
+
+*****
+
+####  neptunehs  
+##### 18757#       发表于 2026-10-30 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444498&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-30 14:57</a>
+kimi3.1pro 的网安跑分又不低，该泛化还是能泛化出来的。加个甲又不难破，感觉就是糊弄 ...</blockquote>
+就是不知道到底是加甲 还是在训练的时候抽层嘛
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  紧那罗  
+##### 18758#       发表于 2026-10-30 15:02
+
+<img src="https://img.stage1st.com/forum/202610/30/150237c1r169r003xhk9hh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (446.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-30 15:02 上传
+
+没怎么玩过gpt出图，这样对吗
+
+
+*****
+
+####  mitzvah  
+##### 18759#       发表于 2026-10-30 15:04
+
+做消融手术模型要变弱智的，像oss120那样加甲最后还不是被heretic给全破了。
+
+
+*****
+
+####  qwased  
+##### 18760#       发表于 2026-10-30 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444533&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-10-30 15:04</a>
+
+做消融手术模型要变弱智的，像oss120那样加甲最后还不是被heretic给全破了。</blockquote>
+不可能直接修权重的，后训练加强安全对齐拒答再加个外审就极限了，不然能力要烂完
+
+
+*****
+
+####  小野賢章  
+##### 18761#       发表于 2026-10-30 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443146&amp;ptid=2275806" target="_blank">lily-black 发表于 2026-10-30 10:39</a>
+
+那如果我想让模型帮我统计文档里面的内容 进行汇总的话呢？有些资料不太想在网上处理 ...</blockquote>
+让大模型帮你写代码，代码里面调用本地的小模型，数据不上网，这个很成熟了。之前就有人让ds翻译，然后它自己下载了qwen来翻译。
+
