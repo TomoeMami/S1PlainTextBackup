@@ -11900,3 +11900,39 @@ grok4.8这个参数量应该跑分也不会太差
 
 —— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lactone  
+##### 18787#       发表于 2026-10-30 17:48
+
+就马老板这种人都说这么谦虚的话了，感觉4.8可能不太好
+
+不过马老板自己之前也说，目标是4.9赶上astra和fable，还不急<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lactone  
+##### 18788#       发表于 2026-10-30 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70445127&amp;ptid=2275806" target="_blank">qwased 发表于 2026-10-30 17:21</a>
+ds网页端崩了快两个小时了，只是上个cyber模型不至于吧</blockquote>
+我这里网页端能用啊
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  startraveller  
+##### 18789#       发表于 2026-10-30 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70445266&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-30 17:48</a>
+
+就马老板这种人都说这么谦虚的话了，感觉4.8可能不太好
+
+不过马老板自己之前也说，目标是4.9赶上astra和fab ...</blockquote>
+不过侧面的舅舅党都说比4.7好很多什么的，不知道了，等出来看看。 
+
