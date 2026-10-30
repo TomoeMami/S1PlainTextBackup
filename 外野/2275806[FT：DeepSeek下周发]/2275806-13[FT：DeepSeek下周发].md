@@ -11135,3 +11135,17 @@ openai送的api额度有什么好的用途吗？用来coding有点亏吧</blockq
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  BarricadeMKXX  
+##### 18720#       发表于 2026-10-30 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70442572&amp;ptid=2275806" target="_blank">Litccc 发表于 2026-10-30 09:00</a>
+ds5仓库有两个分支，一个open一个next，open应该是砍掉安全权重开放给大众的那个
+
+论坛助手,iPhone ...</blockquote>
+你说的是dsh仓库那个吗，如果是的话，测试代码随便编个名字不是第一次了
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
