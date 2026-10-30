@@ -11443,3 +11443,16 @@ qwen4 27b和flash还没声音啊，预告都发过两次了</blockquote>
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zzy516232108  
+##### 18747#       发表于 2026-10-30 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443275&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-10-30 11:04</a>
+
+gpt呢，快来出图
+
+——来自 2410DPN6CC 上的 S1er 客户端</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等订GPT的朋友过来出图了
+
