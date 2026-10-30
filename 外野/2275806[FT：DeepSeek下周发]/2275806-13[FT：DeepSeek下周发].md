@@ -11431,3 +11431,15 @@ pro那个传言官方人员已辟谣，还是大概率下个月发
 
 qwen4 27b和flash还没声音啊，预告都发过两次了
 
+
+*****
+
+####  lactone  
+##### 18746#       发表于 2026-10-30 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443967&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-10-30 12:59</a>
+qwen4 27b和flash还没声音啊，预告都发过两次了</blockquote>
+昨天阿里开会说下周，打了个标有max plus和27b
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
