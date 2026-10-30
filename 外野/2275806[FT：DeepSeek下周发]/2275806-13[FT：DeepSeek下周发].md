@@ -12249,3 +12249,20 @@ plus额度砍成这鸟样，tps还慢的像乌龟
 
 请教大佬，kimi自己的桌面版里，work和chat到底用哪个开项目好？对标workbuddy的话。我看chat里才有记忆和个性化等功能，work里的好像不构成其记忆？<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  phorcys02  
+##### 18815#       发表于 2026-10-30 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446352&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-10-30 22:54</a>
+
+真的价格敏感 还是找个中转的DeepSeek来用吧</blockquote>
+现在市面上有 自称官转的 deepseek
+
+一般大概0.3x 倍率
+
+一般都是扫key的灰产，能用但基本都不稳定
+
+当然判断是不是灰产也很简单，首token延迟/速度/智力 ，分辨还是很容易的
+
