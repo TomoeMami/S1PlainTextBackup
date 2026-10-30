@@ -11456,3 +11456,54 @@ gpt呢，快来出图
 ——来自 2410DPN6CC 上的 S1er 客户端</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等订GPT的朋友过来出图了
 
+
+*****
+
+####  Promeus  
+##### 18748#       发表于 2026-10-30 14:19
+
+现在看来开源模型要砍掉安全能力会是新规了，这么看4.1p和qwen4甚至k3.1都是因为这个晚发的？<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 18749#       发表于 2026-10-30 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444312&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-30 14:19</a>
+现在看来开源模型要砍掉安全能力会是新规了，这么看4.1p和qwen4甚至k3.1都是因为这个晚发的？ ...</blockquote>
+这个应该是和ykw谈的结果吧
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18750#       发表于 2026-10-30 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444323&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-30 14:21</a>
+这个应该是和ykw谈的结果吧</blockquote>
+更有可能是网安这方面RL做完之后其他性能下降太多，只能凑合点儿找个挽尊说法。月之暗面总不能说虽然比K3提升很大，但是还没比得过肥鱼1017吧？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  拯救节操希灵宅  
+##### 18751#       发表于 2026-10-30 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444312&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-10-30 14:19</a>
+
+现在看来开源模型要砍掉安全能力会是新规了，这么看4.1p和qwen4甚至k3.1都是因为这个晚发的？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">AI的网安进攻能力太强了，现在还是传统黑客带着ai四处放火，不做点防范的话很快就要有流窜AI了
+
+
+*****
+
+####  Promeus  
+##### 18752#       发表于 2026-10-30 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444323&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-30 14:21</a>
+这个应该是和ykw谈的结果吧</blockquote>
+也不止，韩国银行让仨ai捅了是真实发生的
+
