@@ -11722,3 +11722,22 @@ https://mp.weixin.qq.com/s/lAHG4dO3-EbqHijWWuCEVg
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  phorcys02  
+##### 18774#       发表于 2026-10-30 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443214&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-10-30 10:50</a>
+
+很明显我说的是pro……plus各方面原因用着会很难受
+
+不过不是重度编程用不到pro这个量就是了 ...</blockquote>
+我理解你说的是pro订阅 配合现在一月重置 七八次，如果当黑奴24h蹬，astra也能蹬出15b/月来
+
+6.1sol有希望蹬30-40b， ds官网40b flash 得近2000元了，所以你觉得划算
+
+但还是我上面说的，无论ocg/ccg/workbuddy, 如果花pro20x的价格，大概有超过200B的 1017可用
+
+这已经不太可能个人用的完了...
+
