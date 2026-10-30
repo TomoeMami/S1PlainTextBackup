@@ -11741,3 +11741,29 @@ https://mp.weixin.qq.com/s/lAHG4dO3-EbqHijWWuCEVg
 
 这已经不太可能个人用的完了...
 
+
+*****
+
+####  qwased  
+##### 18775#       发表于 2026-10-30 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444817&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-10-30 16:12</a>
+
+我理解你说的是pro订阅 配合现在一月重置 七八次，如果当黑奴24h蹬，astra也能蹬出15b/月来
+
+6.1sol有希望 ...</blockquote>
+41flash的能力边界还是不如6.1sol的，而且astra出方案给肥鱼做比肥鱼自己想半天要好得多
+
+虽然很少需要这么高的能力
+
+*****
+
+####  lactone  
+##### 18776#       发表于 2026-10-30 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444607&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-10-30 15:19</a>
+老马在预告Grok 4.8了……</blockquote>
+我看他x上的发言都是宣传grok bot的，没看到4.8
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
