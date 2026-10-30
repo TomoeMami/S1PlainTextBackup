@@ -12387,3 +12387,19 @@ wb限额了要不试试华子的CodeArts，新账号4000积分，每天登陆和
 
 Command Code的X也发了个DeepSeek，难道真的有大的
 
+
+*****
+
+####  andychen  
+##### 18826#       发表于 2026-10-31 02:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446057&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-30 21:31</a>
+如果暂时不考虑签到送的积分
+
+WorkBuddy的70元订阅 vs OpenCode Go的10美元订阅（价格刚好差不多）
+
+哪家性价 ...</blockquote>
+wb能用的模型比较多，并且额度都还行。但是接到其他用途需要反代，随时可能被封
+
+oc现在光用ds4.1f应该是最牛的套餐，今天开始给100刀额度了。不过其他模型用量很有限，基本上就是df4.1f专用套餐。另外他们提供的是正经api接入点，拿去随便干啥都没事
+
