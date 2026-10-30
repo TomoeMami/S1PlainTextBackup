@@ -11268,3 +11268,27 @@ gpt呢，快来出图
 —— 来自 samsung SM-S9480, Android 16, 鹅球 v4.0</blockquote>
 求大佬指点一个大概的思路M— —M
 
+
+*****
+
+####  umamusume  
+##### 18731#       发表于 2026-10-30 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443285&amp;ptid=2275806" target="_blank">lily-black 发表于 2026-10-30 11:05</a>
+求大佬指点一个大概的思路M— —M</blockquote>
+做一个工具，统计xx文件夹内的文档内容并进行分析。
+
+如果你觉得他设计的不好，可以问大参数的臭鸡蛋模型：我需要本地模型处理一堆敏感文档，要求是xxxx，给他写个制作处理工具的任务书
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  qz66618  
+##### 18732#       发表于 2026-10-30 11:15
+
+pro那个传言官方人员已辟谣，还是大概率下个月发<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
