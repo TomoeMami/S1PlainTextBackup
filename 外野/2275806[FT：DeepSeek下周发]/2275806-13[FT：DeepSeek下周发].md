@@ -12011,3 +12011,24 @@ dsh呢….一直读屏幕我感觉我的套餐可能撑不住…
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  吴怀在  
+##### 18796#       发表于 2026-10-30 18:19
+
+Codex 的问题是有些网站不让用，比如说淘宝。原因我真的是不知道，求大佬解惑。
+
+所以我就直接让它操作我的 iPhone 镜像<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  unrealMeeSeeks  
+##### 18797#       发表于 2026-10-30 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70445365&amp;ptid=2275806" target="_blank">小川彩 发表于 2026-10-30 18:10</a>
+codex可以用computer use我试试
+dsh呢….一直读屏幕我感觉我的套餐可能撑不住…</blockquote>
+用mcp就行吧，我所有的agent都用的这个，可以访问我已打开网页或新开标签页，读取或者填写网页内容
+<img src="https://p.sda1.dev/35/e05f7418f7b4a210d3da661efe786f2f/image.jpg" referrerpolicy="no-referrer">
+
