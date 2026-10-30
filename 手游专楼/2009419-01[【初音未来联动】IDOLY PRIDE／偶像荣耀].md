@@ -90,3 +90,15 @@ wds入坑的アイプラ
 
 <img src="https://static.stage1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Londemon  
+##### 850#       发表于 2026-10-30 23:09
+
+看了下勤怠表，过去一年竟然就少了两天登录
+
+哎……
+
+不过离线版给的挺大方的，也算是慰藉吧。就是感觉得搞个完整的包出来，再指望ai给加加工了。
+
