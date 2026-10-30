@@ -11347,3 +11347,31 @@ dsh到0.2.1 rc5啦？
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 18738#       发表于 2026-10-30 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443374&amp;ptid=2275806" target="_blank">lily-black 发表于 2026-10-30 11:17</a>
+
+16g内存 5060ti16g 这种的话 有没有推荐的小模型？哪怕处理起来慢一点也行</blockquote>
+[https://github.com/iamwavecut/ninfer-all](https://github.com/iamwavecut/ninfer-all)  推理框架用这个
+
+[https://www.modelscope.cn/models ... -GSQ-RCO-GGUF/files](https://www.modelscope.cn/models/ISTA-DASLab/Qwen3.8-27B-GSQ-RCO-GGUF/files)  模型用这个，IQ3S MTP+视觉文件
+
+整个部署过程你让肥鱼帮你弄好就行了，给他这两个链接以及告诉他所有编译、依赖、模型转换格式、参数如何调优之类的都在软件文档里面有，让他自己部署好最终交付给你一个一键启动bat
+
+
+*****
+
+####  startraveller  
+##### 18739#       发表于 2026-10-30 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443352&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-10-30 11:15</a>
+
+pro那个传言官方人员已辟谣，还是大概率下个月发
+
+—— 来自 鹅球 v3.5.99</blockquote>
+后天不就下个月了
+
