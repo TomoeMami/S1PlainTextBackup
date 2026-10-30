@@ -10497,3 +10497,11 @@ IMG_0509.jpeg
 主角之间其实还好吧，直接送礼吃饭再重新开始章节嘛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 最后拿到的那个幽法丝的画像感觉就是拿来干这个的…
 
+
+*****
+
+####  5ew47  
+##### 8394#       发表于 2026-10-30 22:07
+
+刚刚在刷支援的时候发现米妈和穆的对话居然是锁在和巴西初音的A对话后面，居然还是连续剧<img src="https://static.stage1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">，又是IS的小巧思
+

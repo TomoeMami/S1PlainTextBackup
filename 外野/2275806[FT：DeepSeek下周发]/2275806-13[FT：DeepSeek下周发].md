@@ -12118,3 +12118,52 @@ ai时代，没啥必要有黏性，哪家好，随时换。
 [【喵了个猫了个咪了个猫的个人空间-哔哩哔哩】 ](https://b23.tv/TivZJtE)
 有人看这个博主的小游戏算法斗蛐蛐视频吗
 
+
+*****
+
+####  phorcys02  
+##### 18805#       发表于 2026-10-30 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446057&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-30 21:31</a>
+
+如果暂时不考虑签到送的积分
+
+WorkBuddy的70元订阅 vs OpenCode Go的10美元订阅（价格刚好差不多）
+
+哪家性价 ...</blockquote>
+纯谷，基本都是7-8B之间。
+
+但workbuddy有送的积分，那一下子就多出来好多了
+
+我的workbuddy, 3600分多点，现在5.67B,没有特意区分峰谷。如果全谷4000分能接近8B
+
+ocg/ccg 基本一个key 月限就是8B左右，周限4B左右。
+
+*****
+
+####  很久就在那边l  
+##### 18806#       发表于 2026-10-30 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446146&amp;ptid=2275806" target="_blank">游公子 发表于 2026-10-30 21:54</a>
+我是WorkBuddy的70元订阅。
+
+WorkBuddy的好处是，他会有一些新模型免费测试，包括hy4晚上的免费额度，虽 ...</blockquote>
+70块的积分太少了吧，签到送的不充钱也能领，我是主用gpt plus没额度了用workbuddy签到的补充
+
+
+*****
+
+####  tillnight  
+##### 18807#       发表于 2026-10-30 22:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446057&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-30 21:31</a>
+
+如果暂时不考虑签到送的积分
+
+WorkBuddy的70元订阅 vs OpenCode Go的10美元订阅（价格刚好差不多）
+
+哪家性价 ...</blockquote>
+不算签到opencode额度多，算了wb略多。
+
+但是这里不止有额度问题，还有很大的复杂性，wb的反代存在一定风险性，Opencode没有。但opencode的自部署明显辣鸡，智力这种有体感差异的不谈，tps明显低一档，首token巨大延迟（不排除国内网络原因，但是总之是使用体验，意味着实际任务时间会明显更久），缓存也比官key和wb的源低（99%比95~97%）。两者都有提示词注入，但是oc更严重，疑似注入了让模型不要太努力的提示词。总的来看，目前我个人会更倾向于使用体验更接近官方的wb，但按月订阅就行，反正哪天不行了再换就是。
+
