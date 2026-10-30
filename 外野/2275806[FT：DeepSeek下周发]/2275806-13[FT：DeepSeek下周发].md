@@ -12294,3 +12294,29 @@ WorkBuddy的70元订阅 vs OpenCode Go的10美元订阅（价格刚好差不多�
 哪家性价 ...</blockquote>
 如果只用df41并且先不考虑封号风险的话，WB订阅是目前最强的而且恐怕没有之一<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pure_liquid  
+##### 18818#       发表于 2026-10-31 00:13
+
+<blockquote>洛拉斯 发表于 2026-10-30 23:12
+真价格敏感学我啊，2个不同电脑上的wb输出到同一个工作区，然后让dsh统筹工作
+
+3个ai群伺候我一个人，我还 ...</blockquote>
+WorkBuddy的账号要绑定手机号，多开是怎么做到的？
+
+
+*****
+
+####  pure_liquid  
+##### 18819#       发表于 2026-10-31 00:17
+
+<blockquote>此誓的守望 发表于 2026-10-30 23:57
+如果只用df41并且先不考虑封号风险的话，WB订阅是目前最强的而且恐怕没有之一 ...</blockquote>
+不反代的话应该没有封号的风险吧
+
+其实我一直不了解大家为什么普遍喜欢把WorkBuddy的积分反代出来用
+
+它的本体的harness是有什么坑吗？
+
