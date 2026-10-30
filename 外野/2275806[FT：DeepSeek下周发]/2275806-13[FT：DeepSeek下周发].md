@@ -11415,3 +11415,11 @@ pro那个传言官方人员已辟谣，还是大概率下个月发
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  love4aids  
+##### 18744#       发表于 2026-10-30 12:56
+
+咦，codexpro200订阅额度增加了？我早上起来看到剩余的额度增加了，是不是容量翻倍，以后不重置了，这样来看总体额度还是降了。<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
