@@ -13352,3 +13352,18 @@ super-agent需要一个更强的模型，4.1Pro出来前很难做到
 
 怎么一股始皇收天下兵器，铸十二金人的感觉。
 
+
+*****
+
+####  游公子  
+##### 18900#       发表于 2026-11-1 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450577&amp;ptid=2275806" target="_blank">宅男的爱 发表于 2026-11-1 00:21</a>
+
+？啊？真的？能用6.0Astra和6.1Sol吗？</blockquote>
+据说有。
+
+但只能谷歌账号、x等登录。
+
+好处是可以微信充值。
+
