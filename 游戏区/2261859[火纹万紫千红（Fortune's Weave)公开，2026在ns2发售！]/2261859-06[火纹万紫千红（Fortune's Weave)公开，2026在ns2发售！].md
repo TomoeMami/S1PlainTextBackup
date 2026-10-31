@@ -10554,3 +10554,11 @@ IMG_0509.jpeg
 出战人数是有限的，是不是就练几个人就行了，还是轮流出战尽量把所有人都拉到进阶职业？ ...</blockquote>
 最多就25人，多了没啥意义
 
+
+*****
+
+####  -マユ‐  
+##### 8401#       发表于 2026-10-31 11:52
+
+终于通关了，笑死没有好好请客吃饭差不多全员单身，经常一块出击凑成的几对也很抽象，我选了神官双人结局居然不是好结局，什么叫我转世了但是你一生在给我前世修庙<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/35/e3c800db6eae6b985bbe9820699713ae/image.jpg" referrerpolicy="no-referrer">
+
