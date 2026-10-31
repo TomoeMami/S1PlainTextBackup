@@ -197,3 +197,25 @@
 今年非洲人出的5星数量就连萌新的3分之1也没了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">但是豹豹几千上万石 萌新0石啊
 
+
+*****
+
+####  森兰丸  
+##### 21731#       发表于 2026-10-31 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449770&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-10-31 20:48</a>
+
+但是豹豹几千上万石 萌新0石啊</blockquote>
+这萌新又在尴黑了....非洲人的石头数量可从来没超过3000过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 21732#       发表于 2026-10-31 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449891&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-10-31 21:18</a>
+
+这萌新又在尴黑了....非洲人的石头数量可从来没超过3000过</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但萌新不超过3 3000够豹豹出30个5星了！
+

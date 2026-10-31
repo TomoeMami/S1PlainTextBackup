@@ -13005,3 +13005,17 @@ o家plus最近会发重置卡吗，快瞪没了。<img src="https://static.stage
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  紧那罗  
+##### 18874#       发表于 2026-10-31 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449775&amp;ptid=2275806" target="_blank">なるぼど 发表于 2026-10-31 20:50</a>
+o家plus最近会发重置卡吗，快瞪没了。
+
+—— 来自 S1Fun</blockquote>
+好像后面两天都是重置卡
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
