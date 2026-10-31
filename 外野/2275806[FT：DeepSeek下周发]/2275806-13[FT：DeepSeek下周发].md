@@ -13068,3 +13068,39 @@ dsh-superagent-prototype : https://mp.weixin.qq.com/s/zoS7GlReWPhfCjENGxXCdg</bl
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lactone  
+##### 18879#       发表于 2026-10-31 22:21
+
+不过这个和很多人习惯反过来吧
+
+干活要用大模，编排要用小模
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  bartholo4  
+##### 18880#       发表于 2026-10-31 22:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450013&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-10-31 21:52</a>
+
+你的意思是用dsh改wb
+
+还是让wb自己开对话改自己？</blockquote>
+我是用的GPT改
+
+DSH应该也没问题
+
+
+*****
+
+####  noneoneone  
+##### 18881#       发表于 2026-10-31 22:23
+
+token价格再降下去，迟早有数不清的AI一天24小时不停歇的在网络上游荡了吧。
+
+设想了一下有无数个agent在执行这个命令：去所有网站搜索我需要的资料，如果哪个网站不能访问就留个子agent尝试破解它。
+
