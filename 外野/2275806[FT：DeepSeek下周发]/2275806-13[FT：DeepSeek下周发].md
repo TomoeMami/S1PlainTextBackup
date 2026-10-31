@@ -12879,3 +12879,13 @@ Rex，Ghostty 作者（OSC 7501的发起者）的新出的类似 herdr 的 termi
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  zhongjie  
+##### 18863#       发表于 2026-10-31 18:41
+
+期待ollama的套餐也多点额度吧
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
