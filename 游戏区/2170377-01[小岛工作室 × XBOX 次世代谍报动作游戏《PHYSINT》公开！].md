@@ -2601,3 +2601,12 @@ https://mp.weixin.qq.com/s ...</blockquote>
 
 这楼每次被顶上来就以为是xbox也砍了小岛呢
 
+
+*****
+
+####  Piano-Forest  
+##### 239#         楼主| 发表于 2026-11-1 00:01
+
+<img src="https://p.sda1.dev/35/de965fdbb53be6b8198110b5ba4d6812/HV8ZKZfboAAdmV-.jpg" referrerpolicy="no-referrer">">
+<img src="https://p.sda1.dev/35/9bf169b707fd3c57319b48a0fd2c21ce/HV8ZKNYbMAAHc9T.jpg" referrerpolicy="no-referrer">
+
