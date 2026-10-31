@@ -12728,3 +12728,19 @@ ocg蹬不完不至于，我13号开始订阅，只用4.1f，到今天已经用�
 
 另外，ollama背后是哪家呢？大家的评价怎么样？
 
+
+*****
+
+####  neptunehs  
+##### 18853#       发表于 2026-10-31 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448922&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-31 16:43</a>
+关于楼上上说的对比各家ds f4.1
+
+今天各家营销号都在用完全相同的文案发这张图</blockquote>
+ollama就是ollama 算是最早的一批云api 虽然他的本地部署更有名
+
+opendesign说是比ocg还不稳定 还有人用了Swe vwrified测试 官方api ollama ocg（这人因为被cc老板骂了拒绝测试ccgoat）的通过率都是正负1 只有火山这家低不少 虽然我觉得也是误差啦。。。 而且因为只算峰价确实比ocg贵的样子
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
