@@ -13317,3 +13317,38 @@ ollama的旧版其实还可以，光跑ds4.1能跑差不多一个月100亿，搞
 
 super-agent需要一个更强的模型，4.1Pro出来前很难做到
 
+
+*****
+
+####  游公子  
+##### 18896#       发表于 2026-11-1 00:18
+
+说来WorkBuddy国际版可以用除了克劳德的外国货们啊，值得充个值不。
+
+
+*****
+
+####  Promeus  
+##### 18897#       发表于 2026-11-1 00:21
+
+拿出superagent，4.1p就是刚需了，快点一起端上来吧，已经等不及了
+
+*****
+
+####  宅男的爱  
+##### 18898#       发表于 2026-11-1 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450568&amp;ptid=2275806" target="_blank">游公子 发表于 2026-11-1 00:18</a>
+
+说来WorkBuddy国际版可以用除了克劳德的外国货们啊，值得充个值不。</blockquote>
+？啊？真的？能用6.0Astra和6.1Sol吗？
+
+*****
+
+####  夜游宫  
+##### 18899#       发表于 2026-11-1 00:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">​OpenAI CEO说普通人电脑里的内存是浪费，不如集合起来造数据中心。
+
+怎么一股始皇收天下兵器，铸十二金人的感觉。
+
