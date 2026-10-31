@@ -549,3 +549,14 @@ IMG_4715.jpeg
 
 2026-10-31 15:29 上传
 
+
+*****
+
+####  nice女武神  
+##### 46#       发表于 2026-10-31 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448047&amp;ptid=2292922" target="_blank">希德尼娅 发表于 2026-10-31 12:25</a>
+
+遗产税总不可能超过继承的遗产吧</blockquote>
+不是你拿到遗产后交税  是交完税后拿遗产
+

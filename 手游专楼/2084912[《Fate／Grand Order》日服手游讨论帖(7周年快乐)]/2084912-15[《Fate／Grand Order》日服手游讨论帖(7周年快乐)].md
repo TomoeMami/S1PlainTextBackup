@@ -184,3 +184,16 @@
 
 萌新越来越过分了
 
+
+*****
+
+####  alucardcz  
+##### 21730#       发表于 2026-10-31 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449634&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-10-31 20:03</a>
+
+去年非洲人1年出的5星数量只有萌新的一半还不到
+
+今年非洲人出的5星数量就连萌新的3分之1也没了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">但是豹豹几千上万石 萌新0石啊
+
