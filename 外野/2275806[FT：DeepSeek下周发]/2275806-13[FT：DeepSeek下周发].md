@@ -12949,3 +12949,14 @@ WorkBuddy被我拷问了两天。它说自己被调较的就是用最快的方�
 
 不是说其实是DS的权重吗？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 18869#       发表于 2026-10-31 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449572&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-10-31 19:46</a>
+
+不是说其实是DS的权重吗？</blockquote>
+Amazon Bedrock上没有DS的权重吧
+

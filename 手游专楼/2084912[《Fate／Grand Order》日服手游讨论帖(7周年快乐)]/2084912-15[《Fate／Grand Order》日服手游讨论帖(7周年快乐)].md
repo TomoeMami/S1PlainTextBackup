@@ -158,3 +158,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这不送个限定五星
 
+
+*****
+
+####  alucardcz  
+##### 21728#       发表于 2026-10-31 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449303&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-10-31 18:25</a>
+
+我要杀了你</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">但是萌新再次all in 老福 结果又寄了  来来回回 肯定超过保底了
+
