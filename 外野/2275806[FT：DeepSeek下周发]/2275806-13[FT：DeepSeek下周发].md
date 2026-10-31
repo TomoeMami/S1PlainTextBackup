@@ -13104,3 +13104,11 @@ token价格再降下去，迟早有数不清的AI一天24小时不停歇的在�
 
 设想了一下有无数个agent在执行这个命令：去所有网站搜索我需要的资料，如果哪个网站不能访问就留个子agent尝试破解它。
 
+
+*****
+
+####  wly5556  
+##### 18882#       发表于 2026-10-31 22:36
+
+这super-agent文章里面的IM交互越读越眼熟，一翻代码绷不住了，飞书真该给dsh团队广告费吧<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
