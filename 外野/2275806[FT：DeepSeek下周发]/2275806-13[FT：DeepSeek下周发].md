@@ -12768,3 +12768,40 @@ opendesign说是比ocg还不稳定 还有人用了Swe vwrified测试 官方api o
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  断片集  
+##### 18856#       发表于 2026-10-31 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448548&amp;ptid=2275806" target="_blank">匿名用户 发表于 2026-10-31 14:50</a>
+
+坛友有什么 ADE 推荐吗，或者一些好的 ADE 使用方法可以分享的。
+
+最近试了一些管 harness 的 harness，还 ...</blockquote>
+可以机器上用herdr,然后手机上用moshi这种支持herdr的终端吧
+
+
+*****
+
+####  smiths146  
+##### 18857#       发表于 2026-10-31 17:41
+
+[https://newsletter.semianalysis.com/p/huawei-deepseek](https://newsletter.semianalysis.com/p/huawei-deepseek)  转一个网址，结论各自下吧
+
+*****
+
+####  hugosol  
+##### 18858#       发表于 2026-10-31 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448548&amp;ptid=2275806" target="_blank">匿名用户 发表于 2026-10-31 14:50</a>
+
+坛友有什么 ADE 推荐吗，或者一些好的 ADE 使用方法可以分享的。
+
+最近试了一些管 harness 的 harness，还 ...</blockquote>
+herdr有很多手机客户端呀，直接moshi用ssh连过去也可以
+
+也有web端，比如这个我在用：[https://github.com/devswha/ovis](https://github.com/devswha/ovis)
+
+不过感觉这些花里胡哨的玩意很难有完全符合自己习惯的，我希望能有个扩展性好一点，要是有个像dsh和pi那样把底座搭好让我自己扩展的web端就好了
+

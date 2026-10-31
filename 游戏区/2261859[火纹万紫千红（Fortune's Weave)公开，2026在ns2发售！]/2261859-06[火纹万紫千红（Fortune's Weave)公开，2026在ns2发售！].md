@@ -10625,3 +10625,13 @@ IMG_0509.jpeg
 
 话说这种支援语音好少，结婚语音也没有，也太偷懒了
 
+
+*****
+
+####  5ew47  
+##### 8406#       发表于 2026-10-31 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70447934&amp;ptid=2261859" target="_blank">-マユ‐ 发表于 2026-10-31 11:52</a>
+终于通关了，笑死没有好好请客吃饭差不多全员单身，经常一块出击凑成的几对也很抽象，我选了神官双人结局居 ...</blockquote>
+我也是选了索菲亚，结果这渣救世主居然留她独守空庙<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
