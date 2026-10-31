@@ -6252,3 +6252,11 @@ dlc要出也简单手游不是大把
 
 2026了，还有没抗锯齿的游戏，SE神了
 
+
+*****
+
+####  X9999  
+##### 588#       发表于 2026-10-31 12:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">专家难度50级去龙之鄂遇到3只冬贝利太恐怖了，伤害太高直接被菜刀一刀剁死。。
+
