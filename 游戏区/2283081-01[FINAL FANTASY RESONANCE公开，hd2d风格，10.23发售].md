@@ -6283,3 +6283,16 @@ dlc要出也简单手游不是大把
 
 这游戏有必要打专家难度吗？
 
+
+*****
+
+####  requiem116  
+##### 591#       发表于 2026-10-31 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448768&amp;ptid=2283081" target="_blank">大喇叭花田 发表于 2026-10-31 15:57</a>
+
+这游戏有必要打专家难度吗？</blockquote>
+我觉得其实没啥必要<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+打的很累，基本上也就是调高了数值没啥别的变化
+

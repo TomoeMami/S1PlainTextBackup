@@ -2663,3 +2663,13 @@ UC后期和其他异界高达独眼机体非常之少
 
 左右脑互搏起来了
 
+
+*****
+
+####  jackyhuang  
+##### 4942#       发表于 2026-10-31 17:19
+
+没办法轻松12000的原因是没有第三台红高达，太搞了吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
