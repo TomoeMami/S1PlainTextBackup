@@ -627,3 +627,11 @@ IMG_4715.jpeg
 
 <img src="https://img.stage1st.com/forum/202611/01/011010kd9qsdsqg45tdsib.jpg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" title="111.jpg" w="1080" width="800" zoomfile="https://img.stage1st.com/forum/202611/01/011010kd9qsdsqg45tdsib.jpg">
 
+
+*****
+
+####  逆袭的黑月  
+##### 53#       发表于 2026-11-1 01:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">鸟山明的房子都要拆了吗，这留着开个博物馆不好吗
+
