@@ -10603,3 +10603,15 @@ IMG_0509.jpeg
 虽然我挺喜欢薇欧拉这种臭**角色的，但是猫猫头这种真的圣女配上这种让**头和鸡儿一起硬的声线就有点难受
 当然这是我自己的问题
 
+
+*****
+
+####  Humpy  
+##### 8404#       发表于 2026-10-31 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448466&amp;ptid=2261859" target="_blank">32767 发表于 2026-10-31 14:21</a>
+猫猫头的声线和薇欧拉的营业声线太像了
+
+虽然我挺喜欢薇欧拉这种臭绿茶婊角色的，但是猫猫头这种真的圣女 ...</blockquote>
+没看那个动画的我就可以单纯享受这个呆萌大小姐声线了<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
