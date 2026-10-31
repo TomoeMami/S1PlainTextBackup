@@ -4673,3 +4673,71 @@ X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
 #AveMujica#</blockquote>
        [https://www.bilibili.com/video/BV1JAxF6aEbM](https://www.bilibili.com/video/BV1JAxF6aEbM)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42182#       发表于 2026-10-31 09:39
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/31/093913gnnicoi6girkzot5.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-31_09-37-31.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 09:39 上传
+
+       [https://x.com/bang_dream_info/status/2116138050602578199](https://x.com/bang_dream_info/status/2116138050602578199)
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/31/093912d5zbnnzf7wk0w773.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-31_09-38-29.png</strong> (485.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 09:39 上传
+
+       [https://t.bilibili.com/1265007596845137925](https://t.bilibili.com/1265007596845137925)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42183#       发表于 2026-10-31 09:40
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/31/094037m8kkiltvznx8ldh3.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-31_09-39-38.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 09:40 上传
+
+       [https://x.com/bang_dream_info/status/2116334342062612902](https://x.com/bang_dream_info/status/2116334342062612902)
+
+       [https://www.summersonic.com/news/2026-09-14-53720](https://www.summersonic.com/news/2026-09-14-53720)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42184#       发表于 2026-10-31 09:43
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/31/094305qe2xvp7oas4s46no.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-31_09-41-20.png</strong> (598.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 09:43 上传
+
+       [https://x.com/bang_dream_info/status/2116343175539524038](https://x.com/bang_dream_info/status/2116343175539524038)
+
