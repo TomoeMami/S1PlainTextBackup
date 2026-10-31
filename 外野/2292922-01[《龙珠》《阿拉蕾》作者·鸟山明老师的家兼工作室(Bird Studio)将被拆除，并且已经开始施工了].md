@@ -635,3 +635,11 @@ IMG_4715.jpeg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">鸟山明的房子都要拆了吗，这留着开个博物馆不好吗
 
+
+*****
+
+####  BLTUS  
+##### 54#       发表于 2026-11-1 01:54
+
+由良站/北荣町这种在鸟不生蛋的鸟取的鬼地方都靠着柯南IP狗着，清须这地方大概离名古屋近瞧不上观光生意？
+
