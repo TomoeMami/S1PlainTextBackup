@@ -12960,3 +12960,14 @@ WorkBuddy被我拷问了两天。它说自己被调较的就是用最快的方�
 不是说其实是DS的权重吗？</blockquote>
 Amazon Bedrock上没有DS的权重吧
 
+
+*****
+
+####  squallx2  
+##### 18870#       发表于 2026-10-31 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448680&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-31 15:29</a>
+
+老马的X全家桶可以用支付宝了，grok要加油啊，多个选择也好。</blockquote>
+还有首冲30刀3个月吗 有的话看在grokbot的面子上到时还行
+

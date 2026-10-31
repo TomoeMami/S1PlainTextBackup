@@ -2681,3 +2681,16 @@ UC后期和其他异界高达独眼机体非常之少
 
 这波独立世界观加强铁血外传那个UR是最大赢家吧，tag从佣兵扩展到铁血系都可以，各种颜色的巴巴托斯实在太多了，有MP被动有爆气技能超一击基本算是送的
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 4944#       发表于 2026-10-31 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70434618&amp;ptid=2071758" target="_blank">arthes 发表于 2026-10-28 16:27</a>
+
+我怀疑制作组是铁杆鸭粉
+
+这到底第几个鸭子了</blockquote>
+总帅卖相好啊
+
