@@ -235,3 +235,65 @@
 
 我们要全球实装一位角色
 
+
+*****
+
+####  alucardcz  
+##### 21735#       发表于 2026-10-31 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449634&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-10-31 20:03</a>
+
+去年非洲人1年出的5星数量只有萌新的一半还不到
+
+今年非洲人出的5星数量就连萌新的3分之1也没了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">但是豹豹几千上万石 萌新0石啊
+
+*****
+
+####  森兰丸  
+##### 21736#       发表于 2026-10-31 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449770&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-10-31 20:48</a>
+
+但是豹豹几千上万石 萌新0石啊</blockquote>
+这萌新又在尴黑了....非洲人的石头数量可从来没超过3000过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21737#       发表于 2026-10-31 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449891&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-10-31 21:18</a>
+
+这萌新又在尴黑了....非洲人的石头数量可从来没超过3000过</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但萌新不超过3 3000够豹豹出30个5星了！
+
+*****
+
+####  blue321  
+##### 21738#       发表于 2026-10-31 21:53
+
+全球一亿下载直播，应该会免费送五星吧
+
+*****
+
+####  rzxa  
+##### 21739#       发表于 2026-11-1 01:03
+
+我们要全球实装一位角色
+
+*****
+
+####  v22325  
+##### 21740#       发表于 2026-11-1 06:24
+
+<img src="https://img.stage1st.com/forum/202611/01/062432pm1epw7fcpbzapec.jpg" referrerpolicy="no-referrer">
+
+<strong>1000038394.jpg</strong> (309.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-1 06:24 上传
+
+新一个月的呼符终于出了
+
