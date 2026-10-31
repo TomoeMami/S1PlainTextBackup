@@ -610,3 +610,20 @@ IMG_4715.jpeg
 日本人自恨严重，90 年代对阿宅群体大肆迫害，扣上犯罪预备军的帽子大肆迫害霸凌，日本人能把这文化传承到 ...</blockquote>
 麻生应该不用据说，这人喜欢看漫画
 
+
+*****
+
+####  牛仔很忙  
+##### 52#         楼主| 发表于 2026-11-1 01:11
+
+政府印章拆除通知
+
+111.jpg
+(136.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-1 01:10 上传
+
+<img src="https://img.stage1st.com/forum/202611/01/011010kd9qsdsqg45tdsib.jpg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" title="111.jpg" w="1080" width="800" zoomfile="https://img.stage1st.com/forum/202611/01/011010kd9qsdsqg45tdsib.jpg">
+
