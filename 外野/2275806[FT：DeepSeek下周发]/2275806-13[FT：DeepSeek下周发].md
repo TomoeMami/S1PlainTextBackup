@@ -13027,3 +13027,31 @@ o家plus最近会发重置卡吗，快瞪没了。
 
 dsh-superagent-prototype : [https://mp.weixin.qq.com/s/zoS7GlReWPhfCjENGxXCdg](https://mp.weixin.qq.com/s/zoS7GlReWPhfCjENGxXCdg)
 
+
+*****
+
+####  洛拉斯  
+##### 18876#       发表于 2026-10-31 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449743&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-10-31 20:39</a>
+
+workbuddy用另一个agent给他做下瘦身
+
+特别是提示词部分，列出来，自己不满意的该删删，太复杂的再压缩
+
+我现 ...</blockquote>
+你的意思是用dsh改wb
+
+还是让wb自己开对话改自己？
+
+
+*****
+
+####  andychen  
+##### 18877#       发表于 2026-10-31 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449956&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-10-31 21:38</a>
+
+dsh-superagent-prototype : https://mp.weixin.qq.com/s/zoS7GlReWPhfCjENGxXCdg</blockquote>
+这东西我也设想过，但是实在太费token了，不是我这种个人能折腾的
+
