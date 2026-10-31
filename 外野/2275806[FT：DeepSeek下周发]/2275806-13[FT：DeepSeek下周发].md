@@ -13223,3 +13223,63 @@ Jev现在有免费的可以蹭，所以我不黑他
 
 我自己折腾开发流程的时候让ai搓了个按依赖树推进的流程，发现代码量意外地不是很多，问了一下agent它说其实就是看有空闲槽位就推进，并不需要像我们常规写状态机一样写一堆流转条件，我一听简直醍醐灌顶<img src="https://static.stage1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛拉斯  
+##### 18892#       发表于 2026-10-31 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450150&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-10-31 22:22</a>
+
+我是用的GPT改
+
+DSH应该也没问题</blockquote>
+
+我还没改，让DSH写了个分析报告 <blockquote>7. 精简方案
+
+动作        涉及段        现值        目标        节省
+
+工具 + 交付规则合一        result_presentation + sharing_files + final_answer + tool_use + tool_usage_policy        6,699        1,200        5,499
+
+删 agent_loop        agent_loop        1,208        150        1,058
+
+task_management 去示例        task_management        2,331        500        1,831
+
+personal_files_safety 压到一句话        同左        2,268        280        1,988
+
+windows_command_safety 压到两条        同左        1,075        220        855
+
+Visualizer 合并示例        instructions_for_visualizer + visualizer_examples        5,079        2,600        2,479
+
+automations 规则移入 schema        automations        3,169        400        2,769
+
+mcp_configuration 移入 skill        同左        1,175        0        1,175
+
+agent_skills 压成 3 行        同左        1,725        400        1,325
+
+产品名去装饰        全篇 19 处        —        —        ~300
+
+合计节省 19,279 字符，主模板 30,633 → 约 11,400（-63%）。
+
+只做三件事的版本（最小改动、收益最大）：
+
+工具与交付规则合一（-5,499）
+
+删 agent_loop + task_management 示例（-2,889）
+
+两段安全下沉（-2,843）
+
+→ 30,633 → 19,400（-37%），且不损失任何实际约束力。
+
+8. 结论
+
+WorkBuddy 的提示词是"营销文案式"写法：把产品需求（交付、可视化、自动化、MCP、技能）逐条翻译成段落，逐条加强调词，导致同一件事反复出现。它的问题不是覆盖不全，而是覆盖了四遍。
+
+真正的过度防御集中在两段：personal_files_safety 与 windows_command_safety。这两段解决的是工程问题（路径安全、参数校验、可回滚），却交给了模型自我审查，既不可靠，也把正常任务拦在门外。
+
+DSH 的对照价值在于：策略陈述（是什么）+ 代码强制（做不到就是做不到）+ 工具契约（怎么调），提示词只保留"当前状态"和"边界"，不写"永远不要"。
+
+若 WorkBuddy 要瘦身：先合并重复，再下沉安全，最后拆模板。三步之后体量可降一半，行为质量不会下降，反而因为关键指令不再被淹没而提升。</blockquote>
+
+改wb的内容的话会不会导致一些政策风险，比如封号什么的？
+
