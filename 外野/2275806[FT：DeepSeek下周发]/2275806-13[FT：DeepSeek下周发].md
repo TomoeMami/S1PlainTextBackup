@@ -12702,3 +12702,29 @@ ocg蹬不完不至于，我13号开始订阅，只用4.1f，到今天已经用�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  pure_liquid  
+##### 18852#       发表于 2026-10-31 16:43
+
+ 本帖最后由 pure_liquid 于 2026-10-31 16:45 编辑 
+
+<img src="https://img.stage1st.com/forum/202610/31/164045r0m5ekf5nk14u1k1.jpg" referrerpolicy="no-referrer">
+
+<strong>HV7GW7XbgAAnj0E.jpg</strong> (200.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 16:40 上传
+
+关于楼上上说的对比各家ds f4.1
+
+今天各家营销号都在用完全相同的文案发这张图
+
+看了楼上上才知道，原来opendesign背后是火山？
+
+请问这家具体有哪些缺点呢？
+
+另外，ollama背后是哪家呢？大家的评价怎么样？
+
