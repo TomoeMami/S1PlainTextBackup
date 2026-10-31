@@ -71,3 +71,16 @@
 
 越想越气，什么时候把换皮开被动改成0克己也能开，对非洲人有点不友好了<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 950#       发表于 2026-11-1 01:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450550&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2026-11-1 00:13</a>
+
+越想越气，什么时候把换皮开被动改成0克己也能开，对非洲人有点不友好了</blockquote>
+这不马上要开第二次英雄战域了，可以拿幻影水银升
+
+说到这个，你游暗属性人才济济，火属性却囊括了家暴男男娘法黄毛武士三大豪杰，虽然角色数量仅次于暗，但角色质量是否有点<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
