@@ -13296,3 +13296,16 @@ DSH 的对照价值在于：策略陈述（是什么）+ 代码强制（做不�
 今天各家营销号都在用完全相同的文案发这张图</blockquote>
 ollama的旧版其实还可以，光跑ds4.1能跑差不多一个月100亿，搞得我都不敢停订阅
 
+
+*****
+
+####  千秋难诉  
+##### 18894#       发表于 2026-10-31 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450282&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-31 22:56</a>
+
+没说上下文是多大？
+
+如果是256K的话，记得OpenCode上就有免费版，不过不清楚有没有API可以拿出来用 ...</blockquote>
+这个我试了一下，确实256k上下文，好处是有API
+

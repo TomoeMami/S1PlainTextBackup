@@ -118,3 +118,14 @@ wds入坑的アイプラ
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">QA可以专心做管人了
 
+
+*****
+
+####  Ferrari  
+##### 853#       发表于 2026-10-31 23:35
+
+挺好的 IP也算是QA的登龙门了
+让大家见识到3d偶像手游建模和演出的上限是什么样，然后自己也能靠学马holo一飞冲天
+
+唉 一个有着死人声优给死人角色配音的游戏终于也要死了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

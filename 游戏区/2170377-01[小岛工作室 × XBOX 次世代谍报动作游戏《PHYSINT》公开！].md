@@ -2583,3 +2583,13 @@ https://mp.weixin.qq.com/s ...</blockquote>
 <img src="https://p.sda1.dev/35/cb4a474d7ffc069218f788ad3698770d/HV8YvhpaoAAXTnI.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/35/c6b0153a2621d5e6d45faee208a32c2b/HV4LQtcaEAA3bvy.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 237#       发表于 2026-10-31 23:32
+
+这形似mg的是……
+
+—— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -39,3 +39,27 @@
 四只睡法SP 一个生命 一个力量 一个普通 一个灵巧
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这次二周年抽的拉跨完了
 
+
+*****
+
+####  茄子自走炮  
+##### 948#       发表于 2026-10-31 23:35
+
+<img src="https://img.stage1st.com/forum/202610/31/233430fzancblrkbak0zan.jpg" referrerpolicy="no-referrer">
+
+<strong>20261031233249.jpg</strong> (12.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202610/31/233435anfkadkfnn32khgh.jpg" referrerpolicy="no-referrer">
+
+<strong>20261031233310.jpg</strong> (22.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 23:34 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">依旧一＃0个 杀了我
+
