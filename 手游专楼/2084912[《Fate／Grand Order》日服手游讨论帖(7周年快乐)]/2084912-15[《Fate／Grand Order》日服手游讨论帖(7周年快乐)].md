@@ -63,3 +63,25 @@
 只用了一个月五星出货率就比我一年都高的很久吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尬黑了 看了看今年也没出几个
 
+
+*****
+
+####  qixinno1  
+##### 21720#       发表于 2026-10-31 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448468&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-10-31 14:22</a>
+
+尬黑了 看了看今年也没出几个</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">随便二宝哈利 随便单抽泳装四个五星集齐是吧
+
+
+*****
+
+####  alucardcz  
+##### 21721#       发表于 2026-10-31 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448504&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-10-31 14:34</a>
+
+随便二宝哈利 随便单抽泳装四个五星集齐是吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">尬黑了 上半年这不是才出了2个5星
+
