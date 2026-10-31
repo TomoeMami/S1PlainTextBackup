@@ -10562,3 +10562,29 @@ IMG_0509.jpeg
 
 终于通关了，笑死没有好好请客吃饭差不多全员单身，经常一块出击凑成的几对也很抽象，我选了神官双人结局居然不是好结局，什么叫我转世了但是你一生在给我前世修庙<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/35/e3c800db6eae6b985bbe9820699713ae/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Humpy  
+##### 8402#       发表于 2026-10-31 13:34
+
+画了欧露赫露，但是万圣夜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然我不知道万紫千红在FEH里第一个超英雄换皮会是谁，但我觉得欧露赫露真的很适合万圣夜主题，于是画了万圣节木乃伊装扮的欧露赫露。
+
+真的很喜欢猫神官这个角色，无论是声音还是性格都很对我胃口，DLC快出吧，我想要快点和欧露赫露因给急<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+自从膝盖伤后难以久坐，很长时间都没动笔画画，手都生了，不过养病期间倒是看了不少别人的绘画视频解腻，这次正好拿来当复健和尝试新画法。
+
+担心万圣节前画不完，于是一些地方的细节没太抠，缩小了看能对付过去就行……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+听说有个国人画师很喜欢在作品里加奶龙，我也试试<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/31/133358d99ymptfsvg2yvpm.jpg" referrerpolicy="no-referrer">
+
+<strong>orchel.jpg</strong> (587.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 13:33 上传
+
