@@ -12754,3 +12754,17 @@ opendesign说是比ocg还不稳定 还有人用了Swe vwrified测试 官方api o
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  云卷花开  
+##### 18855#       发表于 2026-10-31 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449058&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-31 17:22</a>
+这两天为啥国内国外的服务提供商都在宣传deepseek的廉价订阅？是不是ds真的换新机房了？
+
+—— 来自 vivo V ...</blockquote>
+也包括上游的其他部署商在 dsinfer 的加持下降本抢市场吧，反正 v4.1 的需求巨大，降本增量总是赚的
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
