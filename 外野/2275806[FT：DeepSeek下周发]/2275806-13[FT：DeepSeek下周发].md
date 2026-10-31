@@ -12981,3 +12981,17 @@ Amazon Bedrock上没有DS的权重吧
 Amazon Bedrock上没有DS的权重吧</blockquote>
 意思是那个人诈骗拿着ds的权重分片说是fable<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bartholo4  
+##### 18872#       发表于 2026-10-31 20:39
+
+workbuddy用另一个agent给他做下瘦身
+
+特别是提示词部分，列出来，自己不满意的该删删，太复杂的再压缩
+
+我现在甚至给它加了fork功能
+
+它的搜索功能还是能出很多别家搜不到的内容
+
