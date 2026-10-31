@@ -4741,3 +4741,41 @@ X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
 
        [https://x.com/bang_dream_info/status/2116343175539524038](https://x.com/bang_dream_info/status/2116343175539524038)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42185#       发表于 2026-10-31 20:03
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/31/200334ow2xwl6ldp8hl6p6.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-31_20-02-35.png</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 20:03 上传
+
+       [https://x.com/bang_dream_info/status/2116455149652812211](https://x.com/bang_dream_info/status/2116455149652812211)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42186#       发表于 2026-10-31 20:05
+
+       
+
+<img src="https://img.stage1st.com/forum/202610/31/200550wbpg29si8goyi99z.png" referrerpolicy="no-referrer">
+
+<strong>2026-10-31_20-04-34.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 20:05 上传
+
+       [https://x.com/bang_dream_info/status/2116455150160372120](https://x.com/bang_dream_info/status/2116455150160372120)
+
+       [https://www3.nhk.or.jp/nhkworld/ ... type=tvEpisode&amp;](https://www3.nhk.or.jp/nhkworld/en/shows/j-melo/?type=tvEpisode&amp;)
+

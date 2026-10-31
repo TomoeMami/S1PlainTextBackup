@@ -169,3 +169,18 @@
 我要杀了你</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">但是萌新再次all in 老福 结果又寄了  来来回回 肯定超过保底了
 
+
+*****
+
+####  森兰丸  
+##### 21729#       发表于 2026-10-31 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449046&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-10-31 17:19</a>
+
+数了数 6月前确实只出了2个5星  6月后也就出了12个 还是太非！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">去年非洲人1年出的5星数量只有萌新的一半还不到
+
+今年非洲人出的5星数量就连萌新的3分之1也没了
+
+萌新越来越过分了
+
