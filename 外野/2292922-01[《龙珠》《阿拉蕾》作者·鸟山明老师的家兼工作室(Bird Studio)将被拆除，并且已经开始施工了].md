@@ -599,3 +599,14 @@ IMG_4715.jpeg
 —— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99</blockquote>
 故居放中间当博物馆，外面围着搞个主题公园？
 
+
+*****
+
+####  longmarch5  
+##### 51#       发表于 2026-10-31 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448269&amp;ptid=2292922" target="_blank">泥鳅 发表于 2026-10-31 13:29</a>
+
+日本人自恨严重，90 年代对阿宅群体大肆迫害，扣上犯罪预备军的帽子大肆迫害霸凌，日本人能把这文化传承到 ...</blockquote>
+麻生应该不用据说，这人喜欢看漫画
+
