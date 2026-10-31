@@ -13055,3 +13055,16 @@ workbuddy用另一个agent给他做下瘦身
 dsh-superagent-prototype : https://mp.weixin.qq.com/s/zoS7GlReWPhfCjENGxXCdg</blockquote>
 这东西我也设想过，但是实在太费token了，不是我这种个人能折腾的
 
+
+*****
+
+####  lactone  
+##### 18878#       发表于 2026-10-31 22:03
+
+最近有个好玩的项目叫qwenputer，在qwen前面用层数构造了一个risc-v cpu
+
+我在想engram相当于把记忆独立
+啥时候能把计算和直觉也独立出来，大模型只负责推理，别的用别的模型弄
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

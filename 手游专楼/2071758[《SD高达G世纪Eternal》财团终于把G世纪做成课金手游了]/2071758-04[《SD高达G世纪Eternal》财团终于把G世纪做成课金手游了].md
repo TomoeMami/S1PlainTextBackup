@@ -2694,3 +2694,11 @@ UC后期和其他异界高达独眼机体非常之少
 这到底第几个鸭子了</blockquote>
 总帅卖相好啊
 
+
+*****
+
+####  blue321  
+##### 4945#       发表于 2026-10-31 22:01
+
+看到个满突V2AB单机突破1W1的特务，原来售后在这里<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
