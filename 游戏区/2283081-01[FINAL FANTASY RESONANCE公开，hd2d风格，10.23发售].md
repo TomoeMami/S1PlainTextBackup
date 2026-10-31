@@ -6240,3 +6240,15 @@ dlc要出也简单手游不是大把
 发现很多boss主要还是吃机制，比如一阶段打完血条但还没轮到boss行动，再打就是0伤害，到boss行动了说几句话再触发二阶段，再打才能扣血，这个机制在近10年的ff里很明显。
 不像竞技场boss，没有二阶段，哪怕欧米加都能一直扣血直接轮死
 
+
+*****
+
+####  catabridge  
+##### 587#       发表于 2026-10-31 11:31
+
+[https://www.nexusmods.com/finalfantasyresonance/mods/119](https://www.nexusmods.com/finalfantasyresonance/mods/119) 
+
+终于有抗锯齿mod了
+
+2026了，还有没抗锯齿的游戏，SE神了
+
