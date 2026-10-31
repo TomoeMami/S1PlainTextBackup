@@ -12971,3 +12971,13 @@ Amazon Bedrock上没有DS的权重吧
 老马的X全家桶可以用支付宝了，grok要加油啊，多个选择也好。</blockquote>
 还有首冲30刀3个月吗 有的话看在grokbot的面子上到时还行
 
+
+*****
+
+####  qwased  
+##### 18871#       发表于 2026-10-31 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449623&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-31 19:56</a>
+Amazon Bedrock上没有DS的权重吧</blockquote>
+意思是那个人诈骗拿着ds的权重分片说是fable<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
