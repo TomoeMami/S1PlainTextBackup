@@ -505,3 +505,13 @@ IMG_4715.jpeg
 </blockquote>
 这种基本的创作者居然不是编辑在门口蹲着？
 
+
+*****
+
+####  jackyhuang  
+##### 42#       发表于 2026-10-31 15:05
+
+有句讲句为了鸟山明交稿专门修公路本来就是谣言吧
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
