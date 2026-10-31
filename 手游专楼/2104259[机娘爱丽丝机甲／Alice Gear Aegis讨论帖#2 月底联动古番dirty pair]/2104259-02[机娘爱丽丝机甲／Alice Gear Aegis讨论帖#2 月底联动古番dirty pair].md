@@ -87,3 +87,19 @@ clash的话开服务模式+tun模式就能进dmm开pc版了，岛风go也可以�
 
 道芹菜是强，但SP做得这么拉也太过分了。另外盘子有没啥好技能？
 
+
+*****
+
+####  madcow  
+##### 2164#       发表于 2026-10-31 18:30
+
+神必细节之VESPER明明是三星BU但是图标用的四星？？
+
+<img src="https://img.stage1st.com/forum/202610/31/182928tcuhlmj1uv0v1lul.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20261031182854.jpg</strong> (229.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 18:29 上传
+

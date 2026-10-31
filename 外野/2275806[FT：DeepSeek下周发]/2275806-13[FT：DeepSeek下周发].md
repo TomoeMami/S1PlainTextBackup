@@ -12826,3 +12826,56 @@ herdr手机上选个ssh应用连上就能用。
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  moekyo  
+##### 18861#       发表于 2026-10-31 18:31
+
+你们不知道 herdr 出了 app 了吗 [https://herdr.dev/](https://herdr.dev/)
+
+<img src="https://img.stage1st.com/forum/202610/31/175911os8k65x6l6l668zv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (294.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 17:59 上传
+
+还有最近挺火的这两个
+
+Tern，omp 作者新出的终端？基本思路和 omp 一样，All in one，基本你能想到的功能都有。目前需要申请下载：[https://stencil.so/tern#top](https://stencil.so/tern#top)
+
+<img src="https://img.stage1st.com/forum/202610/31/180226l8z8e87eecje288z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (541.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 18:02 上传
+
+Rex，Ghostty 作者（OSC 7501的发起者）的新出的类似 herdr 的 terminal multiplexer（这个中文叫啥），有 iOS 的 testflight，也是需要加入 waitlist，这个前天才拿到，和 Tern 相比，克制很多，具体还要再用用，不过质量肯定有保障，毕竟基于 libghostty 写的终端如雨后春笋般地长了出来。waitlist：[https://www.superlogical.com/](https://www.superlogical.com/)
+
+<img src="https://img.stage1st.com/forum/202610/31/183232bkvt9ykxy6voo0io.png" referrerpolicy="no-referrer">
+
+<strong>s1p-paste-1793442752543.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 18:32 上传
+
+不知道现在还有多少人在用 iTerm2<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  体制  
+##### 18862#       发表于 2026-10-31 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446615&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-31 00:17</a>
+不反代的话应该没有封号的风险吧
+
+其实我一直不了解大家为什么普遍喜欢把WorkBuddy的积分反代出来用</blockquote>
+拉屎、给自家产品打广告
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
