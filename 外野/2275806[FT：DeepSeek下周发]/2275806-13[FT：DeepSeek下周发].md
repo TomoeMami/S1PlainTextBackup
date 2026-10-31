@@ -12889,3 +12889,30 @@ Rex，Ghostty 作者（OSC 7501的发起者）的新出的类似 herdr 的 termi
 
 —— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  松开的鞋带  
+##### 18864#       发表于 2026-10-31 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70444751&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-10-30 15:53</a>
+
+我现在用的 Qwen3.8-27B-6bit</blockquote>
+我用的Flash-Next IQ3_XXS，3.8-27B我用起来token一秒就10个……
+
+脑壳疼又找不到更好的
+
+*****
+
+####  松开的鞋带  
+##### 18865#       发表于 2026-10-31 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446146&amp;ptid=2275806" target="_blank">游公子 发表于 2026-10-30 21:54</a>
+
+我是WorkBuddy的70元订阅。
+
+WorkBuddy的好处是，他会有一些新模型免费测试，包括hy4晚上的免费额度，虽 ...</blockquote>
+WorkBuddy被我拷问了两天。它说自己被调较的就是用最快的方式回答出一个看起来差不多的答案。
+
+然后……它确实是这样的。然后我就放弃了。
+
