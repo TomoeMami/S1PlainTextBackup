@@ -52,3 +52,14 @@
 尬黑了 很久没出过货了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">只用了一个月五星出货率就比我一年都高的很久吗
 
+
+*****
+
+####  alucardcz  
+##### 21719#       发表于 2026-10-31 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448448&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-10-31 14:15</a>
+
+只用了一个月五星出货率就比我一年都高的很久吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尬黑了 看了看今年也没出几个
+
