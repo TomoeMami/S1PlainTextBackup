@@ -586,3 +586,16 @@ IMG_4715.jpeg
 
 —— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  redivan  
+##### 50#       发表于 2026-10-31 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70447334&amp;ptid=2292922" target="_blank">真贝尔奈普斯 发表于 2026-10-31 09:27</a>
+
+不能直接改博物馆？
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99</blockquote>
+故居放中间当博物馆，外面围着搞个主题公园？
+

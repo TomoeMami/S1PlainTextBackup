@@ -13112,3 +13112,104 @@ token价格再降下去，迟早有数不清的AI一天24小时不停歇的在�
 
 这super-agent文章里面的IM交互越读越眼熟，一翻代码绷不住了，飞书真该给dsh团队广告费吧<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千秋难诉  
+##### 18883#       发表于 2026-10-31 22:44
+
+这个便宜可以占吗
+
+<img src="https://img.stage1st.com/forum/202610/31/224432g0ac0tzdp0miikp0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 22:44 上传
+
+*****
+
+####  一般市民  
+##### 18884#       发表于 2026-10-31 22:47
+
+小大的大模也有检查点漏出了，11月感觉波澜壮阔啊，集体围攻A/吗？<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 18885#       发表于 2026-10-31 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450147&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-31 22:21</a>
+
+不过这个和很多人习惯反过来吧
+
+干活要用大模，编排要用小模</blockquote>
+我对这个设计的思考有两方面
+
+1.DS作为模型公司，关于模型性能的未来预期比我们这些外部观察人士更准确。DS的设计人员可能已经清楚更高能力的模型在未来能以合理的成本大规模提供服务
+
+2.Router角色很适合使用Decision Model+代码程序化控制实现。虽然现在Decision Model没有之前那么火了，不过我一致认为它的潜在应用场景很宽广
+
+
+*****
+
+####  lactone  
+##### 18886#       发表于 2026-10-31 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450264&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-31 22:52</a>
+我对这个设计的思考有两方面
+
+1.DS作为模型公司，关于模型性能的未来预期比我们这些外部观察人士更准确。 ...</blockquote>
+我不反对jev之类的有应用价值，我只是认为这玩意儿没有壁垒，所以jev不开源活不下去
+
+dllm也是一样的
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  andychen  
+##### 18887#       发表于 2026-10-31 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450274&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-31 22:54</a>
+
+我不反对jev之类的有应用价值，我只是认为这玩意儿没有壁垒，所以jev不开源活不下去
+
+dllm也是一样的</blockquote>
+Jev现在有免费的可以蹭，所以我不黑他<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然花钱也花不到几个钱就是了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pure_liquid  
+##### 18888#       发表于 2026-10-31 22:56
+
+<blockquote>千秋难诉 发表于 2026-10-31 22:44
+这个便宜可以占吗</blockquote>
+没说上下文是多大？
+
+如果是256K的话，记得OpenCode上就有免费版，不过不清楚有没有API可以拿出来用
+
+*****
+
+####  烤鱼饼  
+##### 18889#       发表于 2026-10-31 22:56
+
+super-agent现实面对的最大的问题应该是微信不支持吧
+
+*****
+
+####  lactone  
+##### 18890#       发表于 2026-10-31 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450281&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-31 22:56</a>
+Jev现在有免费的可以蹭，所以我不黑他
+
+虽然花钱也花不到几个钱就是了</blockquote>
+我是觉得这个场景jev这种未必够，dllm可能合理一些，但是dllm调用agent能力又不行
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
