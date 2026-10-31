@@ -13283,3 +13283,16 @@ DSH 的对照价值在于：策略陈述（是什么）+ 代码强制（做不�
 
 改wb的内容的话会不会导致一些政策风险，比如封号什么的？
 
+
+*****
+
+####  hplovecraft  
+##### 18893#       发表于 2026-10-31 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70448922&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-31 16:43</a>
+
+关于楼上上说的对比各家ds f4.1
+
+今天各家营销号都在用完全相同的文案发这张图</blockquote>
+ollama的旧版其实还可以，光跑ds4.1能跑差不多一个月100亿，搞得我都不敢停订阅
+
