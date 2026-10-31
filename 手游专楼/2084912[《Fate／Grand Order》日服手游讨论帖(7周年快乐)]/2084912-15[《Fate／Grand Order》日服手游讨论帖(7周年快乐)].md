@@ -115,3 +115,14 @@
 其他也没啥出</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">数了数 6月前确实只出了2个5星  6月后也就出了12个 还是太非！
 
+
+*****
+
+####  qixinno1  
+##### 21725#       发表于 2026-10-31 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449046&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-10-31 17:19</a>
+
+数了数 6月前确实只出了2个5星  6月后也就出了12个 还是太非！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我要杀了你
+

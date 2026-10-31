@@ -12816,3 +12816,13 @@ herdr手机上选个ssh应用连上就能用。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 18860#       发表于 2026-10-31 18:24
+
+说是fable的参数泄露了？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
