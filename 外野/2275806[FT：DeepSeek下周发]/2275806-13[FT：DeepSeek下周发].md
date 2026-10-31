@@ -12916,3 +12916,36 @@ WorkBuddy被我拷问了两天。它说自己被调较的就是用最快的方�
 
 然后……它确实是这样的。然后我就放弃了。
 
+
+*****
+
+####  andychen  
+##### 18866#       发表于 2026-10-31 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449300&amp;ptid=2275806" target="_blank">lactone 发表于 2026-10-31 18:24</a>
+
+说是fable的参数泄露了？
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+只泄露了一小部分权重，不过证实了Fable的规模是8T
+
+
+*****
+
+####  lactone  
+##### 18867#       发表于 2026-10-31 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449555&amp;ptid=2275806" target="_blank">andychen 发表于 2026-10-31 19:41</a>
+只泄露了一小部分权重，不过证实了Fable的规模是8T</blockquote>
+这么大<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  nxmonitor  
+##### 18868#       发表于 2026-10-31 19:46
+
+不是说其实是DS的权重吗？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
