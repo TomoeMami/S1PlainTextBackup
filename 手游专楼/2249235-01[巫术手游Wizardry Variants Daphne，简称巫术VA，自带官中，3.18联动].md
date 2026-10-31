@@ -63,3 +63,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">依旧一＃0个 杀了我
 
+
+*****
+
+####  茄子自走炮  
+##### 949#       发表于 2026-11-1 00:13
+
+越想越气，什么时候把换皮开被动改成0克己也能开，对非洲人有点不友好了<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
