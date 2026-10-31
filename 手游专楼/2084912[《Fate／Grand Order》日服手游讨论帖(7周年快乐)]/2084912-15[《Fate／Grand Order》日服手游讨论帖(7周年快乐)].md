@@ -126,3 +126,35 @@
 数了数 6月前确实只出了2个5星  6月后也就出了12个 还是太非！</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我要杀了你
 
+
+*****
+
+####  岸浪白野  
+##### 21726#       发表于 2026-10-31 19:09
+
+全球1亿下载纪念活动直播<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202610/31/190938ezm10q8lkdz2872x.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1793444977326_1.webp</strong> (210.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 19:09 上传
+
+<img src="https://img.stage1st.com/forum/202610/31/190938wb3lllokl3l37wev.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1793444977628_2.webp</strong> (266.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-10-31 19:09 上传
+
+
+*****
+
+####  qixinno1  
+##### 21727#       发表于 2026-10-31 19:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这不送个限定五星
+
