@@ -2754,3 +2754,13 @@ UC后期和其他异界高达独眼机体非常之少
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 4950#       发表于 2026-11-1 15:09
+
+那3000又无了吧
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
