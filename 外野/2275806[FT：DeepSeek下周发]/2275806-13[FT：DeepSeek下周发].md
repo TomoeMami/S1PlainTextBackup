@@ -13701,3 +13701,19 @@ b站词元up的屎山争霸还有你引用这一位的算法斗蛐蛐正好就�
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  艾诺琳  
+##### 18931#       发表于 2026-11-1 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452447&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-1 15:19</a>
+现在有什么廉价的动漫人物图片生成模型？Kimi？
+
+—— 来自 vivo V2464A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+本地部署的Qwen2.1
+
+还有个z什么，具体你可以问下ai
+
+在线的话千问出图不收钱，但是质量一般，豆包出图还行但是要会员，免费的还不如本地
+
