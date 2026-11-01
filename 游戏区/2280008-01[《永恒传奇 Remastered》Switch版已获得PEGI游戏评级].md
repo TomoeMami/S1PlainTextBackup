@@ -31,3 +31,15 @@ toe到异世界后还是很精彩的，小游戏最难的应该是欢喜町的�
 
 只是pc重制版都快通关了结果大救星psp汉化版横着出来了<img src="https://static.stage1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">真的哭死，存档能通用吗…
 
+
+*****
+
+####  iou90  
+##### 362#       发表于 2026-11-2 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70453637&amp;ptid=2280008" target="_blank">Xenor 发表于 2026-11-1 21:09</a>
+和你一样，toptoetoh都觉得好，还有ngc版仙乐也喜欢强烈推荐，tor声优很给力但战斗输了，tod2是弱到极点
+
+ ...</blockquote>
+感谢分享 那这游戏小游戏我就放弃好了反正也只是称号吧
+
