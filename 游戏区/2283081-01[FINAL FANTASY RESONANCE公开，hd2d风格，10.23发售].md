@@ -6405,3 +6405,14 @@ b站刷了一堆一看都是翻老外的
 有技能的系数不</blockquote>
 有全部队友和幻兵具体每招的威力和Break值，数值，不是游戏里那种格子化的
 
+
+*****
+
+####  关二爷  
+##### 600#       发表于 2026-11-1 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70451859&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-11-1 12:10</a>
+
+有全部队友和幻兵具体每招的威力和Break值，数值，不是游戏里那种格子化的 ...</blockquote>
+ai真好用，把274张图片整成个pdf了~
+
