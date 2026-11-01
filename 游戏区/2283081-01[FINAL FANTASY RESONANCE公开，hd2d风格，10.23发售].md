@@ -6445,3 +6445,16 @@ ai真好用，把274张图片整成个pdf了~
 我记得原版手游第一季也是全杀了
 但是第二季开头很随便地就说魔菲把他们全复活了
 
+
+*****
+
+####  requiem116  
+##### 603#       发表于 2026-11-1 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452404&amp;ptid=2283081" target="_blank">纪寞 发表于 2026-11-1 15:05</a>
+
+我记得原版手游第一季也是全杀了
+
+但是第二季开头很随便地就说魔菲把他们全复活了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这样吗，我看手游第二部一开始就是他们打回帝国了还以为没死
+
