@@ -13512,3 +13512,13 @@ Codebuddy只用cli和web的话，还能领到积分吗？
 【12个最新的ai组队驰骋绿茵场，哪一队能夺冠？｜AI 算法对抗大赛 第 8 集 · 2v2 足球】https://www.bilib ...</blockquote>
 GPT这两踢得赏心悦目啊<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  很久就在那边l  
+##### 18915#       发表于 2026-11-1 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452549&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-1 16:06</a>
+Codebuddy只用cli和web的话，还能领到积分吗？</blockquote>
+只有workbuddy可以签到，但是可以在其他buddy上使用
+
