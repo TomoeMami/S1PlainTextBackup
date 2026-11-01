@@ -2718,3 +2718,29 @@ UC后期和其他异界高达独眼机体非常之少
 
 试了一下正常打全灭，再次体会到这游戏的蓝机在高难PVE就是没用……反正碰到BOSS都是一招秒
 
+
+*****
+
+####  gpx234mqx  
+##### 4948#       发表于 2026-11-1 09:20
+
+正常打12000除了2个特别任务可以一次拿满18个
+
+<img src="https://img.stage1st.com/forum/202611/01/092040ohzdjntb8e8hnoh5.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9676.png</strong> (576.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-1 09:20 上传
+
+<img src="https://img.stage1st.com/forum/202611/01/092040wqw4s6p7j86zwqlk.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9679.png</strong> (593.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-1 09:20 上传
+
+只要3次就能全部完成
+
