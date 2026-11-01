@@ -13745,3 +13745,13 @@ b站词元up的屎山争霸还有你引用这一位的算法斗蛐蛐正好就�
 
 据说是6.2astra生成的svg，这要是svg也太变态了吧
 
+
+*****
+
+####  lactone  
+##### 18934#       发表于 2026-11-1 21:23
+
+不是one-shot前端没意义吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
