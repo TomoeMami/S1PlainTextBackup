@@ -13641,3 +13641,28 @@ Kimi生图大概率是走的seedream
 
 看到6.2 ASTRA的路由信息 看起来是快出了
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 18926#       发表于 2026-11-1 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452640&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-1 16:33</a>
+
+看这类算法斗蛐蛐gpt几乎每次都遥遥领先，连次级模型都能稳定前三，思考量还是最少的，智力差距这么大吗 ...</blockquote>
+b站大部分测试都是前端或者随便oneshot图一乐的玩意，根本就没有多少真的要从0做到100，或者从90做到100的测试
+
+半年前的模型都能轻松从0做到70了，现在随便一个二线以上都能给你从0做到90，但是最后这10%才是真正考验后端能力的，我用opus做个动画样本审美吊打astra，但是让astra从样本做成成片片段的过程里astra顺手就能修好几个bug外加优化代码实现
+
+b站词元up的屎山争霸还有你引用这一位的算法斗蛐蛐正好就是gpt能展现自己强大后端实力的地方
+
+
+*****
+
+####  startraveller  
+##### 18927#       发表于 2026-11-1 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452982&amp;ptid=2275806" target="_blank">ytrfegd 发表于 2026-11-1 18:12</a>
+看到6.2 ASTRA的路由信息 看起来是快出了</blockquote>
+明天是28天最后一天，估计就是要来了。
+
