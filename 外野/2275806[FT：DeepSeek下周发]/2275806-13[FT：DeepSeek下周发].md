@@ -13450,3 +13450,15 @@ THX，有点意思
 
 —— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  icedew  
+##### 18909#       发表于 2026-11-1 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446615&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-10-31 00:17</a>
+不反代的话应该没有封号的风险吧
+
+其实我一直不了解大家为什么普遍喜欢把WorkBuddy的积分反代出来用</blockquote>
+拉屎多，注入一堆没用的提示词，mcp打广告想全家桶。连wsl很还有容器等问题。codebaddy只用cli倒是干净点，但其web端一编译就卡死前端的水平，后台跑的倒没断，但前台卡死（比opencode和dsh差不少）。而且很容易萝卜开会（如用其房间等功能）
+
