@@ -13603,3 +13603,18 @@ Kimi生图大概率是走的seedream
 —— 来自 vivo V2464A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
 随便找个中转用 gpt image
 
+
+*****
+
+####  蜇灵  
+##### 18923#       发表于 2026-11-1 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452583&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-1 16:18</a>
+
+这就是我困惑的一个问题了：
+
+大家都觉得workbuddy会往C盘拉屎
+
+但是如果要领签到积分的话，不是还得装一个 ...</blockquote>
+反代也可以签到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
