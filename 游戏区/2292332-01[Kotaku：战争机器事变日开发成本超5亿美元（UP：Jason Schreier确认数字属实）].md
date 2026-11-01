@@ -591,3 +591,12 @@ eday在xbox的表现蛮不错的，有70多万人愿意花30刀抢先玩游戏�
 说实话有点搞不明白，现在欧美有些游戏的成本膨胀了，你要说r星那种工业狂魔花上几亿甚至10亿刀，这种还能 ...</blockquote>
 美国通货膨胀+洛杉矶IT工作者工资太高了
 
+
+*****
+
+####  metalyuuki  
+##### 52#       发表于 2026-11-1 14:22
+
+第一页那几位教大家数字概念的大聪明软粉呢？
+我觉得还是人家d哥敬业，反正赢，一直赢就对了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
