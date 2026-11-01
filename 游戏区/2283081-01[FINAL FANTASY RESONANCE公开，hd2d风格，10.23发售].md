@@ -6484,3 +6484,15 @@ ai真好用，把274张图片整成个pdf了~
 
 剧情也是，中期就能猜到会反转，但最终 boss 就是强行拉个脸熟的凑数，理由也是幼稚到离谱，神马看了 700 年人类不断战争，因此对人类失望，神特么看历史就知道人类的历史就是战争的历史，这货本来就是人类还是贤者，就这么点智商啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Markorca  
+##### 606#       发表于 2026-11-2 01:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454282&amp;ptid=2283081" target="_blank">隔壁老黄 发表于 2026-11-1 23:31</a>
+马上通关了，后面也太敷衍了，不仅是地图，连剧情都敷衍迷宫，练级也是，法尔姆王国那片大陆太离谱了，叫王 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">苏尔后面还有剧情，手游版把一些剧情放后头讲了，单机版就做到这没办法了，结尾水晶塔这段手游版内容也更多些，做了删改
+
+—— 来自 meizu MEIZU 20, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
