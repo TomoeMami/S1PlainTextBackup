@@ -13395,3 +13395,11 @@ super-agent需要一个更强的模型，4.1Pro出来前很难做到
 最近试了一些管 harness 的 harness，还 ...</blockquote>
 herdr官方出了herdr-app，后续可以不用其他terminal了，手机端在规划中要等等出
 
+
+*****
+
+####  希德尼娅  
+##### 18904#       发表于 2026-11-1 08:03
+
+kimi有啥好价plan啊
+
