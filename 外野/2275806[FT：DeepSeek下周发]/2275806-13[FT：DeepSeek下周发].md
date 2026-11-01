@@ -13492,3 +13492,23 @@ THX，有点意思
 ？啊？真的？能用6.0Astra和6.1Sol吗？</blockquote>
 6可以，6.1好像没有
 
+
+*****
+
+####  pure_liquid  
+##### 18913#       发表于 2026-11-1 16:06
+
+<blockquote>icedew 发表于 2026-11-1 14:14
+拉屎多，注入一堆没用的提示词，mcp打广告想全家桶。连wsl很还有容器等问题。codebaddy只用cli倒是干净点 ...</blockquote>
+Codebuddy只用cli和web的话，还能领到积分吗？
+
+*****
+
+####  月海的秋鸟  
+##### 18914#       发表于 2026-11-1 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452441&amp;ptid=2275806" target="_blank">profr 发表于 2026-11-1 15:17</a>
+
+【12个最新的ai组队驰骋绿茵场，哪一队能夺冠？｜AI 算法对抗大赛 第 8 集 · 2v2 足球】https://www.bilib ...</blockquote>
+GPT这两踢得赏心悦目啊<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
