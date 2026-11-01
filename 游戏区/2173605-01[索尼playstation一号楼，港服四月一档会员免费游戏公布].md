@@ -22,3 +22,11 @@ While the reveal is set for 2027, we've also heard that the title is also aiming
 
 https://mp1st.com/news/report-bend-studios-next-game-is-a-third-person-co-op-game-reveal-set-for-2027
 
+
+*****
+
+####  clover293  
+##### 865#       发表于 2026-11-1 08:41
+
+bend也快进斩杀线了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这次再不行估计拜拜了
+
