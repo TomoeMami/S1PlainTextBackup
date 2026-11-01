@@ -13861,3 +13861,13 @@ https://huggingface.co/burner22/numbat
 听说是A➗的完整模型，当然也可能是恶作剧。</blockquote>
 貌似是假的
 
+
+*****
+
+####  qwased  
+##### 18944#       发表于 2026-11-2 03:24
+
+[https://github.com/YRwuhu/codearts2api](https://github.com/YRwuhu/codearts2api)
+
+华子反代可以用这个版本的，打磨得相当不错了，不过A/协议会把思维链泄露到助手消息，介意的话还是用OAI协议吧
+
