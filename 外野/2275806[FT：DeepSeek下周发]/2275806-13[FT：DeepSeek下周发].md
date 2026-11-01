@@ -13871,3 +13871,17 @@ https://huggingface.co/burner22/numbat
 
 华子反代可以用这个版本的，打磨得相当不错了，不过A/协议会把思维链泄露到助手消息，介意的话还是用OAI协议吧
 
+
+*****
+
+####  7776169  
+##### 18945#       发表于 2026-11-2 07:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452447&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-1 15:19</a>
+现在有什么廉价的动漫人物图片生成模型？Kimi？
+
+—— 来自 vivo V2464A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+有显卡自己本地弄个anima足够你用了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
