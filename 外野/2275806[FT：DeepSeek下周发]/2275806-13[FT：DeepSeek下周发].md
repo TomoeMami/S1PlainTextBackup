@@ -13540,3 +13540,41 @@ Codebuddy只用cli和web的话，还能领到积分吗？</blockquote>
 
 或者说，workbuddy安装后只签到不常用的话，也能一定程度上避免C盘拉屎的问题？
 
+
+*****
+
+####  宏.  
+##### 18917#       发表于 2026-11-1 16:27
+
+鹈鹕已经没用了，B站上《world.execute(me).》已经成新的benchmark了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宏.  
+##### 18918#       发表于 2026-11-1 16:28
+
+<blockquote>GLYSDSB 发表于 2026-11-1 15:19
+现在有什么廉价的动漫人物图片生成模型？Kimi？
+
+—— 来自 vivo V2464A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+也就kimi能干，但kimi和廉价不沾边
+
+
+*****
+
+####  很久就在那边l  
+##### 18919#       发表于 2026-11-1 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452441&amp;ptid=2275806" target="_blank">profr 发表于 2026-11-1 15:17</a>
+【12个最新的ai组队驰骋绿茵场，哪一队能夺冠？｜AI 算法对抗大赛 第 8 集 · 2v2 足球】https://www.bilib ...</blockquote>
+看这类算法斗蛐蛐gpt几乎每次都遥遥领先，连次级模型都能稳定前三，思考量还是最少的，智力差距这么大吗
+
+*****
+
+####  泰坦失足  
+##### 18920#       发表于 2026-11-1 16:35
+
+对于某些需要AI的场合，一个minimax h3抵得过2个 Qwen Image，5个DeepSeek<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这半年某些AI视频的质量突然跃进了，怎么回事真的好难猜啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
