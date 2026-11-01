@@ -43,3 +43,19 @@ toe到异世界后还是很精彩的，小游戏最难的应该是欢喜町的�
  ...</blockquote>
 感谢分享 那这游戏小游戏我就放弃好了反正也只是称号吧
 
+
+*****
+
+####  Xenor  
+##### 363#       发表于 2026-11-2 03:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454534&amp;ptid=2280008" target="_blank">iou90 发表于 2026-11-2 01:01</a>
+
+感谢分享 那这游戏小游戏我就放弃好了反正也只是称号吧</blockquote>
+如名一样就只是称号，纯粹折磨收集控用的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还都不是几周目就能完成很苛刻的那种
+
+感觉除非极度狂热，花的精力还不如直接下个完美存档体验来得实在，或者PSP版用SL大法过还能接受...
+<img src="https://p.sda1.dev/35/da2ffd0a92dabe5e051781e190e7e60f/a.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/069801ef39923dd61d5a2052190471d4/b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/eea041fa021fed7e3422592257a45b3a/c.jpg" referrerpolicy="no-referrer">
+
