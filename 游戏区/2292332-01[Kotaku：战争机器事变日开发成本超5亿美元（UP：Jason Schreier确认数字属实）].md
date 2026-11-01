@@ -537,3 +537,27 @@ eday在xbox的表现蛮不错的，有70多万人愿意花30刀抢先玩游戏�
 
 战神45也是一堆老人骂，但确实赚钱
 
+
+*****
+
+####  鱼雷鲨  
+##### 47#       发表于 2026-11-1 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70451416&amp;ptid=2292332" target="_blank">hein 发表于 2026-11-1 10:11</a>
+
+感觉游戏通过之前跨平台已经可以确认对非Xbox平台的用户没有任何号召力，不如第一个不做跨平台，当测试品 ...</blockquote>
+微软不想做新的整机电脑当现代MSX了，把Xbox当电脑懒人机看吧
+
+
+*****
+
+####  鱼雷鲨  
+##### 48#       发表于 2026-11-1 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70451449&amp;ptid=2292332" target="_blank">哈罗 发表于 2026-11-1 10:21</a>
+
+eday在xbox的表现蛮不错的，有70多万人愿意花30刀抢先玩游戏，中年死忠粉非常多
+
+但这也引出一个矛盾，老ip ...</blockquote>
+其实大量的全球行动玩家也是广义的战争机器玩家（2代多人模式中国团队拿UE3改改做的），这代对华语区做了简繁两版文本和配音，收益不知如何
+
