@@ -13481,3 +13481,14 @@ THX，有点意思
 
 —— 来自 vivo V2464A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  蜇灵  
+##### 18912#       发表于 2026-11-1 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450577&amp;ptid=2275806" target="_blank">宅男的爱 发表于 2026-11-1 00:21</a>
+
+？啊？真的？能用6.0Astra和6.1Sol吗？</blockquote>
+6可以，6.1好像没有
+
