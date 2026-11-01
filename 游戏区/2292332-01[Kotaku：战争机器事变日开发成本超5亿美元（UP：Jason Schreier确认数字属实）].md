@@ -580,3 +580,14 @@ eday在xbox的表现蛮不错的，有70多万人愿意花30刀抢先玩游戏�
 
 地球上只有阿莎不知道eday开发成本了
 
+
+*****
+
+####  ShiKi847  
+##### 51#       发表于 2026-11-1 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449741&amp;ptid=2292332" target="_blank">cyvery 发表于 2026-10-31 20:39</a>
+
+说实话有点搞不明白，现在欧美有些游戏的成本膨胀了，你要说r星那种工业狂魔花上几亿甚至10亿刀，这种还能 ...</blockquote>
+美国通货膨胀+洛杉矶IT工作者工资太高了
+
