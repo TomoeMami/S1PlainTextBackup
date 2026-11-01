@@ -700,3 +700,15 @@ IMG_4715.jpeg
 一点远见都没有，留着建个纪念馆，几年门票钱肯定比遗产税多多了</blockquote>
 几年后的钱关我什么事
 
+
+*****
+
+####  泥鳅  
+##### 61#       发表于 2026-11-1 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450292&amp;ptid=2292922" target="_blank">longmarch5 发表于 2026-10-31 22:59</a>
+麻生应该不用据说，这人喜欢看漫画</blockquote>
+安倍也只是瞒得好周围没人拿他说事罢了，实际上很多人都知道他以前当大使驻外秘书的时候，每周少年跳跃都是直邮到他所在地的。
+
+—— 来自 HONOR PPG-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
