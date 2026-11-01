@@ -6506,3 +6506,14 @@ ai真好用，把274张图片整成个pdf了~
 苏尔后面还有剧情，手游版把一些剧情放后头讲了，单机版就做到这没办法了，结尾水晶塔这段手游版内容也更 ...</blockquote>
 我通关了，后面的剧情也没啥意思，他对人类失望的原因太薄弱，又不是被背叛了，还不如八杰集真被背叛了，结果八杰集全看开了，这几个贤者就没几个正常的，说是被困在水晶，实际灵魂可以出窍，那不就等于没困住<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Markorca  
+##### 608#       发表于 2026-11-2 03:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454709&amp;ptid=2283081" target="_blank">隔壁老黄 发表于 2026-11-2 02:39</a>
+
+我通关了，后面的剧情也没啥意思，他对人类失望的原因太薄弱，又不是被背叛了，还不如八杰集真被背叛了， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">说的其实是第二季还有苏尔的戏份，而且还不少
+
