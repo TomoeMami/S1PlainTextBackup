@@ -13462,3 +13462,22 @@ THX，有点意思
 其实我一直不了解大家为什么普遍喜欢把WorkBuddy的积分反代出来用</blockquote>
 拉屎多，注入一堆没用的提示词，mcp打广告想全家桶。连wsl很还有容器等问题。codebaddy只用cli倒是干净点，但其web端一编译就卡死前端的水平，后台跑的倒没断，但前台卡死（比opencode和dsh差不少）。而且很容易萝卜开会（如用其房间等功能）
 
+
+*****
+
+####  profr  
+##### 18910#       发表于 2026-11-1 15:17
+
+【12个最新的ai组队驰骋绿茵场，哪一队能夺冠？｜AI 算法对抗大赛 第 8 集 · 2v2 足球】[https://www.bilibili.com/video/B ... d451bc0dfcd3dcddbbb](https://www.bilibili.com/video/BV19rxq6FEub?p=2&amp;vd_source=1b47c862b24bcd451bc0dfcd3dcddbbb)
+
+好像有人发过了？但还是想说这期的对抗展示真是几期以来最好看的，该说不愧是足球吗，要是3v3、5v5更不敢想会多有意思。就是这个分组，真不是黑幕吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，opus配glm，gemini配豆包，就是故意的吧
+
+*****
+
+####  GLYSDSB  
+##### 18911#       发表于 2026-11-1 15:19
+
+现在有什么廉价的动漫人物图片生成模型？Kimi？
+
+—— 来自 vivo V2464A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
