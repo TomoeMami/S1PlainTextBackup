@@ -252,3 +252,18 @@
 
 所以我说现代医学都是在创造奇迹，严重成这样了还能吊命这么久
 
+
+*****
+
+####  holofan  
+##### 11745#       发表于 2026-11-1 15:06
+
+什么弱智MC赛马，你不会参加吧，现实赛马都不赌了
+
+*****
+
+####  holofan  
+##### 11746#       发表于 2026-11-1 20:30
+
+什么星街吐屎，太抽象了<img src="https://static.stage1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+

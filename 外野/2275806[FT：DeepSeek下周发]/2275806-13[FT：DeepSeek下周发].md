@@ -13729,3 +13729,19 @@ b站词元up的屎山争霸还有你引用这一位的算法斗蛐蛐正好就�
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  飞剪号  
+##### 18933#       发表于 2026-11-1 20:30
+
+<img src="https://img.stage1st.com/forum/202611/01/203037iww0sn00rn0kv1nf.jpg" referrerpolicy="no-referrer">
+
+<strong>f80cbc8912b6f1de171c521866f38eef_720.jpg</strong> (162.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-1 20:30 上传
+
+据说是6.2astra生成的svg，这要是svg也太变态了吧
+
