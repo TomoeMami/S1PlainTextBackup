@@ -13618,3 +13618,18 @@ Kimi生图大概率是走的seedream
 但是如果要领签到积分的话，不是还得装一个 ...</blockquote>
 反代也可以签到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lambl  
+##### 18924#       发表于 2026-11-1 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452583&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-1 16:18</a>
+
+这就是我困惑的一个问题了：
+
+大家都觉得workbuddy会往C盘拉屎
+
+但是如果要领签到积分的话，不是还得装一个 ...</blockquote>
+安装后拿到你的登录cookie，就可以删了，插件是可以一键签到查积分的。当然我还是留着，就是为了dsh被大肥鱼弄崩的时候能有WB来修。
+
