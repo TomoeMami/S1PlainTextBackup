@@ -13412,3 +13412,16 @@ kimi有啥好价plan啊
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">o畜宣布十二月chat和work合并，共享额度
 妈的之前动作早就知道他们要这么玩，pro模型的输出方式都直接变成了codex式子代理，明显是从真正的6pro切换成了astra ultra之类的
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18906#       发表于 2026-11-1 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70451528&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-11-1 10:41</a>
+o畜宣布十二月chat和work合并，共享额度
+妈的之前动作早就知道他们要这么玩，pro模型的输出方式都直接变成 ...</blockquote>
+我日，那Plus订阅基本没法用了。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
