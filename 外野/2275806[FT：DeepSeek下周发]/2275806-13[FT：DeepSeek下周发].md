@@ -13839,3 +13839,25 @@ https://huggingface.co/burner22/numbat
 听说是A➗的完整模型，当然也可能是恶作剧。</blockquote>
 评论区已经开始行为艺术了，笑死
 
+
+*****
+
+####  cankao  
+##### 18942#       发表于 2026-11-2 02:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454602&amp;ptid=2275806" target="_blank">ninini212 发表于 2026-11-2 01:26</a>
+
+CODEARTs今晚访问速度异常之慢，大概率是消息满天飞一堆反代在工作……</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有啥大新闻
+
+
+*****
+
+####  startraveller  
+##### 18943#       发表于 2026-11-2 02:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454612&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-11-2 01:32</a>
+https://huggingface.co/burner22/numbat
+听说是A➗的完整模型，当然也可能是恶作剧。</blockquote>
+貌似是假的
+
