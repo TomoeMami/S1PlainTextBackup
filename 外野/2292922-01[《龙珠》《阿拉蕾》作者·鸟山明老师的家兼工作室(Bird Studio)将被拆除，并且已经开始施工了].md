@@ -712,3 +712,13 @@ IMG_4715.jpeg
 
 —— 来自 HONOR PPG-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  acejoe  
+##### 62#       发表于 2026-11-1 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70447157&amp;ptid=2292922" target="_blank">希德尼娅 发表于 2026-10-31 08:35</a>
+鸟山明那么多版税怎么家人还要操心房子的那点遗产税啊</blockquote>
+据说要用现金交
+
