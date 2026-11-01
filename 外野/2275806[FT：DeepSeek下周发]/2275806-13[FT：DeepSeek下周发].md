@@ -13782,3 +13782,13 @@ b站词元up的屎山争霸还有你引用这一位的算法斗蛐蛐正好就�
 
 看到了一个灰测6.2一句话做的游戏，UI还是丑得发指<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 18938#       发表于 2026-11-1 23:22
+
+aa榜刚改，万一6.2分不高，岂不是又要改<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
