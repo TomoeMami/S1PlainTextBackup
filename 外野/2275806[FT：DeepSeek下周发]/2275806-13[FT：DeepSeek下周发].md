@@ -13676,3 +13676,28 @@ b站词元up的屎山争霸还有你引用这一位的算法斗蛐蛐正好就�
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  andychen  
+##### 18929#       发表于 2026-11-1 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70453072&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-1 18:43</a>
+
+怎么直接跳6.2了
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+6.1sol是当初搬出来救火6sol的
+
+估计6.1对应的checkpoint最初没有打算公开进行发布，现在发布的6.2才是最初计划的6.1
+
+
+*****
+
+####  lactone  
+##### 18930#       发表于 2026-11-1 18:52
+
+感觉各家都打算在下周憋个大的
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
