@@ -13578,3 +13578,28 @@ Codebuddy只用cli和web的话，还能领到积分吗？</blockquote>
 
 这半年某些AI视频的质量突然跃进了，怎么回事真的好难猜啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 18921#       发表于 2026-11-1 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452621&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-1 16:28</a>
+也就kimi能干，但kimi和廉价不沾边</blockquote>
+Kimi生图大概率是走的seedream
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  Hattle  
+##### 18922#       发表于 2026-11-1 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452447&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-1 15:19</a>
+
+现在有什么廉价的动漫人物图片生成模型？Kimi？
+
+—— 来自 vivo V2464A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+随便找个中转用 gpt image
+

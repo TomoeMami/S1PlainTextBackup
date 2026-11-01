@@ -689,3 +689,14 @@ IMG_4715.jpeg
 
 鸟山路本来就是谣言，而且还是老鸟熬夜后自己开车去机场送的原稿。
 
+
+*****
+
+####  03e7  
+##### 60#       发表于 2026-11-1 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70447433&amp;ptid=2292922" target="_blank">cleverfox 发表于 2026-10-31 09:54</a>
+
+一点远见都没有，留着建个纪念馆，几年门票钱肯定比遗产税多多了</blockquote>
+几年后的钱关我什么事
+
