@@ -13755,3 +13755,30 @@ b站词元up的屎山争霸还有你引用这一位的算法斗蛐蛐正好就�
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  相见恨晚  
+##### 18935#       发表于 2026-11-1 22:57
+
+话说workbuddy、trae、qoder这些生图到底要怎么做啊，在workbuddy用ds它自己调用hy-image3.5-preview-edit，用K3.1就没用别的，是可以自己选的吗还是固定搭配，还是要用什么技能专家啥的啊
+
+*****
+
+####  lactone  
+##### 18936#       发表于 2026-11-1 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454155&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-11-1 22:57</a>
+话说workbuddy、trae、qoder这些生图到底要怎么做啊，在workbuddy用ds它自己调用hy-image3.5-preview-edit ...</blockquote>
+直接跟他说，要么让他本地部署要么让他自己调用商用api
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  unrealMeeSeeks  
+##### 18937#       发表于 2026-11-1 23:02
+
+看到了一个灰测6.2一句话做的游戏，UI还是丑得发指<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
