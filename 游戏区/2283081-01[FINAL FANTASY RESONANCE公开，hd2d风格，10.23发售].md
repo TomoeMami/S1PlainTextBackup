@@ -6458,3 +6458,19 @@ ai真好用，把274张图片整成个pdf了~
 但是第二季开头很随便地就说魔菲把他们全复活了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这样吗，我看手游第二部一开始就是他们打回帝国了还以为没死
 
+
+*****
+
+####  アーリィ  
+##### 604#       发表于 2026-11-1 20:58
+
+转运网站修PHP修了一周，等拿到手坛友都已经把游戏扒干净了，就晒一下内容吧，搞这么大个盒子我还以为有什么好东西结果又是塑料片
+
+<img src="https://img.stage1st.com/forum/202611/01/205645xmm222zb2g2jll74.jpg" referrerpolicy="no-referrer">
+
+<strong>1000016495.jpg</strong> (822.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-1 20:56 上传
+
