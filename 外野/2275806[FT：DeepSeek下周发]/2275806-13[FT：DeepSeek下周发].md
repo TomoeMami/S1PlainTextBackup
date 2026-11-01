@@ -13403,3 +13403,12 @@ herdr官方出了herdr-app，后续可以不用其他terminal了，手机端在�
 
 kimi有啥好价plan啊
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 18905#       发表于 2026-11-1 10:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">o畜宣布十二月chat和work合并，共享额度
+妈的之前动作早就知道他们要这么玩，pro模型的输出方式都直接变成了codex式子代理，明显是从真正的6pro切换成了astra ultra之类的
+
