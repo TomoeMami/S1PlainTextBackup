@@ -6394,3 +6394,14 @@ b站刷了一堆一看都是翻老外的
 除了伤害公式，官方本全都有了，去翻发售日当天的帖子我发过了。B站那个数据站也就是多一个还在测的伤害 ...</blockquote>
 有技能的系数不
 
+
+*****
+
+####  黑暗之眼  
+##### 599#       发表于 2026-11-1 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70451776&amp;ptid=2283081" target="_blank">关二爷 发表于 2026-11-1 11:45</a>
+
+有技能的系数不</blockquote>
+有全部队友和幻兵具体每招的威力和Break值，数值，不是游戏里那种格子化的
+
