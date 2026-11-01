@@ -480,3 +480,20 @@ what's up, 你这瓜皮子是金子做的还是瓜粒子是金子做的
 
 你不跨平台，现在销量肯定也是狗屎。
 
+
+*****
+
+####  D-JoeII  
+##### 43#       发表于 2026-11-1 09:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70451110&amp;ptid=2292332" target="_blank">hein 发表于 2026-11-1 08:28</a>
+
+谁买战争机器？我想了想。
+
+战争机器用户不就是Xbox玩家吗，几乎大头在xgpu，pc端本身就没号召力，steam上 ...</blockquote>
+其實我看了下
+
+同一篇報導裡MW4報玩家數不報銷量,戰爭機器報銷量不報玩家數
+
+所以不認為是微軟放風,畢竟COD能跨的平台都跨了
+
