@@ -13522,3 +13522,21 @@ GPT这两踢得赏心悦目啊<img src="https://static.stage1st.com/image/smiley
 Codebuddy只用cli和web的话，还能领到积分吗？</blockquote>
 只有workbuddy可以签到，但是可以在其他buddy上使用
 
+
+*****
+
+####  pure_liquid  
+##### 18916#       发表于 2026-11-1 16:18
+
+<blockquote>很久就在那边l 发表于 2026-11-1 16:11
+只有workbuddy可以签到，但是可以在其他buddy上使用</blockquote>
+这就是我困惑的一个问题了：
+
+大家都觉得workbuddy会往C盘拉屎
+
+但是如果要领签到积分的话，不是还得装一个workbuddy吗
+
+就算单独的codebuddy比较干净，但是如果没办法只安装codebuddy，那还是不解决问题吧？
+
+或者说，workbuddy安装后只签到不常用的话，也能一定程度上避免C盘拉屎的问题？
+
