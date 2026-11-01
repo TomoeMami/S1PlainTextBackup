@@ -6496,3 +6496,13 @@ ai真好用，把274张图片整成个pdf了~
 
 —— 来自 meizu MEIZU 20, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  隔壁老黄  
+##### 607#       发表于 2026-11-2 02:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454555&amp;ptid=2283081" target="_blank">Markorca 发表于 2026-11-2 01:08</a>
+苏尔后面还有剧情，手游版把一些剧情放后头讲了，单机版就做到这没办法了，结尾水晶塔这段手游版内容也更 ...</blockquote>
+我通关了，后面的剧情也没啥意思，他对人类失望的原因太薄弱，又不是被背叛了，还不如八杰集真被背叛了，结果八杰集全看开了，这几个贤者就没几个正常的，说是被困在水晶，实际灵魂可以出窍，那不就等于没困住<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
