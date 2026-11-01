@@ -13800,3 +13800,42 @@ aa榜刚改，万一6.2分不高，岂不是又要改<img src="https://static.st
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">CODEARTs今晚访问速度异常之慢，大概率是消息满天飞一堆反代在工作……
 
+
+*****
+
+####  云卷花开  
+##### 18940#       发表于 2026-11-2 01:32
+
+<img src="https://static.stage1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">https://huggingface.co/burner22/numbat
+听说是A➗的完整模型，当然也可能是恶作剧。
+
+<img src="https://img.stage1st.com/forum/202611/02/013154v21t1t5u1l5abort.png" referrerpolicy="no-referrer">
+
+<strong>1000017659.png</strong> (110.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-2 01:31 上传
+
+<img src="https://img.stage1st.com/forum/202611/02/013154rr30p6mmmc3uncl0.png" referrerpolicy="no-referrer">
+
+<strong>1000017658.png</strong> (13.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-2 01:31 上传
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  qwased  
+##### 18941#       发表于 2026-11-2 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454612&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-11-2 01:32</a>
+
+https://huggingface.co/burner22/numbat
+
+听说是A➗的完整模型，当然也可能是恶作剧。</blockquote>
+评论区已经开始行为艺术了，笑死
+
