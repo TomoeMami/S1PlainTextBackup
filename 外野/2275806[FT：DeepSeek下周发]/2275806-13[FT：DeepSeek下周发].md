@@ -14788,3 +14788,135 @@ o/上市那要到明年了<img src="https://static.stage1st.com/image/smiley/fac
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">斩杀哥造谣还有人回复，你楼纯度真的不行了
 
+
+*****
+
+####  洛拉斯  
+##### 19018#       发表于 2026-11-2 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454155&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-11-1 22:57</a>
+
+话说workbuddy、trae、qoder这些生图到底要怎么做啊，在workbuddy用ds它自己调用hy-image3.5-preview-edit ...</blockquote>
+这是d老师告诉我的，我实操没问题 <blockquote>用内置浏览器白嫖豆包 / 千问生图（SOP）
+
+目的：不花 WorkBuddy 积分出图。图片由豆包/千问网页自己生成，WorkBuddy 只出对话 token。
+
+适用范围：WorkBuddy 桌面端，内置浏览器（IAB）或装了扩展的 Chrome/Edge。
+
+最后验证：2026-11-02（豆包 Seedream 5.0 Flash 出图并成功下载；千问 Image 2.0 出图）
+
+0. 一句话流程
+
+打开站点 → 让用户自己登录 → 切到生图入口 → 填提示词 → 发送 → 截图核对 → 悬停图片点下载 → 把文件从 Downloads 复制到工作区。
+
+1. 前置条件
+
+1. browsers_list 里能看到 WorkBuddy Browser（type=desktop）。没有就让用户去 设置 &gt; 智能体 &gt; 浏览器操控 打开。
+
+2. 用户已登录目标站点。登录这一步永远不做：不输手机号、不点验证码、不碰二维码和 Cookie。
+
+3. 用户的 Chrome 扩展（type=extension）如果更顺手，可以走它——登录态是他现成的，省一次扫码。
+
+2. 操作序列（可直接照抄）
+
+browsers_list                          → 拿 browser_id（内置通常是 1）
+
+tabs_new(browser_id, url)              → 打开站点，拿 tab_id
+
+dom_cua_get_visible_dom(browser, tab)  → 看页面结构；首次可能为空，等标题出来再读
+
+[用户登录]
+
+user_open_tabs(browser)                → 登录后 tab_id 会变！必须重新取
+
+tabs_claim(browser, tab_id)            → 恢复控制权
+
+dom_cua_click(...生图入口...)           → 切到图像生成模式
+
+dom_cua_click(...输入框...)  +  dom_cua_type(text, 提示词)
+
+dom_cua_click(...发送...)               → 或 keypress "Enter"
+
+cua_execute(actions=[{"type":"screenshot","clip":{...}}])   → 核对
+
+cua_execute(actions=[{"type":"move",...},{"type":"screenshot",...}]) → 悬停出工具栏
+
+cua_execute(actions=[{"type":"click", 下载图标坐标}])
+
+ls -lt ~/Downloads | head -3           → 确认文件落地
+
+cp ~/Downloads/&lt;文件&gt; &lt;工作区&gt;/         → 交给用户
+
+tabs_finalize(browser, keep=[{tab_id, status:"handoff"}])  → 把标签还给用户
+
+3. 千问（qianwen.com）
+
+- 入口：首页输入框上方一排 chip，点 「AI生图」（node 文本为 AI生图）。切换后输入框 placeholder 变成「支持图像生成与编辑，快速实现创意设计」。
+
+- 输入框：div[contenteditable=true][role=textbox]，点一下再 dom_cua_type。
+
+- 发送：aria-label="发送消息" 的按钮，输入非空后 disabled 才变 false。
+
+- 旁边两个按钮值得注意：「参考图」（图生图/改图）、「比例 3:4」（默认竖版，可点开换）。
+
+- 模型限制：网页版只有 Image 2.0，Image 3.0 只在手机 APP。别承诺 3.0。
+
+- 出图约 10 秒；右下角带「千问」水印。
+
+- 积分：本次实测 60 积分未扣，属免费额度。
+
+4. 豆包（doubao.com）
+
+- 首页底部 chip 点 「图像生成」。切换后出现 模型 / 比例 / 风格 / 模板 四个按钮。
+
+- 模型档位（点「模型」按钮展开）：
+
+  - Seedream 5.0 Flash —— 默认，快速，够用
+
+  - Seedream 5.0 Pro —— 标注「升级 · 4 倍消耗」，质量更好
+
+  - Seedream 4.5 / Seedream 4.0 —— 日常 / 基础
+
+  - 不要默认替用户切 Pro，4 倍消耗要先问。
+
+- 比例默认「自动」；要竖版海报就在「比例」里选 3:4。
+
+- 出图约 15 秒。
+
+- 下载：鼠标悬停图片，底部浮出工具栏，从左到右大致是「点赞数 / 重新生成 / 下载 / 放大」。下载图标在图片正下方偏右，点它直接落盘到 ~/Downloads，不弹另存为对话框。
+
+- 下载文件名是中文标题（如 动漫风格少女樱花插画生成.png），5 MB 左右的原图 PNG。
+
+5. 必踩的坑（按重要性排）
+
+1. tab_screenshot 对这两个站点一律超限：报 exceeds the 10 MiB image limit，改 format=jpeg、降 quality、给 clip 都没用。
+
+→ 截图只能走 cua_execute，actions 里放 {"type":"screenshot","clip":{x,y,width,height},"format":"jpeg","quality":50}。同一接口还能顺带 move/click/scroll，一次调用干多件事。
+
+2. tabs_finalize(handoff) 之后 tabs_list 变空，旧 tab_id 不能再用。
+
+→ 必须 user_open_tabs 拿新 id，再 tabs_claim。登录跳转后 tab_id 也会变。
+
+3. DOM 快照一开始是空的（snapshot: ""）。页面没绘制完就读不到东西，先看 tab_title 出来没有。
+
+4. 系统级「另存为」对话框点不到。原生窗口不在浏览器 DOM 里，CUA 坐标点上去没反应，需要用户自己点确定。下载走站内图标就不会有这个问题，优先用站内下载。
+
+5. 豆包/千问的侧边栏会污染 DOM 快照（几十条历史对话）。只想看菜单/按钮时，用 clip 截图比读 DOM 省 token。
+
+6. 页面里可能夹带广告榜位（千问侧边「加入 waiting list」之类），点按钮认 aria-label，别按顺序点。</blockquote>
+
+
+*****
+
+####  洛拉斯  
+##### 19019#       发表于 2026-11-2 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70456340&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-2 11:52</a>
+
+今天外网开始传闻算力租用的价格崩盘了</blockquote>
+我看了分析才知道美国算力也能玩次贷
+
+一个小公司，买卡，然后用算力做抵押贷款，继续买卡，然后和英伟达签署保底合同，拿合同抵押，继续买卡
+
+导致一张卡的年利息就高达13%，也就是说这张卡一年不跑13%利息+折旧+运营费，就亏本。结果大肥鱼一记重拳打崩了这个次贷玩法，投资者纷纷撤资，击鼓传花玩不下去，这个几百亿算力合同的公司破产。
+

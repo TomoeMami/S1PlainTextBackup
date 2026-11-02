@@ -10795,3 +10795,12 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84535/
 
 ign日本测评姗姗来迟，形容本作为满汉全席。
 
+
+*****
+
+####  Humpy  
+##### 8425#       发表于 2026-11-2 22:38
+
+巨人哥不能上马，凯伊线可以和解放弃<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+毕竟迪线的他更容易练起来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
