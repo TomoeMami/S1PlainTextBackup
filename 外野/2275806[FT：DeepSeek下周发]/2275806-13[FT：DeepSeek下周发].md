@@ -14659,3 +14659,16 @@ zcode开源了没？他家偷源码，真不敢用
 你们说的让模型写规划是啥意思啊？我一般给一个输入-输出的样本就让他开始干活了 ...</blockquote>
 比如我需要什么功能，你参照什么来写，先确定方案，批准后执行
 
+
+*****
+
+####  warlock228  
+##### 19007#       发表于 2026-11-2 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70458041&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-11-2 17:21</a>
+
+zcode开源了没？他家偷源码，真不敢用</blockquote>
+开了，但是如开(   分AB版，开源版不能享受150%gml额度，天知道他的闭源版本有没有还干这事情
+
+但是我观察了一个月没发觉.zcode文件夹大小有异常，我觉得他们大概是不敢了吧
+
