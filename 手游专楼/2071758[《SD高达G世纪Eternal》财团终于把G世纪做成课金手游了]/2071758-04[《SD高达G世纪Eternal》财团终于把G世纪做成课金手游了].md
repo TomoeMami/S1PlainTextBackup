@@ -2790,3 +2790,14 @@ UC后期和其他异界高达独眼机体非常之少
 
 强敌来袭掉个机体这么难的吗，想再刷台红高达死活刷不出，还是姿势不对？一直刷EXPERT刷了有1000多AP了吧
 
+
+*****
+
+####  中野梓  
+##### 4954#       发表于 2026-11-2 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70457921&amp;ptid=2071758" target="_blank">ixtli 发表于 2026-11-2 16:55</a>
+
+强敌来袭掉个机体这么难的吗，想再刷台红高达死活刷不出，还是姿势不对？一直刷EXPERT刷了有1000多AP了吧 ...</blockquote>
+看脸，有时候连着出，有时候100把也不会出
+
