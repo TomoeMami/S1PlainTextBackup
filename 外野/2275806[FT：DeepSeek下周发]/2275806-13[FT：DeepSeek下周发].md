@@ -13930,3 +13930,28 @@ o畜宣布十二月chat和work合并，共享额度
 这个月能看到GPT-6.2 Astra大战Fable 5.5了</blockquote>
 大胆点 就这周
 
+
+*****
+
+####  GLYSDSB  
+##### 18950#       发表于 2026-11-2 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454933&amp;ptid=2275806" target="_blank">7776169 发表于 2026-11-2 07:25</a>
+有显卡自己本地弄个anima足够你用了
+
+—— 来自 Xiaomi 2510DRK44C, Android 16, 鹅球 v3.5.99 ...</blockquote>
+3070可以吗，我快六年没换显卡了
+
+—— 来自 vivo V2464A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  qwased  
+##### 18951#       发表于 2026-11-2 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70455564&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-2 09:58</a>
+3070可以吗，我快六年没换显卡了</blockquote>
+可以了，无非慢点
+好像最新潮的moss都能跑
+
