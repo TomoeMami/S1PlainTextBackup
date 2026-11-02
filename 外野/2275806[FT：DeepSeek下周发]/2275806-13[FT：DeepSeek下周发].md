@@ -14649,3 +14649,13 @@ zcode开源了没？他家偷源码，真不敢用
 
 今天ds有什么更新吗？怎么今天token消耗这么凶
 
+
+*****
+
+####  艾诺琳  
+##### 19006#       发表于 2026-11-2 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70457596&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-11-2 15:57</a>
+你们说的让模型写规划是啥意思啊？我一般给一个输入-输出的样本就让他开始干活了 ...</blockquote>
+比如我需要什么功能，你参照什么来写，先确定方案，批准后执行
+
