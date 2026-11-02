@@ -14588,3 +14588,22 @@ astra大人很猛，但是plus用户根本就不是人，我靠别的套餐来�
 
 第一次用ocgo，41f都不到100tok/s，这对吗
 
+
+*****
+
+####  孤灯蓝影  
+##### 19000#       发表于 2026-11-2 16:59
+
+你去淘宝买十套模板喂给DSH做一个skill，保证审美杠杠的
+
+
+*****
+
+####  overflowal  
+##### 19001#       发表于 2026-11-2 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70457905&amp;ptid=2275806" target="_blank">Cloude_L 发表于 2026-11-2 16:53</a>
+
+第一次用ocgo，41f都不到100tok/s，这对吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你用10刀获得了100刀的额度，慢一点不是正常吗
+

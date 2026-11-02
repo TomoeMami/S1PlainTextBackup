@@ -10774,3 +10774,14 @@ IMG_0509.jpeg
 不是为了招声望要求比较低的哈尔温嘛，椰枣，巨大肉，凯伊线两个难点</blockquote>
 还以为培养坐骑要用，这两个人其他线招了也没练<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古畑任三郎2015  
+##### 8423#       发表于 2026-11-2 17:06
+
+ 本帖最后由 古畑任三郎2015 于 2026-11-2 17:07 编辑 
+
+话说DLC如果有战争篇能不能再设计一套关卡，再当4部拉拉队真的遭不住<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+白发鬼哥哥肯定是没救了，剩下三个给个b路线吧
+
