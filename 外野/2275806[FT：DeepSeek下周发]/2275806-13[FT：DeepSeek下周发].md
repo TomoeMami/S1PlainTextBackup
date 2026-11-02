@@ -13955,3 +13955,11 @@ o畜宣布十二月chat和work合并，共享额度
 可以了，无非慢点
 好像最新潮的moss都能跑
 
+
+*****
+
+####  warlock228  
+##### 18952#       发表于 2026-11-2 10:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那现在想开GPTPLUS是不是26年入国军区中区套餐？ chat和work共额度了plus又被遗弃没翻倍
+
