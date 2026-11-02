@@ -14041,3 +14041,14 @@ plus就是试用装，6.1-sol别拿来直接写代码，只用来写规划5小�
 
 zocode最近更新感觉就是奔着国产codex去的挺完善好用
 
+
+*****
+
+####  傘木希美  
+##### 18960#       发表于 2026-11-2 11:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第一次接触agent，装了dsh
+想请教下把微信号是不是得小号给它，让它帮我去医院的公众号抢号行嘛，实在是抢不到了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这应该就是让它自己写脚本了吧
+
+—— 来自 vivo V2454A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
