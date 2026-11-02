@@ -13963,3 +13963,11 @@ o畜宣布十二月chat和work合并，共享额度
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那现在想开GPTPLUS是不是26年入国军区中区套餐？ chat和work共额度了plus又被遗弃没翻倍
 
+
+*****
+
+####  干将莫邪  
+##### 18953#       发表于 2026-11-2 10:43
+
+妈的O/，希望对手们给它上上强度
+
