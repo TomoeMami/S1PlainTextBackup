@@ -15006,3 +15006,16 @@ tabs_finalize(browser, keep=[{tab_id, status:"handoff"}])  → 把标签还给
 买了家宽isp，让codex帮我配置网络，检测网站100分哪哪都没问题，电脑手机都走这个isp。注册没弹kyc，放置 ...</blockquote>
 很多所谓家宽是伪家宽，比小机房封得还快。支付权重也高。
 
+
+*****
+
+####  spaceblue  
+##### 19026#       发表于 2026-11-3 02:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70456645&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-2 12:47</a>
+
+mistral $5.99教育订阅 =$165 tps300+ 的1017 随便找个edu邮箱就能弄 
+
+建议等月中开，欧洲老爷是每月1号重 ...</blockquote>
+不是只有15刀的API 额度么？
+
