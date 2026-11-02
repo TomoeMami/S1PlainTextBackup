@@ -15019,3 +15019,28 @@ mistral $5.99教育订阅 =$165 tps300+ 的1017 随便找个edu邮箱就能弄
 建议等月中开，欧洲老爷是每月1号重 ...</blockquote>
 不是只有15刀的API 额度么？
 
+
+*****
+
+####  qwased  
+##### 19027#       发表于 2026-11-3 02:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70459742&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-11-3 02:10</a>
+
+不是只有15刀的API 额度么？</blockquote>
+[https://github.com/UpcleanRestmercy/mistral-bridge](https://github.com/UpcleanRestmercy/mistral-bridge)
+
+*****
+
+####  御坂MKII  
+##### 19028#       发表于 2026-11-3 02:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70459406&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-11-2 23:21</a>
+
+大肥鱼现在每天就是和我这么说话的，我反正是看不懂在说什么</blockquote>
+看起来问题最大的就是术语翻译错了
+
+通道应该是 channel，选区看起来是 selection，模态框可能是 modal dialog，活动文档里的活动是 active
+
+这么看可能纯英文输出会好点儿，看起来和 gpt 不是同一种问题
+
