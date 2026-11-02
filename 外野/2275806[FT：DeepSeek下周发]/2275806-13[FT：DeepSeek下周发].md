@@ -14334,3 +14334,14 @@ DS flash写规划也不是不行，就是AI黑话太多我得来回问他好几�
 
 不过还是有用的，经常出现功能升级后某个测试报错，拯救了整体架构和流水线。我现在做的就是要求AI写测试，和它说XXX测试红了时候我负责决定修引发的代码还是修测试本身了
 
+
+*****
+
+####  hugosol  
+##### 18977#       发表于 2026-11-2 13:44
+
+对的，现在的问题就是测试增长得太快了，回归测试要跑好久了
+
+然后我就弄了个优化测试时间的skill，可以搭配pi的auto-research优化参数，迭代起来非常爽快（
+[https://github.com/hugosol/oh-my ... t-optimize/SKILL.md](https://github.com/hugosol/oh-my-wayfinder/blob/master/skills/test-optimize/SKILL.md)
+
