@@ -14345,3 +14345,15 @@ DS flash写规划也不是不行，就是AI黑话太多我得来回问他好几�
 然后我就弄了个优化测试时间的skill，可以搭配pi的auto-research优化参数，迭代起来非常爽快（
 [https://github.com/hugosol/oh-my ... t-optimize/SKILL.md](https://github.com/hugosol/oh-my-wayfinder/blob/master/skills/test-optimize/SKILL.md)
 
+
+*****
+
+####  startraveller  
+##### 18978#       发表于 2026-11-2 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70456741&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-2 13:08</a>
+DS flash写规划也不是不行，就是AI黑话太多我得来回问他好几轮才知道在说啥，实质上就是浪费时间
+
+现在用a ...</blockquote>
+但是6.1系列也是著名不说人话呀
+
