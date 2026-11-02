@@ -14239,3 +14239,52 @@ UI components:
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  艾诺琳  
+##### 18969#       发表于 2026-11-2 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70456197&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-2 11:29</a>
+顺便问一下有没有能写小皇叔的本地ai模型，3070能跑就行
+
+—— 来自 vivo V2464A, Android 16, 鹅球 v3.5.9 ...</blockquote>
+Qwen27b量化版具体版本你可以直接问ai，你问我电脑配置最适合那个模型，需求写一下小说，需要审查宽一点的你懂的
+
+*****
+
+####  hugosol  
+##### 18970#       发表于 2026-11-2 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70456627&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-2 12:44</a>
+
+6.1-sol那个踢一下动一下的智商拿来写规划吗……不如大肥鱼写</blockquote>
+DS flash写规划也不是不行，就是AI黑话太多我得来回问他好几轮才知道在说啥，实质上就是浪费时间
+
+现在用agent开发瓶颈就在规划阶段，而且这个阶段相比执行阶段token消耗也就毛毛雨，不用那么价格敏感
+
+当然你要说你就是用flash不需要看它输出，搞错了就鞭策它继续改，那你是对的我也无意反驳<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  艾诺琳  
+##### 18971#       发表于 2026-11-2 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70456279&amp;ptid=2275806" target="_blank">傘木希美 发表于 2026-11-2 11:40</a>
+第一次接触agent，装了dsh
+想请教下把微信号是不是得小号给它，让它帮我去医院的公众号抢号行嘛，实 ...</blockquote>
+完全可以，但是用别怕，怕别用，封别叫
+
+建议还是用小号，微信大号被封损失太大了
+
+*****
+
+####  艾诺琳  
+##### 18972#       发表于 2026-11-2 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70456741&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-2 13:08</a>
+DS flash写规划也不是不行，就是AI黑话太多我得来回问他好几轮才知道在说啥，实质上就是浪费时间
+
+现在用a ...</blockquote>
+让另外一个ai做审查，比如我就用k3当审查，然后提修改意见。耗不了多少token
+
