@@ -740,3 +740,25 @@ IMG_4715.jpeg
 
 日本那个遗产税怎么看都是专门为了吃屁民绝户设计出来的。
 
+
+*****
+
+####  希德尼娅  
+##### 65#       发表于 2026-11-2 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70452808&amp;ptid=2292922" target="_blank">acejoe 发表于 2026-11-1 17:19</a>
+据说要用现金交</blockquote>
+鸟山明生前就一点没考虑过这些事？那么多年版税都攥手里一点没分出去啊，日本人不是很西化的嘛，怎么没有信托公司找他
+
+
+*****
+
+####  何边杨  
+##### 66#       发表于 2026-11-2 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70449781&amp;ptid=2292922" target="_blank">nice女武神 发表于 2026-10-31 20:53</a>
+不是你拿到遗产后交税  是交完税后拿遗产</blockquote>
+还是不懂
+日本贷款不是很容易吗？
+去银行贷款说我要贷款交遗产税拿遗产，遗产是有长期可观知识产权收益的优质标的，这么优秀的抵押物，感觉应该很容易贷出来才对
+
