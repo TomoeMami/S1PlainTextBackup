@@ -14357,3 +14357,35 @@ DS flash写规划也不是不行，就是AI黑话太多我得来回问他好几�
 现在用a ...</blockquote>
 但是6.1系列也是著名不说人话呀
 
+
+*****
+
+####  jojog  
+##### 18979#       发表于 2026-11-2 14:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer"> fable5.5吹到天上去了  这个实际价格得多贵
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 18980#       发表于 2026-11-2 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70457052&amp;ptid=2275806" target="_blank">jojog 发表于 2026-11-2 14:17</a>
+fable5.5吹到天上去了  这个实际价格得多贵</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不用a畜max或者公司报销的话，sb才买
+
+*****
+
+####  hugosol  
+##### 18981#       发表于 2026-11-2 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70457022&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-2 14:11</a>
+
+但是6.1系列也是著名不说人话呀</blockquote>
+不知道哦，我体感是肯定比DSF强的，DSF真的全是黑话，都是中文串起来看不懂在说什么
+
+另外就是GPT系的模型抽象能力挺好的，你把一些需求用规则说出来它是能尽力去理解你想表达的意思
+
+其实我觉得DS系的模型注意力是比GPT要强的，长会话能把前面一两句话提过的事情都记得，GPT有时候就顺着后面的意思去做了，改skill有时候也会把意思丢掉，不过写代码方面整体把控能力还是挺强的吧
+
