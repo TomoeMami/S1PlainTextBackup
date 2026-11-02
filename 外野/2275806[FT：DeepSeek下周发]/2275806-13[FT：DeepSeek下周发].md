@@ -14672,3 +14672,14 @@ zcode开源了没？他家偷源码，真不敢用</blockquote>
 
 但是我观察了一个月没发觉.zcode文件夹大小有异常，我觉得他们大概是不敢了吧
 
+
+*****
+
+####  phorcys02  
+##### 19008#       发表于 2026-11-2 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70457787&amp;ptid=2275806" target="_blank">gammatau 发表于 2026-11-2 16:31</a>
+
+你说的这个问题，降频/升电压就能解决(</blockquote>
+啊？我们说的是一件事么？
+
