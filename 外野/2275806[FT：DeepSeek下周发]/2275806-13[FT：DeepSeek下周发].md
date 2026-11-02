@@ -15060,3 +15060,13 @@ mistral $5.99教育订阅 =$165 tps300+ 的1017 随便找个edu邮箱就能弄
 
 OpenCode这速度100刀感觉跑不完<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zephyrus99  
+##### 19031#       发表于 2026-11-3 07:22
+
+最近烧token有点厉害，gpt 20刀的不够用了，100刀又感觉用不了那么多，没有中间档位吗？
+
+话说Kimi是有点不做人，我是老的199月套餐，以前很少跑满过，这个月不到一半时间，跟我说不足10%了
+
