@@ -14004,3 +14004,15 @@ o畜宣布十二月chat和work合并，共享额度
 那现在想开GPTPLUS是不是26年入国军区中区套餐？ chat和work共额度了plus又被遗弃没翻倍 ...</blockquote>
 只要账户还有5小时限制，gpt的plus已经废了。OA现在只有旗舰模型才有单独购买的意义，如果用astra的话，5小时限额是一个活都干不完的，
 
+
+*****
+
+####  hugosol  
+##### 18957#       发表于 2026-11-2 11:20
+
+plus就是试用装，6.1-sol别拿来直接写代码，只用来写规划5小时额度还勉强够用，执行可以交给DeepSeek flash
+
+但我发现DSF开销也挺大的，虽然单价便宜但我跑完一张开发ticket的token是6.1-sol好几倍
+
+再加上如果想要等梁文谷时间那开发进度会被实质上拖慢非常多，就跟混动车主舍不得用油的心态一样<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
