@@ -13893,3 +13893,14 @@ https://huggingface.co/burner22/numbat
 
 这个月能看到GPT-6.2 Astra大战Fable 5.5了
 
+
+*****
+
+####  fat  
+##### 18947#       发表于 2026-11-2 08:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70451528&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-11-1 10:41</a>
+o畜宣布十二月chat和work合并，共享额度
+妈的之前动作早就知道他们要这么玩，pro模型的输出方式都直接变成 ...</blockquote>
+啊我总不会在网页聊几句问答都扣我额度吧？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
