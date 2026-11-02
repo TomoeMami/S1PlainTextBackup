@@ -10745,3 +10745,21 @@ IMG_0509.jpeg
 
 160小时终于爬出第一部，然后用第一个通关的凯伊打战争篇，第一个主角当时对系统还没有了解透，武器没搜集没打造，没想到连神祈都没继承，人物平均等级也低，进入困难模式的第二部真的是步步为营，满满的醍醐味<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chiefshi  
+##### 8420#       发表于 2026-11-2 16:41
+
+凯伊线为什么要搞椰枣
+
+
+*****
+
+####  米澤穂信  
+##### 8421#       发表于 2026-11-2 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70457827&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-11-2 16:41</a>
+凯伊线为什么要搞椰枣</blockquote>
+不是为了招声望要求比较低的哈尔温嘛，椰枣，巨大肉，凯伊线两个难点
+
