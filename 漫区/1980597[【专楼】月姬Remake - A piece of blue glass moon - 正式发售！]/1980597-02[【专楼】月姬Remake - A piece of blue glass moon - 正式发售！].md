@@ -100,3 +100,16 @@ MB新剧情号称量和一部GAL等量
 也别想着mbtw是格 ...</blockquote>
 MB系列以前也不算短剧情吧，而且老MB就是出次剧情大更就卖一次的套路，十二年卖了四五次，无非没有这次疑似塞了个歌月进去那么多的量
 
+
+*****
+
+####  Ollie  
+##### 1654#       发表于 2026-11-3 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70446452&amp;ptid=1980597" target="_blank">manyin1 发表于 2026-10-30 23:26</a>
+
+有个问题，现在玩AVG游戏，和看B站全流程视频，好像也没啥区别吧，那为啥还要去花钱或者花力气去下载游戏来 ...</blockquote>
+全年龄avg我一直觉得云完全是更好的方法，我自己玩本来也要看攻略去选正确选项
+
+看视频还省去点鼠标的动作，不同路线人家本来视频也录好了
+
