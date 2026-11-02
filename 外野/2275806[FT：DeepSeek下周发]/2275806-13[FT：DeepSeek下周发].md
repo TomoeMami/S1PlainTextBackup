@@ -15070,3 +15070,13 @@ OpenCode这速度100刀感觉跑不完<img src="https://static.stage1st.com/imag
 
 话说Kimi是有点不做人，我是老的199月套餐，以前很少跑满过，这个月不到一半时间，跟我说不足10%了
 
+
+*****
+
+####  Promeus  
+##### 19032#       发表于 2026-11-3 07:29
+
+【【AI动效】六模型复刻DSH宣传视频 看完41F难道视频是41P做的？-哔哩哔哩】 https://b23.tv/BV1Vh4N6rE6E
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">可以猜猜是不是4.1p做的视频了
+
