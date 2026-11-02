@@ -10804,3 +10804,11 @@ ign日本测评姗姗来迟，形容本作为满汉全席。
 巨人哥不能上马，凯伊线可以和解放弃<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 毕竟迪线的他更容易练起来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓮華  
+##### 8426#       发表于 2026-11-2 23:36
+
+一边已经开歼星舰了，一边连凯伊老爹的肺痨也治不好的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
