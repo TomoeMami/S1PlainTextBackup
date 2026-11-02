@@ -14607,3 +14607,13 @@ astra大人很猛，但是plus用户根本就不是人，我靠别的套餐来�
 第一次用ocgo，41f都不到100tok/s，这对吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你用10刀获得了100刀的额度，慢一点不是正常吗
 
+
+*****
+
+####  zephyrus99  
+##### 19002#       发表于 2026-11-2 17:21
+
+<blockquote>warlock228 发表于 2026-11-2 11:36
+我就是算过我来用肥鱼开发梁文峰时段价格就是拉完了，但是正活不能等闲时因为我不可能在闲时去上班，那不 ...</blockquote>
+zcode开源了没？他家偷源码，真不敢用
+
