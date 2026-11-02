@@ -10705,3 +10705,11 @@ IMG_0509.jpeg
 
 给非洲琳转了个锻造师玩了玩，还有比这个更区的职业吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 8415#       发表于 2026-11-2 11:03
+
+波拿最爽的时候还是拿剑砍法师吧，一般来说他魔防都是顶级而且力量也不低…第三部转个墓志铭骑马砍人挺好的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -13971,3 +13971,25 @@ o畜宣布十二月chat和work合并，共享额度
 
 妈的O/，希望对手们给它上上强度
 
+
+*****
+
+####  med  
+##### 18954#       发表于 2026-11-2 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70450577&amp;ptid=2275806" target="_blank">宅男的爱 发表于 2026-11-1 00:21</a>
+
+？啊？真的？能用6.0Astra和6.1Sol吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> qoder国内版就可以，但是价格贵的几乎无法用，定价是dsf的80倍率
+
+
+*****
+
+####  jinuzuktII  
+##### 18955#       发表于 2026-11-2 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70455644&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-2 10:10</a>
+
+那现在想开GPTPLUS是不是26年入国军区中区套餐？ chat和work共额度了plus又被遗弃没翻倍 ...</blockquote>
+恶心是恶心，但是这个价位没有其他更好的前沿模型选择了呀， A/封号，GEMINI 差一口气，那只剩下 GPT 了
+
