@@ -10763,3 +10763,14 @@ IMG_0509.jpeg
 凯伊线为什么要搞椰枣</blockquote>
 不是为了招声望要求比较低的哈尔温嘛，椰枣，巨大肉，凯伊线两个难点
 
+
+*****
+
+####  chiefshi  
+##### 8422#       发表于 2026-11-2 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70457867&amp;ptid=2261859" target="_blank">米澤穂信 发表于 2026-11-2 16:47</a>
+
+不是为了招声望要求比较低的哈尔温嘛，椰枣，巨大肉，凯伊线两个难点</blockquote>
+还以为培养坐骑要用，这两个人其他线招了也没练<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
