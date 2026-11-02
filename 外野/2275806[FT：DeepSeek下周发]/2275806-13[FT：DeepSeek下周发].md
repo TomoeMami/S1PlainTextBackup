@@ -14449,3 +14449,25 @@ dsf什么都好，但是不说人话这点我是深有体会，今晚我截几�
 ”偏差那次 cos 的输出里，主线程负责的第 0 块与 MKL 的 EP（低精度）模式结果逐位一致，其余三块则与 HA ...</blockquote>
 那就是还不够复杂，我尝试魔改推理框架的时候cpu和gpu算的就是有不小的误差，大肥鱼折腾半天之后劝我认了得了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 18988#       发表于 2026-11-2 15:19
+
+这两天中期选举呢，感觉发模型不太合适啊
+
+头条会迅速被抢
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  StrangerJ  
+##### 18989#       发表于 2026-11-2 15:23
+
+6.2astra的推理速度能快点吗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">十几tps的推理速度真是被a➗摁在地上打
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
