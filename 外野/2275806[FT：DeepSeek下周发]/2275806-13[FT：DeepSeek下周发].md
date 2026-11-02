@@ -14079,3 +14079,23 @@ zocode最近更新感觉就是奔着国产codex去的挺完善好用
 ssd是已经开始慢慢降了。
 内存现在大概在拐点位置还没正式开始降，但也离降价不远了（虽然厂商依然在炒作产能爆满之类）
 
+
+*****
+
+####  startraveller  
+##### 18964#       发表于 2026-11-2 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70456142&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-2 11:20</a>
+plus就是试用装，6.1-sol别拿来直接写代码，只用来写规划5小时额度还勉强够用，执行可以交给DeepSeek flash ...</blockquote>
+6.1-sol那个踢一下动一下的智商拿来写规划吗……不如大肥鱼写
+
+
+*****
+
+####  qwased  
+##### 18965#       发表于 2026-11-2 12:47
+
+mistral $5.99教育订阅 =$165 tps300+ 的1017 随便找个edu邮箱就能弄 
+
+建议等月中开，欧洲老爷是每月1号重置，月中开订阅可以蹭一次
+
