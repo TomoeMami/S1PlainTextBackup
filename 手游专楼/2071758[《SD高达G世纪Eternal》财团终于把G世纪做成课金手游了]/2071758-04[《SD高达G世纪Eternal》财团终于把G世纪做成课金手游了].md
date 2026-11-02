@@ -2809,3 +2809,11 @@ UC后期和其他异界高达独眼机体非常之少
 
 我见过最离谱的一次skip能出4台，自己打试过30次不出
 
+
+*****
+
+####  natlk  
+##### 4956#       发表于 2026-11-2 18:37
+
+刷了50盘一台红高都没有这还似人吗<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
