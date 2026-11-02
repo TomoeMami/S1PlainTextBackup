@@ -6517,3 +6517,13 @@ ai真好用，把274张图片整成个pdf了~
 我通关了，后面的剧情也没啥意思，他对人类失望的原因太薄弱，又不是被背叛了，还不如八杰集真被背叛了， ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">说的其实是第二季还有苏尔的戏份，而且还不少
 
+
+*****
+
+####  隔壁老黄  
+##### 609#       发表于 2026-11-2 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70454763&amp;ptid=2283081" target="_blank">Markorca 发表于 2026-11-2 03:58</a>
+说的其实是第二季还有苏尔的戏份，而且还不少，包括他思想的转变这块也打了个补丁 ...</blockquote>
+这不就是挽尊嘛，还不如黑菲娜当最终 boss 呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

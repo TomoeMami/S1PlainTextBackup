@@ -14068,3 +14068,14 @@ zocode最近更新感觉就是奔着国产codex去的挺完善好用
 
 什么时候快进到内存显卡价格腰斩…不对，起码得是腿斩    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  serj005  
+##### 18963#       发表于 2026-11-2 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70456458&amp;ptid=2275806" target="_blank">fat 发表于 2026-11-2 12:16</a>
+什么时候快进到内存显卡价格腰斩…不对，起码得是腿斩    Re:Source</blockquote>
+ssd是已经开始慢慢降了。
+内存现在大概在拐点位置还没正式开始降，但也离降价不远了（虽然厂商依然在炒作产能爆满之类）
+
