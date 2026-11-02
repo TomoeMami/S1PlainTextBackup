@@ -13993,3 +13993,14 @@ o畜宣布十二月chat和work合并，共享额度
 那现在想开GPTPLUS是不是26年入国军区中区套餐？ chat和work共额度了plus又被遗弃没翻倍 ...</blockquote>
 恶心是恶心，但是这个价位没有其他更好的前沿模型选择了呀， A/封号，GEMINI 差一口气，那只剩下 GPT 了
 
+
+*****
+
+####  med  
+##### 18956#       发表于 2026-11-2 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70455644&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-2 10:10</a>
+
+那现在想开GPTPLUS是不是26年入国军区中区套餐？ chat和work共额度了plus又被遗弃没翻倍 ...</blockquote>
+只要账户还有5小时限制，gpt的plus已经废了。OA现在只有旗舰模型才有单独购买的意义，如果用astra的话，5小时限额是一个活都干不完的，
+
