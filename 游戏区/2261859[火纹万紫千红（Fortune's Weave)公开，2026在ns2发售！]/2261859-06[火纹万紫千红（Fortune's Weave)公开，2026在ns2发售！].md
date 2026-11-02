@@ -10785,3 +10785,13 @@ IMG_0509.jpeg
 话说DLC如果有战争篇能不能再设计一套关卡，再当4部拉拉队真的遭不住<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 白发鬼哥哥肯定是没救了，剩下三个给个b路线吧
 
+
+*****
+
+####  巴尔干炮  
+##### 8424#       发表于 2026-11-2 22:15
+
+https://jp.ign.com/fire-emblem-fortunes-weave/84535/
+
+ign日本测评姗姗来迟，形容本作为满汉全席。
+

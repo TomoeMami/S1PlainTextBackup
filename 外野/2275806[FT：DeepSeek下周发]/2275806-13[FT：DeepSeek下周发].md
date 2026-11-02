@@ -14768,3 +14768,15 @@ Dsh在阿b发视频了，真要来了？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lactone  
+##### 19016#       发表于 2026-11-2 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70459017&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-2 21:31</a>
+真的话，那就是小的要来了，大的话我无法想象不在 o/ 上市后发</blockquote>
+o/上市那要到明年了<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
