@@ -10697,3 +10697,11 @@ IMG_0509.jpeg
 
 黑魔现在就是EVP恶心你的，还有敌专属职业<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  米澤穂信  
+##### 8414#       发表于 2026-11-2 10:56
+
+给非洲琳转了个锻造师玩了玩，还有比这个更区的职业吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
