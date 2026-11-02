@@ -14683,3 +14683,35 @@ zcode开源了没？他家偷源码，真不敢用</blockquote>
 你说的这个问题，降频/升电压就能解决(</blockquote>
 啊？我们说的是一件事么？
 
+
+*****
+
+####  moekyo  
+##### 19009#       发表于 2026-11-2 21:03
+
+那啥，搓了一个大肥鱼的 intelligent ui，代码在这里：[https://github.com/Zephinel/dsh-intelligent-ui](https://github.com/Zephinel/dsh-intelligent-ui)
+
+大概的样子如图所示
+
+<img src="https://img.stage1st.com/forum/202611/02/204800sezzxcp6qfpe6sc5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (409.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-2 20:48 上传
+
+功能的话，大概和 GPT 的差不多，有目前由于 dsh 的限制，只能在最后生成，不能做到回复中插入，看看后面 dsh 怎么更新吧。额外加上导出功能，支持图片和 html 文件，默认支持两种样式：卡片和长文，并且还可以按需生成，模板也支持导出导入。
+
+扩展本身已经上架了 dshmarket 和 dsh-open-market 欢迎安装使用<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/02/210214bqq8ypqwuwzj7y00.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-2 21:02 上传
+
+ 话说这里这个下载数量是真的吗<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
