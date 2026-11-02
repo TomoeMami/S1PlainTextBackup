@@ -14920,3 +14920,38 @@ tabs_finalize(browser, keep=[{tab_id, status:"handoff"}])  → 把标签还给
 
 导致一张卡的年利息就高达13%，也就是说这张卡一年不跑13%利息+折旧+运营费，就亏本。结果大肥鱼一记重拳打崩了这个次贷玩法，投资者纷纷撤资，击鼓传花玩不下去，这个几百亿算力合同的公司破产。
 
+
+*****
+
+####  ArthurDent  
+##### 19020#       发表于 2026-11-2 22:59
+
+<img src="https://img.stage1st.com/forum/202611/02/225909ytwlzwpbaa9hp3tk.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1793631548426_1.webp</strong> (40.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-2 22:59 上传
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  moekyo  
+##### 19021#       发表于 2026-11-2 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70459347&amp;ptid=2275806" target="_blank">ArthurDent 发表于 2026-11-2 22:59</a>
+
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v4.0-alpha</blockquote>
+巧了，我也有一个同样的目录
+
+<img src="https://img.stage1st.com/forum/202611/02/230656q0iuofrouwwwoobu.png" referrerpolicy="no-referrer">
+
+<strong>s1p-paste-1793632016134.png</strong> (1.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-2 23:06 上传
+
