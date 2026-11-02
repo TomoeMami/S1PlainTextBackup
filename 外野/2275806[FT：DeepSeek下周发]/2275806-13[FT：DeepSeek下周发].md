@@ -14016,3 +14016,28 @@ plus就是试用装，6.1-sol别拿来直接写代码，只用来写规划5小�
 
 再加上如果想要等梁文谷时间那开发进度会被实质上拖慢非常多，就跟混动车主舍不得用油的心态一样<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GLYSDSB  
+##### 18958#       发表于 2026-11-2 11:29
+
+顺便问一下有没有能写小皇叔的本地ai模型，3070能跑就行
+
+—— 来自 vivo V2464A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  warlock228  
+##### 18959#       发表于 2026-11-2 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70456142&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-2 11:20</a>
+
+plus就是试用装，6.1-sol别拿来直接写代码，只用来写规划5小时额度还勉强够用，执行可以交给DeepSeek flash ...</blockquote>
+我就是算过我来用肥鱼开发梁文峰时段价格就是拉完了，但是正活不能等闲时因为我不可能在闲时去上班，那不就是加班<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+找个上班时段用的性价比plan真的难，目前开了嘎啦嘛的卡又看到他一直在憋<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，但愿这个月他能憋个好东西出来
+
+zocode最近更新感觉就是奔着国产codex去的挺完善好用
+
