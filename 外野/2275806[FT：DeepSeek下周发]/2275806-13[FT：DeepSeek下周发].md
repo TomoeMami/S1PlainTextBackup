@@ -15044,3 +15044,11 @@ mistral $5.99教育订阅 =$165 tps300+ 的1017 随便找个edu邮箱就能弄
 
 这么看可能纯英文输出会好点儿，看起来和 gpt 不是同一种问题
 
+
+*****
+
+####  Quelaan  
+##### 19029#       发表于 2026-11-3 03:03
+
+我真是nm要被GPT恶心死了，吭吃吭吃拉一个小时的屎完了给我说对不起我跑偏了，不该拉屎的，已计入文档。然后转眼下一轮接着拉屎<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
