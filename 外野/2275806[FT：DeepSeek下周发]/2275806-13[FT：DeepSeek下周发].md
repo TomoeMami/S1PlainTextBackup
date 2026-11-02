@@ -14617,3 +14617,35 @@ astra大人很猛，但是plus用户根本就不是人，我靠别的套餐来�
 我就是算过我来用肥鱼开发梁文峰时段价格就是拉完了，但是正活不能等闲时因为我不可能在闲时去上班，那不 ...</blockquote>
 zcode开源了没？他家偷源码，真不敢用
 
+
+*****
+
+####  zy450  
+##### 19003#       发表于 2026-11-2 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70457945&amp;ptid=2275806" target="_blank">孤灯蓝影 发表于 2026-11-2 16:59</a>
+
+你去淘宝买十套模板喂给DSH做一个skill，保证审美杠杠的，因为我就是这样干的。去淘宝买了十套模板做了skil ...</blockquote>
+还真没这么考虑过……回头试试
+
+
+*****
+
+####  7776169  
+##### 19004#       发表于 2026-11-2 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70455564&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-2 09:58</a>
+
+3070可以吗，我快六年没换显卡了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">足够了，最好有32G内存
+
+我也就拿3060TI跑
+
+
+*****
+
+####  wiwiluo  
+##### 19005#       发表于 2026-11-2 17:35
+
+今天ds有什么更新吗？怎么今天token消耗这么凶
+
