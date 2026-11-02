@@ -14723,3 +14723,30 @@ zcode开源了没？他家偷源码，真不敢用</blockquote>
 
 ds pro貌似本周发布
 
+
+*****
+
+####  moekyo  
+##### 19011#       发表于 2026-11-2 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70458985&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-11-2 21:20</a>
+
+ds pro貌似本周发布</blockquote>
+真的话，那就是小的要来了，大的话我无法想象不在 o/ 上市后发<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tinkling4617  
+##### 19012#       发表于 2026-11-2 21:31
+
+蛤 又是哪里的消息
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Promeus  
+##### 19013#       发表于 2026-11-2 21:31
+
+Dsh在阿b发视频了，真要来了？
+
