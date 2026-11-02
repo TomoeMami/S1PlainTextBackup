@@ -14987,3 +14987,12 @@ tabs_finalize(browser, keep=[{tab_id, status:"handoff"}])  → 把标签还给
 
 2026-11-2 23:28 上传
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 19024#       发表于 2026-11-3 00:33
+
+买了家宽isp，让codex帮我配置网络，检测网站100分哪哪都没问题，电脑手机都走这个isp。注册没弹kyc，放置三天升级pro弹了kyc，一小时之后封禁。
+再让codex帮我退款，感觉它有点可怜，任劳任怨，配环境网络各种变动也没事，给我写了一键开关isp等等只为了完成用户去另一个平台的愿望<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">。但好在用户被封了又屁颠屁颠回来了。
+
