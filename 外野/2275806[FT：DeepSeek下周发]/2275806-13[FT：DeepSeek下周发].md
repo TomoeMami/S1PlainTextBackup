@@ -14471,3 +14471,36 @@ dsf什么都好，但是不说人话这点我是深有体会，今晚我截几�
 
 —— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zzy516232108  
+##### 18990#       发表于 2026-11-2 15:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们说的让模型写规划是啥意思啊？我一般给一个输入-输出的样本就让他开始干活了
+
+
+*****
+
+####  phorcys02  
+##### 18991#       发表于 2026-11-2 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70457400&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-2 15:13</a>
+
+那就是还不够复杂，我尝试魔改推理框架的时候cpu和gpu算的就是有不小的误差，大肥鱼折腾半天之后劝我认了 ...</blockquote>
+大家嘴巴上都含着遵守IEEE754 规范的几个版本， 配合兼容历史屎山不符合754的 intel/amd cpu.
+
+再叠加ftz/dz nan处理 溢出差异 rounding细节
+
+永远也不可能完全精确，差不多就行了，怎么快怎么来，误差也是系统的一部分！
+
+
+*****
+
+####  奥柏伦亲王  
+##### 18992#       发表于 2026-11-2 16:07
+
+opencode go变相涨价之后就不续订了，今天又图便宜订回来，难道是我期望太低了，体验意外的不错
+
+一个session跑了12轮，26Mtoken，TPS达到了230，缓存命中98%，5H额度只掉了3%，而且智力和手感都跟官网API大差不差。感觉一些傻吊订阅都可以先退了，包括你GPT plus
+
