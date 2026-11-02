@@ -14504,3 +14504,40 @@ opencode go变相涨价之后就不续订了，今天又图便宜订回来，难
 
 一个session跑了12轮，26Mtoken，TPS达到了230，缓存命中98%，5H额度只掉了3%，而且智力和手感都跟官网API大差不差。感觉一些傻吊订阅都可以先退了，包括你GPT plus
 
+
+*****
+
+####  phorcys02  
+##### 18993#       发表于 2026-11-2 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70457662&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-11-2 16:07</a>
+
+opencode go变相涨价之后就不续订了，今天又图便宜订回来，难道是我期望太低了，体验意外的不错
+
+一个sessi ...</blockquote>
+1017 大部分情况下都没问题，但非常复杂的任务，还是需要astra来review/计划一下的
+
+中转站偶尔用一下，每月二三十也足够了
+
+
+*****
+
+####  奥柏伦亲王  
+##### 18994#       发表于 2026-11-2 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70457685&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-11-2 16:10</a>
+
+1017 大部分情况下都没问题，但非常复杂的任务，还是需要astra来review/计划一下的
+
+中转站偶尔用一下，每 ...</blockquote>
+astra大人很猛，但是plus用户根本就不是人，我靠别的套餐来满足祈祷需求了
+
+
+*****
+
+####  赤星ビスコ  
+##### 18995#       发表于 2026-11-2 16:14
+
+我一直觉得纠结前端审美意义不大，一般公司都有产品或者设计来画原型和设计稿，ai照着设计稿写代码都能大差不差
+即使是一人开发，照着某个现有产品抄交互和设计出个原型，大模型的审美在其中也没什么用
+
