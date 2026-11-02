@@ -13904,3 +13904,29 @@ o畜宣布十二月chat和work合并，共享额度
 妈的之前动作早就知道他们要这么玩，pro模型的输出方式都直接变成 ...</blockquote>
 啊我总不会在网页聊几句问答都扣我额度吧？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  foraiur  
+##### 18948#       发表于 2026-11-2 08:42
+
+<img src="https://img.stage1st.com/forum/202611/02/084152v4ypfv8b04reuha5.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-11-02 084138.png</strong> (139.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-2 08:41 上传
+
+看着邮件，网页聊天不会消耗额度吧
+
+
+*****
+
+####  startraveller  
+##### 18949#       发表于 2026-11-2 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70455013&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-11-2 08:08</a>
+这个月能看到GPT-6.2 Astra大战Fable 5.5了</blockquote>
+大胆点 就这周
+
