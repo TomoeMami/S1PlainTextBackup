@@ -186,3 +186,13 @@
 不知道是不是太久没玩的原因，回坑以后感觉丛林好难啊，怎么完全找不到以前遨游深海的感觉了。尤其是那些成 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">丛林就是挺难得，建议不要太管发育战力拉满，就要机械化提升战力就好，另外近战很吃屎也是真的……
 
+
+*****
+
+####  xiedua  
+##### 466#       发表于 2026-11-4 02:53
+
+steam最近的评价已经差成这样了么
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
