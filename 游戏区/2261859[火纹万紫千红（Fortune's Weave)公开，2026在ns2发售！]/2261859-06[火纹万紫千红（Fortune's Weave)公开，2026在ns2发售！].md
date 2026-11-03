@@ -10820,3 +10820,21 @@ ign日本测评姗姗来迟，形容本作为满汉全席。
 
 9.22玩到11.2通关了，期间没碰过其他游戏，存档游戏事件统计320小时...<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">4个主角+白鸟金色边框，最后选想见面的人，除了4个主角，就是法比欧，和凯伊的4人组...本着不想跟阿鲁卡多抢老婆就没选法比欧（？）选了媞雅拉，毕竟唯一眼镜娘<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  su37mkk  
+##### 8428#       发表于 2026-11-3 14:39
+
+是不是打完一个主角的第一部才能回水晶大厅进行章节回溯？
+
+
+*****
+
+####  alexmax1  
+##### 8429#       发表于 2026-11-3 14:44
+
+<blockquote>su37mkk 发表于 2026-11-3 14:39
+是不是打完一个主角的第一部才能回水晶大厅进行章节回溯？</blockquote>
+不是，进城以后在鸟架那边就可以，或者故意送死也可以
+
