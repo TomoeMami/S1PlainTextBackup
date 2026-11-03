@@ -16304,3 +16304,13 @@ pro反而没问题
 我 Astra 是这样的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer"> 到处塞小字的风格真的是看得烧心
 
+
+*****
+
+####  andychen  
+##### 19159#       发表于 2026-11-3 22:44
+
+你们前面还在吐槽美团，后脚他们就端新货上来了
+
+[https://longcat.ai/blog/longcat-2.5/](https://longcat.ai/blog/longcat-2.5/)
+

@@ -1968,3 +1968,35 @@ QQ20260321-165505.jpg
 
 2026-11-3 22:34 上传
 
+
+*****
+
+####  中二小旋风  
+##### 188#       发表于 2026-11-3 22:44
+
+国王的这条项链像是blame后传中里出现过
+
+<img src="https://img.stage1st.com/forum/202611/03/224402vf1fa2nnjaw119wk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 22:44 上传
+
+<img src="https://img.stage1st.com/forum/202611/03/224406dlnnwelzixjjv6o6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 22:44 上传
+
+<img src="https://img.stage1st.com/forum/202611/03/224409bgum8rem8g5qaeup.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 22:44 上传
+
