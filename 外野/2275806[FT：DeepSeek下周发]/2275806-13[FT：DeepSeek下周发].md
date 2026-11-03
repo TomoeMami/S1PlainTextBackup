@@ -15511,3 +15511,21 @@ GDPx这个新benchmark太吓人了
 <img src="https://p.sda1.dev/35/a95d0bf000e7df0e33e6871567f0d1f0/image.jpg" referrerpolicy="no-referrer">
 看来今年底明年初的产能要全给ds了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 19073#       发表于 2026-11-3 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70462650&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-3 16:20</a>
+看来今年底明年初的产能要全给ds了</blockquote>
+计划吗，从时间表看V5现在已经在进行预训练了
+
+
+*****
+
+####  zzy516232108  
+##### 19074#       发表于 2026-11-3 16:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在都有哪些野榜可以看着图一乐啊
+
