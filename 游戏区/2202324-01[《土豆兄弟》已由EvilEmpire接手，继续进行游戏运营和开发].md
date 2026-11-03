@@ -50,3 +50,14 @@
 
 用新出的老兵玩了一局，机械化确实有点恐怖了，后面搞出一把1000x6的双管霰弹枪，啥玩意都是一秒躺，角色特性掉血加伤害等于白板，敌人根本碰不到我，几波怪群完全是送钱……<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cs0111  
+##### 453#       发表于 2026-11-3 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70460788&amp;ptid=2202324" target="_blank">quanlix 发表于 2026-11-3 10:41</a>
+
+异化玩不了一点，己方异化纯看脸，敌方异化满地拉屎+攻击附带dot伤害，纯资敌的玩意，只能走异化的那个新土 ...</blockquote>
+减异化属性的道具你是不是理解错了？进化属性负数就是往异化方向靠，正数就是往机械化属性方向靠，地图上进化-1的道具相当于异化+1
+
