@@ -15105,3 +15105,16 @@ Semianalysis,弄了个自己的榜，地址：https://newsletter.semianalysis.co
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zephyrus99  
+##### 19035#       发表于 2026-11-3 08:30
+
+<blockquote>半江瑟瑟半江红 发表于 2026-11-3 08:23
+要不开俩plus？
+
+我现在plus订阅就当关键时候请astra大人下凡的工具，主力用k3.1
+</blockquote>
+你k3.1够用？ 我怎么感觉也不够啊。烧的库库的
+
