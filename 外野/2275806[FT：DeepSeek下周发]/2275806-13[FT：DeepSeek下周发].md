@@ -15289,3 +15289,14 @@ GDPx这个新benchmark太吓人了
 【deepseek v4.1flash 1017 与它的51个子代理-哔哩哔哩】 https://b23.tv/BV1X8xh6VEzJ
 <img src="https://p.sda1.dev/35/953d741ce2186c0d016c91ae0e903f08/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zxc786  
+##### 19052#       发表于 2026-11-3 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70461017&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-11-3 11:10</a>
+
+有老哥清楚gemini现在怎么买最便宜吗？最近想写文感觉确实得试试gemini4</blockquote>
+我研究了下是搞一堆pro号反代，然后开始狂蹬。
+
