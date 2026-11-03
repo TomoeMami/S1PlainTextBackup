@@ -16140,3 +16140,42 @@ wb的红色感叹号没了<img src="https://static.stage1st.com/image/smiley/fac
 
 也可以谷歌veterx绑个银行卡，赠送300美刀额度，有万事达银行卡可以这个
 
+
+*****
+
+####  冤枉呐  
+##### 19146#       发表于 2026-11-3 20:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70461017&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-11-3 11:10</a>
+有老哥清楚gemini现在怎么买最便宜吗？最近想写文感觉确实得试试gemini4</blockquote>
+写文确实不错
+15块钱弄了个jio，结果用了不多久，所有Google号都不给用gemini了
+神奇的一逼，jio给的pro都在
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  冤枉呐  
+##### 19147#       发表于 2026-11-3 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70461296&amp;ptid=2275806" target="_blank">zxc786 发表于 2026-11-3 11:44</a>
+我研究了下是搞一堆pro号反代，然后开始狂蹬。</blockquote>
+不知道为啥，突然我的所有号全部不能用gemini了
+pro反而没问题
+不知道什么鬼
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  lambl  
+##### 19148#       发表于 2026-11-3 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70459287&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-2 22:38</a>
+
+这是d老师告诉我的，我实操没问题</blockquote>
+我去试了下，因为我装了看图插件，加上我有CDP，她直接绕过浏览器就可以让豆包出图，然后看一眼就可以下载。还蛮好用的
+
