@@ -16314,3 +16314,34 @@ pro反而没问题
 
 [https://longcat.ai/blog/longcat-2.5/](https://longcat.ai/blog/longcat-2.5/)
 
+
+*****
+
+####  德尔惠净水器  
+##### 19160#       发表于 2026-11-3 22:57
+
+<blockquote>andychen 发表于 2026-11-3 22:44
+你们前面还在吐槽美团，后脚他们就端新货上来了
+
+https://longcat.ai/blog/longcat-2.5/ ...</blockquote>
+用910还能训练出这样的成果，已经是奇迹了
+
+
+*****
+
+####  moekyo  
+##### 19161#       发表于 2026-11-3 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464218&amp;ptid=2275806" target="_blank">med 发表于 2026-11-3 22:31</a>
+
+到处塞小字的风格真的是看得烧心</blockquote>
+这是之前 Opus 5.5 点评 codex 时说的，后面我直接起了新的分支，全部重构了，虽然还有一点东西还要继续调整，但是起码整个流程能走起来了，之前用 codex 那个真的服了，不仅卡顿，甚至连最基本的流程都走不完，动不动就是莫名加了一点我没有要求的栅栏门槛之类的，好几次气到拍桌子，关键他妈还慢到飞起<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/03/225314pg31xp20x0ensn2e.png" referrerpolicy="no-referrer">
+
+<strong>s1p-paste-1793717594842.png</strong> (21.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 22:53 上传
+
