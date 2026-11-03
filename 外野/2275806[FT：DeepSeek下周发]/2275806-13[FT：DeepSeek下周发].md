@@ -15323,3 +15323,13 @@ GDPx这个新benchmark太吓人了
 20plus订阅，review用Astra，干活用sol high，或者terra max档位，不知道够用不够用</blockquote>
 非常吃紧，5小时限额的plus是一个项目都跑不完的。
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 19055#       发表于 2026-11-3 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70461017&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-11-3 11:10</a>
+有老哥清楚gemini现在怎么买最便宜吗？最近想写文感觉确实得试试gemini4</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苹果土区ultra 5x才280一个月
+
