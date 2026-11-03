@@ -15090,3 +15090,18 @@ Semianalysis,弄了个自己的榜，地址：https://newsletter.semianalysis.co
 
 我看了下介绍，比AA的榜有意思多了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19034#       发表于 2026-11-3 08:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70459890&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-11-3 07:22</a>
+最近烧token有点厉害，gpt 20刀的不够用了，100刀又感觉用不了那么多，没有中间档位吗？
+
+话说Kimi是有点不 ...</blockquote>
+要不开俩plus？
+我现在plus订阅就当关键时候请astra大人下凡的工具，主力用k3.1
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
