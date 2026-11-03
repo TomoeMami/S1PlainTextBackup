@@ -15080,3 +15080,13 @@ OpenCode这速度100刀感觉跑不完<img src="https://static.stage1st.com/imag
 
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">可以猜猜是不是4.1p做的视频了
 
+
+*****
+
+####  andychen  
+##### 19033#       发表于 2026-11-3 08:10
+
+Semianalysis,弄了个自己的榜，地址：https://newsletter.semianalysis.com/p/gdpx-measuring-frontier-model-capabilities
+
+我看了下介绍，比AA的榜有意思多了
+
