@@ -16127,3 +16127,16 @@ wb的红色感叹号没了<img src="https://static.stage1st.com/image/smiley/fac
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服务中断直接让我的爬虫暴走了，看了眼log5分钟爬了一千多页泥潭。狗叔要来找我算账了
 
+
+*****
+
+####  kouz  
+##### 19145#       发表于 2026-11-3 19:35
+
+<blockquote>培根芝士蛋堡XD 发表于 2026-11-3 11:10
+有老哥清楚gemini现在怎么买最便宜吗？最近想写文感觉确实得试试gemini4</blockquote>
+
+咸鱼几块钱一个pro号18个月，你再拿自己的小号绑家庭组，一个号一天ai studio有50次4a额度，你再加上自己的小号，一天最多能玩300多次
+
+也可以谷歌veterx绑个银行卡，赠送300美刀额度，有万事达银行卡可以这个
+

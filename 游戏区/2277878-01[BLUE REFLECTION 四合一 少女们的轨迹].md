@@ -1805,3 +1805,17 @@ pc版第一作有4k分辨率的，但全程120帧其实是有点难度的。78X3
 
 是不是初代固定三个人上场，其他只能在后排加技能？
 
+
+*****
+
+####  新HGCG  
+##### 157#         楼主| 发表于 2026-11-3 19:28
+
+<img src="https://img.stage1st.com/forum/202611/03/192758mgmj1dd1jejgksjj.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202611/03/192758mgmj1dd1jejgksjj.png">
+
+<strong>image.png</strong> (104.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 19:27 上传
+
