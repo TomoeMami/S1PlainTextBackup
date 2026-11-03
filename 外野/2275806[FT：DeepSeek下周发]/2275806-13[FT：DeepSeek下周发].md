@@ -16419,3 +16419,46 @@ longcat这个看跑分真的可以了
 
 还有这种神器啊！我好多鬼点子因为ai对浏览器权限过低没法实现！
 
+
+*****
+
+####  冤枉呐  
+##### 19168#       发表于 2026-11-3 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464153&amp;ptid=2275806" target="_blank">lambl 发表于 2026-11-3 22:09</a>
+
+因为开始杀了啊。</blockquote>
+不是，感觉是网络问题
+
+首先我现在在反重力里面也用不了argon
+
+然后我在单位，用电信的流量，他就知道我是在大陆，但是定位非常有问题，一会儿我在深圳，一会儿我在西安
+
+回到家，用电信的宽带，哎，我到美国了（curl.exe -4 [https://ipinfo.io/json](https://ipinfo.io/json) 还是真实位置，江苏）
+
+*****
+
+####  冤枉呐  
+##### 19169#       发表于 2026-11-4 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464419&amp;ptid=2275806" target="_blank">Quelaan 发表于 2026-11-3 23:27</a>
+
+现在本地TTS或者VC哪个模型比较强？想做个影之刃的主角语音替换MOD</blockquote>
+我用的qwen，第一步跑通了
+
+然后模拟人声还没试
+
+Fish Audio据说是nsfw特化，但是好像说内存占用很高
+
+*****
+
+####  lambl  
+##### 19170#       发表于 2026-11-4 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464475&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-3 23:48</a>
+
+靠，我问了下ai，cdp是什么，然后我瘫坐了
+
+还有这种神器啊！我好多鬼点子因为ai对浏览器权限过低没法实 ...</blockquote>
+哈哈，给它开个端口，之后它就可以直接操作你的浏览器了，都不需要什么桥接跟各种允许，而且什么截图，鼠标，读dom这些都直接可以完成，如果你装个see-now，它就可以直接看浏览器页面，连截图都不用。
+
