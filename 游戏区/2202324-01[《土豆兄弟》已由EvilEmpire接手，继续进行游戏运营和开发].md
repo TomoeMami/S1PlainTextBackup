@@ -155,3 +155,34 @@
 感觉机械土豆是新版本生物了，太轮椅了</blockquote>
 他通关解锁的那个道具也很离谱，直接让一些怕死的角色变得不怕死，用钱换命太强了
 
+
+*****
+
+####  横寺阳人  
+##### 464#       发表于 2026-11-4 02:19
+
+<img src="https://img.stage1st.com/forum/202611/04/021510ic3fx8sjf7fsx0c8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (396.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-4 02:15 上传
+
+感觉以前不好搞诅咒武的都巨大提升，说的就是匪徒完全碾压……不过机枪也非常猛就是了
+
+经济强的感觉这版本打不过战力强的，比如猎人游侠之类的很舒服，并且机械流的提升太稳定了，而且不看经济基本只看你战力。
+
+另外近战越来越赤石，新怪物弹幕和走位都很诡异完全不利好近战，淤泥减速根本不好走位，还有一堆洞妨碍输出，近战恶劣到一定程度了环境。
+
+
+*****
+
+####  横寺阳人  
+##### 465#       发表于 2026-11-4 02:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464253&amp;ptid=2202324" target="_blank">最美人贩子 发表于 2026-11-3 22:43</a>
+
+不知道是不是太久没玩的原因，回坑以后感觉丛林好难啊，怎么完全找不到以前遨游深海的感觉了。尤其是那些成 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">丛林就是挺难得，建议不要太管发育战力拉满，就要机械化提升战力就好，另外近战很吃屎也是真的……
+
