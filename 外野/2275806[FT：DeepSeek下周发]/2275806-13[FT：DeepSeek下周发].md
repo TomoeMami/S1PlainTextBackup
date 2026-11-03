@@ -15463,3 +15463,41 @@ ios礼品卡可以，谷歌不行。不过我觉得小号学生优惠更划算�
 这玩意实际上不需要，直接把vibe的key填进去dsh官方的mistral里面就行</blockquote>
 老哥指条路  速度 用量  智力怎么样
 
+
+*****
+
+####  andychen  
+##### 19069#       发表于 2026-11-3 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70460829&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-3 10:46</a>
+GDPx这个新benchmark太吓人了
+
+什么文科狂魔</blockquote>
+你得看它下面的测试说明
+
+他们的法律和金融部分测试分数计算是完全看结果的，部分通过仍然被记为0分。因为他们认为这两个领域对错误非常敏感，一个案子中间有一点瑕疵就不能用了
+
+
+*****
+
+####  andychen  
+##### 19070#       发表于 2026-11-3 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70460769&amp;ptid=2275806" target="_blank">吴怀在 发表于 2026-11-3 10:38</a>
+这不就比的是模型公司是否能达拿到私有领域的专业知识做训练</blockquote>
+要看你怎么想了
+
+前面也有楼友分享过，现在oa两家的看法都是智能是内生的，所以对他们来说想办法拿更多私有数据不如多弄点算力扩大训练规模。而他们两家的大规模模型在这个榜上的结果并不差
+
+
+*****
+
+####  andychen  
+##### 19071#       发表于 2026-11-3 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70460974&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-3 11:03</a>
+这测的世界知识吧，问题是有时效性的知识还是得有自己提供的知识库做验证呀，模型训练提供的只是思维方式而 ...</blockquote>
+不光是世界知识，他们在每个测试领域使用的方法论都是贴近现实应用场景的，比起理论性能跑分更接近实际使用感受
+
+我个人认为这个榜的一个问题是没有把harness纳入进去，任务复杂度越高如何调度和管理请求越重要
+
