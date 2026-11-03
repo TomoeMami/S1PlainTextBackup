@@ -15143,3 +15143,28 @@ Semianalysis,弄了个自己的榜，地址：https://newsletter.semianalysis.co
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  YoumuChan  
+##### 19038#       发表于 2026-11-3 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70456658&amp;ptid=2275806" target="_blank">lmclmc2 发表于 2026-11-2 12:50</a>
+gpt做后端真有东西的，但是前端审美无法直视……
+
+论坛助手,iPhone</blockquote>
+gpt写后端时的taste可不敢恭维，目前做架构感觉还是opus断崖领先
+
+— from Sony XQ-DQ54, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  warlock228  
+##### 19039#       发表于 2026-11-3 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70460143&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-11-3 08:53</a>
+就不能是人剪的吗
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈哈 AI时代惯性第一个排除古法
+
