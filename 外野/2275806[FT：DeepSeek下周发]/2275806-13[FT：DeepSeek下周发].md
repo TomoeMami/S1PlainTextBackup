@@ -16345,3 +16345,13 @@ https://longcat.ai/blog/longcat-2.5/ ...</blockquote>
 
 2026-11-3 22:53 上传
 
+
+*****
+
+####  overflowal  
+##### 19162#       发表于 2026-11-3 23:00
+
+<blockquote>xiaoboost 发表于 2026-11-3 21:37
+看了下 dsh 的这篇 super agent 的文章，感觉思路的话，大伙儿只要用 agent 用的多了，或多或少都有这样的 ...</blockquote>
+你说的那个是orchestrator, deepseek 这个router真的单纯派活出去的。
+
