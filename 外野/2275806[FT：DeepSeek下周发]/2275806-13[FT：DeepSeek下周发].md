@@ -15753,3 +15753,32 @@ V4p也寄了，man,what can i say
 
 看检测网站v4p还在性能下降中
 
+
+*****
+
+####  Tomorrow_D  
+##### 19101#       发表于 2026-11-3 17:20
+
+能再有补偿吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过前天DSH把我给搞破防了，像听不懂人话似的，没忍住跟AI吵了一架<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  艾诺琳  
+##### 19102#       发表于 2026-11-3 17:24
+
+好像WorkBuddy的ds也炸了
+
+
+*****
+
+####  tonyunreal  
+##### 19103#       发表于 2026-11-3 17:26
+
+没好啊，只有3tok/s
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
