@@ -10884,3 +10884,13 @@ ign日本测评姗姗来迟，形容本作为满汉全席。
 最近刚开始玩，这外传的时间真的弱智吧，白发鬼一个17号的外传打完只剩5回合，可他没考虑过地图可能刷怪卡 ...</blockquote>
 格子去占一下到时候会自动传送
 
+
+*****
+
+####  沙发果冻  
+##### 8434#       发表于 2026-11-3 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70463312&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-11-3 18:22</a>
+格子去占一下到时候会自动传送</blockquote>
+已经重玩了，太气了，完全没想到能有这么坑的点<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
