@@ -16041,3 +16041,46 @@ pro一直炸，flash好了又炸。这次又有补偿了吗<img src="https://sta
 
 梁圣，再补偿一次，带着大家再冲一次吧<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  77BBC  
+##### 19135#       发表于 2026-11-3 18:40
+
+又有余额送了吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Promeus  
+##### 19136#       发表于 2026-11-3 18:41
+
+又全部部分中断了
+
+*****
+
+####  绯色日照  
+##### 19137#       发表于 2026-11-3 18:41
+
+wb的红色感叹号没了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">但感觉还是卡卡的
+
+
+*****
+
+####  2017.05.04  
+##### 19138#       发表于 2026-11-3 18:42
+
+今天炸的可够大的
+还好该干的都干完了
+
+—— 来自 HUAWEI CMM-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  Promeus  
+##### 19139#       发表于 2026-11-3 18:46
+
+修好了，man！
+
