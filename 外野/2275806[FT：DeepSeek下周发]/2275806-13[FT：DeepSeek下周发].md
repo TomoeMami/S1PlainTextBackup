@@ -15423,3 +15423,43 @@ ios礼品卡可以，谷歌不行。不过我觉得小号学生优惠更划算�
 
 李佳琦淘天直播的门面之一，淘天是阿里的，千问办公也是阿里的，本质推广活动，有什么不好理解的
 
+
+*****
+
+####  很久就在那边l  
+##### 19065#       发表于 2026-11-3 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70462286&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-11-3 15:06</a>
+两千万token的月卡都有人买，李佳琦受众的钱确实好赚</blockquote>
+直播间一分钱一个和白送差不多的
+
+
+*****
+
+####  空き地卯木  
+##### 19066#       发表于 2026-11-3 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70462355&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-3 15:18</a>
+直播间一分钱一个和白送差不多的</blockquote>
+难绷，怪不得不说营业额，合着是发鸡蛋来了
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 19067#       发表于 2026-11-3 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70460977&amp;ptid=2275806" target="_blank">tewaku 发表于 2026-11-3 11:03</a>
+
+有个问题想问下，谷歌为什么搞得这么麻烦不能像ds那样充钱给扣款或者绑了卡扣款完事，还要搞什么反代什么的 ...</blockquote>
+烧信用卡相比pro和ultra订阅还是太贵了，不过谷大善人绑卡送的300刀还是能在vertex上用，就是API比aistudio调出来麻烦点，适用格式没那么广
+
+*****
+
+####  唠叨  
+##### 19068#       发表于 2026-11-3 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70461505&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-11-3 12:24</a>
+这玩意实际上不需要，直接把vibe的key填进去dsh官方的mistral里面就行</blockquote>
+老哥指条路  速度 用量  智力怎么样
+
