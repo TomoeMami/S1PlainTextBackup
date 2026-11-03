@@ -11070,3 +11070,15 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 —— 来自 S1Fun</blockquote>
 不行，目前来看转职成功率用的是升级时加力量的乱数，比如你30%的力量成长率升级时加了力量，那读档回去转职成功率在30%以上的就一定会成功
 
+
+*****
+
+####  cig2  
+##### 8453#       发表于 2026-11-4 07:04
+
+玩到第十二章关于索雷尔闲逛的支线，最后发现他经常出入国宾馆旁边的小花园，是不是他偷偷去幽法丝神殿，是不是碰到过猫猫头啊，那他会不会在决赛之前就确认了猫猫头身份同时帮助猫猫头恢复记忆了，但是个性犹犹豫豫导致没有和小姨子摊牌造成后面的悲剧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+期待dlc猫猫头内容和神威法王被砍头的剧情<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+猫猫头过于可爱，以至于难以接受欧若拉是索雷尔妹妹的任何可能性<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
+
+—— 来自 samsung SM-S9180, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
