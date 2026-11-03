@@ -11034,3 +11034,14 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 
 现在刷不本来就是没苦硬吃吗，先不谈dlc会不会给点妙妙小工具，现在刷了不也没东西打吗
 
+
+*****
+
+####  未熟串烧  
+##### 8450#       发表于 2026-11-4 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464435&amp;ptid=2261859" target="_blank">嘲风 发表于 2026-11-3 23:32</a>
+
+哪个志支援页面？</blockquote>
+菜单-情报-支援情报，对着这个选项ab一次就推进一次乱数了。
+
