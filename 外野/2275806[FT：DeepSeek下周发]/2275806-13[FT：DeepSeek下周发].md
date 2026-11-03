@@ -16101,3 +16101,11 @@ wb的红色感叹号没了<img src="https://static.stage1st.com/image/smiley/fac
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  一般市民  
+##### 19142#       发表于 2026-11-3 19:12
+
+现在只有小肥鱼就时不时炸一下，大肥鱼炼好了那不得天天炸？但是大肥鱼炼不好也不行，梁子进退两难了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
