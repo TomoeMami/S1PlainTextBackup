@@ -11057,3 +11057,16 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  シルフィエット  
+##### 8452#       发表于 2026-11-4 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464620&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-11-4 00:55</a>
+
+可以刷转职的成功率吗？
+
+—— 来自 S1Fun</blockquote>
+不行，目前来看转职成功率用的是升级时加力量的乱数，比如你30%的力量成长率升级时加了力量，那读档回去转职成功率在30%以上的就一定会成功
+
