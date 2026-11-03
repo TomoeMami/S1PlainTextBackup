@@ -15829,3 +15829,28 @@ pro还在炸，大的真的要来了
 
 4.1pro快来啊，我要狠狠的蹬。
 
+
+*****
+
+####  warlock228  
+##### 19110#       发表于 2026-11-3 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70462954&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-11-3 17:15</a>
+
+话说现在国内模型做 PPT（有模板） 有没有比较好的模型和 skill 选择？</blockquote>
+直接发模板给AI要他做成skill
+
+*****
+
+####  小野賢章  
+##### 19111#       发表于 2026-11-3 17:47
+
+网页版还是不行啊，会自动停止<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 19112#       发表于 2026-11-3 17:48
+
+又都炸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
