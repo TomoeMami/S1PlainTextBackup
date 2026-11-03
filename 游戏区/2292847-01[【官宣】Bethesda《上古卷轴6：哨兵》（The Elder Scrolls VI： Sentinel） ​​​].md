@@ -1,0 +1,371 @@
+﻿
+*****
+
+####  Piano-Forest  
+##### 1#       楼主       发表于 2026-10-30 00:39
+
+ 本帖最后由 Piano-Forest 于 2026-11-3 23:16 编辑 
+
+上古卷轴6命名《上古卷轴6：哨兵（Sentinel）》，或将最早于下月正式公布
+[https://www.theverge.com/tech/10 ... fer-layoffs-notepad](https://www.theverge.com/tech/1022023/microsoft-exit-offer-layoffs-notepad)
+
+Sources familiar with Bethesda’s plans tell me that the Xbox-owned publisher is about to announce that the next Elder Scrolls game will officially be called The Elder Scrolls VI: Sentinel. The announcement could come as soon as next month, during a period that will mark 15 years since The Elder Scrolls V: Skyrim was released.
+
+据The Verge编辑报道，《上古卷轴6》被命名为《上古卷轴6：哨兵》（The Elder Scrolls VI: Sentinel）
+
+​​​​预计Bethesda最早于下月正式公布（届时将是上古卷轴5：天际发售的15周年），本作故事将发生在落锤省
+
+*****
+
+####  huahuaanying  
+##### 2#       发表于 2026-10-30 01:13
+
+我感觉美国佬很喜欢给哨兵这个兵种加很重的光环
+
+*****
+
+####  曼彻斯特联  
+##### 3#       发表于 2026-10-30 01:25
+
+哨兵这个副标题很早以前就有过爆料吧，爆料人还说了什么来着？
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+*****
+
+####  posthoc  
+##### 4#       发表于 2026-10-30 01:32
+
+Sentinel是地名，落锤西北的大都市+重要港口，风格是中东风。话说这个我记得当年刚出宣传片的时候就是这么爆料的根本就不是新闻。另外主贴给的新闻链接是微软裁员的事情，而且不是游戏部门相关。
+
+*****
+
+####  2014720  
+##### 5#       发表于 2026-10-30 02:18
+
+ 本帖最后由 2014720 于 2026-10-30 02:21 编辑 
+
+开发时间这么久，感觉死球了
+
+我比较期待ai后开放世界游戏能不能再上一个档次，小陶你还行吗
+
+*****
+
+####  Piano-Forest  
+##### 6#         楼主| 发表于 2026-10-30 02:43
+
+ 本帖最后由 Piano-Forest 于 2026-10-30 02:49 编辑 
+
+18年E3
+[https://youtu.be/OkFdqqyI8y4](https://youtu.be/OkFdqqyI8y4)
+
+********
+
+Sentinel
+<img src="https://p.sda1.dev/35/2b166a78630e333ed455685e3292159d/1000176122.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Adrenaline!!!  
+##### 7#       发表于 2026-10-30 03:19
+
+是不是给下代主机护航哦，再拖两年无论是陶德还是三姐都不会允许了吧。
+
+*****
+
+####  safa3232  
+##### 8#       发表于 2026-10-30 08:01
+
+可别是星空二。
+
+*****
+
+####  SergeGlenn  
+##### 9#       发表于 2026-10-30 08:04
+
+怎么翻译，哨卫城？
+
+如果真有什么鬼航海的话，还真有可能带点星空味
+
+*****
+
+####  wlhlz  
+##### 10#       发表于 2026-10-30 09:03
+
+你别说，我最期待可能也是唯一期待滚6的就是加入航海把星空的拼船系统给搬过来，其他方面作为杯赛老玩家根本不会有什么不切实际的幻想，老滚本身就是个从滚4开始就不再有实质性进化的游戏
+
+*****
+
+####  Delvecchio  
+##### 11#       发表于 2026-10-30 09:19
+
+可能会是又一个刺客信条 幻景
+
+*****
+
+####  shamanda  
+##### 12#       发表于 2026-10-30 09:33
+
+一直在玩上古卷轴ol，哨兵城不就是红卫人老家嘛。黑人倒是挺政治正确的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，所在地图是沙漠。按照天际在网游里大概有5，6块地图的大小，可能整个匕落那块都会讲吧，不过网游才第二纪元，不知道单机的时间线什么情况。
+
+*****
+
+####  黑卷轴陶德传  
+##### 13#       发表于 2026-10-30 10:18
+
+绿火之夜大屠杀的发生地，主线会不会是当地人起义反抗先祖神州？
+
+*****
+
+####  nightraven  
+##### 14#       发表于 2026-10-30 10:28
+
+超级小陶别再折腾滚五和辐射四的更新了，好好开发新作吧<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  posthoc  
+##### 15#       发表于 2026-10-30 11:06
+
+航海的话就是在Iliac海湾里开船吧，就那么几个岛都是有数的和星空应该还是不太一样。可能更类似Witcher3在群岛开船……
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  Mr_NaHCO3  
+##### 16#       发表于 2026-10-30 11:38
+
+ol是第二纪元，5代开始进入第四纪元，6代会出现一个塔罗斯那样的天降伟人从落锤出发横扫大陆吗
+
+*****
+
+####  M_K  
+##### 17#       发表于 2026-10-30 11:51
+
+都忘了预告片是什么时候看的了，看的还是直播<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AlienFromEarth  
+##### 18#       发表于 2026-10-30 12:31
+
+ 本帖最后由 AlienFromEarth 于 2026-10-30 12:33 编辑 
+<blockquote>wlhlz 发表于 2026-10-30 09:03
+你别说，我最期待可能也是唯一期待滚6的就是加入航海把星空的拼船系统给搬过来，其他方面作为杯赛老玩家根 ...</blockquote>
+
+对，其实5是各方面退化，然后拿一堆其他花里胡哨但其实没意义的无聊系统显得进化了，把人腿砍了然后给轮椅。所有npc都是布娃娃，空的惊人
+
+*****
+
+####  Humpy  
+##### 19#       发表于 2026-10-30 12:51
+
+落锤倒是不意外，不过感觉到时候国内会有不少人喷这作政治正确了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 20#       发表于 2026-10-30 13:14
+
+ 本帖最后由 星花 于 2026-10-30 13:15 编辑 
+
+老头滚动条⑥SB。
+
+——这游戏我可不看好。能不比星空差就算奇迹了。
+
+*****
+
+####  zzf111  
+##### 21#       发表于 2026-10-30 14:21
+
+ 本帖最后由 zzf111 于 2026-10-30 14:28 编辑 
+
+基本每代都得有个纪元超级大事件吧
+
+lore上记不太清了 总记得按时间讲后天际时代会有个和世界塔有关大的马上要来了
+
+最后一个塔就在落锤附近吧
+
+另外我是真喜欢天际独一份全方位冷峻朴素的艺术风格，可惜近几年西幻rpg风格都超级浮夸
+
+*****
+
+####  iou90  
+##### 22#       发表于 2026-10-30 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443622&amp;ptid=2292847" target="_blank">M_K 发表于 2026-10-30 11:51</a>
+都忘了预告片是什么时候看的了，看的还是直播</blockquote>
+18年 e3 那年 e3 结尾是 2077 的片
+估计最快2028年发售就不错了
+
+*****
+
+####  fmban  
+##### 23#       发表于 2026-10-30 15:44
+
+这是小陶最后一部老滚了吧
+
+*****
+
+####  zhenlune  
+##### 24#       发表于 2026-10-30 15:47
+
+比星空差还是很难的，星空那个接了任务后按B进菜单，摇杆向下推两次，长按x快速传送到任务目的地的玩法我能记一辈子
+
+*****
+
+####  snarc1  
+##### 25#       发表于 2026-10-30 16:51
+
+这么久了很难抱有什么期望，超级小陶老了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  奉天靖难  
+##### 26#       发表于 2026-10-30 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70443806&amp;ptid=2292847" target="_blank">AlienFromEarth 发表于 2026-10-30 12:31</a>
+
+对，其实5是各方面退化，然后拿一堆其他花里胡哨但其实没意义的无聊系统显得进化了，把人腿砍了然后给轮 ...</blockquote>
+但是5的终结技动画系统是真有用，大部分MOD只有搭配终结技动画才能引发最佳的实用效果。如果没有这个终结技动画系统，玩家至少要流失一半，就像四代重置版现在也是不温不火。
+
+*****
+
+####  汪达  
+##### 27#       发表于 2026-10-30 17:12
+
+星空的负面评价让小陶已成哀兵，哀兵必胜
+
+*****
+
+####  alitonz  
+##### 28#       发表于 2026-10-30 17:16
+
+在我心中天国拯救2除了没有魔法之外就几乎是上古卷轴6的该有的样子
+
+杯赛这个样子滚6很可能不如战马的下一部作品，要是战马能接一个外传做就好了……
+
+*****
+
+####  Piano-Forest  
+##### 29#         楼主| 发表于 2026-11-3 23:05
+
+ 本帖最后由 Piano-Forest 于 2026-11-3 23:33 编辑 
+
+官宣 The Elder Scrolls VI Sentinel 
+[https://youtu.be/mFu8t9735IY](https://youtu.be/mFu8t9735IY)
+
+“The scroll offered only a shimmer, a veil thinly lifted to my eyes. A future lost. A victory undone. Sands of time scattered by fate.” 
+
+——Yazar, Moth Priest to High Queen Iradne of Hammerfell (4E 206)
+
+Your next journey to Tamriel will be in The Elder Scrolls VI: Sentinel.
+
+*****
+
+####  Piano-Forest  
+##### 30#         楼主| 发表于 2026-11-3 23:10
+
+ 本帖最后由 Piano-Forest 于 2026-11-3 23:23 编辑 
+
+Embark on your next journey to Tamriel in The Elder Scrolls VI: Sentinel.
+
+Thank you for 40 years of shared memories. We can’t wait to make even more together with The Elder Scrolls VI: Sentinel. Development continues, and while it’ll be some time before we’re ready to share more, it feels great to finally reveal the name and location with you.
+
+<img src="https://p.sda1.dev/35/93b957f61c85a0d92c2bec059680b40f/1000176446.jpg" referrerpolicy="no-referrer">">
+<img src="https://p.sda1.dev/35/1b333573dc382ab7110da52ec4d746d9/1000176447.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Adrenaline!!!  
+##### 31#       发表于 2026-11-3 23:16
+
+大的真来啦
+
+*****
+
+####  SergeGlenn  
+##### 32#       发表于 2026-11-3 23:17
+
+这话的意思不是短期内没有新演示吗
+
+*****
+
+####  ナルバレック  
+##### 33#       发表于 2026-11-3 23:19
+
+ 本帖最后由 ナルバレック 于 2026-11-3 23:23 编辑 
+
+实锤又是红卫主角了，这就是个落锤省的城市名
+
+*****
+
+####  ナルバレック  
+##### 34#       发表于 2026-11-3 23:25
+
+红卫人要吹就是往剑歌者那边扯，核弹剑仙红卫少侠
+
+*****
+
+####  isa2456  
+##### 35#       发表于 2026-11-3 23:29
+
+依旧爱陶信陶等陶<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以前小陶有点东西都会直接丢一大块出来的，现在搞个title整那么大阵仗
+
+*****
+
+####  BK10  
+##### 36#       发表于 2026-11-3 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464388&amp;ptid=2292847" target="_blank">SergeGlenn 发表于 2026-11-3 23:17</a>
+这话的意思不是短期内没有新演示吗</blockquote>
+杯赛放演示那就是要发售了，会和发售日预告一起的
+
+*****
+
+####  爱护动物抓根宝  
+##### 37#       发表于 2026-11-3 23:36
+
+ 本帖最后由 爱护动物抓根宝 于 2026-11-3 23:37 编辑 
+
+这作是真尼格卷轴吧，等不及看怎么炸锅了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  骨于野  
+##### 38#       发表于 2026-11-3 23:37
+
+“卷轴仅提供了一抹微光，一层面纱在我眼中薄薄掀起。一个失去的未来。一个被逆转的胜利。被命运驱散的时间之沙。”
+
+亚扎尔，蛾祭司致锤落志高女王伊拉德妮（4E 206）
+
+*****
+
+####  ナルバレック  
+##### 39#       发表于 2026-11-3 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464446&amp;ptid=2292847" target="_blank">爱护动物抓根宝 发表于 2026-11-3 23:36</a>
+
+这作是真尼格卷轴吧，等不及看怎么炸锅了</blockquote>
+红卫人偏向棕色人种，二代和OL的来看更像毛利人和波利尼西亚人，服装像阿拉伯人，文化有点类似于波斯和印度
+
+*****
+
+####  diodio233  
+##### 40#       发表于 2026-11-3 23:42
+
+小陶还没被微软阿三干掉啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  骨于野  
+##### 41#       发表于 2026-11-3 23:45
+
+看结束语，不会与ol新的命运魔神有关吧
+

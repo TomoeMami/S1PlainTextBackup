@@ -10992,3 +10992,11 @@ ign日本测评姗姗来迟，形容本作为满汉全席。
 
 这个方法也可以用于女王sl军团和训练，以后都可以完美训练了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 8445#       发表于 2026-11-3 23:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 之前吃的苦都算什么呢？
+
