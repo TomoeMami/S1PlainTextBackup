@@ -15679,3 +15679,77 @@ longcat据说是拿着910C硬训。。还是比较勇的，估计屎没少吃。
 
 看了一下最近7天蹬了6t的token，一共354。
 
+
+*****
+
+####  hersi  
+##### 19092#       发表于 2026-11-3 17:08
+
+怎么又崩了啊
+
+*****
+
+####  费雷拉  
+##### 19093#       发表于 2026-11-3 17:08
+
+想了想感觉中了梁子的计，因为之前退过钱，最近消费倾向明显变高了
+
+
+*****
+
+####  Promeus  
+##### 19094#       发表于 2026-11-3 17:12
+
+V4p也寄了，man,what can i say
+
+*****
+
+####  大肥鱼  
+##### 19095#       发表于 2026-11-3 17:12
+
+现在应该恢复了吧？只不过现在手机上客户端已经给了回答，还没有尝试一下API。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  xell2alex  
+##### 19096#       发表于 2026-11-3 17:14
+
+修好了，看来是没有全场梁子买单了<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJX110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  HazukiShion  
+##### 19097#       发表于 2026-11-3 17:15
+
+话说现在国内模型做 PPT（有模板） 有没有比较好的模型和 skill 选择？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sakatta  
+##### 19098#       发表于 2026-11-3 17:15
+
+还真恢复了，API已经能用了<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 19099#       发表于 2026-11-3 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70462007&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-11-3 14:16</a>
+
+现在还能整土区么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天凌晨刚充的，苹果土区，我甚至还是注销Google one强行打断之前充的pro之后再转用iOS订土区
+
+*****
+
+####  Promeus  
+##### 19100#       发表于 2026-11-3 17:17
+
+看检测网站v4p还在性能下降中
+
