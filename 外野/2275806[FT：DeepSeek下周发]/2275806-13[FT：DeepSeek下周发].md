@@ -15529,3 +15529,16 @@ GDPx这个新benchmark太吓人了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在都有哪些野榜可以看着图一乐啊
 
+
+*****
+
+####  hugosol  
+##### 19075#       发表于 2026-11-3 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70460597&amp;ptid=2275806" target="_blank">YoumuChan 发表于 2026-11-3 10:12</a>
+
+gpt写后端时的taste可不敢恭维，目前做架构感觉还是opus断崖领先
+
+— from Sony XQ-DQ54, Android 15, S1 ...</blockquote>
+感觉taste问题几乎无解，只要用过grilling就知道一个需求有几十种不同的分支去实现，llm几乎总会走到那个错误的分支上，然后错误的决策长期下来就会被不断积累放大，就跟熵增一样，这个过程没有人类介入的话是不可逆的
+
