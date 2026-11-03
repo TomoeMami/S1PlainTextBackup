@@ -15118,3 +15118,28 @@ Semianalysis,弄了个自己的榜，地址：https://newsletter.semianalysis.co
 </blockquote>
 你k3.1够用？ 我怎么感觉也不够啊。烧的库库的
 
+
+*****
+
+####  cscbzcbz  
+##### 19036#       发表于 2026-11-3 08:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70459900&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-3 07:29</a>
+【【AI动效】六模型复刻DSH宣传视频 看完41F难道视频是41P做的？-哔哩哔哩】 https://b23.tv/BV1Vh4N6rE6E
+ ...</blockquote>
+就不能是人剪的吗<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  neptunehs  
+##### 19037#       发表于 2026-11-3 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70459964&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-3 08:10</a>
+Semianalysis,弄了个自己的榜，地址：https://newsletter.semianalysis.com/p/gdpx-measuring-frontier-mod ...</blockquote>
+但我目前依然觉得有gemini 4 carbon的 基本都不可能是什么公正的榜
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
