@@ -11000,3 +11000,29 @@ ign日本测评姗姗来迟，形容本作为满汉全席。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 之前吃的苦都算什么呢？
 
+
+*****
+
+####  蓮華  
+##### 8446#       发表于 2026-11-3 23:48
+
+是指开一下情报里的支援列表吗
+
+
+*****
+
+####  1wq1  
+##### 8447#       发表于 2026-11-3 23:51
+
+无飞兵不清瘴气不用芙托娜以外的加护打了一遍第三部，感觉同种打法下比第二部简单，4线全集强者还是太多了，等dlc了
+
+*****
+
+####  lmclmc2  
+##### 8448#       发表于 2026-11-3 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464454&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-11-3 23:38</a>
+
+之前吃的苦都算什么呢？</blockquote>
+DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以吃后发的游戏新理解,总的来说还是不要太纠结..
+

@@ -16406,3 +16406,16 @@ longcat这个看跑分真的可以了
 
 现在本地TTS或者VC哪个模型比较强？想做个影之刃的主角语音替换MOD
 
+
+*****
+
+####  洛拉斯  
+##### 19167#       发表于 2026-11-3 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70463718&amp;ptid=2275806" target="_blank">lambl 发表于 2026-11-3 20:15</a>
+
+我去试了下，因为我装了看图插件，加上我有CDP，她直接绕过浏览器就可以让豆包出图，然后看一眼就可以下 ...</blockquote>
+靠，我问了下ai，cdp是什么，然后我瘫坐了
+
+还有这种神器啊！我好多鬼点子因为ai对浏览器权限过低没法实现！
+

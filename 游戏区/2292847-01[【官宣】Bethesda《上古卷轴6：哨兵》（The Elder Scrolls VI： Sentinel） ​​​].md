@@ -369,3 +369,11 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 看结束语，不会与ol新的命运魔神有关吧
 
+
+*****
+
+####  docklabor  
+##### 42#       发表于 2026-11-3 23:56
+
+明年11月应该能发售了，这次隔星空4年，居然会感觉好快，之前辐射4和星空隔了8年
+
