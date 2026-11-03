@@ -10865,3 +10865,22 @@ ign日本测评姗姗来迟，形容本作为满汉全席。
 虽然也很难理解奶龙为啥这么多年也真不收回成命也不见女儿，可能 ...</blockquote>
 斗技场老头子说他看过很多咯血咯死的，他们就是治不了
 
+
+*****
+
+####  沙发果冻  
+##### 8432#       发表于 2026-11-3 18:21
+
+最近刚开始玩，这外传的时间真的弱智吧，白发鬼一个17号的外传打完只剩5回合，可他没考虑过地图可能刷怪卡路么，差一个回合就只能重玩真的吐血<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jabeck  
+##### 8433#       发表于 2026-11-3 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70463307&amp;ptid=2261859" target="_blank">沙发果冻 发表于 2026-11-3 18:21</a>
+
+最近刚开始玩，这外传的时间真的弱智吧，白发鬼一个17号的外传打完只剩5回合，可他没考虑过地图可能刷怪卡 ...</blockquote>
+格子去占一下到时候会自动传送
+

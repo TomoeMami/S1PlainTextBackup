@@ -16000,3 +16000,36 @@ pro还是崩着的....
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Yeelolo  
+##### 19130#       发表于 2026-11-3 18:20
+
+pro好像比flash稳定啊 flash一直崩<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">会有大的吗
+
+
+*****
+
+####  Promeus  
+##### 19131#       发表于 2026-11-3 18:23
+
+又炸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 19132#       发表于 2026-11-3 18:25
+
+pro一直炸，flash好了又炸。这次又有补偿了吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+又亏了，这一周就没用过官方api，全用的ocg
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  吴怀在  
+##### 19133#       发表于 2026-11-3 18:25
+
+这时候挂掉，是不是他们必须得加班了
+
