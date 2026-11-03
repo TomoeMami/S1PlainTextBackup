@@ -15542,3 +15542,13 @@ gpt写后端时的taste可不敢恭维，目前做架构感觉还是opus断崖�
 — from Sony XQ-DQ54, Android 15, S1 ...</blockquote>
 感觉taste问题几乎无解，只要用过grilling就知道一个需求有几十种不同的分支去实现，llm几乎总会走到那个错误的分支上，然后错误的决策长期下来就会被不断积累放大，就跟熵增一样，这个过程没有人类介入的话是不可逆的
 
+
+*****
+
+####  xell2alex  
+##### 19076#       发表于 2026-11-3 16:56
+
+大肥鱼又崩了吗，公司和家里的任务全挂了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJX110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
