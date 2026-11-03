@@ -15854,3 +15854,59 @@ pro还在炸，大的真的要来了
 
 又都炸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  warlock228  
+##### 19113#       发表于 2026-11-3 17:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最近蹬GML多肥鱼几乎在吃灰  这波真要发鲸元卷又亏了一个亿了
+
+*****
+
+####  cscbzcbz  
+##### 19114#       发表于 2026-11-3 17:49
+
+大的要来了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  xell2alex  
+##### 19115#       发表于 2026-11-3 17:49
+
+彻底完犊子了，之后是梁圣还是梁子，就全看梁总表现了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJX110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  zhongjie  
+##### 19116#       发表于 2026-11-3 17:51
+
+大的要来了？一周内发布？
+
+*****
+
+####  overflowal  
+##### 19117#       发表于 2026-11-3 17:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这是集群又挂了吧
+
+
+*****
+
+####  飛霞精灵  
+##### 19118#       发表于 2026-11-3 17:55
+
+大——肥——鱼——
+
+*****
+
+####  赛文欧德  
+##### 19119#       发表于 2026-11-3 17:57
+
+现在大肥鱼是不是又挂掉了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
