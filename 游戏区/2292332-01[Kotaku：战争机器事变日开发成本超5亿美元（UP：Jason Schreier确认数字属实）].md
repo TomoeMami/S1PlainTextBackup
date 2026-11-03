@@ -640,3 +640,11 @@ https://youtu.be/YS5kfdJ0ySo?si=MxuddhoD_rq67tZ_
 
 能把星际射击游戏早点端上来就好了。我看可以做免费DLC，把星际单位先搬上来，大菠萝那些牛鬼蛇神也可以。做成HD2+任斗的合体版，微软明星（被）大乱射。
 
+
+*****
+
+####  sgssk  
+##### 55#       发表于 2026-11-3 09:34
+
+微软还是太有钱了，我只能猜测他们旗下工作室平均年薪高达当地2倍了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
