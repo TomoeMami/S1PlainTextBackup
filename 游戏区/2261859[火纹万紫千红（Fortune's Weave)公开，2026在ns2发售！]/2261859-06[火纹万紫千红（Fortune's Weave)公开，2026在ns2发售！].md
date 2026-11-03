@@ -10902,3 +10902,14 @@ ign日本测评姗姗来迟，形容本作为满汉全席。
 
 在别处看到大地图上的乱数进出一次支援页面就能推进，试了一下是真的，这下可以说凯伊抓坐骑随便定制了<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绯天终焉  
+##### 8436#       发表于 2026-11-3 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70463765&amp;ptid=2261859" target="_blank">未熟串烧 发表于 2026-11-3 20:27</a>
+
+在别处看到大地图上的乱数进出一次支援页面就能推进，试了一下是真的，这下可以说凯伊抓坐骑随便定制了 ...</blockquote>
+我也看到了，但是机器不在手边，打算明天试试看，能节省很多回合吗？
+
