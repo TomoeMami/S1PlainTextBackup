@@ -11045,3 +11045,15 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 哪个志支援页面？</blockquote>
 菜单-情报-支援情报，对着这个选项ab一次就推进一次乱数了。
 
+
+*****
+
+####  yangchunsiyue  
+##### 8451#       发表于 2026-11-4 00:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464552&amp;ptid=2261859" target="_blank">未熟串烧 发表于 2026-11-4 00:19</a>
+菜单-情报-支援情报，对着这个选项ab一次就推进一次乱数了。</blockquote>
+可以刷转职的成功率吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

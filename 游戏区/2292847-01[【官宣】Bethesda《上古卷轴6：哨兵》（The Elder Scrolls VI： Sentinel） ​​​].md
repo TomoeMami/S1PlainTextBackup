@@ -377,3 +377,24 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 明年11月应该能发售了，这次隔星空4年，居然会感觉好快，之前辐射4和星空隔了8年
 
+
+*****
+
+####  SergeGlenn  
+##### 43#       发表于 2026-11-4 00:56
+
+<blockquote>docklabor 发表于 2026-11-3 23:56
+明年11月应该能发售了，这次隔星空4年，居然会感觉好快，之前辐射4和星空隔了8年 ...</blockquote>
+哈哈Jason刚说发售还有两年以上的间隔
+
+我认为很多人忘了，《上古卷轴6》是在2018年（和《星空》一起）才公布的，当时只是为了缓和《辐射76》带来的冲击——“别担心，虽然我们在做多人游戏，但单人游戏内容也在路上了！”很遗憾地说，这款游戏距离发售还有两年多！
+
+<img src="https://img.stage1st.com/forum/202611/04/005634xsf93sp3acxs9s5d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-11-04-00-51-02-184_mark.via-edit.jpg</strong> (238.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-4 00:56 上传
+
