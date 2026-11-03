@@ -16179,3 +16179,15 @@ pro反而没问题
 这是d老师告诉我的，我实操没问题</blockquote>
 我去试了下，因为我装了看图插件，加上我有CDP，她直接绕过浏览器就可以让豆包出图，然后看一眼就可以下载。还蛮好用的
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 19149#       发表于 2026-11-3 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70462898&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-11-3 17:06</a>
+longcat据说是拿着910C硬训。。还是比较勇的，估计屎没少吃。Deepseek好歹是等到950之后才开始用 ...</blockquote>
+就是的 美团100亿的只能说整个垮掉
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+

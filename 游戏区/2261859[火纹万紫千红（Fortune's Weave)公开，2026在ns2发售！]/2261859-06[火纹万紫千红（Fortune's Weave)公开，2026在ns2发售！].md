@@ -10894,3 +10894,11 @@ ign日本测评姗姗来迟，形容本作为满汉全席。
 格子去占一下到时候会自动传送</blockquote>
 已经重玩了，太气了，完全没想到能有这么坑的点<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  未熟串烧  
+##### 8435#       发表于 2026-11-3 20:27
+
+在别处看到大地图上的乱数进出一次支援页面就能推进，试了一下是真的，这下可以说凯伊抓坐骑随便定制了<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
