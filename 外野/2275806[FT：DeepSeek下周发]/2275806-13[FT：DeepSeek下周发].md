@@ -15333,3 +15333,22 @@ GDPx这个新benchmark太吓人了
 有老哥清楚gemini现在怎么买最便宜吗？最近想写文感觉确实得试试gemini4</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苹果土区ultra 5x才280一个月
 
+
+*****
+
+####  蜇灵  
+##### 19056#       发表于 2026-11-3 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70459406&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-11-2 23:21</a>
+大肥鱼现在每天就是和我这么说话的，我反正是看不懂在说什么</blockquote>
+看起来感觉还好吧，起码能看懂
+
+*****
+
+####  蜇灵  
+##### 19057#       发表于 2026-11-3 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70459753&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-3 02:23</a>
+https://github.com/UpcleanRestmercy/mistral-bridge</blockquote>
+这玩意实际上不需要，直接把vibe的key填进去dsh官方的mistral里面就行
+
