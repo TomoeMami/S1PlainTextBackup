@@ -15280,3 +15280,12 @@ GDPx这个新benchmark太吓人了
 20plus订阅，review用Astra，干活用sol high，或者terra max档位，不知道够用不够用</blockquote>
 如果没有重置，基本很难并行任务，纯vibe coding的话 plus后面基本进入举步维艰的日子了。轻量开发问题不大。
 
+
+*****
+
+####  Promeus  
+##### 19051#       发表于 2026-11-3 11:28
+
+【deepseek v4.1flash 1017 与它的51个子代理-哔哩哔哩】 https://b23.tv/BV1X8xh6VEzJ
+<img src="https://p.sda1.dev/35/953d741ce2186c0d016c91ae0e903f08/image.jpg" referrerpolicy="no-referrer">
+

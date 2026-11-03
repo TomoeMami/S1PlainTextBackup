@@ -2817,3 +2817,11 @@ UC后期和其他异界高达独眼机体非常之少
 
 刷了50盘一台红高都没有这还似人吗<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gxliv  
+##### 4957#       发表于 2026-11-3 11:29
+
+上复制人是逃课式打法，普通的1w2打法也是有的，其实也不难
+
