@@ -16388,3 +16388,13 @@ https://longcat.ai/blog/longcat-2.5/ ...</blockquote>
 
 相比之下 ds 41f 又快又听话
 
+
+*****
+
+####  lactone  
+##### 19165#       发表于 2026-11-3 23:18
+
+longcat这个看跑分真的可以了
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
