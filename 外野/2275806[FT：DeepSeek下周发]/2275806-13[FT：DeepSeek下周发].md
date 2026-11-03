@@ -16277,3 +16277,19 @@ pro反而没问题
 
 这次又有一周吗 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moekyo  
+##### 19157#       发表于 2026-11-3 22:26
+
+我 Astra 是这样的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/03/222627ntbd82bb3n7eba2s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (140.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 22:26 上传
+
