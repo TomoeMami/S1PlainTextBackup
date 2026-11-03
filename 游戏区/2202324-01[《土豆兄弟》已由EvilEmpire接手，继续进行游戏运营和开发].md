@@ -118,3 +118,13 @@
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  风流庵TypeC  
+##### 460#       发表于 2026-11-3 20:01
+
+第一盘就来了个受苦的情况，近战加场地大坑加机械化的减速带，路都走不动近战还打不到怪
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
