@@ -16470,3 +16470,18 @@ Fish Audio据说是nsfw特化，但是好像说内存占用很高
 
 ﻿经大量用户反馈，OpenAI 下一代模型 GPT-6.2 Astra 疑似已进入小范围测试，部分 Codex 用户的使用量统计中已经出现独立模型标识「gpt-6.2-astra」。
 
+
+*****
+
+####  Quelaan  
+##### 19172#       发表于 2026-11-4 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464508&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-4 00:01</a>
+
+我用的qwen，第一步跑通了
+
+然后模拟人声还没试
+
+Fish Audio据说是nsfw特化，但是好像说内存占用很高 ...</blockquote>
+fish不是在线服务吗？GPT给我推荐用RVC
+
