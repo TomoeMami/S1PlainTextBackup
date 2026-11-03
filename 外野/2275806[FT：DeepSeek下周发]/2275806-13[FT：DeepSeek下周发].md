@@ -15300,3 +15300,26 @@ GDPx这个新benchmark太吓人了
 有老哥清楚gemini现在怎么买最便宜吗？最近想写文感觉确实得试试gemini4</blockquote>
 我研究了下是搞一堆pro号反代，然后开始狂蹬。
 
+
+*****
+
+####  绕指流光  
+##### 19053#         楼主| 发表于 2026-11-3 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70461017&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-11-3 11:10</a>
+
+有老哥清楚gemini现在怎么买最便宜吗？最近想写文感觉确实得试试gemini4</blockquote>
+前几楼有发过，现在有几个中转站支持按次和反截断，目前在用这个，酒馆体验良好：
+[https://cdn.sta1n.cn/](https://cdn.sta1n.cn/)
+
+
+*****
+
+####  med  
+##### 19054#       发表于 2026-11-3 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70460783&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-3 10:40</a>
+
+20plus订阅，review用Astra，干活用sol high，或者terra max档位，不知道够用不够用</blockquote>
+非常吃紧，5小时限额的plus是一个项目都跑不完的。
+
