@@ -16215,3 +16215,65 @@ longcat据说是拿着910C硬训。。还是比较勇的，估计屎没少吃。
 
 —— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lambl  
+##### 19152#       发表于 2026-11-3 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464034&amp;ptid=2275806" target="_blank">xiaoboost 发表于 2026-11-3 21:37</a>
+
+看了下 dsh 的这篇 super agent 的文章，感觉思路的话，大伙儿只要用 agent 用的多了，或多或少都有这样的 ...</blockquote>
+super agent 这个其实是他的一个插件来的，dsh-superagent，主要是方便github agent使用。
+
+*****
+
+####  lambl  
+##### 19153#       发表于 2026-11-3 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70463709&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-3 20:13</a>
+
+不知道为啥，突然我的所有号全部不能用gemini了
+
+pro反而没问题
+
+不知道什么鬼</blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/03/220945ew0lpl74r7t00wef.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20261103220922.jpg</strong> (152.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 22:09 上传
+
+因为开始杀了啊。
+
+
+*****
+
+####  废柴失格  
+##### 19154#       发表于 2026-11-3 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464034&amp;ptid=2275806" target="_blank">xiaoboost 发表于 2026-11-3 21:37</a>
+
+看了下 dsh 的这篇 super agent 的文章，感觉思路的话，大伙儿只要用 agent 用的多了，或多或少都有这样的 ...</blockquote>
+可以试用一下claude桌面版code的project功能。我问了下大肥鱼，跟super agent是同构的。每个project都有一个持续不可以手动压缩的coordinator,负责建立thread(跟subagent差不多),转发消息，coordinator基本不自己处理问题，开上下文大的就行，没啥区别。
+
+
+*****
+
+####  oct71952  
+##### 19155#       发表于 2026-11-3 22:17
+
+<blockquote>lambl 发表于 2026-11-3 22:09
+因为开始杀了啊。</blockquote>
+惨了，我用主号开的，还有救吗
+
+*****
+
+####  med  
+##### 19156#       发表于 2026-11-3 22:17
+
+这次又有一周吗 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
