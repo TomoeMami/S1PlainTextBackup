@@ -16398,3 +16398,11 @@ longcat这个看跑分真的可以了
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Quelaan  
+##### 19166#       发表于 2026-11-3 23:27
+
+现在本地TTS或者VC哪个模型比较强？想做个影之刃的主角语音替换MOD
+
