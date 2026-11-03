@@ -648,3 +648,11 @@ https://youtu.be/YS5kfdJ0ySo?si=MxuddhoD_rq67tZ_
 
 微软还是太有钱了，我只能猜测他们旗下工作室平均年薪高达当地2倍了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱马仕不爱生活  
+##### 56#       发表于 2026-11-3 10:54
+
+星鸣特攻都有4亿+，花大钱办小事这一块
+
