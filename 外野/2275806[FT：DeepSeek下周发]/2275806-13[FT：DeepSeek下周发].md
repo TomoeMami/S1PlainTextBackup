@@ -15251,3 +15251,21 @@ GDPx这个新benchmark太吓人了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想买4080D了，有没有坛友推荐一个渠道？
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 19048#       发表于 2026-11-3 11:10
+
+有老哥清楚gemini现在怎么买最便宜吗？最近想写文感觉确实得试试gemini4
+
+
+*****
+
+####  lactone  
+##### 19049#       发表于 2026-11-3 11:12
+
+今天中期选举，美国那边应该不会发新模吧，不然头条都拿不到
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
