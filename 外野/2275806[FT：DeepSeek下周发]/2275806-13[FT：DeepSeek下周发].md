@@ -15958,3 +15958,45 @@ pro还在炸，大的真的要来了
 
 pro还是崩着的....
 
+
+*****
+
+####  jinuzuktII  
+##### 19125#       发表于 2026-11-3 18:09
+
+难道说难道说，难道说
+
+*****
+
+####  口袋妖怪  
+##### 19126#       发表于 2026-11-3 18:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我说怎么下午感觉他有点弱智
+
+
+*****
+
+####  ov_efly  
+##### 19127#       发表于 2026-11-3 18:12
+
+不是很稳定，间歇性崩
+
+*****
+
+####  asier  
+##### 19128#       发表于 2026-11-3 18:12
+
+我怀疑全世界小一半的流量都在蹬大肥鱼
+
+
+*****
+
+####  neptunehs  
+##### 19129#       发表于 2026-11-3 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70463260&amp;ptid=2275806" target="_blank">asier 发表于 2026-11-3 18:12</a>
+我怀疑全世界小一半的流量都在蹬大肥鱼</blockquote>
+有人推测过是50%以上 算上各家自部署的
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
