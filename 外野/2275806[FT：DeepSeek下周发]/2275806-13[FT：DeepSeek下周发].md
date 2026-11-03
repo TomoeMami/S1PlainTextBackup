@@ -15394,3 +15394,24 @@ glm的降智好了吗？上一周根本处于用不了的状态
 https://cdn.sta1n.cn/ ...</blockquote>
 感谢，zsbd
 
+
+*****
+
+####  lubo  
+##### 19062#       发表于 2026-11-3 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70462007&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-11-3 14:16</a>
+
+现在还能整土区么</blockquote>
+ios礼品卡可以，谷歌不行。不过我觉得小号学生优惠更划算，tg有免费的学生认证bot，pro不到30块一个月，5x不到150
+
+
+*****
+
+####  空き地卯木  
+##### 19063#       发表于 2026-11-3 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70461699&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-11-3 13:07</a>
+双11卖token上热搜了，诸君有什么头猪吗？</blockquote>
+两千万token的月卡都有人买，李佳琦受众的钱确实好赚
+
