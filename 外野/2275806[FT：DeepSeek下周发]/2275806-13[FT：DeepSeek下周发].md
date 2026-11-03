@@ -15352,3 +15352,13 @@ GDPx这个新benchmark太吓人了
 https://github.com/UpcleanRestmercy/mistral-bridge</blockquote>
 这玩意实际上不需要，直接把vibe的key填进去dsh官方的mistral里面就行
 
+
+*****
+
+####  holylight2020  
+##### 19058#       发表于 2026-11-3 12:28
+
+glm的降智好了吗？上一周根本处于用不了的状态
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
