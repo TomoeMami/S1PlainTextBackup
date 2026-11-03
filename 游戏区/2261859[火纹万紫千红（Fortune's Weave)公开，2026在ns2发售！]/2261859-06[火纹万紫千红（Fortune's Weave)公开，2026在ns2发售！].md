@@ -10812,3 +10812,11 @@ ign日本测评姗姗来迟，形容本作为满汉全席。
 
 一边已经开歼星舰了，一边连凯伊老爹的肺痨也治不好的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 8427#       发表于 2026-11-3 14:08
+
+9.22玩到11.2通关了，期间没碰过其他游戏，存档游戏事件统计320小时...<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">4个主角+白鸟金色边框，最后选想见面的人，除了4个主角，就是法比欧，和凯伊的4人组...本着不想跟阿鲁卡多抢老婆就没选法比欧（？）选了媞雅拉，毕竟唯一眼镜娘<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

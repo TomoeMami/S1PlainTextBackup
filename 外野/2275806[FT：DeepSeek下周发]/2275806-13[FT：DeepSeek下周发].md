@@ -15370,3 +15370,14 @@ glm的降智好了吗？上一周根本处于用不了的状态
 
 双11卖token上热搜了，诸君有什么头猪吗？
 
+
+*****
+
+####  奈落的孤火花  
+##### 19060#       发表于 2026-11-3 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70461449&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-11-3 12:12</a>
+
+苹果土区ultra 5x才280一个月</blockquote>
+现在还能整土区么
+
