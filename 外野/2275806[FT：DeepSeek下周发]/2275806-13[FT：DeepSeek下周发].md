@@ -15269,3 +15269,14 @@ GDPx这个新benchmark太吓人了
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jinyu19922011  
+##### 19050#       发表于 2026-11-3 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70460783&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-3 10:40</a>
+
+20plus订阅，review用Astra，干活用sol high，或者terra max档位，不知道够用不够用</blockquote>
+如果没有重置，基本很难并行任务，纯vibe coding的话 plus后面基本进入举步维艰的日子了。轻量开发问题不大。
+
