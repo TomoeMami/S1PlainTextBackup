@@ -15552,3 +15552,130 @@ gpt写后端时的taste可不敢恭维，目前做架构感觉还是opus断崖�
 
 —— 来自 OnePlus PJX110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  魔神赵日天  
+##### 19077#       发表于 2026-11-3 16:58
+
+好像又挂了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yudms1  
+##### 19078#       发表于 2026-11-3 16:59
+
+我这边也说是 service is too busy, chat 网页端好像也挂了。
+
+*****
+
+####  waterstars  
+##### 19079#       发表于 2026-11-3 16:59
+
+爆炸了？V5上线中？还是咋回事？
+
+
+*****
+
+####  overflowal  
+##### 19080#       发表于 2026-11-3 17:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">网页，flash api都挂了。新集群炸了？
+
+
+*****
+
+####  三两幺  
+##### 19081#       发表于 2026-11-3 17:00
+
+大的💊来了吗
+
+*****
+
+####  Promeus  
+##### 19082#       发表于 2026-11-3 17:00
+
+V4p没挂，散了吧<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  体制  
+##### 19083#       发表于 2026-11-3 17:01
+
+客户端网页和api都炸了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  leina0602  
+##### 19084#       发表于 2026-11-3 17:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在我看来，大肥鱼宕机堪比手游维护
+
+*****
+
+####  CyborgIP  
+##### 19085#       发表于 2026-11-3 17:02
+
+怎么又崩了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2509A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  neptunehs  
+##### 19086#       发表于 2026-11-3 17:02
+
+大的药来了？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  果壳中的松鼠  
+##### 19087#       发表于 2026-11-3 17:02
+
+Nooo，不要今天崩啊，我刚休了四天假没怎么用，补偿7天token可太亏了<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  lactone  
+##### 19088#       发表于 2026-11-3 17:02
+
+longcat是纯国产训练栈，实际上有opus4.6水平了
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  sakatta  
+##### 19089#       发表于 2026-11-3 17:05
+
+又崩了，能再补偿七天吗<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">这几天蹬得比较狠
+
+*****
+
+####  overflowal  
+##### 19090#       发表于 2026-11-3 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70462871&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-3 17:02</a>
+
+longcat是纯国产训练栈，实际上有opus4.6水平了
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99 ...</blockquote>
+longcat据说是拿着910C硬训。。还是比较勇的，估计屎没少吃。Deepseek好歹是等到950之后才开始用
+
+*****
+
+####  费雷拉  
+##### 19091#       发表于 2026-11-3 17:07
+
+看了一下最近7天蹬了6t的token，一共354。
+

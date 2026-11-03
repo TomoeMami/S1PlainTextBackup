@@ -317,3 +317,16 @@
 
 草  打错阶段了好像
 
+
+*****
+
+####  都谷捻柏  
+##### 21742#       发表于 2026-11-3 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70453326&amp;ptid=2084912" target="_blank">zore 发表于 2026-11-1 19:57</a>
+
+快进到全球实装马修换皮加拉哈德
+
+送了等于白送</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接实装马修灵衣——加拉哈德是吧。
+
