@@ -15501,3 +15501,13 @@ GDPx这个新benchmark太吓人了
 
 我个人认为这个榜的一个问题是没有把harness纳入进去，任务复杂度越高如何调度和管理请求越重要
 
+
+*****
+
+####  Promeus  
+##### 19072#       发表于 2026-11-3 16:20
+
+<img src="https://p.sda1.dev/35/54d67de56b5a8fb91d7f05481827e1c6/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/a95d0bf000e7df0e33e6871567f0d1f0/image.jpg" referrerpolicy="no-referrer">
+看来今年底明年初的产能要全给ds了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
