@@ -16355,3 +16355,36 @@ https://longcat.ai/blog/longcat-2.5/ ...</blockquote>
 看了下 dsh 的这篇 super agent 的文章，感觉思路的话，大伙儿只要用 agent 用的多了，或多或少都有这样的 ...</blockquote>
 你说的那个是orchestrator, deepseek 这个router真的单纯派活出去的。
 
+
+*****
+
+####  Awanano  
+##### 19163#       发表于 2026-11-3 23:14
+
+当遇到一个网安问题的时候，现在的gpt6-astra只会烧完token后不以为耻反以为荣的告诉你，确实有这回事
+
+反观ds4f，one-shot的完善使得模型积极主动的再发现问题后立马补上了问题
+
+<img src="https://img.stage1st.com/forum/202611/03/230640bqy2oxdqx4qjvd2r.png" referrerpolicy="no-referrer">
+
+<strong>圖片.png</strong> (175.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-3 23:06 上传
+
+
+*****
+
+####  浅夏晴雨  
+##### 19164#       发表于 2026-11-3 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464370&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-11-3 23:14</a>
+
+当遇到一个网安问题的时候，现在的gpt6-astra只会烧完token后不以为耻反以为荣的告诉你，确实有这回事
+
+反观 ...</blockquote>
+不申请 daybreak 至少 blue 的话，gpt 这网安啥都不做的。经常还会莫名奇妙触发 cyber
+
+相比之下 ds 41f 又快又听话
+
