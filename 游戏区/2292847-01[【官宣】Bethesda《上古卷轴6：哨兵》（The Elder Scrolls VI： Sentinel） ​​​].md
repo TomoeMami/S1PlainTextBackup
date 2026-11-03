@@ -430,3 +430,13 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 不知道还能不能超越滚5啊
 
+
+*****
+
+####  哈曼的YY  
+##### 48#       发表于 2026-11-4 01:58
+
+每次意识到那个播片甚至早于ti8都让我感觉时光飞逝
+
+—— 来自 OnePlus PHP110, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
