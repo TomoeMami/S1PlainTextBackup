@@ -16203,3 +16203,15 @@ longcat据说是拿着910C硬训。。还是比较勇的，估计屎没少吃。
 
 尤其是这个——
 
+
+*****
+
+####  qqwliao  
+##### 19151#       发表于 2026-11-3 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464034&amp;ptid=2275806" target="_blank">xiaoboost 发表于 2026-11-3 21:37</a>
+看了下 dsh 的这篇 super agent 的文章，感觉思路的话，大伙儿只要用 agent 用的多了，或多或少都有这样的 ...</blockquote>
+做过大工程就知道<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，领导只要愿意背锅，知人善任就行，并不需要有多少专业知识。
+
+—— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
