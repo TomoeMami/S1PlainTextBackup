@@ -646,3 +646,26 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 也没几十年吧，总共也就30年的IP，真正起飞的3代还是世纪初的时候了，不给红卫正作这么快当了两次主角还 ...</blockquote>
 30年还不是几十年，红卫的中东风弯刀基本每作都有
 
+
+*****
+
+####  posthoc  
+##### 71#       发表于 2026-11-4 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468718&amp;ptid=2292847" target="_blank">wlhlz 发表于 2026-11-4 19:31</a>
+虽然因为滚45的风格都偏写实可能不太明显，但是老滚是正经高魔世界观啊，别说大炮哪怕船能飞起来我也不会 ...</blockquote>
+其实二代三代游戏里也没有火药武器啊，顶多有用来炸墙的炸药包这种任务物品（但谁能说不是某种火魔法装置呢）。查了一下二代倒是真有一本书里提到过cannon，然而考虑到游戏里从未出现过建模，多少有种草台班子写穿帮了的味道。
+说到底有没有火药武器算是一个风格取舍，和高魔低魔无关，不如说高魔随手扔大火球反而没必要用点燃火药在半封闭金属管子里制造高压气体推动弹丸这种麻烦的方式了。反过来柱子1那么朴素写实的风格不妨碍设定上就是打枪和魔法两手抓。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  adfj  
+##### 72#       发表于 2026-11-4 20:26
+
+陶德说的话呢，要先质疑，然后再质疑，最后依然是质疑。。。。
+
+这15年要是他能拿出2到3部老滚，就算素材重复使用恰恰烂钱，我也算他在这个系列上努力过了，然后他做了什么呢，特别版、十周年版，还有那个搞得一坨的星空<img src="https://static.stage1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+

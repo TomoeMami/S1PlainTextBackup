@@ -307,3 +307,11 @@ DS在DSH下感觉也是这个语气，而且我觉得还好，至少认错的时
 这几天在玩 Dsh Go ，手机终于有了智能终端的感觉，问题是电量太不经用了<img src="https://static.stage1st.com/image/smiley/face/154.gif">
 另外就是明显手机本地环境体验更流畅，比 win 强太多。接近 Mac 体验了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  我也很绝望啊  
+##### 19266#       发表于 2026-11-4 20:25
+
+chatgpt的桌面端输出速度慢到想死，怎么才能看到输出速度？是不是用本地中转转成api再接dsh之类的才能看到？
+
