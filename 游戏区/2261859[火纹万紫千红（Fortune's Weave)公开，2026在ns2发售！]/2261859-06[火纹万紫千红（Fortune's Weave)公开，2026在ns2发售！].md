@@ -11110,3 +11110,15 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 
 现在能凹也没用武之地
 
+
+*****
+
+####  沙发果冻  
+##### 8457#       发表于 2026-11-4 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70465355&amp;ptid=2261859" target="_blank">真田源次郎信繁 发表于 2026-11-4 09:35</a>
+等超难开始狂凹吧
+
+现在能凹也没用武之地</blockquote>
+凯伊线凹一下比正常玩体验好太多，除非说你无所谓坐骑属性
+
