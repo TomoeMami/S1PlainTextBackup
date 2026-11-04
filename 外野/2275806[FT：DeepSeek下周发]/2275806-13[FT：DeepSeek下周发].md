@@ -16924,3 +16924,13 @@ hy4其实对标的是glm5.3，总参数激活参数都差不多，能力看上�
 Fake news
 这模型限制中国和欧盟访问，大概率是Meta的
 
+
+*****
+
+####  cscbzcbz  
+##### 19214#       发表于 2026-11-4 15:55
+
+能不能不要搞匿名模型了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">就硬炒热度
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
