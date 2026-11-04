@@ -561,3 +561,15 @@ R40 Research 的 Joachim Schaeffer 与 Tilman Räuker 于11月3日发布研究�
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  游公子  
+##### 19288#       发表于 2026-11-5 01:55
+
+我看你们测试，hy4正式版还是不如大肥鱼啊？
+
+为什么呢，hy4自己评测的分数都比大肥鱼高啊。
+
+刷分吗。
+
