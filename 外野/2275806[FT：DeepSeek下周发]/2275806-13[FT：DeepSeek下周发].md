@@ -16577,3 +16577,13 @@ mark      
 
 Google play订阅的gpt终于收到api奖励金了
 
+
+*****
+
+####  qwased  
+##### 19182#       发表于 2026-11-4 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70465624&amp;ptid=2275806" target="_blank">辞冬 发表于 2026-11-4 10:20</a>
+这狗屎谷歌突然把我小号绑的两个设备都登出了，然后强行要求我给000开头的号码发短信，国内手机号根本发不 ...</blockquote>
+开通国际短信就能发了，+86可以验证的
+
