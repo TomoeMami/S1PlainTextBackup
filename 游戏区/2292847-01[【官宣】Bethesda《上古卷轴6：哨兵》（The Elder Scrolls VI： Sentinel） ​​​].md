@@ -513,3 +513,21 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 玩起来能现代一点吗？别战斗系统相比业界倒退二十年<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  testalphagogogo  
+##### 57#       发表于 2026-11-4 09:58
+
+现在的进度是拉了个新建正方体出来吧~~
+
+
+*****
+
+####  这次是十块钱  
+##### 58#       发表于 2026-11-4 10:02
+
+新建文件夹（2018） ➡️ 重命名 （2026）
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
