@@ -16736,3 +16736,43 @@ hy4上线了
 
 试了一下有点屌，思维链不会像preview那样左右脑互搏
 
+
+*****
+
+####  lactone  
+##### 19196#       发表于 2026-11-4 14:38
+
+藤子可以的，比小米踏实多了
+
+现在要看qwen了
+
+不知道唐杰在干嘛
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  lactone  
+##### 19197#       发表于 2026-11-4 14:40
+
+为啥ipo推迟？不两万亿不罢休？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  startraveller  
+##### 19198#       发表于 2026-11-4 14:47
+
+<img src="https://img.stage1st.com/forum/202611/04/144708n79pg46cc00i9wdc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (130.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-4 14:47 上传
+
+好像GLM 5.5 Flash出现了
+

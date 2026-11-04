@@ -539,3 +539,22 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 中东风有啥意思
 
+
+*****
+
+####  sdeplee  
+##### 60#       发表于 2026-11-4 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70465702&amp;ptid=2292847" target="_blank">关二爷 发表于 2026-11-4 10:34</a>
+
+中东风有啥意思</blockquote>
+你看看asha的照片再想想<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孔方兄  
+##### 61#       发表于 2026-11-4 14:40
+
+爱陶，信陶，等陶
+
