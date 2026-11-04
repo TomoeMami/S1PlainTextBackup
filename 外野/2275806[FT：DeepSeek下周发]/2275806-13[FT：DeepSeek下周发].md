@@ -16811,3 +16811,35 @@ qwen4怎么一点影子都么有
 
 大概率前几天的财报把人恶心到了，还喜提垃圾级评价。再结合o/的融资只融到目标的三分之一，真硬上就得立马破发
 
+
+*****
+
+####  cscbzcbz  
+##### 19203#       发表于 2026-11-4 15:08
+
+那么哪里有便宜大碗的hy4正式版呢
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  相见恨晚  
+##### 19204#       发表于 2026-11-4 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467291&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-11-4 15:08</a>
+
+那么哪里有便宜大碗的hy4正式版呢
+
+论坛助手,iPhone</blockquote>
+codebuddy workbuddy 免费
+
+*****
+
+####  qwased  
+##### 19205#       发表于 2026-11-4 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467314&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-11-4 15:12</a>
+codebuddy workbuddy 免费</blockquote>
+免费额度不多，随便做点测试就没了
+
