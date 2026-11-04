@@ -558,3 +558,11 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 爱陶，信陶，等陶
 
+
+*****
+
+####  陶德  
+##### 62#       发表于 2026-11-4 14:51
+
+陶兵，出列！！！！<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
