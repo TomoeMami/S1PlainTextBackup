@@ -706,3 +706,16 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 滚 5 之后的作品看不到贝塞斯达有跟着时间进步在哪，辐射 4 和星空
 
+
+*****
+
+####  DOACAON  
+##### 77#       发表于 2026-11-5 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70465143&amp;ptid=2292847" target="_blank">wlhlz 发表于 2026-11-4 08:58</a>
+
+这次的外挂应该就是红卫剑歌了，那些圈圈图案也跟这个有关，不过跟龙吼这个滚5当年新加的设定不同，剑歌是l ...</blockquote>
+龙吼啥时候变成滚5的设定啦？这基本上是从Michael Kirkbride给杯赛工作开始就有的设定，比滚3都早。
+
+早在98年的外传《老滚红卫》里，《帝国口袋指南第一版》的Invocation一章就写到“To KYNARETH who returns the Masculine Breath.”Masculine Breath就是龙吼的雏形，并且一开始就已经点明了龙吼和凯娜瑞斯的联系。同书的天际地理章节也提到了天际最高的山叫“世界之喉”，山上有灰胡子奉行“The Way of the Voice”。他们平时不说话，一开口就是强大的“thu'um”。也提到古代的诺德人战士会用吼声轰开城墙，直到Jurgen Windcaller限制一般人对吼声的使用。同书还特意提到塔洛斯和吼声的联系。以上全部设定都跟后来的滚5一模一样。
+
