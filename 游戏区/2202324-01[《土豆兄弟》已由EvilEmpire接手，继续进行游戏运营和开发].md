@@ -196,3 +196,14 @@ steam最近的评价已经差成这样了么
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  恶搞之王  
+##### 467#       发表于 2026-11-4 08:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464171&amp;ptid=2202324" target="_blank">pandakun 发表于 2026-11-3 22:15</a>
+
+感觉机械土豆是新版本生物了，太轮椅了</blockquote>
+疯狂科学家更像吧
+
