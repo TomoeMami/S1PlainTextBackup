@@ -16507,3 +16507,16 @@ fish不是在线服务吗？GPT给我推荐用RVC</blockquote>
 fish也开源模型的，在线主要是私有音色
 [https://huggingface.co/fishaudio](https://huggingface.co/fishaudio) 
 
+
+*****
+
+####  绕指流光  
+##### 19175#         楼主| 发表于 2026-11-4 08:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464475&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-3 23:48</a>
+
+靠，我问了下ai，cdp是什么，然后我瘫坐了
+
+还有这种神器啊！我好多鬼点子因为ai对浏览器权限过低没法实 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png">这就是原本非超能力者获得AI灵器后的局限性，一通邪修却不知道玄门正派早有无上心法
+

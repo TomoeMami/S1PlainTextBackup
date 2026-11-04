@@ -468,3 +468,11 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  naclken.  
+##### 52#       发表于 2026-11-4 08:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 能不能别用它那个非得读盘的creation引擎了
+
