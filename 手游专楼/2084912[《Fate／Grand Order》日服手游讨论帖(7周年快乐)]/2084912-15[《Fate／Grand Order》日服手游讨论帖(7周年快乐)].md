@@ -330,3 +330,74 @@
 送了等于白送</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接实装马修灵衣——加拉哈德是吧。
 
+
+*****
+
+####  v22325  
+##### 21743#       发表于 2026-11-1 20:18
+
+我是第一条血妖兰踹死进认真，然后メルトリリス连踹三脚，出来一看少四个任务没做完。
+
+这个试炼能不能用三条令咒来着
+
+*****
+
+####  qixinno1  
+##### 21744#       发表于 2026-11-1 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70453413&amp;ptid=2084912" target="_blank">v22325 发表于 2026-11-1 20:18</a>
+
+我是第一条血妖兰踹死进认真，然后メルトリリス连踹三脚，出来一看少四个任务没做完。
+
+这个试炼能不能用三 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不能令咒复活 但能用来充能回血 
+
+*****
+
+####  khxooo  
+##### 21745#       发表于 2026-11-2 01:42
+
+抄了个巴姐3t的，最简单的一次。
+
+*****
+
+####  v22325  
+##### 21746#       发表于 2026-11-2 18:11
+
+ 本帖最后由 v22325 于 2026-11-2 18:12 编辑 
+
+<img src="https://img.stage1st.com/forum/202611/02/180951t9fxnksz2bxnq7f8.jpg" referrerpolicy="no-referrer">
+
+<strong>1000040003.jpg</strong> (246.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-2 18:09 上传
+
+明明身上没弱体状态啊，怎么完成不了那个没弱体打外法状态的任务，也试过先前置c呆宝具全体解除弱体了……
+
+是要不进认真状态不触发大焦热地狱？
+
+草  打错阶段了  为什么我老觉得这个是外法，明明写清楚了
+
+*****
+
+####  都谷捻柏  
+##### 21747#       发表于 2026-11-3 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70453326&amp;ptid=2084912" target="_blank">zore 发表于 2026-11-1 19:57</a>
+
+快进到全球实装马修换皮加拉哈德
+
+送了等于白送</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接实装马修灵衣——加拉哈德是吧。
+
+*****
+
+####  格林卡罗尔  
+##### 21748#       发表于 2026-11-4 10:12
+
+竟然好几个活动同一天结束了，不过估计1e下载还是给戴冠复刻活动
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
