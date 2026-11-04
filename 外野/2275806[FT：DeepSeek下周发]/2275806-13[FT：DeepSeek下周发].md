@@ -17010,3 +17010,38 @@ Fake news
 
 这大肥鱼写设定写的和智障一样，有没有语言逻辑正常点的模型
 
+
+*****
+
+####  startraveller  
+##### 19222#       发表于 2026-11-4 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467492&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-4 15:47</a>
+
+Fake news
+
+这模型限制中国和欧盟访问，大概率是Meta的</blockquote>
+大意了。
+
+不过这两天冒出来了一堆匿名得。
+
+
+*****
+
+####  omnitoken  
+##### 19223#       发表于 2026-11-4 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467680&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-11-4 16:17</a>
+
+界面太多，这样搞可能太累了吧。其实要求也不高，界面统一一点，能检查ui的问题，有时候能加点小动画就最 ...</blockquote>
+不累的。。。反正你把项目给agent然后描述下功能，给下参考图，让生图模型生成就行， 然后人工扫一眼，判断是不是界面统一很容易的， 然后impeccable技能也装一下，把图让AI去实现就行了
+
+*****
+
+####  neptunehs  
+##### 19224#       发表于 2026-11-4 16:37
+
+tx能不能让大家看看实力 至少免费hy4一周？（虽然免费也高几率没有opencode什么事情 workbuddy专用了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
