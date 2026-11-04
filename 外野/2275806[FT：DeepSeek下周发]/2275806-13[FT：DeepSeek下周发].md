@@ -17045,3 +17045,25 @@ tx能不能让大家看看实力 至少免费hy4一周？（虽然免费也高�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  neptunehs  
+##### 19225#       发表于 2026-11-4 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467492&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-4 15:47</a>
+Fake news
+这模型限制中国和欧盟访问，大概率是Meta的</blockquote>
+限制的是另一个c啥啥啥的
+pluse alpha不限制 但是只有free档没有go档 跟flash共享免费池 不用。
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  nxmonitor  
+##### 19226#       发表于 2026-11-4 16:44
+
+HY4实测根本没有那么强，有些地方可能比预览版倒退
+
