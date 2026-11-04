@@ -866,3 +866,11 @@ mark一下
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就喜欢冷不伶仃被坛友推荐一些奇奇怪怪的东西 即刻购入
 
+
+*****
+
+####  vidomina  
+##### 48#         楼主| 发表于 2026-11-4 21:59
+
+前期觉得难可以看坛友的图，初始树干隐藏套装<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
