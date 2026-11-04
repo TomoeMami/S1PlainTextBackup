@@ -566,3 +566,11 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 陶兵，出列！！！！<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wlhlz  
+##### 63#       发表于 2026-11-4 15:21
+
+红卫是中东风这都是几十年的基础设定了，每作不同的地区风格都完全不同本身就是老滚一直以来的特点，而且说是中东风其实也理所当然的是大杂烩而已，比如剑歌这个东西就混了武侠跟剑戟的梗在里面，至于人物好不好看这个问题，真的有人对杯赛的捏人水平有幻想吗<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">（虽然有一说一杯赛这么多年来捏人水平是在缓慢进步的，好歹NPC像个人了）
+
