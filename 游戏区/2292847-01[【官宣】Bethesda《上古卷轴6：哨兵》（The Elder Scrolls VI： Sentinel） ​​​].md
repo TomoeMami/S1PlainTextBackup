@@ -690,3 +690,11 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 其实二代三代游戏里也没有火药武器啊，顶多有用来炸墙的炸药包这种任务物品（但谁能说不是某种火魔法装置 ...</blockquote>
 如果真要有航海把星空的拼船系统搬过来，那炮肯定得有不可能都是人肉炮手吧<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">反正设定个什么魔法炮之类的玩意就是一句话的事
 
+
+*****
+
+####  zhenlune  
+##### 75#       发表于 2026-11-5 00:01
+
+其实按照滚5那个基础做改良，堆料就能赢，为什么不这么做我也想不通
+

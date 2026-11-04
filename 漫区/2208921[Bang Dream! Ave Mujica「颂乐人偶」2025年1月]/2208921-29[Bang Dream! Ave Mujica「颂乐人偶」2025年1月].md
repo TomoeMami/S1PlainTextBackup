@@ -38,3 +38,23 @@
 
        [https://anisama.tv/2027/fukuoka](https://anisama.tv/2027/fukuoka)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42189#       发表于 2026-11-5 00:01
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/05/000140rg18hnhugkgkpndb.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-05_00-00-48.png</strong> (844.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-5 00:01 上传
+
+       [https://x.com/bang_dream_info/status/2117950001338864106](https://x.com/bang_dream_info/status/2117950001338864106)
+
+       [https://anisama.tv/2027/fukuoka](https://anisama.tv/2027/fukuoka)
+
