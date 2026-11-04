@@ -368,3 +368,22 @@ chatgpt的桌面端输出速度慢到想死，怎么才能看到输出速度？�
 反观 ...</blockquote>
 断网清理喷了，gpt 当自己是本地部署的
 
+
+*****
+
+####  德尔惠净水器  
+##### 19272#       发表于 2026-11-4 21:48
+
+能不能用ai神力给旧手机适配第三方rom
+
+
+*****
+
+####  拯救节操希灵宅  
+##### 19273#       发表于 2026-11-4 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469249&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-11-4 21:48</a>
+
+能不能用ai神力给旧手机适配第三方rom</blockquote>
+你这要求也太低了，最近ai整的活是给安卓手机移植ios
+
