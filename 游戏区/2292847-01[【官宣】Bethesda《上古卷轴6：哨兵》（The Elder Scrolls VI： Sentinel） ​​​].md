@@ -495,3 +495,13 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 这次的外挂应该就是红卫剑歌了，那些圈圈图案也跟这个有关，不过跟龙吼这个滚5当年新加的设定不同，剑歌是lore早就有的老设定了，虽然并没有真正在游戏里出现过
 
+
+*****
+
+####  nightraven  
+##### 55#       发表于 2026-11-4 09:15
+
+在落锤的好处就是能名正言顺的用各种清凉的衣服了吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

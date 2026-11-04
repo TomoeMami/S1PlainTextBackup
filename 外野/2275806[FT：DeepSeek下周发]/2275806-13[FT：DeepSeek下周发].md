@@ -16530,3 +16530,13 @@ fish也开源模型的，在线主要是私有音色
 这是d老师告诉我的，我实操没问题</blockquote>
 mark      
 
+
+*****
+
+####  蜇灵  
+##### 19177#       发表于 2026-11-4 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70462387&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-11-3 15:26</a>
+老哥指条路  速度 用量  智力怎么样</blockquote>
+速度300多接近400，智力不知道，用量是学生邮箱6刀换165刀额度，但价格好像是峰价
+
