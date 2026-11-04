@@ -149,3 +149,16 @@ hy4确实，正好今天丢给它一个极其简单的从网页里把图片全�
 
 腾子不会是买了一份ds4后训练了一下吧
 
+
+*****
+
+####  2017.05.04  
+##### 19253#       发表于 2026-11-4 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468523&amp;ptid=2275806" target="_blank">greemoore1981 发表于 2026-11-4 18:43</a>
+真空如何散热</blockquote>
+超巨大散热板
+当然马圣目前贷款了很多尚未实用的技术，不然绝对达到不了他宣称的效果<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CMM-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

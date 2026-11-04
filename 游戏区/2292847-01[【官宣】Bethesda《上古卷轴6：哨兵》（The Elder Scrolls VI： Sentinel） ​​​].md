@@ -604,3 +604,13 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  posthoc  
+##### 67#       发表于 2026-11-4 18:58
+
+老滚世界观又没有大炮，所谓海战也就接舷跳帮吧，顶多让法师扔俩火球。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
