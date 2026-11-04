@@ -698,3 +698,11 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 其实按照滚5那个基础做改良，堆料就能赢，为什么不这么做我也想不通
 
+
+*****
+
+####  山岚夜雨  
+##### 76#       发表于 2026-11-5 00:29
+
+滚 5 之后的作品看不到贝塞斯达有跟着时间进步在哪，辐射 4 和星空
+
