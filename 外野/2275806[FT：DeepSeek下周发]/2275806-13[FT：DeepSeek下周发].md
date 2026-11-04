@@ -16650,3 +16650,54 @@ hy4正式版的跑分
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  qwased  
+##### 19188#       发表于 2026-11-4 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70466673&amp;ptid=2275806" target="_blank">来兹05 发表于 2026-11-4 13:17</a>
+
+一直在windows11上玩dsh，一会就要审批权限烦死。今天换到mac mini上，我靠，居然不需要。。。虽然没有CUDA ...</blockquote>
+你需要WSL
+
+
+*****
+
+####  ninini212  
+##### 19189#       发表于 2026-11-4 13:23
+
+我这边目前来说argon正常使用没什么问题，是不是用量的问题
+
+*****
+
+####  qwased  
+##### 19190#       发表于 2026-11-4 13:23
+
+推上开始传A/的IPO要推迟了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那他明年拿什么烧算力基建？
+
+
+*****
+
+####  ninini212  
+##### 19191#       发表于 2026-11-4 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464503&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-3 23:59</a>
+
+不是，感觉是网络问题
+
+首先我现在在反重力里面也用不了argon
+
+然后我在单位，用电信的流量，他就知道我是 ...</blockquote>
+一般都是你规则的问题导致某一个到两个链接发现你真实IP了。
+
+
+*****
+
+####  Promeus  
+##### 19192#       发表于 2026-11-4 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70466711&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-4 13:23</a>
+推上开始传A/的IPO要推迟了那他明年拿什么烧算力基建？</blockquote>
+我早就说大蓝潮铁拳一定砸过来<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
