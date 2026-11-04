@@ -11268,3 +11268,13 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 
 看了**上的吃饭对话合集40组里面有5组非同队的对话（本身就有关系的3组，没关系的2组）训练现在看到2组（都是没关系的组合）dlc大概会补一些完全没关系的组合的支援对话吧
 
+
+*****
+
+####  Arsaces  
+##### 8473#       发表于 2026-11-5 01:47
+
+坛友们，我已经窒息了，打完女王线第一次觉得人没练好，我又打了第二次，结果就在刚才查攻略发现莉莉安锁支援了，我嘞个去，你不会要我打第三次吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+我已急哭，本来觉得我去，这下我完美毕业了，结果落差太大睡不着，明天上班都难受<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
