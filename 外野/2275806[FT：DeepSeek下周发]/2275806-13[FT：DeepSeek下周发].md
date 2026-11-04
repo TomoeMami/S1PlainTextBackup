@@ -16595,3 +16595,22 @@ Google play订阅的gpt终于收到api奖励金了
 
 DEM大胜，估计要对大型LLM公司下手了
 
+
+*****
+
+####  蛋黄酱Release  
+##### 19184#       发表于 2026-11-4 12:43
+
+hy4正式版发布了
+
+
+*****
+
+####  profr  
+##### 19185#       发表于 2026-11-4 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70465831&amp;ptid=2275806" target="_blank">novem 发表于 2026-11-4 10:58</a>
+
+DEM大胜，估计要对大型LLM公司下手了</blockquote>
+AI发展不可能停的，但趁懂王还在台上，正好把泡沫挤一挤，对DEM来说再好不过了
+
