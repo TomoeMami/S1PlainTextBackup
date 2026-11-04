@@ -476,3 +476,14 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 能不能别用它那个非得读盘的creation引擎了
 
+
+*****
+
+####  wlhlz  
+##### 53#       发表于 2026-11-4 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70465007&amp;ptid=2292847" target="_blank">naclken. 发表于 2026-11-4 08:32</a>
+
+能不能别用它那个非得读盘的creation引擎了</blockquote>
+不能（即答
+
