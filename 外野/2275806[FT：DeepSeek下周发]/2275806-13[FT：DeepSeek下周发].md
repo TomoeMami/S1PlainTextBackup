@@ -17067,3 +17067,16 @@ pluse alpha不限制 但是只有free档没有go档 跟flash共享免费池 不�
 
 HY4实测根本没有那么强，有些地方可能比预览版倒退
 
+
+*****
+
+####  冤枉呐  
+##### 19227#       发表于 2026-11-4 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70466716&amp;ptid=2275806" target="_blank">ninini212 发表于 2026-11-4 13:24</a>
+
+一般都是你规则的问题导致某一个到两个链接发现你真实IP了。</blockquote>
+今天又是电信热点
+
+哎，又好了
+

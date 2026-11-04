@@ -322,3 +322,13 @@ steam最近的评价已经差成这样了么
 
 昨天搞出来一千五的霰弹枪已经不算啥了，刚才用挖宝一局搞了一把一万多伤害的铲子，这机械数值是真扯淡……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pandakun  
+##### 478#       发表于 2026-11-4 16:52
+
+<blockquote>恶搞之王 发表于 2026-11-4 08:18
+疯狂科学家更像吧</blockquote>
+异变部分纯累赘，前期没有稳定的机械化来源强度不如机械土豆大人一根
+
