@@ -401,3 +401,72 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  alucardcz  
+##### 21749#       发表于 2026-11-4 14:28
+
+1e下载会有全新的从者落地吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno1  
+##### 21750#       发表于 2026-11-4 14:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">最多给个简易灵衣 之外无事发生
+
+*****
+
+####  岸浪白野  
+##### 21751#       发表于 2026-11-4 17:09
+
+ 本帖最后由 岸浪白野 于 2026-11-4 17:12 编辑 
+
+直接送了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/04/170856mjeokr1ksxzjasoe.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1793783334849_1.webp</strong> (75.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-4 17:08 上传
+
+<img src="https://img.stage1st.com/forum/202611/04/170856vqgf7bfntn74t75n.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1793783334968_2.webp</strong> (80.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-4 17:08 上传
+
+<img src="https://img.stage1st.com/forum/202611/04/171209x110ctnytkpy19mk.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1793783527958_3.webp</strong> (137.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-4 17:12 上传
+
+*****
+
+####  angelooo  
+##### 21752#       发表于 2026-11-4 17:10
+
+这没之前那个立绘好看啊混蛋，送的话社长只要摸两张卡面是吧
+
+*****
+
+####  壳壳牛  
+##### 21753#       发表于 2026-11-4 18:04
+
+社长又在奖励自己了
+
+*****
+
+####  khxooo  
+##### 21754#       发表于 2026-11-4 18:08
+
+松永直接白送好啊，
+
