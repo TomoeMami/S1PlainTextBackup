@@ -573,3 +573,15 @@ R40 Research 的 Joachim Schaeffer 与 Tilman Räuker 于11月3日发布研究�
 
 刷分吗。
 
+
+*****
+
+####  绕指流光  
+##### 19289#         楼主| 发表于 2026-11-5 06:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469490&amp;ptid=2275806" target="_blank">赤星ビスコ 发表于 2026-11-4 23:06</a>
+你们真敢手机用这种吗？电脑再怎么说，危险操作还有手机来兜底，手机被黑了那就是验证码一步到位 ...</blockquote>
+当然是用第二台手机了<img src="https://static.stage1st.com/image/smiley/face2017/037.png">
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
