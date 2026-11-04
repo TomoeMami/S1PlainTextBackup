@@ -109,3 +109,33 @@ hy4两次都找不到，两次都直接放弃测试进入交付环节，和0731�
 
 帮我整理下文件还凑合吧
 
+
+*****
+
+####  cscbzcbz  
+##### 19249#       发表于 2026-11-4 18:40
+
+看来还是得等4.1pro<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  greemoore1981  
+##### 19250#       发表于 2026-11-4 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468243&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-11-4 17:47</a>
+
+单说ai，这事反而利好马圣
+
+到时候地面上不让建数据中心了，美系AI里就他能打到轨道上，对OA是降维打击 ...</blockquote>
+真空如何散热<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纸皮  
+##### 19251#       发表于 2026-11-4 18:45
+
+hy4确实，正好今天丢给它一个极其简单的从网页里把图片全存下来的任务，不知道为什么先后和中间的分章节的小圆点图片搏斗了10分钟
+
