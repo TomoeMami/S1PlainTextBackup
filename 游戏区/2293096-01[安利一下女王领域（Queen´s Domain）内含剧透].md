@@ -883,3 +883,16 @@ mark一下
 ohno，我干了什么？？？
 飞翼石传送竟然是可以跳出到虚空的
 
+
+*****
+
+####  vidomina  
+##### 50#         楼主| 发表于 2026-11-4 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469506&amp;ptid=2293096" target="_blank">三度音 发表于 2026-11-4 23:14</a>
+
+ohno，我干了什么？？？
+
+飞翼石传送竟然是可以跳出到虚空的</blockquote>
+这个设计其实蛮好，论“为什么传送时是可以移动的”
+
