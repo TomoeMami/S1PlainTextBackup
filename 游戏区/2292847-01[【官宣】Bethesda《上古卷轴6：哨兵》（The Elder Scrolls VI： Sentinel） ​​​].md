@@ -574,3 +574,33 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 红卫是中东风这都是几十年的基础设定了，每作不同的地区风格都完全不同本身就是老滚一直以来的特点，而且说是中东风其实也理所当然的是大杂烩而已，比如剑歌这个东西就混了武侠跟剑戟的梗在里面，至于人物好不好看这个问题，真的有人对杯赛的捏人水平有幻想吗<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">（虽然有一说一杯赛这么多年来捏人水平是在缓慢进步的，好歹NPC像个人了）
 
+
+*****
+
+####  ナルバレック  
+##### 64#       发表于 2026-11-4 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467349&amp;ptid=2292847" target="_blank">wlhlz 发表于 2026-11-4 15:21</a>
+
+红卫是中东风这都是几十年的基础设定了，每作不同的地区风格都完全不同本身就是老滚一直以来的特点，而且说 ...</blockquote>
+也没几十年吧，总共也就30年的IP，真正起飞的3代还是世纪初的时候了，不给红卫正作这么快当了两次主角还是想不到的，还有好几个地区基本没去过呢2333，也不能算完全中东风，不过头巾还是很中东就是了
+
+
+*****
+
+####  chmmal  
+##### 65#       发表于 2026-11-4 18:51
+
+杯赛这技术力真能搞海战吗
+
+
+*****
+
+####  aimujie  
+##### 66#       发表于 2026-11-4 18:57
+
+好消息：不只有标题了
+坏消息：只多了副标题
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
