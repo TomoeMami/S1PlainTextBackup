@@ -16520,3 +16520,13 @@ fish也开源模型的，在线主要是私有音色
 还有这种神器啊！我好多鬼点子因为ai对浏览器权限过低没法实 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/233.png">这就是原本非超能力者获得AI灵器后的局限性，一通邪修却不知道玄门正派早有无上心法
 
+
+*****
+
+####  来都来了  
+##### 19176#       发表于 2026-11-4 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70459287&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-2 22:38</a>
+这是d老师告诉我的，我实操没问题</blockquote>
+mark      
+
