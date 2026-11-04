@@ -16843,3 +16843,36 @@ codebuddy workbuddy 免费
 codebuddy workbuddy 免费</blockquote>
 免费额度不多，随便做点测试就没了
 
+
+*****
+
+####  bartholo4  
+##### 19206#       发表于 2026-11-4 15:28
+
+HY4感觉就是一个速度慢点，能力强一丢丢的1017
+
+
+*****
+
+####  zhongjie  
+##### 19207#       发表于 2026-11-4 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467386&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-4 15:28</a>
+
+HY4感觉就是一个速度慢点，能力强一丢丢的1017</blockquote>
+说是之前wb中显示的积分消耗是glm的三分之一，那么是4.1f价格的几倍？
+
+
+*****
+
+####  2017.05.04  
+##### 19208#       发表于 2026-11-4 15:32
+
+<img src="https://img.stage1st.com/forum/202611/04/153239df18xp8kgug15rg8.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1793777538750.png</strong> (120.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-4 15:32 上传
+
