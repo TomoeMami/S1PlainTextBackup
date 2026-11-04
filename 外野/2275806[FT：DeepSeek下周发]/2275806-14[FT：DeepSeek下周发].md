@@ -70,3 +70,42 @@ hy4 普通办公也不好用。
 
 —— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  serj005  
+##### 19246#       发表于 2026-11-4 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468383&amp;ptid=2275806" target="_blank">白日依山尽 发表于 2026-11-4 18:17</a>
+hy4 普通办公也不好用。
+
+让其中另一个目录选择文件名符合要求的文档复制到当前项目，它折腾了13分钟，扔给 ...</blockquote>
+hy4这语气咋这么欠<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看着难受
+
+
+*****
+
+####  tonyunreal  
+##### 19247#       发表于 2026-11-4 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468383&amp;ptid=2275806" target="_blank">白日依山尽 发表于 2026-11-4 18:17</a>
+
+hy4 普通办公也不好用。
+
+让其中另一个目录选择文件名符合要求的文档复制到当前项目，它折腾了13分钟，扔给 ...</blockquote>
+工具调用确实有问题
+
+大肥鱼测前端知道去npm -g里找playwright，找不到也会在工作区装一个去测试
+
+hy4两次都找不到，两次都直接放弃测试进入交付环节，和0731差不多水平甚至不如
+
+
+*****
+
+####  洛拉斯  
+##### 19248#       发表于 2026-11-4 18:33
+
+至少我现在体验的hy4不行，胜在免费且大肥鱼进入冷静期
+
+帮我整理下文件还凑合吧
+
