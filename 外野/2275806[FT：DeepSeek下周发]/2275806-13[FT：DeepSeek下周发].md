@@ -17080,3 +17080,26 @@ HY4实测根本没有那么强，有些地方可能比预览版倒退
 
 哎，又好了
 
+
+*****
+
+####  Baccano  
+##### 19228#       发表于 2026-11-4 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467750&amp;ptid=2275806" target="_blank">awy002 发表于 2026-11-4 16:26</a>
+
+这大肥鱼写设定写的和智障一样，有没有语言逻辑正常点的模型</blockquote>
+文字类的唯一真神Gemini
+
+
+*****
+
+####  我就再氪一单  
+##### 19229#       发表于 2026-11-4 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467314&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-11-4 15:12</a>
+codebuddy workbuddy 免费</blockquote>
+整理一下上下文，hy4就把今天签到的100积分用完了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
