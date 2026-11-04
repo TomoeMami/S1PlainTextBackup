@@ -669,3 +669,14 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 这15年要是他能拿出2到3部老滚，就算素材重复使用恰恰烂钱，我也算他在这个系列上努力过了，然后他做了什么呢，特别版、十周年版，还有那个搞得一坨的星空<img src="https://static.stage1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 73#       发表于 2026-11-4 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468728&amp;ptid=2292847" target="_blank">wlhlz 发表于 2026-11-4 19:33</a>
+
+30年还不是几十年，红卫的中东风弯刀基本每作都有</blockquote>
+弯刀就是印度和波斯人发明的，公元后的阿拉伯帝国扩大了影响力
+

@@ -315,3 +315,33 @@ DS在DSH下感觉也是这个语气，而且我觉得还好，至少认错的时
 
 chatgpt的桌面端输出速度慢到想死，怎么才能看到输出速度？是不是用本地中转转成api再接dsh之类的才能看到？
 
+
+*****
+
+####  moekyo  
+##### 19267#       发表于 2026-11-4 20:49
+
+手机（Android）上的 agent 最近最火的不是这个吗，说是惊动了微信和支付宝<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+[https://github.com/wangzan101/mika](https://github.com/wangzan101/mika)
+
+
+*****
+
+####  阿刚  
+##### 19268#       发表于 2026-11-4 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468670&amp;ptid=2275806" target="_blank">圣堂刺客 发表于 2026-11-4 19:19</a>
+
+最好不是在嘴硬啊大肥鱼，再说你偷懒图啥啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这是最让人火大的，这个逼经常偷懒，或者说图省事，什么不看原文资料凭上下文回忆给你编一下，什么就地取材糊弄你一下，反正就是怎么省事怎么来……他训练里一定是混进去什么成本控制的玩意然后被他记住了……
+
+
+*****
+
+####  unrealMeeSeeks  
+##### 19269#       发表于 2026-11-4 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468949&amp;ptid=2275806" target="_blank">我也很绝望啊 发表于 2026-11-4 20:25</a>
+chatgpt的桌面端输出速度慢到想死，怎么才能看到输出速度？是不是用本地中转转成api再接dsh之类的才能看到 ...</blockquote>
+装cc switch就能看到
+
