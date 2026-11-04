@@ -16495,3 +16495,15 @@ fish不是在线服务吗？GPT给我推荐用RVC
 大肥鱼现在每天就是和我这么说话的，我反正是看不懂在说什么</blockquote>
 这个是默认你读了且熟悉源码，并与ai一样记住里面的各种任务编号细节。得fork了要求它详细解释并画流程图这类（各种追问也耗token，而且问多了还会把注意力带偏<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">）多问n次为什么，或改萝卜开会，找个传话太监专门负责调度及解释各步骤。（这个注入我是初中生，不要用术语，详细解释等一堆提示词）
 
+
+*****
+
+####  白日依山尽  
+##### 19174#       发表于 2026-11-4 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464602&amp;ptid=2275806" target="_blank">Quelaan 发表于 2026-11-4 00:43</a>
+
+fish不是在线服务吗？GPT给我推荐用RVC</blockquote>
+fish也开源模型的，在线主要是私有音色
+[https://huggingface.co/fishaudio](https://huggingface.co/fishaudio) 
+
