@@ -614,3 +614,14 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  你妈的为什么  
+##### 68#       发表于 2026-11-4 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464497&amp;ptid=2292847" target="_blank">docklabor 发表于 2026-11-3 23:56</a>
+
+明年11月应该能发售了，这次隔星空4年，居然会感觉好快，之前辐射4和星空隔了8年 ...</blockquote>
+明年？后年11月能出我都不信
+

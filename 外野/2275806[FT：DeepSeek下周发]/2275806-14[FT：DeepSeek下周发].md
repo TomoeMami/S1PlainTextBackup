@@ -162,3 +162,16 @@ hy4确实，正好今天丢给它一个极其简单的从网页里把图片全�
 
 —— 来自 HUAWEI CMM-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  greemoore1981  
+##### 19254#       发表于 2026-11-4 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468592&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-11-4 19:01</a>
+
+超巨大散热板
+
+当然马圣目前贷款了很多尚未实用的技术，不然绝对达到不了他宣称的效果</blockquote>
+你也知道他贷款了，Roadster你知道他画饼画了多久吗，你也知道之前端出来的是屎了吧？把要大量耗电耗水（散热）还要求极其稳定出点差错必须立刻有人调整的数据中心放到鸟不拉屎的宇宙里就等于用方形的轮子走两万公里路<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
