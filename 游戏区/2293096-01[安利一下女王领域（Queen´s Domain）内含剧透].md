@@ -924,3 +924,18 @@ ohno，我干了什么？？？
 
 遨游的时候误入到一个大树洞+混沌废都+病村的地方，那个圆盘巨构和峭壁都市直接干出幻视来了，真不赖
 
+
+*****
+
+####  panandhao  
+##### 53#       发表于 2026-11-5 03:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469596&amp;ptid=2293096" target="_blank">yaoy1994 发表于 2026-11-4 23:57</a>
+
+结局3达成了，结局4就不搞了。在某管上面找视频看了一眼，有点失望。我以为会是某种程度上的真结局，会解释 ...</blockquote>
+感觉就剧情而言，结局三应该是真结局了（直接把西佩哈拉出来制裁，终止了*家人代代对抗邪恶虚空女神*的宿命<img src="https://static.stage1st.com/image/smiley/carton2017/459.gif" referrerpolicy="no-referrer">）
+
+从锻造奥怖绝的审判那的场景配置来推测剧情的话，这个世界应该存在五大神祇，虚空女神西佩哈是伪神，为了阻止虚空，人们在岛上建了座迪姆波陵墓来防止虚空扩散（？），于是便有了这作王子替代国王打女王的故事……第四个结局像是完全做不动了，但又不舍得不给百分百收集玩家奖励，所以搞了个有点全灭意味的结局……
+
+总之这游戏碎片化内容实在太多太多了，很难去承认开发者脑中有一个完整的剧情框架，包括场景编排比起严谨的编排，实际更加写意……能编到这里，其实也够够的了<img src="https://static.stage1st.com/image/smiley/carton2017/048.png" referrerpolicy="no-referrer">
+
