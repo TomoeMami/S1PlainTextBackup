@@ -16876,3 +16876,51 @@ HY4感觉就是一个速度慢点，能力强一丢丢的1017</blockquote>
 
 2026-11-4 15:32 上传
 
+
+*****
+
+####  tonyunreal  
+##### 19209#       发表于 2026-11-4 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467403&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-11-4 15:31</a>
+
+说是之前wb中显示的积分消耗是glm的三分之一，那么是4.1f价格的几倍？</blockquote>
+api这边是6/18/0.3，很贵，跑一个svg demo两块钱
+
+
+*****
+
+####  魔法师lain  
+##### 19210#       发表于 2026-11-4 15:42
+
+其实现在做ui是哪个国内模型好？之前用qoder由肥鱼指挥qwen flash干活，太丑，ui到处不统一。想着是不是要到workbuddy找个好的专家来修？不过流程是怎样比较好？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qwased  
+##### 19211#       发表于 2026-11-4 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467386&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-4 15:28</a>
+HY4感觉就是一个速度慢点，能力强一丢丢的1017</blockquote>
+感觉像大号的0813。。。
+
+*****
+
+####  蛋黄酱Release  
+##### 19212#       发表于 2026-11-4 15:46
+
+hy4其实对标的是glm5.3，总参数激活参数都差不多，能力看上去也差不太多。1017明显技术上要强的多，极端稀疏还能维持这种程度的智力和agent水平
+
+*****
+
+####  andychen  
+##### 19213#       发表于 2026-11-4 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467176&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-4 14:47</a>
+好像GLM 5.5 Flash出现了</blockquote>
+Fake news
+这模型限制中国和欧盟访问，大概率是Meta的
+
