@@ -16955,3 +16955,58 @@ Fake news
 
 让ai给我做ns游戏金手指，ds还在想扫内存，gemini直接提出方案让我解包游戏后直接反编译。最后ds整了半天放弃了金手指方案给我弄了个py脚本
 
+
+*****
+
+####  魔法师lain  
+##### 19217#       发表于 2026-11-4 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467569&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-11-4 16:01</a>
+国外找UI设计稿丢给gpt image 大香蕉之类的让他参考画图
+
+再把图片丢给llm让他实现 ...</blockquote>
+界面太多，这样搞可能太累了吧。其实要求也不高，界面统一一点，能检查ui的问题，有时候能加点小动画就最好。
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  LeoDT  
+##### 19218#       发表于 2026-11-4 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70466673&amp;ptid=2275806" target="_blank">来兹05 发表于 2026-11-4 13:17</a>
+
+一直在windows11上玩dsh，一会就要审批权限烦死。今天换到mac mini上，我靠，居然不需要。。。虽然没有CUDA ...</blockquote>
+现在是用Linux最好的时候，想改什么改什么，整个桌面，整个系统都是你的。
+
+
+*****
+
+####  LeoDT  
+##### 19219#       发表于 2026-11-4 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467680&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-11-4 16:17</a>
+
+界面太多，这样搞可能太累了吧。其实要求也不高，界面统一一点，能检查ui的问题，有时候能加点小动画就最 ...</blockquote>
+改UI只靠模型没用的，用下来impeccable做的挺不错的，各种ai屎检测，各种设计常识全都有了。[https://impeccable.style/](https://impeccable.style/)
+
+另外有个评价还不错的是 [https://www.tasteskill.dev/](https://www.tasteskill.dev/) 最近出了v2，看上去改动挺大的，有时间折腾也可以试试。
+
+
+*****
+
+####  空き地卯木  
+##### 19220#       发表于 2026-11-4 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467492&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-4 15:47</a>
+Fake news
+这模型限制中国和欧盟访问，大概率是Meta的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">请看下集，muse温酒斩Opus
+
+*****
+
+####  awy002  
+##### 19221#       发表于 2026-11-4 16:26
+
+这大肥鱼写设定写的和智障一样，有没有语言逻辑正常点的模型
+
