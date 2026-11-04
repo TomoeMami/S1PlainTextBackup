@@ -549,3 +549,15 @@ R40 Research 的 Joachim Schaeffer 与 Tilman Räuker 于11月3日发布研究�
 另外就是明显手机本地环境体验更 ...</blockquote>
 这是啥，鸿蒙能用吗？
 
+
+*****
+
+####  云卷花开  
+##### 19287#       发表于 2026-11-5 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469685&amp;ptid=2275806" target="_blank">coldhot3 发表于 2026-11-5 00:32</a>
+这是啥，鸿蒙能用吗？</blockquote>
+快要出鸿蒙版了应该
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
