@@ -16701,3 +16701,14 @@ hy4正式版的跑分
 推上开始传A/的IPO要推迟了那他明年拿什么烧算力基建？</blockquote>
 我早就说大蓝潮铁拳一定砸过来<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 19193#       发表于 2026-11-4 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70466716&amp;ptid=2275806" target="_blank">ninini212 发表于 2026-11-4 13:24</a>
+
+一般都是你规则的问题导致某一个到两个链接发现你真实IP了。</blockquote>
+一般是IP不够干净，家宽IP可以用很久
+
