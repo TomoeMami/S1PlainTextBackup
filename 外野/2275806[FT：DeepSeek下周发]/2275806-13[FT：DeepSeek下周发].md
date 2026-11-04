@@ -16934,3 +16934,16 @@ Fake news
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  omnitoken  
+##### 19215#       发表于 2026-11-4 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467469&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-11-4 15:42</a>
+
+其实现在做ui是哪个国内模型好？之前用qoder由肥鱼指挥qwen flash干活，太丑，ui到处不统一。想着是不是要 ...</blockquote>
+国外找UI设计稿丢给gpt image 大香蕉之类的让他参考画图
+
+再把图片丢给llm让他实现
+
