@@ -814,3 +814,22 @@ mark一下
 
 —— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zzf111  
+##### 44#       发表于 2026-11-4 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469028&amp;ptid=2293096" target="_blank">panandhao 发表于 2026-11-4 20:41</a>
+
+第一张图右边那个框，框的是墙下面的角落
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这藏得...角落里那个没搜到是大意了
+
+中间那一看都不太能站的地方藏得好隐蔽
+
+炸药是山腰有个尸体旁纸条说顶上箱子里有爆炸物，打破之后有一个整蛊骷髅和一些细碎道具，可能就没有真的炸药在
+
+这游戏武器升级都是k头才有经验对吧，我手上两把满级的武器都是k到本岛上两个精英怪的击杀 就从十级左右一下升满了
+

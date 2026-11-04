@@ -345,3 +345,13 @@ chatgpt的桌面端输出速度慢到想死，怎么才能看到输出速度？�
 chatgpt的桌面端输出速度慢到想死，怎么才能看到输出速度？是不是用本地中转转成api再接dsh之类的才能看到 ...</blockquote>
 装cc switch就能看到
 
+
+*****
+
+####  squallx2  
+##### 19270#       发表于 2026-11-4 21:05
+
+[重要公告 / Important] Google 已关闭 Build 渠道 / Google has disabled the Build channel 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">哈基米的羊毛都没法薅了吗
+
