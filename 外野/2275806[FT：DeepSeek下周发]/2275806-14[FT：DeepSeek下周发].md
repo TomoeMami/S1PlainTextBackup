@@ -464,3 +464,33 @@ Dsh更新了，是准备迎接4.1p吗
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  很久就在那边l  
+##### 19280#       发表于 2026-11-4 23:41
+
+混元竟然把一些一些和OA差距很大的内部测试集结果也发出来了
+<img src="https://p.sda1.dev/35/fa2ef142a9dc946c5427a66cd7d94856/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qz66618  
+##### 19281#       发表于 2026-11-4 23:47
+
+国模在数学和科研领域确实是差距较大，一方面是算力，一方面是数据原因
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lactone  
+##### 19282#       发表于 2026-11-4 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469563&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-4 23:41</a>
+混元竟然把一些一些和OA差距很大的内部测试集结果也发出来了</blockquote>
+基本上这几个bench实际上就是参数量的劣势导致的了
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
