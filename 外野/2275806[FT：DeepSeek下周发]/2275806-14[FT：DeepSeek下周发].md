@@ -387,3 +387,17 @@ chatgpt的桌面端输出速度慢到想死，怎么才能看到输出速度？�
 能不能用ai神力给旧手机适配第三方rom</blockquote>
 你这要求也太低了，最近ai整的活是给安卓手机移植ios
 
+
+*****
+
+####  绕指流光  
+##### 19274#         楼主| 发表于 2026-11-4 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469059&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-4 20:49</a>
+手机（Android）上的 agent 最近最火的不是这个吗，说是惊动了微信和支付宝
+
+https://github.com/wangzan101 ...</blockquote>
+mika 这个后台屏就是豆包手机的那套，纯手机是比 dsh go 更方便的，但 go 还能我连电脑端 dsh 远控
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
