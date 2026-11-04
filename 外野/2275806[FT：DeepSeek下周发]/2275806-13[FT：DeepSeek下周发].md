@@ -17137,3 +17137,64 @@ gina hinojosa的竞选核心议题就是反数据中心
 —— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5 ...</blockquote>
 hy4现在好像限时免费？我看倍率是0
 
+
+*****
+
+####  andychen  
+##### 19233#       发表于 2026-11-4 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468062&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-4 17:14</a>
+
+孤星州翻了，新州长是铁血反数据中心派
+
+gina hinojosa的竞选核心议题就是反数据中心</blockquote>
+假设未来算力受限
+
+OA是选择死保训练算力，继续给token涨价，还是先保短期利润，释放更多算力到推理服务？
+
+拭目以待
+
+
+*****
+
+####  warlock228  
+##### 19234#       发表于 2026-11-4 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467218&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-11-4 14:54</a>
+
+qwen4怎么一点影子都么有</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">应该快了吧，刚刚给水果大人装好了AI，旗舰应该就发了
+
+*****
+
+####  HellMaster  
+##### 19235#       发表于 2026-11-4 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468198&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-4 17:38</a>
+假设未来算力受限
+
+OA是选择死保训练算力，继续给token涨价，还是先保短期利润，释放更多算力到推理服务？ ...</blockquote>
+什么都保不了，放缓硬件购买速度会从英伟达那里断掉链条。如果ms能撑住还好，如果ms也撑不住外部上天的融资成本会直接让整个产业进入甩卖状态。这个是这个链条上除了lab全都反对禁止开源的原因。
+
+*****
+
+####  ov_efly  
+##### 19236#       发表于 2026-11-4 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468062&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-4 17:14</a>
+
+孤星州翻了，新州长是铁血反数据中心派
+
+gina hinojosa的竞选核心议题就是反数据中心</blockquote>
+债券也要上天了，这是
+
+
+*****
+
+####  2017.05.04  
+##### 19237#       发表于 2026-11-4 17:47
+
+单说ai，这事反而利好马圣
+
+到时候地面上不让建数据中心了，美系AI里就他能打到轨道上，对OA是降维打击
+
