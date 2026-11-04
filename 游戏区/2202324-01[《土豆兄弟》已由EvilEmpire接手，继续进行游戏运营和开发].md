@@ -301,3 +301,16 @@ steam最近的评价已经差成这样了么
 
 弹弓80%远程加成配上远程本来数量就比近战少，伤害是真没眼看，我是不喜欢这种
 
+
+*****
+
+####  foolyu  
+##### 476#       发表于 2026-11-4 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70466212&amp;ptid=2202324" target="_blank">cs0111 发表于 2026-11-4 11:49</a>
+
+机械化不加附加效果，所以弹弓弹射次数应该不会变？
+
+弹弓80%远程加成配上远程本来数量就比近战少，伤害是 ...</blockquote>
+看情况吧，至少机枪改多了之后会加穿透次数
+
