@@ -16540,3 +16540,16 @@ mark      
 老哥指条路  速度 用量  智力怎么样</blockquote>
 速度300多接近400，智力不知道，用量是学生邮箱6刀换165刀额度，但价格好像是峰价
 
+
+*****
+
+####  Steel.Haze  
+##### 19178#       发表于 2026-11-4 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464370&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-11-3 23:14</a>
+
+当遇到一个网安问题的时候，现在的gpt6-astra只会烧完token后不以为耻反以为荣的告诉你，确实有这回事
+
+反观 ...</blockquote>
+我觉得O和A的模型已经都加了这方面的强规训，它们刻意的不会直接操作。
+

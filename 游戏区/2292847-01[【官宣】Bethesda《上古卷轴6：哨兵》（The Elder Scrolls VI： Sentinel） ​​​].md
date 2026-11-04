@@ -505,3 +505,11 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 —— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  TheCyrodiil  
+##### 56#       发表于 2026-11-4 09:26
+
+玩起来能现代一点吗？别战斗系统相比业界倒退二十年<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
