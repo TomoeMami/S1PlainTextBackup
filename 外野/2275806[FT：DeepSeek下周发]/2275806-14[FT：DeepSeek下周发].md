@@ -47,3 +47,26 @@ hy4 普通办公也不好用。
 
 事实上我全程没有切换过模式，真让hy4来办公绝对头疼
 
+
+*****
+
+####  ninini212  
+##### 19244#       发表于 2026-11-4 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467961&amp;ptid=2275806" target="_blank">Baccano 发表于 2026-11-4 16:58</a>
+文字类的唯一真神Gemini</blockquote>
+我有几天也是这，gemini 有时候会随机丢一个不在你规则之内的链接，然后突破你梯子的限制
+
+最简单的办法是要用直接开全局，就不用和他斗智斗勇了
+
+*****
+
+####  cody198879  
+##### 19245#       发表于 2026-11-4 18:19
+
+还是大肥鱼太便宜了，导致现在a/和o/的估值上不来。
+
+这个算不算34-85把虎式干死了
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
