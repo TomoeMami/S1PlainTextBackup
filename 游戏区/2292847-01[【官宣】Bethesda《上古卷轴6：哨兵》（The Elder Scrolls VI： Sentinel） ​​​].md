@@ -719,3 +719,21 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 早在98年的外传《老滚红卫》里，《帝国口袋指南第一版》的Invocation一章就写到“To KYNARETH who returns the Masculine Breath.”Masculine Breath就是龙吼的雏形，并且一开始就已经点明了龙吼和凯娜瑞斯的联系。同书的天际地理章节也提到了天际最高的山叫“世界之喉”，山上有灰胡子奉行“The Way of the Voice”。他们平时不说话，一开口就是强大的“thu'um”。也提到古代的诺德人战士会用吼声轰开城墙，直到Jurgen Windcaller限制一般人对吼声的使用。同书还特意提到塔洛斯和吼声的联系。以上全部设定都跟后来的滚5一模一样。
 
+
+*****
+
+####  zzf111  
+##### 78#       发表于 2026-11-5 04:02
+
+ 本帖最后由 zzf111 于 2026-11-5 04:03 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70467349&amp;ptid=2292847" target="_blank">wlhlz 发表于 2026-11-4 15:21</a>
+
+红卫是中东风这都是几十年的基础设定了，每作不同的地区风格都完全不同本身就是老滚一直以来的特点，而且说 ...</blockquote>
+有一说一这些年杯赛的面部捏脸水平真不行吧
+
+至少我现在看天际的各个种族只是觉得丑得有特色却不会生理不适，辐射4/76捏人模版也不错
+
+而湮灭重制和星空伪人脸 就是瞥见就想吐<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">在冲击恐怖谷
+
+前者是龙腾5和宣誓那种熏人的卡通丑，后者是纯粹的失败的写实不可燃垃圾 <blockquote>鬼图慎点-[https://p.sda1.dev/35/d7df8433c595c7e214a351f4fd202431/1321561561](https://p.sda1.dev/35/d7df8433c595c7e214a351f4fd202431/1321561561)  .jpg 去掉空格</blockquote><blockquote>鬼图慎点- [https://p.sda1.dev/35/38802478de45d42b685d3e3797e0cb2f/12123132](https://p.sda1.dev/35/38802478de45d42b685d3e3797e0cb2f/12123132)  .jpg 去掉空格</blockquote>
+
