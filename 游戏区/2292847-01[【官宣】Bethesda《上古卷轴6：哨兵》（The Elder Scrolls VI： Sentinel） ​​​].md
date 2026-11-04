@@ -487,3 +487,11 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 能不能别用它那个非得读盘的creation引擎了</blockquote>
 不能（即答
 
+
+*****
+
+####  wlhlz  
+##### 54#       发表于 2026-11-4 08:58
+
+这次的外挂应该就是红卫剑歌了，那些圈圈图案也跟这个有关，不过跟龙吼这个滚5当年新加的设定不同，剑歌是lore早就有的老设定了，虽然并没有真正在游戏里出现过
+
