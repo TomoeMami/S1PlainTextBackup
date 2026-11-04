@@ -833,3 +833,20 @@ mark一下
 
 这游戏武器升级都是k头才有经验对吧，我手上两把满级的武器都是k到本岛上两个精英怪的击杀 就从十级左右一下升满了
 
+
+*****
+
+####  panandhao  
+##### 45#       发表于 2026-11-4 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469101&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-4 21:01</a>
+这藏得...角落里那个没搜到是大意了
+
+中间那一看都不太能站的地方藏得好隐蔽
+
+炸药是山腰有个尸体旁纸条说 ...</blockquote>
+初始岛应该是没有炸药<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+武器升级的话，刷小怪就行，我的三叉戟是在石板后的山洞口，反复坐火，打鱼人刷满的<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

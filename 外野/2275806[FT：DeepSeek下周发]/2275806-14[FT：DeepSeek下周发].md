@@ -355,3 +355,16 @@ chatgpt的桌面端输出速度慢到想死，怎么才能看到输出速度？�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">哈基米的羊毛都没法薅了吗
 
+
+*****
+
+####  来都来了  
+##### 19271#       发表于 2026-11-4 21:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464370&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-11-3 23:14</a>
+
+当遇到一个网安问题的时候，现在的gpt6-astra只会烧完token后不以为耻反以为荣的告诉你，确实有这回事
+
+反观 ...</blockquote>
+断网清理喷了，gpt 当自己是本地部署的
+
