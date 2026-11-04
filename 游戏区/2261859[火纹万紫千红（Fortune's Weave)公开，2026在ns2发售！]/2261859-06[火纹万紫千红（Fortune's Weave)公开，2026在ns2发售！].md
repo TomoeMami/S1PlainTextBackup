@@ -11154,3 +11154,16 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 
 亏属性的话外传四个反正亏都亏了，其他角色只是跳第二章没亏多少，上级证其实也没多缺
 
+
+*****
+
+####  黑上シグマ  
+##### 8461#       发表于 2026-11-4 12:50
+
+<blockquote>引用第8457楼iamsolowingpixy于2026-11-04 10:59发表的  :
+
+战争篇有必要4条线都各自打一遍吗？打完女王和雷达之后感觉对一成不变的节奏有点腻了，然后就开了雷达的战......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说是第三部会有打了才有的个人隐藏小剧情
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.50)
+
