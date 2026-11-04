@@ -585,3 +585,17 @@ R40 Research 的 Joachim Schaeffer 与 Tilman Räuker 于11月3日发布研究�
 
 —— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  绕指流光  
+##### 19290#         楼主| 发表于 2026-11-5 07:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469445&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-4 22:54</a>
+连电脑的话，直接用 tailscale 不就好了吗
+
+主要昨天刷到这个</blockquote>
+我实测几天没啥读图问题， dsh go 能直接远程接管 pc 端的对话，tailscale 还要专门配置一次。
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
