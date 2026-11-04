@@ -287,3 +287,14 @@ qwen4到底啥问题，只说灰测arena都在吹，就是不放出来
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pure_liquid  
+##### 19264#       发表于 2026-11-4 20:01
+
+<blockquote>serj005 发表于 2026-11-4 18:27
+hy4这语气咋这么欠看着难受</blockquote>
+
+DS在DSH下感觉也是这个语气，而且我觉得还好，至少认错的时候能看懂它在说什么
+
