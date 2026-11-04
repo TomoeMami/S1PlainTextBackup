@@ -625,3 +625,24 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 明年11月应该能发售了，这次隔星空4年，居然会感觉好快，之前辐射4和星空隔了8年 ...</blockquote>
 明年？后年11月能出我都不信
 
+
+*****
+
+####  wlhlz  
+##### 69#       发表于 2026-11-4 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468582&amp;ptid=2292847" target="_blank">posthoc 发表于 2026-11-4 18:58</a>
+老滚世界观又没有大炮，所谓海战也就接舷跳帮吧，顶多让法师扔俩火球。
+
+—— 来自 鹅球 v4.0-alpha ...</blockquote>
+虽然因为滚45的风格都偏写实可能不太明显，但是老滚是正经高魔世界观，别说大炮哪怕船能飞起来我也不会意外<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wlhlz  
+##### 70#       发表于 2026-11-4 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468542&amp;ptid=2292847" target="_blank">ナルバレック 发表于 2026-11-4 18:47</a>
+也没几十年吧，总共也就30年的IP，真正起飞的3代还是世纪初的时候了，不给红卫正作这么快当了两次主角还 ...</blockquote>
+30年还不是几十年，红卫的中东风弯刀基本每作都有
+

@@ -251,3 +251,39 @@ mmexport1793790996134.jpg
 
 —— 来自 HUAWEI CMM-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  qwased  
+##### 19260#       发表于 2026-11-4 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468670&amp;ptid=2275806" target="_blank">圣堂刺客 发表于 2026-11-4 19:19</a>
+最好不是在嘴硬啊大肥鱼，再说你偷懒图啥啊</blockquote>
+用预算无限提示词可以稍微治疗一下不爱用工具的毛病
+
+*****
+
+####  拯救节操希灵宅  
+##### 19261#       发表于 2026-11-4 19:31
+
+其实ai卫星主要是解决天数天算的问题，毕竟带宽还是足够珍贵的
+
+
+*****
+
+####  awy002  
+##### 19262#       发表于 2026-11-4 19:33
+
+<blockquote>Baccano 发表于 2026-11-4 16:58
+文字类的唯一真神Gemini</blockquote>
+🌟，定了一个月会员试试
+
+*****
+
+####  lactone  
+##### 19263#       发表于 2026-11-4 19:33
+
+qwen4到底啥问题，只说灰测arena都在吹，就是不放出来
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
