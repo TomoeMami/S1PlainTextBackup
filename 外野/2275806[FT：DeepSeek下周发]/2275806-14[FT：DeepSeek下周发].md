@@ -175,3 +175,79 @@ hy4确实，正好今天丢给它一个极其简单的从网页里把图片全�
 当然马圣目前贷款了很多尚未实用的技术，不然绝对达到不了他宣称的效果</blockquote>
 你也知道他贷款了，Roadster你知道他画饼画了多久吗，你也知道之前端出来的是屎了吧？把要大量耗电耗水（散热）还要求极其稳定出点差错必须立刻有人调整的数据中心放到鸟不拉屎的宇宙里就等于用方形的轮子走两万公里路<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  圣堂刺客  
+##### 19255#       发表于 2026-11-4 19:19
+
+最好不是在嘴硬啊大肥鱼，再说你偷懒图啥啊
+
+mmexport1793790996134.jpg
+(26.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-4 19:19 上传
+
+<img src="https://img.stage1st.com/forum/202611/04/191922vgccggh8lt6ul7ig.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  bushfu  
+##### 19256#       发表于 2026-11-4 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468592&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-11-4 19:01</a>
+超巨大散热板
+当然马圣目前贷款了很多尚未实用的技术，不然绝对达到不了他宣称的效果</blockquote>
+前段时间谷歌不是发了一个，散热跪了吗
+
+*****
+
+####  Promeus  
+##### 19257#       发表于 2026-11-4 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468654&amp;ptid=2275806" target="_blank">greemoore1981 发表于 2026-11-4 19:16</a>
+你也知道他贷款了，Roadster你知道他画饼画了多久吗，你也知道之前端出来的是屎了吧？把要大量耗电耗水（ ...</blockquote>
+到时候这边往轨道上打个长六甲我倒想看看他怎么修<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bushfu  
+##### 19258#       发表于 2026-11-4 19:22
+
+一句话结论：不是“失败”，是从一开始就设计成受限的脉冲式实验；卫星活着、通信正常、已经成功跑通 Gemma 4 推理，只是散热瓶颈非常硬，很多自媒体简化成“散热失败”。
+
+项目：Project Suncatcher（太阳捕手），2026‑10‑01 随 Transporter‑18 发射，冰箱大小原型星，搭载 4 片 Trillium TPU，由 Planet 代工，目标是验证在轨 AI 算力可行性，不是直接上线一个可用太空数据中心。
+
+核心事实：
+
+1. 真空只能靠辐射散热，没有对流。热管+外部辐射板这套方案容量有限；官方/《**》给出的边界：单 TPU 连续跑大约 15–20 分钟，温度触达安全上限，系统自动停算，等待辐射板慢慢把热量散出去，之后再重启。而且现阶段一般只同时开一片 TPU，不是四块全开。
+
+2. 已经拿到有效结果，没有炸、没有失联。10 月底已经完成完整闭环：地面下发提示词、在轨跑 Gemma 4、传回推理结果（那首著名俳句）；多家媒体、谷歌官方确认卫星状态正常，不是试验翻车报废。
+
+3. 这是预设的测试，不是意外故障。谷歌从发布时就公开这个约束，目的就是实测散热、辐射、供电瓶颈，为后续迭代收集数据；计划 2027 再发两颗改进版，提升供电与散热能力、演示星间光链路组网。
+
+网上流传的“散热失败”，是把这个先天硬限制、短时脉冲运行，包装成一次事故。
+
+简单区分：
+
+• ✅：原型在轨运行、成功跑模型，试验本身成功；
+
+• ⚠️：当前散热方案远达不到持续高密度算力，距离真正可用的太空算力中心还差很远；
+
+• ❌：并没有出现“因为散热失控导致任务坠毁/报废”这种意义上的失败。
+
+
+*****
+
+####  2017.05.04  
+##### 19259#       发表于 2026-11-4 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468654&amp;ptid=2275806" target="_blank">greemoore1981 发表于 2026-11-4 19:16</a>
+你也知道他贷款了，Roadster你知道他画饼画了多久吗，你也知道之前端出来的是屎了吧？把要大量耗电耗水（ ...</blockquote>
+我国也在跟这条线，现在说肯定行或者肯定不行都为之过早
+
+—— 来自 HUAWEI CMM-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
