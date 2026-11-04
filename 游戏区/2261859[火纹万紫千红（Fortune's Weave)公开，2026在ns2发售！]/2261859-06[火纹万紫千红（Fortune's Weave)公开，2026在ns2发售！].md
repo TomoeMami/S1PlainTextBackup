@@ -11251,3 +11251,12 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 白发鬼补的npc法师还会远程治疗<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 丹缇泪目…
 
+
+*****
+
+####  otakun  
+##### 8471#       发表于 2026-11-5 00:09
+
+我按12121212来打，感觉还行没太大重复，都尽量选不同人来打，没凹点感觉还行，唯独不用那个拿着大熊爪的，觉得整个游戏里最没特色最丑<img src="https://static.stage1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">，五年后还好一点。
+玩到第三章已经更了DLC了，给我最爱用点皮特鲁拿着平A三格的弓转了弓骑，配了再移动汗血马，就爱那种远程白嫖输出还能走回来的感觉<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
