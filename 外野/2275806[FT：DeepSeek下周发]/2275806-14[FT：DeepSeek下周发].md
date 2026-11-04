@@ -401,3 +401,26 @@ mika 这个后台屏就是豆包手机的那套，纯手机是比 dsh go 更方�
 
 —— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  moekyo  
+##### 19275#       发表于 2026-11-4 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469308&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-11-4 22:07</a>
+
+mika 这个后台屏就是豆包手机的那套，纯手机是比 dsh go 更方便的，但 go 还能我连电脑端 dsh 远控
+
+—— ...</blockquote>
+连电脑的话，直接用 tailscale 不就好了吗
+
+主要昨天刷到这个
+
+<img src="https://img.stage1st.com/forum/202611/04/225446nxtddda5zr17575u.png" referrerpolicy="no-referrer">
+
+<strong>s1p-paste-1793804086465.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-4 22:54 上传
+
