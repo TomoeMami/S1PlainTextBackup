@@ -17198,3 +17198,39 @@ gina hinojosa的竞选核心议题就是反数据中心</blockquote>
 
 到时候地面上不让建数据中心了，美系AI里就他能打到轨道上，对OA是降维打击
 
+
+*****
+
+####  lactone  
+##### 19238#       发表于 2026-11-4 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468243&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-11-4 17:47</a>
+单说ai，这事反而利好马圣
+
+到时候地面上不让建数据中心了，美系AI里就他能打到轨道上，对OA是降维打击 ...</blockquote>
+主流是主张禁止数据中心，但是激进的比如桑德斯el-sayed这些是直接主张禁止asi研究的
+
+而且要搞开发者责任法，ai作恶要追究开发者责任
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  wandeeees  
+##### 19239#       发表于 2026-11-4 17:53
+
+QWEN4到底行不行啊，国庆节前就吵过一轮了，上周说是这周出，马上就过半了，不会是区的不行还打不过1017所以一直拖着不敢出吧
+
+
+*****
+
+####  2017.05.04  
+##### 19240#       发表于 2026-11-4 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468269&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-4 17:53</a>
+
+主流是主张禁止数据中心，但是激进的比如桑德斯el-sayed这些是直接主张禁止asi研究的
+
+而且要搞开发者责 ...</blockquote>
+这个太激进了肯定通过不了
+
