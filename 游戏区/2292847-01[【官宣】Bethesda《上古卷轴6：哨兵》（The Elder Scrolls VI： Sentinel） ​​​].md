@@ -680,3 +680,13 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 30年还不是几十年，红卫的中东风弯刀基本每作都有</blockquote>
 弯刀就是印度和波斯人发明的，公元后的阿拉伯帝国扩大了影响力
 
+
+*****
+
+####  wlhlz  
+##### 74#       发表于 2026-11-4 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468922&amp;ptid=2292847" target="_blank">posthoc 发表于 2026-11-4 20:19</a>
+其实二代三代游戏里也没有火药武器啊，顶多有用来炸墙的炸药包这种任务物品（但谁能说不是某种火魔法装置 ...</blockquote>
+如果真要有航海把星空的拼船系统搬过来，那炮肯定得有不可能都是人肉炮手吧<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">反正设定个什么魔法炮之类的玩意就是一句话的事
+

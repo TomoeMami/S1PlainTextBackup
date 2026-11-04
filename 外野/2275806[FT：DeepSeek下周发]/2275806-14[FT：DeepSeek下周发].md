@@ -440,3 +440,27 @@ mika 这个后台屏就是豆包手机的那套，纯手机是比 dsh go 更方�
 
 Dsh更新了，是准备迎接4.1p吗
 
+
+*****
+
+####  lactone  
+##### 19278#       发表于 2026-11-4 23:22
+
+话说，大模型的文本能力是跨语言的吗？也就是中文好的也一定英文好？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19279#       发表于 2026-11-4 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469526&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-4 23:22</a>
+话说，大模型的文本能力是跨语言的吗？也就是中文好的也一定英文好？
+
+—— 来自 vivo V2505A, Android 17, ...</blockquote>
+是
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
