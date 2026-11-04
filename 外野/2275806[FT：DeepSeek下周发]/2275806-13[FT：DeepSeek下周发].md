@@ -16614,3 +16614,39 @@ hy4正式版发布了
 DEM大胜，估计要对大型LLM公司下手了</blockquote>
 AI发展不可能停的，但趁懂王还在台上，正好把泡沫挤一挤，对DEM来说再好不过了
 
+
+*****
+
+####  叶林s  
+##### 19186#       发表于 2026-11-4 13:10
+
+hy4正式版的跑分
+
+<img src="https://img.stage1st.com/forum/202611/04/130935s5gtjwwgtisqltr6.jpg" referrerpolicy="no-referrer">
+
+<strong>2026110401013020_30459ea6ad87f74409dbcde1801ac193.jpg</strong> (163.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-4 13:09 上传
+
+<img src="https://img.stage1st.com/forum/202611/04/130941zd7wafh7hx1e3k1z.jpg" referrerpolicy="no-referrer">
+
+<strong>2026110402023072_85b416b6484a88ef96ef6edda563b560.jpg</strong> (263.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-4 13:09 上传
+
+
+*****
+
+####  来兹05  
+##### 19187#       发表于 2026-11-4 13:17
+
+一直在windows11上玩dsh，一会就要审批权限烦死。今天换到mac mini上，我靠，居然不需要。。。虽然没有CUDA，但不要权限也太爽了。。。是不是Linux也这么爽。。。只有windows缺。。。
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
