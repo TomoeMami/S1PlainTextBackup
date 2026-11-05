@@ -975,3 +975,16 @@ Screenshot_2026-11-05-10-35-56-478_com.valvesoftware.android.steam.community.jpg
 
 请教下有没有不可逆的东西 希望可以随性玩
 
+
+*****
+
+####  vidomina  
+##### 57#         楼主| 发表于 2026-11-5 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70472103&amp;ptid=2293096" target="_blank">Emmerich 发表于 2026-11-5 14:34</a>
+
+请教下有没有不可逆的东西 希望可以随性玩</blockquote>
+貌似没有，条件不够打完结局一，会自动给你送回出生点，然你完成任务再来打其它结局。
+
+但如果直接打结局4不知道能不能一块解锁其它结局。
+
