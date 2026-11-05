@@ -717,3 +717,26 @@ antigravity怎么更新完后说我所在的地区不给用了，我看了我出
 万能的漏油想想办法救救 ...</blockquote>
 找网页版Gemini查一下账号地区，大概率给分到国区了
 
+
+*****
+
+####  Steel.Haze  
+##### 19302#       发表于 2026-11-5 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468395&amp;ptid=2275806" target="_blank">cody198879 发表于 2026-11-4 18:19</a>
+
+还是大肥鱼太便宜了，导致现在a/和o/的估值上不来。
+
+这个算不算34-85把虎式干死了</blockquote>
+目前的一些分支开发上看，这货是个故意换了85炮的T44，所以4.1F应该还有个爆版。然后4.1P（或4.2F）有个大的。
+
+
+*****
+
+####  lactone  
+##### 19303#       发表于 2026-11-5 10:46
+
+昨天有人说发现了4.1pro的新id，canary 4.1pro
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
