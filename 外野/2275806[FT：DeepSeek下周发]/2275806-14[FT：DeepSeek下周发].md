@@ -2267,3 +2267,15 @@ dsh那个Claude界面风格的插件看着挺不错的，就是用了后界面�
 要真敢禁了那可太 ...</blockquote>
 嘉豪交多少钱够买DEM基本盘？
 
+
+*****
+
+####  jojog  
+##### 19434#       发表于 2026-11-6 02:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要是西大底层人民肯定希望炸
+
+富人炸穷，**ai嘉豪被杠杆送去楼顶
+
+金融精英一个个都得死
+
