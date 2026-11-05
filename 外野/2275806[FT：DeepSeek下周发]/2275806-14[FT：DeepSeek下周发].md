@@ -2322,3 +2322,23 @@ dsh那个Claude界面风格的插件看着挺不错的，就是用了后界面�
 
 那SX文章开口闭口蒸馏，但是涉及DS就不敢说蒸馏了，国模格局那也只敢喷智谱，谈到DS都不吭声了。整篇文章看起来是在谈国模，结果真涉及到国模第一技术力的DS，却屁都不敢放，只有寥寥几句，跟没写没区别。你真要谈国模，怎么可能绕得开DS，尤其是1017？看到避开这个不谈就知道这篇文章就是狗屎了。
 
+
+*****
+
+####  qwased  
+##### 19439#       发表于 2026-11-6 04:51
+
+ 本帖最后由 qwased 于 2026-11-6 04:53 编辑 
+
+<img src="https://img.stage1st.com/forum/202611/06/045305ehternh669ppanjz.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1793911984942_1.webp</strong> (56.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-6 04:53 上传
+
+mistral和阶跃都上了自己的1017服务端点，指望卖点算力顺便收集数据，绝对的成本优势带来的利润面前资本都得低头<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+另外跨分词器蒸思维链的高精尖技术国模都只有2~3个厂掌握了，拿摘要重写思维链是在搞笑吗？
+广义蒸馏甚至已经扩展到拿oa模型打分就算蒸馏了，哈哈哈
+
