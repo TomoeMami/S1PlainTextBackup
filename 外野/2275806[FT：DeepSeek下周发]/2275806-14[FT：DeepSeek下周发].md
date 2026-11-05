@@ -1106,3 +1106,35 @@ GPT现在是这样的，我今天叫他做的第一版锁死大于等于65岁，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大肥鱼  
+##### 19340#       发表于 2026-11-5 16:18
+
+说起来，美国的社达文化只能说也挺有意思的呀。不是说强者就该狠狠羞辱弱者吗？那这些AI公司的巨头也属于贯彻本国特色，狠狠地霸凌弱者。但看起来，弱者好像也不太愿意接受自己被霸凌的事实，想要反攻倒算呀。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  andychen  
+##### 19341#       发表于 2026-11-5 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470932&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-11-5 10:48</a>
+开始作死挑战，使用magpie反代antigravity订阅，看我能活几天</blockquote>
+我的四个账号已经活了一个多月了，就一个号触发了一次403，原因多半是因为同时在两个物理地址距离很远的地方发送了请求
+
+不过我没有发很多harness请求，主要用来处理文字和语义相关工作。编程相关3.8flash太拉了，argon又用不了多少
+
+
+*****
+
+####  cscbzcbz  
+##### 19342#       发表于 2026-11-5 16:25
+
+好活<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
