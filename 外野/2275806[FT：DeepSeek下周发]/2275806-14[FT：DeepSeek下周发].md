@@ -672,3 +672,36 @@ Re:Source</blockquote>
 真就信息差
 <img src="https://p.sda1.dev/35/d1798fe1d5ba2452d374f97346f0dcaa/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  awy002  
+##### 19298#       发表于 2026-11-5 10:19
+
+ 本帖最后由 awy002 于 2026-11-5 10:21 编辑 
+<blockquote>Baccano 发表于 2026-11-5 08:41
+海外的也能报销，这也太爽了。
+
+我们公司只能报销Deepseek，workbuddy这种能开FP的。 ...</blockquote>
+
+这些直接提供了，用的肥鱼和Kimi3.1pro，主要是协助办公，用公司的蹬就完事了，我们公司在后台看普通文书工作根本花不了几个子儿，就完全放开了；也就外网大模型比较麻烦得自己订阅再申请报销。
+
+*****
+
+####  斯卡文分则能成  
+##### 19299#       发表于 2026-11-5 10:22
+
+antigravity怎么更新完后说我所在的地区不给用了，我看了我出差的国家是可以用的啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+万能的漏油想想办法救救我<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rachepatty  
+##### 19300#       发表于 2026-11-5 10:24
+
+账号地址是不是没改？搜索本帖哈
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

@@ -415,3 +415,26 @@ steam最近的评价已经差成这样了么
 
 感觉新角色最难玩的是纵火狂，初始可选武器太差，几个经典好用的元素武器都不能选，只能选拿破烂燃烧类，燃烧dot伤害太不直接了，经常是被一群起火又没烧死的怪追赶致死……
 
+
+*****
+
+####  KevinGraham  
+##### 487#       发表于 2026-11-5 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470708&amp;ptid=2202324" target="_blank">cs0111 发表于 2026-11-5 10:11</a>
+感觉新角色最难玩的是纵火狂，初始可选武器太差，几个经典好用的元素武器都不能选，只能选拿破烂燃烧类，燃 ...</blockquote>
+纵火狂我燃烧瓶转火球过的n6
+
+
+*****
+
+####  cs0111  
+##### 488#       发表于 2026-11-5 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470783&amp;ptid=2202324" target="_blank">KevinGraham 发表于 2026-11-5 10:22</a>
+
+纵火狂我燃烧瓶转火球过的n6</blockquote>
+燃烧瓶基础伤害加成太低，砸到敌人身上不痛不痒，燃烧又是持续伤害不能立即奏效，感觉还不如火把，火把吃元素成长比燃烧瓶好那么一丢丢……
+
+不过还是尽快找更实用的元素武器是比较迫切的选择……
+
