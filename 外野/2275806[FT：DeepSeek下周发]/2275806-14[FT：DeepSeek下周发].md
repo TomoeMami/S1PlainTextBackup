@@ -2215,3 +2215,14 @@ dsh那个Claude界面风格的插件看着挺不错的，就是用了后界面�
 
 其实梁圣以后能不能出个回忆录呢，叫我和肥鱼什么的
 
+
+*****
+
+####  空き地卯木  
+##### 19430#       发表于 2026-11-6 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474555&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-11-6 00:22</a>
+粗看了一遍，首先提模型光提大小不提稠密度就一点意义没有。国内任何一个模型最缺的都不是绝对尺寸而是稠密 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">详细批判之前还是先过一轮不要笑挑战吧：
+“从老游戏的真实物理引擎里面获取空间能力，就看谁家先搞到了”
+
