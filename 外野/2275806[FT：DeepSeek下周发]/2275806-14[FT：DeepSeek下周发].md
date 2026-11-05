@@ -1138,3 +1138,19 @@ GPT现在是这样的，我今天叫他做的第一版锁死大于等于65岁，
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  noneoneone  
+##### 19343#       发表于 2026-11-5 16:31
+
+我说呢，我一直想不通美国人为什么敢自断双臂的，原来是宣传中国人只会偷带来的副作用啊，那必须啊对对对了。
+
+
+*****
+
+####  FACS  
+##### 19344#       发表于 2026-11-5 16:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">别光说不练，砍个a/看看实力
+
