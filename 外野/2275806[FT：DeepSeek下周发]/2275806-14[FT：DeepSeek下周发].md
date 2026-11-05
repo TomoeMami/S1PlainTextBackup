@@ -740,3 +740,40 @@ antigravity怎么更新完后说我所在的地区不给用了，我看了我出
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19304#       发表于 2026-11-5 10:48
+
+开始作死挑战，使用magpie反代antigravity订阅，看我能活几天
+
+*****
+
+####  Unlight  
+##### 19305#       发表于 2026-11-5 10:49
+
+话说，怎么用本地大模型翻书来着？
+我试着整了个ollama，装了HunYuan-MT2-7B，但是文译不工作啊。
+运行一两分钟以后报错，提示：Single-paragraph fallback failed at paragraph 0。
+能正常连接，显卡也工作，RX9070。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qwased  
+##### 19306#       发表于 2026-11-5 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470937&amp;ptid=2275806" target="_blank">Unlight 发表于 2026-11-5 10:49</a>
+
+话说，怎么用本地大模型翻书来着？
+
+我试着整了个ollama，装了HunYuan-MT2-7B，但是文译不工作啊。
+
+运行一两 ...</blockquote>
+wenyi应该是agent工作流，不能接混元这种纯翻译模型的
+
+可以接lingua gacha用其他模型提取了术语表之后用混元来翻
+
