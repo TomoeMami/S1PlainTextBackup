@@ -11300,3 +11300,14 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 
 所以理论上可以计算出最优升级策略了
 
+
+*****
+
+####  mai6696  
+##### 8476#       发表于 2026-11-5 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469804&amp;ptid=2261859" target="_blank">Arsaces 发表于 2026-11-5 01:47</a>
+
+坛友们，我已经窒息了，打完女王线第一次觉得人没练好，我又打了第二次，结果就在刚才查攻略发现莉莉安锁支 ...</blockquote>
+你想什么呢，完美毕业还是等DLC出齐了吧。
+

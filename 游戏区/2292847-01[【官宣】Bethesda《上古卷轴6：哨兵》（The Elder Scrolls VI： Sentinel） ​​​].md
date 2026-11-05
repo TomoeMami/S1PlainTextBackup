@@ -737,3 +737,11 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 前者是龙腾5和宣誓那种熏人的卡通丑，后者是纯粹的失败的写实不可燃垃圾 <blockquote>鬼图慎点-[https://p.sda1.dev/35/d7df8433c595c7e214a351f4fd202431/1321561561](https://p.sda1.dev/35/d7df8433c595c7e214a351f4fd202431/1321561561)  .jpg 去掉空格</blockquote><blockquote>鬼图慎点- [https://p.sda1.dev/35/38802478de45d42b685d3e3797e0cb2f/12123132](https://p.sda1.dev/35/38802478de45d42b685d3e3797e0cb2f/12123132)  .jpg 去掉空格</blockquote>
 
+
+*****
+
+####  缺德猫  
+##### 79#       发表于 2026-11-5 08:10
+
+沙漠场景很容易搞出惊艳画质，不知道杯赛现在还有没有这能力
+
