@@ -1982,3 +1982,72 @@ dsh那个Claude界面风格的插件看着挺不错的，就是用了后界面�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 19408#       发表于 2026-11-5 23:47
+
+一个不知道哪来的野鸡机构拉了一坨意义不明的屎，然后就被米猴扔进你楼
+
+*****
+
+####  crow_wine  
+##### 19409#       发表于 2026-11-5 23:48
+
+拉黑这个傻逼了，和上一个吹luna什么斩杀同一个傻逼
+
+
+*****
+
+####  StrangerJ  
+##### 19410#       发表于 2026-11-5 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474395&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-5 23:29</a>
+不管别的，其实这玩意有个很重要的信息，很明显ds完全没搭理这伙人，所以他们所有的ds内容都是猜的和小道消 ...</blockquote>
+应该都是一些小买方。。ds的融资根本挤不进去，只能看看智谱minimax
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  龙骑士尹志平  
+##### 19411#       发表于 2026-11-5 23:52
+
+6.1sol体感上没感觉和1017有多大差别，sol搞得定的1017大多数也搞得定，sol做的方案1017审过后也一样挑出来不少毛病，可能是做的项目没有什么深度的缘故，在我看来ocg的1017基本上能解决我90%以上的问题了。
+
+*****
+
+####  阿刚  
+##### 19412#       发表于 2026-11-5 23:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光是反蒸馏后中美差距拉大到1年这点就不像是现实宇宙的东西，这是路由到哪个平行宇宙了
+
+
+*****
+
+####  hencechen  
+##### 19413#       发表于 2026-11-5 23:55
+
+开口闭口蒸馏的，能不能先定义下，看不到思维链的黑盒问答算不算蒸馏
+
+老子真是操了，，一个好好的中性词，硬是被一帮只会听美国狗哨的纱布变成了攻击武器
+
+还是那句话，你看书，算不算蒸馏？
+
+—— 来自 HONOR PTP-AN10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  StrangerJ  
+##### 19414#       发表于 2026-11-5 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474491&amp;ptid=2275806" target="_blank">hencechen 发表于 2026-11-5 23:55</a>
+开口闭口蒸馏的，能不能先定义下，看不到思维链的黑盒问答算不算蒸馏
+
+老子真是操了，，一个好好的中性词， ...</blockquote>
+金融犬不都这副德行吗，毫不意外
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
