@@ -1223,3 +1223,17 @@ codearts也有点畜，不准我发**。不用猜这个肯定百分之两百是�
 
 我觉得马上就会有repo里面写脏话或者政治标语反蒸馏的了。
 
+
+*****
+
+####  艾诺琳  
+##### 19351#       发表于 2026-11-5 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473051&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-11-5 17:34</a>
+奶奶的这个workbuddy用起来真的巨你妈火大。
+
+比dsh还爱整天问你需要我xxxx吗。
+
+还有你说得对。</blockquote>
+wb提示词里面防御性词语特别多，前面楼友提出过一个解决方案，用dsh把wb默认提示词改了
+

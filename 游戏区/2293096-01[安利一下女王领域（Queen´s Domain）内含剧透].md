@@ -1100,3 +1100,16 @@ ZERK - Zerkhander  狂战双手剑（名曰），基础数值不错，突刺�
 其中目 ...</blockquote>
 呃不是……steam指南那有全的，拿过来让AI翻一下效果就好了
 
+
+*****
+
+####  zzf111  
+##### 61#       发表于 2026-11-5 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473063&amp;ptid=2293096" target="_blank">pgain2004 发表于 2026-11-5 17:37</a>
+
+呃不是……steam指南那有全的，拿过来让AI翻一下效果就好了
+
+How to get With's Grimoire in beggining ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早知道有指南 我就不一个个试了
+

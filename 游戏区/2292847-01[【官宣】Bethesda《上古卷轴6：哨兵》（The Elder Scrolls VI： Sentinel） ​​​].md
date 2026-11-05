@@ -827,3 +827,20 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 fo3重制版还有戏么
 
+
+*****
+
+####  武蔵  
+##### 88#       发表于 2026-11-5 17:41
+
+杯赛的捏人无所谓吧，反正最后都会打身形捏脸mod
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  曼彻斯特联  
+##### 89#       发表于 2026-11-5 17:45
+
+[@Piano-Forest](https://stage1st.com/2b/home.php?mod=space&amp;uid=529685) 提个意见，标题的Sentinel译作哨卫是不是更好些，国内老滚社区更倾向于这个翻译，目前杯赛那边也没提供官方译名。
+
