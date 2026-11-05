@@ -1347,3 +1347,16 @@ How to get With's Grimoire in beggining ...</blockquote>
 不，锈蚀短剑和潘多拉之刃这种都不行，只能往前突刺
 圣剑是一直都能四向
 
+
+*****
+
+####  vidomina  
+##### 69#         楼主| 发表于 2026-11-5 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473560&amp;ptid=2293096" target="_blank">pgain2004 发表于 2026-11-5 19:26</a>
+
+不，锈蚀短剑和潘多拉之刃这种都不行，只能往前突刺
+
+圣剑是一直都能四向 ...</blockquote>
+不能吗，我试了有把重剑是可以的左右前移动攻击
+

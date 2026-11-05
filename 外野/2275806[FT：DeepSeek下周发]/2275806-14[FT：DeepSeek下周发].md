@@ -1454,3 +1454,14 @@ wb有银河麒麟/统信uos的，这部分人感觉wb也是几乎唯一选择了
 
 拿不出AGI就是死
 
+
+*****
+
+####  phorcys02  
+##### 19372#       发表于 2026-11-5 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473416&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-11-5 18:55</a>
+
+wb有银河麒麟/统信uos的，这部分人感觉wb也是几乎唯一选择了</blockquote>
+你在说啥？我在loongarch上 claudecode/codex/opencode/pi/dsh/qoder/workbuddy/zcode 全都能用啊。
+
