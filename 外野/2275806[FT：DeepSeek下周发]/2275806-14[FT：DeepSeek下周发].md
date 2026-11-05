@@ -2115,3 +2115,25 @@ A\从金门大桥啥的可解释性 ...</blockquote>
 看luna干嘛，gpt天天重置这到底是怎么回事？不是打价格战就真当发善心？</blockquote>
 笑死，真有技术会打价格战？
 
+
+*****
+
+####  洛拉斯  
+##### 19421#       发表于 2026-11-6 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474444&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-11-5 23:43</a>
+
+dsh那个Claude界面风格的插件看着挺不错的，就是用了后界面切换和侧边栏拖动会卡卡的，是适配优化问题吗
+
+ ...</blockquote>
+你直接问ai，为什么会卡，给老子修好就行了
+
+百试百灵，就是要花点tokens
+
+*****
+
+####  Awanano  
+##### 19422#       发表于 2026-11-6 00:08
+
+就看 gpt 新模型的效果了，现在的烂样就是新模型的前夜水平    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
