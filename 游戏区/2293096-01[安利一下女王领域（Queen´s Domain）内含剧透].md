@@ -1371,3 +1371,11 @@ How to get With's Grimoire in beggining ...</blockquote>
 所以就是模组更特殊的才行，初期能拿到的这几把都不行
 但能拿重剑都是中期，玩家也该会了
 
+
+*****
+
+####  瑟莉亚  
+##### 71#       发表于 2026-11-6 00:38
+
+这游戏真不错，舔图舔爽了。第一次见宝箱怪还以为是啥道具两个大眼珠，结果突然跳起来给吓一跳。打死了掉一个不知道啥用的道具<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

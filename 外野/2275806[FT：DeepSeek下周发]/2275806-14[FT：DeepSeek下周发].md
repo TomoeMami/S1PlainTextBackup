@@ -2169,3 +2169,17 @@ dsh那个Claude界面风格的插件看着挺不错的，就是用了后界面�
 
 要真敢禁了那可太<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 19426#       发表于 2026-11-6 00:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474593&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-11-6 00:34</a>
+有一说一，我觉得更像是要求这帮人多交钱
+
+毕竟前几年好事全是他们的
+
+要真敢禁了那可太 ...</blockquote>
+嘉豪们手里才几个钱，比起dem基本盘中产和新附红州人差远了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
