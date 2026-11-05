@@ -844,3 +844,17 @@ fo3重制版还有戏么
 
 [@Piano-Forest](https://stage1st.com/2b/home.php?mod=space&amp;uid=529685) 提个意见，标题的Sentinel译作哨卫是不是更好些，国内老滚社区更倾向于这个翻译，目前杯赛那边也没提供官方译名。
 
+
+*****
+
+####  青天孤月  
+##### 90#       发表于 2026-11-5 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473095&amp;ptid=2292847" target="_blank">曼彻斯特联 发表于 2026-11-5 17:45</a>
+@Piano-Forest 提个意见，标题的Sentinel译作哨卫是不是更好些，国内老滚社区更倾向于这个翻译，目前杯赛那 ...</blockquote>
+迟早会有官方译名的，也根本不用先改
+
+哨卫这个词本身也是生造词，没强到哪去，到时候杯赛官方定了哨兵又要折腾
+
+—— 来自 vivo V2548A, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

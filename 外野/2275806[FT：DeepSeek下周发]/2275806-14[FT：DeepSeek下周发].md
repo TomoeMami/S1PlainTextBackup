@@ -1361,3 +1361,29 @@ https://github.com/uernamezzj/WorkBuddy-Prompt-Patcher
 还有你说得对。</blockquote>
 喜欢我37k雷霆大初始提示词吗，这还是所有skill/mcp全关情况<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wb这初始提示词是真逆天，垃圾约束和方法一大坨塞在里面又臭又长，纯降低模型性能+吃积分来的
 
+
+*****
+
+####  cube  
+##### 19363#       发表于 2026-11-5 18:23
+
+刚刚当选美国历史上首位**联邦参议员的 Abdul El-Sayed 声称：美国应该全面暂停前沿 AI 研发，根本不必太担心中国追上来，因为中国只是模仿者。
+
+他还用了一个形象的比喻：美国就像一艘快艇，中国则是被快艇拖着的滑水者。
+
+想不到中期选举还有这效果<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  Vneeto  
+##### 19364#       发表于 2026-11-5 18:26
+
+<blockquote>qwased 发表于 2026-11-5 17:20
+市场消息：因劳资纠纷，美光科技(MU.O)暂停45亿美元的在台工厂建设项目。
+
+储存放弃扩产能了，看来这一波AI ...</blockquote>
+之前那些人不是都在吹AI危险，要管制要放缓甚至要叫停，但都没停下来的打算。大手打下来了，现成的借口不就来了。
+
+虽然我也不认为ai的前进步伐就此罢休，不过能刚好以AI解决大量数学难题为止落下这一幕，倒也不亏也挺有戏剧性的。下一章还会继续开幕。
+
