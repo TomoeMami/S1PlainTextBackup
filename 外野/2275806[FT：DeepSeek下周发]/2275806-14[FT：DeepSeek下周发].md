@@ -979,3 +979,11 @@ image的优势在人物、按照风格扩图
 
 前面楼层有个坛友发了一个ai生成提示词的项目，我今天想试试，发现楼层太高翻不到了，有人有吗，可否私信发我一下
 
+
+*****
+
+####  Tomek  
+##### 19328#       发表于 2026-11-5 14:52
+
+不是哥们，你们真觉得6.1Sol好用吗，我怎么感觉这么难用，给我血压都升上来了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
