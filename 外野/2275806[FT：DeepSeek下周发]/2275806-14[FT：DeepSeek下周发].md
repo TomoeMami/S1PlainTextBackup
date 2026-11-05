@@ -2252,3 +2252,18 @@ dsh那个Claude界面风格的插件看着挺不错的，就是用了后界面�
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ycjiang1337  
+##### 19433#       发表于 2026-11-6 02:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474593&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-11-6 00:34</a>
+
+有一说一，我觉得更像是要求这帮人多交钱
+
+毕竟前几年好事全是他们的
+
+要真敢禁了那可太 ...</blockquote>
+嘉豪交多少钱够买DEM基本盘？
+
