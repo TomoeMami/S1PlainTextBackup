@@ -788,3 +788,13 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 这两者其实都跟引擎特点关系不大，原因单纯是BGS自己没做好建模质量和没控好外包。
 
+
+*****
+
+####  哈曼的YY  
+##### 84#       发表于 2026-11-5 12:46
+
+晨风里就有飞船吧 有任务去找坠毁的 还有矮人的蓝图
+
+—— 来自 OnePlus PHP110, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
