@@ -956,3 +956,14 @@ Screenshot_2026-11-05-10-35-56-478_com.valvesoftware.android.steam.community.jpg
 
 <img src="https://img.stage1st.com/forum/202611/05/103706d6b69rbwpk9w995y.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yaoy1994  
+##### 55#       发表于 2026-11-5 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469888&amp;ptid=2293096" target="_blank">panandhao 发表于 2026-11-5 03:51</a>
+
+感觉就剧情而言，结局三应该是真结局了（直接把西佩哈拉出来制裁，终止了*家人代代对抗邪恶虚空女神*的宿 ...</blockquote>
+我看stuff表，游戏制作就两个人（其他测试、本地化等等的工作应该都是外包出去了）。两个人能搞出这东西，真的很牛
+

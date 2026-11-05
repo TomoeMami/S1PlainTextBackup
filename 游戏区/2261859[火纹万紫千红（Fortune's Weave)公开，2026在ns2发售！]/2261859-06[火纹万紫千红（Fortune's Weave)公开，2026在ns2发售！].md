@@ -11349,3 +11349,11 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 所以理论上可以计算出最优升级策略了</blockquote>
 贴链接，空口说啥呢
 
+
+*****
+
+####  5ew47  
+##### 8481#       发表于 2026-11-5 13:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">下一部大苏宇宙的火纹把忍者加回来吧
+
