@@ -1476,3 +1476,13 @@ wb有银河麒麟/统信uos的，这部分人感觉wb也是几乎唯一选择了
 wb现在推广力度高，每天有好几亿免费token，不用白不用</blockquote>
 每天几亿？怎么搞？
 
+
+*****
+
+####  艾诺琳  
+##### 19374#       发表于 2026-11-5 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473673&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-5 19:59</a>
+每天几亿？怎么搞？</blockquote>
+每天签到100积分，闲时用DeepSeek
+
