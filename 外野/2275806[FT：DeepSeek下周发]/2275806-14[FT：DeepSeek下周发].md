@@ -1804,3 +1804,95 @@ deepseek harness 团队发文写了下，昨天光deepseek harness在官方api�
 
 — from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Promeus  
+##### 19393#       发表于 2026-11-5 23:29
+
+不管别的，其实这玩意有个很重要的信息，很明显ds完全没搭理这伙人，所以他们所有的ds内容都是猜的和小道消息<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  来都来了  
+##### 19394#       发表于 2026-11-5 23:32
+
+Deepseek开源思维链的时候，你A畜连话都说不利索呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/05/233206omb39g9gbgv56l36.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1793892725038_1.webp</strong> (4.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-5 23:32 上传
+
+*****
+
+####  宏.  
+##### 19395#       发表于 2026-11-5 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474373&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-11-5 23:24</a>
+
+这种文章我可以给你写几篇。因为只要在里面插一些谁都知道的事，比如算力缺啊，比如数据难搞啊，其他跑火 ...</blockquote>
+说其他部分是跑火车的前提是对其他部分能拿出反向证据，但现在没有什么反向证据
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 来都来了-1欢乐多
+
+查看全部评分
+
+
+*****
+
+####  ycjiang1337  
+##### 19396#       发表于 2026-11-5 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474352&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-5 23:19</a>
+然而蒸馏和算力的问题目前多方印证</blockquote>
+看到鼓吹闭源廉价模型那段就不用看了，常刷你楼的哪个不知道luna就是路边一条
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 19397#       发表于 2026-11-5 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474324&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-5 23:11</a>
+https://mp.weixin.qq.com/s/YOWslIRykThfGGwx-71RHA
+
+中国LLM讨论纪要</blockquote>
+看笑了 
+tmd蒸馏会留痕现在连glm都没这个了还在说蒸
+而且就这么说瓶颈就在这里了 frontier model在真正的能产生价值的coding task里和ds的唯一区别是它们贵。问题根本不在单次的智力而是在于transformer没有线性能力提升 所以那帮人去搞one shot的task就是为了疯狂抽卡一证永证。物理ai更是想都别想 你的时延 确定性靠什么保证 llm做做数据生成最多了
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  ycjiang1337  
+##### 19398#       发表于 2026-11-5 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474400&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-5 23:32</a>
+说其他部分是跑火车的前提是对其他部分能拿出反向证据，但现在没有什么反向证据 ...</blockquote>
+闭源廉价模型就是最打脸的反向证据，因为最强力效果最好的蒸馏手段就是OPD蒸馏，OPD蒸馏要求师生同源而且logits可获得，因此只能OA两家自己蒸——结果这两家自己蒸出了luna和haiku这种AI嘉豪专用的路边一条赢学模型
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  舞以  
+##### 19399#       发表于 2026-11-5 23:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鉴定一个人是不是不懂ai还要装懂的标准就是看他怎么评价luna terra和sonnet haiku，吹这四个模型的都能鉴定为只会按照通稿吹的傻逼。
+
