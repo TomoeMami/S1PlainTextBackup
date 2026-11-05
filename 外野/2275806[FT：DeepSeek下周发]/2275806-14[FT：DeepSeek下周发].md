@@ -1896,3 +1896,89 @@ tmd蒸馏会留痕现在连glm都没这个了还在说蒸
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鉴定一个人是不是不懂ai还要装懂的标准就是看他怎么评价luna terra和sonnet haiku，吹这四个模型的都能鉴定为只会按照通稿吹的傻逼。
 
+
+*****
+
+####  knnknn  
+##### 19400#       发表于 2026-11-5 23:38
+
+<blockquote>宏. 发表于 2026-11-5 23:11
+https://mp.weixin.qq.com/s/YOWslIRykThfGGwx-71RHA
+
+中国LLM讨论纪要
+</blockquote>
+感觉是异次元新闻。看着还挺有意思的。
+
+不过也已经是二手屎了，一手屎还得看A\
+
+A\从金门大桥啥的可解释性到claude code到MCP到tokenmaxxing到oneshot到AGI，这个畜生公司没一次外宣是老实的，全在误导公共知识。
+
+
+*****
+
+####  宏.  
+##### 19401#       发表于 2026-11-5 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474404&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-11-5 23:35</a>
+
+看到鼓吹闭源廉价模型那段就不用看了，常刷你楼的哪个不知道luna就是路边一条
+
+—— 来自 HUAWEI SGT-AL5 ...</blockquote>
+看luna干嘛，gpt天天重置这到底是怎么回事？不是打价格战就真当发善心？
+
+*****
+
+####  果壳中的松鼠  
+##### 19402#       发表于 2026-11-5 23:39
+
+5.6 luna其实还行，差不多能跟0731有来有回吧<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">，6 luna目测就是区
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  舞以  
+##### 19403#       发表于 2026-11-5 23:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下这篇文章，感觉就是一群只会复读a➗屎的傻逼聚在一起共振出来的产物
+
+*****
+
+####  ycjiang1337  
+##### 19404#       发表于 2026-11-5 23:40
+
+ 本帖最后由 ycjiang1337 于 2026-11-5 23:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474423&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-5 23:39</a>
+
+看luna干嘛，gpt天天重置这到底是怎么回事？不是打价格战就真当发善心？</blockquote>
+你贴的这傻逼文章就在吹廉价模型啊，而且你不是吹蒸馏论么，Luna本身就是对蒸馏论的完美打脸
+
+*****
+
+####  med  
+##### 19405#       发表于 2026-11-5 23:41
+
+蒸馏就是被A\污名化了
+
+黑盒蒸馏算不算蒸馏都是问题
+
+只能说OA两家蒸都蒸不明白，蒸明白的如qwen-27b，真正的minimax
+
+
+*****
+
+####  moekyo  
+##### 19406#       发表于 2026-11-5 23:42
+
+gpt 重置难道不是先暗砍额度再装个大发慈悲的样子给你重置的吗
+
+*****
+
+####  qz66618  
+##### 19407#       发表于 2026-11-5 23:43
+
+dsh那个Claude界面风格的插件看着挺不错的，就是用了后界面切换和侧边栏拖动会卡卡的，是适配优化问题吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
