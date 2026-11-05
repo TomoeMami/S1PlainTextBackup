@@ -778,3 +778,13 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 滚4确实是当年画面的巅峰，但是滚5其实画面还不如比他早出几个月的巫师2，当年已经远远算不上最强了 ...</blockquote>
 重制版套皮虚幻5的搞法不知道会不会用上，只用老引擎画质是没指望了
 
+
+*****
+
+####  青天孤月  
+##### 83#       发表于 2026-11-5 09:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CE的画面其实是没啥问题的，包括哪怕星空的画面主要问题也就两，一个是角色建模质感老土，第二个是严重的素材质量不稳定,同一个游戏不同地方观感能差出来一个主机世代水平
+
+这两者其实都跟引擎特点关系不大，原因单纯是BGS自己没做好建模质量和没控好外包。
+
