@@ -531,3 +531,15 @@ steam最近的评价已经差成这样了么
 我看有新机制新角色我挺想买的，而且还想着补全游戏内容，而且我也只玩最低难度。如果最低难度都玩不了， ...</blockquote>
 最低难度不是随便打<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cs0111  
+##### 498#       发表于 2026-11-5 13:18
+
+ 本帖最后由 cs0111 于 2026-11-5 13:19 编辑 
+
+看来纵火狂用火把确实比那个破燃烧瓶好用，火把自带高击退，被小怪追可以推开不那么怕被围，火把等级高了直接打人伤害吃的元素伤害加成也比燃烧瓶高……<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+当然能拿到冰锥还是最优解
+
