@@ -1282,3 +1282,82 @@ https://github.com/uernamezzj/WorkBuddy-Prompt-Patcher
 在github上看了一下项目原理，百分百被秋后算账，就怕连号都炸了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">求私个git关键字，谷谷歌歌的号不值钱，用废弃号玩就行了
 
+
+*****
+
+####  omnitoken  
+##### 19357#       发表于 2026-11-5 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473051&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-11-5 17:34</a>
+
+奶奶的这个workbuddy用起来真的巨你妈火大。
+
+比dsh还爱整天问你需要我xxxx吗。
+
+还有你说得对。</blockquote>
+你用过本地模型就知道了，workbuddy默认起手就注入8000字提示词
+
+就问你怕不怕
+
+
+*****
+
+####  knnknn  
+##### 19358#       发表于 2026-11-5 18:10
+
+<blockquote>平昭·南宫司卿 发表于 2026-11-5 18:04
+漏油对 harness 都已经这么了解还非要用 wb 本来就是在给自己找不愉快啊</blockquote>
+我看前面有人推以为藤子从良了。
+
+说的对，几千积分还是K3打个两发爽完得了。
+
+*****
+
+####  奥柏伦亲王  
+##### 19359#       发表于 2026-11-5 18:11
+
+完全放弃WB了，现在连每天上去薅100个积分都懒得弄
+
+
+*****
+
+####  knnknn  
+##### 19360#       发表于 2026-11-5 18:12
+
+<blockquote>omnitoken 发表于 2026-11-5 18:07
+你用过本地模型就知道了，workbuddy默认起手就注入8000字提示词
+
+就问你怕不怕 ...</blockquote>
+真就是🦞换个名啊，为什么会有这种产品力。<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mirathel  
+##### 19361#       发表于 2026-11-5 18:13
+
+<img src="https://img.stage1st.com/forum/202611/05/181212niq7n5aashqt9itr.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot from 2026-11-05 02-23-26.png</strong> (22.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-5 18:12 上传
+
+让克劳德英译英，给我来了这么一句<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  serj005  
+##### 19362#       发表于 2026-11-5 18:14
+
+ 本帖最后由 serj005 于 2026-11-5 18:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473051&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-11-5 17:34</a>
+奶奶的这个workbuddy用起来真的巨你妈火大。
+
+比dsh还爱整天问你需要我xxxx吗。
+
+还有你说得对。</blockquote>
+喜欢我37k雷霆大初始提示词吗，这还是所有skill/mcp全关情况<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wb这初始提示词是真逆天，垃圾约束和方法一大坨塞在里面又臭又长，纯降低模型性能+吃积分来的
+

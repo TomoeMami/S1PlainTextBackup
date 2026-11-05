@@ -1144,3 +1144,33 @@ How to get With's Grimoire in beggining ...</blockquote>
 玩了2个小时，拿到了圣剑，能飞2次，整体感觉有点牛逼啊。</blockquote>
 商店买个拳套，拳套战技是升龙，在飞剑冲刺前先用拳套战技 能提升点高度，距离和滞空时间<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pgain2004  
+##### 64#       发表于 2026-11-5 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473183&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-5 18:02</a>
+商店买个拳套，拳套战技是升龙，在飞剑冲刺前先用拳套战技 能提升点高度，距离和滞空时间 ...</blockquote>
+顺带一提，可以奔跑跳+空中升龙+冲刺，或者单独跳+升龙可以上一些台阶
+又或者带初始剑这种技能是冲刺的，可以在风石冲刺基础上再冲一次（虽然下坠相对风石冲刺大点）
+
+
+*****
+
+####  pgain2004  
+##### 65#       发表于 2026-11-5 18:12
+
+另外虽然大部分人应该都能自己实验出来，但给新人：圣剑在主手的情况下，冲刺攻击可以配合左右和后，比较安全地刮死一些怪或者连续（不依赖镜头转向）转向冲过一些地形
+
+
+*****
+
+####  vidomina  
+##### 66#         楼主| 发表于 2026-11-5 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473244&amp;ptid=2293096" target="_blank">pgain2004 发表于 2026-11-5 18:12</a>
+
+另外虽然大部分人应该都能自己实验出来，但给新人：圣剑在主手的情况下，冲刺攻击可以配合左右和后，比较安 ...</blockquote>
+这个操作很克一些喜欢追击的粪怪，技能是突刺的武器都可以用这招
+
