@@ -1010,3 +1010,39 @@ image的优势在人物、按照风格扩图
 
 当然如果是pro以上的用户，那就没必要了，钱都花了，不要受这个罪了。
 
+
+*****
+
+####  来都来了  
+##### 19331#       发表于 2026-11-5 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70472087&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-11-5 14:31</a>
+前面楼层有个坛友发了一个ai生成提示词的项目，我今天想试试，发现楼层太高翻不到了，有人有吗，可否私信发 ...</blockquote>
+https://github.com/petrel-cn/prompt-generator/
+<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  phorcys02  
+##### 19332#       发表于 2026-11-5 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70472209&amp;ptid=2275806" target="_blank">Tomek 发表于 2026-11-5 14:52</a>
+
+不是哥们，你们真觉得6.1Sol好用吗，我怎么感觉这么难用，给我血压都升上来了 ...</blockquote>
+oneshot或者一两轮还行，所有任务都有明确的边界/验证的也行
+
+计划不够完善细节不够详细的中长任务99%给你项目写成一坨屎
+
+如果叠加你不注意时候给你降智到luna,那真是分分钟完犊子.
+
+*****
+
+####  zfy1989  
+##### 19333#       发表于 2026-11-5 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70472310&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-11-5 15:08</a>
+
+https://github.com/petrel-cn/prompt-generator/</blockquote>
+就是这个
+
