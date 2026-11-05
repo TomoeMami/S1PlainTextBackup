@@ -1203,3 +1203,23 @@ GPT现在是这样的，我今天叫他做的第一版锁死大于等于65岁，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">储存放弃扩产能了，看来这一波AI热潮就到此为止了？
 
+
+*****
+
+####  knnknn  
+##### 19350#       发表于 2026-11-5 17:34
+
+奶奶的这个workbuddy用起来真的巨你妈火大。
+
+比dsh还爱整天问你需要我xxxx吗。
+
+还有你说得对。
+
+鹅厂这群人到底给workbuddy加了什么提示词。
+
+harness做了和没做一样的，他妈的Gemini的web都知道把选项做成galgame选项点。
+
+codearts也有点畜，不准我发**。不用猜这个肯定百分之两百是准备拿用户轨迹去做训练，在先做预备筛选了。
+
+我觉得马上就会有repo里面写脏话或者政治标语反蒸馏的了。
+

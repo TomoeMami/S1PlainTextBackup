@@ -996,3 +996,107 @@ Screenshot_2026-11-05-10-35-56-478_com.valvesoftware.android.steam.community.jpg
 
 真的服气，高低差运用得非常巧妙，几个地标不同高度来回串联成一条探索的路线
 
+
+*****
+
+####  zzf111  
+##### 59#       发表于 2026-11-5 17:34
+
+ 本帖最后由 zzf111 于 2026-11-5 17:35 编辑 
+
+在b站上找到的 比23楼更全的彩蛋码
+
+看起来都是些联动游戏（或制作人朋友，宠物，赞助者）的彩蛋武器
+
+其中目测有不少东西能降低游戏难度 改变前期机体残废的游戏体验
+
+输入代码用的魔法书如23楼言在起始出生点右前方的树（站在树后面朝树干对着大海）按互动键打开树中暗格获得魔法书
+
+第一次得到魔法师能有三次写入机会，之后墨水会干涸需要回复，目前不确定是否为杀敌回墨水 反正回复很慢就是了，一次一次回
+
+以下按我得到的物品使用情况 做个总结 慢慢编辑（加粗为推荐）
+
+Password - Reward(s)
+
+B0BARLEY - BoBladely
+
+BIOGENESIS - Witch's Scythe
+
+BIRDLAY - Bird Flail
+
+BLINGE - Ring of Fire
+
+BYRDSEEDE - Feathered Hooked Falx
+
+CAPUTMORTUM - Anima Mundi Blessing <strong>世界之魂戒指，饰品，随时间回复的一次性免伤，戴上有视觉效果</strong>
+
+CERB - Dusty
+
+DETESTABLEDARLING - Detestable Demon's Kanabo
+
+DEVILSPIRE - Manroom Cross
+
+DREAMSPRING - Akumu Amulet 加快魔力武器蓄能
+
+DUNGEONCHILL - Chill Amulet <strong>闲适小狗护符 加幸运加生命加抗性</strong>
+
+EYEPEA - Dream Weaver's Colossal Syringe
+
+FLYKNIGHT - Saurian Wing 蜥翼长戟，基础数值不错，动作模组一般
+
+GEOMETRIZER - Virtua Nail-Bat
+
+GHOSTAFTER - Ghost Spear <strong>幽灵长矛，魔力长枪，战技是发出一个贴地持续推进五米的aoe波浪，蓄能极快</strong>
+
+HAGGARDCRONE - Hag's Ritual Dagger
+
+HARKTHEGHOUL - Lamp Mace
+
+HARPO - Cudgel of Silence
+
+HEMPIE - Radioactive Blade + Hempie's SVT 38 两个物品 <strong>辐射长剑 魔力长剑，战技是一次性扇形aoe 汉皮步枪，准心略偏左，中前期神器 </strong>
+
+JAYPHOTIC - How to Tolerate Jank 霸者契约，饰品，增加游戏难度，推测是戴上减自己数值，搞笑来的
+
+LUNAARCANA - Lunar Polearm
+
+MAGICALMARTINI - Scythetini
+
+PALEABYSS - Pebble Hammer
+
+RATBOYKITCHEN - Ratboy's Zhuge Crossbow
+
+REBORN - Impaled Freak
+
+REDVOX - Voxord
+
+SAOMATIC - Starlight Blade
+
+SHIBARI - "Preservation Asanawa
+
+THEB33WITHKNEES - "Normal 72 Year Old Blade
+
+B33 Punch + Ratpod"
+
+VERHO - Thief's Mask 盗贼面具，饰品，加快飞镖恢复速度
+
+VINESAUCE - Vineshroom
+
+YUSUKEYAZAWA - Grilled Vegetable Skewer
+
+ZERK - Zerkhander  狂战双手剑（名曰），基础数值不错，突刺战技平平无奇
+
+
+*****
+
+####  pgain2004  
+##### 60#       发表于 2026-11-5 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473046&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-5 17:34</a>
+在b站上找到的 比23楼更全的彩蛋码
+
+看起来都是些联动游戏（或制作人朋友，宠物，赞助者）的彩蛋武器
+
+其中目 ...</blockquote>
+呃不是……steam指南那有全的，拿过来让AI翻一下效果就好了
+
