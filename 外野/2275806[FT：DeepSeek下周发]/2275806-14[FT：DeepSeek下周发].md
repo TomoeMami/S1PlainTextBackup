@@ -622,3 +622,24 @@ Re:Source</blockquote>
 如果只管文字是不是买pro就行了</blockquote>
 闲鱼买个十几块的jio试试先。如果后面发现argon额度不够用，再考虑升级。
 
+
+*****
+
+####  awy002  
+##### 19293#       发表于 2026-11-5 08:28
+
+<blockquote>Baccano 发表于 2026-11-5 08:27
+闲鱼买个十几块的jio试试先。如果后面发现argon额度不够用，再考虑升级。</blockquote>
+我已经买了🥹，没事反正能报销。
+
+
+*****
+
+####  warlock228  
+##### 19294#       发表于 2026-11-5 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470150&amp;ptid=2275806" target="_blank">Baccano 发表于 2026-11-5 08:27</a>
+
+闲鱼买个十几块的jio试试先。如果后面发现argon额度不够用，再考虑升级。</blockquote>
+谷谷歌歌已经开始铲jio的套餐了，现在就别买了吧，做好只能体验一两周的期望那可以买
+

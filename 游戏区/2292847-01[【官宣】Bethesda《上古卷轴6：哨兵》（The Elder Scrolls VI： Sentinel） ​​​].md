@@ -757,3 +757,24 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 至少我现在看天际的各个种族只是觉得丑得有特色却不会生理不适 ...</blockquote>
 你要是玩过滚4原版就会发现重制版已经是大幅美化过了，觉得恐怖谷大概是因为原版根本不是人的NPC被改的比较像人了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wlhlz  
+##### 81#       发表于 2026-11-5 08:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470085&amp;ptid=2292847" target="_blank">缺德猫 发表于 2026-11-5 08:10</a>
+5代小时候玩觉得画质特别屌，辐射4画质算符合时代，但星空就非常一般了（美术还是顶级，但画质已拉完），不 ...</blockquote>
+滚4确实是当年画面的巅峰，但是滚5其实画面还不如比他早出几个月的巫师2，当年已经远远算不上最强了
+
+
+*****
+
+####  缺德猫  
+##### 82#       发表于 2026-11-5 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470160&amp;ptid=2292847" target="_blank">wlhlz 发表于 2026-11-5 08:29</a>
+
+滚4确实是当年画面的巅峰，但是滚5其实画面还不如比他早出几个月的巫师2，当年已经远远算不上最强了 ...</blockquote>
+重制版套皮虚幻5的搞法不知道会不会用上，只用老引擎画质是没指望了
+
