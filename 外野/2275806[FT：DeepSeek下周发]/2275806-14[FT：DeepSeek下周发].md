@@ -1246,3 +1246,39 @@ wb提示词里面防御性词语特别多，前面楼友提出过一个解决方
 wb最恶心的是系统提示词有一条是要求回答控制在50-70行之内，不要过多思考尽快回复用户。然后就是贬低表格，要求尽量出图，弱智的信息不少
 提示词是明文的，直接拿其他工具改就是了，记得让ai把自动升级关了
 
+
+*****
+
+####  蛋黄酱Release  
+##### 19353#       发表于 2026-11-5 17:59
+
+workbuddy的理念是一切用户都是小白，任何复杂的东西都搞不懂，给pdf改一个字都恨不得写个skill再来一份html汇报一下
+但不得不说对小白来说确实很震撼<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓝色梦魇  
+##### 19354#       发表于 2026-11-5 17:59
+
+可以直接让dsh学这个项目
+https://github.com/uernamezzj/WorkBuddy-Prompt-Patcher
+然后对照自身的系统提示词给你修改建议
+
+
+*****
+
+####  平昭·南宫司卿  
+##### 19355#       发表于 2026-11-5 18:04
+
+漏油对 harness 都已经这么了解还非要用 wb 本来就是在给自己找不愉快啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  warlock228  
+##### 19356#       发表于 2026-11-5 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70472957&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-11-5 17:13</a>
+
+在github上看了一下项目原理，百分百被秋后算账，就怕连号都炸了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">求私个git关键字，谷谷歌歌的号不值钱，用废弃号玩就行了
+

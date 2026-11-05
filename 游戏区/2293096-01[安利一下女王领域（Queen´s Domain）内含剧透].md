@@ -1131,3 +1131,16 @@ How to get With's Grimoire in beggining ...</blockquote>
 
 总的来说是玩了2个小时就能感受到引导你观察、思考，给出解答的那种被锤炼过完成度的好游戏
 
+
+*****
+
+####  zzf111  
+##### 63#       发表于 2026-11-5 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473111&amp;ptid=2293096" target="_blank">从来不吃青菜 发表于 2026-11-5 17:50</a>
+
+感谢推荐。
+
+玩了2个小时，拿到了圣剑，能飞2次，整体感觉有点牛逼啊。</blockquote>
+商店买个拳套，拳套战技是升龙，在飞剑冲刺前先用拳套战技 能提升点高度，距离和滞空时间<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
