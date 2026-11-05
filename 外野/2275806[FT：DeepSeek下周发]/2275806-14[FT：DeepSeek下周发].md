@@ -1578,3 +1578,29 @@ wb免费版的积分是虚的，稍微用多点pony马就不给用砍了，测�
 
 hy4初步评价为一个更慢更贵的dsf4.1 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer"> 体感没有明显智力差距
 
+
+*****
+
+####  jojog  
+##### 19384#       发表于 2026-11-5 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473462&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-5 19:04</a>
+
+控制速度有什么用？签了几千亿刚性算力支出的又不是老钟的企业
+
+拿不出AGI就是死 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">那就死啊
+
+前两天就有提出法律政府不许救的了
+
+只要能跳车，老钱和hyperscaler能吃不少尸体的
+
+*****
+
+####  来都来了  
+##### 19385#       发表于 2026-11-5 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474058&amp;ptid=2275806" target="_blank">plusSharp 发表于 2026-11-5 21:45</a>
+AI工作过程中太喜欢用python怎么办，我能接受C++和C#,但完全学不进python，导致它说有几个脚本可复用但我却 ...</blockquote>
+你为什么要学，都丢给AI去搞就好了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 如果你想要复用，你可以ai哪个可以复用，然后让他写一个文档，把复用时的格式给你写清楚。
+
