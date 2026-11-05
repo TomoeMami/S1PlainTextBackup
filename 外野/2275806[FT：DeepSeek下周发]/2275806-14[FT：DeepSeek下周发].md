@@ -942,3 +942,24 @@ antigravity怎么更新完后说我所在的地区不给用了，我看了我出
 
 ChatGPT image 2.6来了。Gemini Banana还停留在Pro 1.0和标准版2.1，使用上和image差了很远。
 
+
+*****
+
+####  overflowal  
+##### 19324#       发表于 2026-11-5 14:02
+
+百度看了deepseek v4后训了个自己的flash 出来<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秦南心  
+##### 19325#       发表于 2026-11-5 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70471894&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-11-5 13:43</a>
+
+ChatGPT image 2.6来了。Gemini Banana还停留在Pro 1.0和标准版2.1，使用上和image差了很远。 ...</blockquote>
+image场景一致性属于依托的水准，香蕉编辑照片场景影调还原度还可以，
+
+image的优势在人物、按照风格扩图
+
