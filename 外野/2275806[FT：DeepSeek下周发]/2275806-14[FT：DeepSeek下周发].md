@@ -1518,3 +1518,11 @@ qoder又发了20刀astra
 
 我服了，qoder看着不像wb那样加了一堆没用的，还以为阿里改性了呢，就想着薅羊毛体验一下，然后连着执行两个给的方案全给我跑偏了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plusSharp  
+##### 19378#       发表于 2026-11-5 21:45
+
+AI工作过程中太喜欢用python怎么办，我能接受C++和C#,但完全学不进python，导致它说有几个脚本可复用但我却无法核实
+
