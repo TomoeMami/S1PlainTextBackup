@@ -11337,3 +11337,15 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 <img src="https://p.sda1.dev/35/3b359a5dda70f4940dbc291531ba3a09/7341.jpg" referrerpolicy="no-referrer">
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了来了，手游超英开始出万紫千红了
 
+
+*****
+
+####  沙发果冻  
+##### 8480#       发表于 2026-11-5 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470034&amp;ptid=2261859" target="_blank">苍蓝之枪 发表于 2026-11-5 07:50</a>
+乐，乱数公式好像被解出来了
+
+所以理论上可以计算出最优升级策略了</blockquote>
+贴链接，空口说啥呢
+

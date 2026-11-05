@@ -811,3 +811,22 @@ SI倒了！
 
 那显卡内存价格能回到过去了吗
 
+
+*****
+
+####  malisa  
+##### 19310#       发表于 2026-11-5 12:03
+
+A/今天不少人官宣跳槽o/
+
+不是卧底吧 14天又回老家<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noneoneone  
+##### 19311#       发表于 2026-11-5 12:03
+
+一直都想买个全键盘手机玩玩，开始折腾ai后这个想法又蠢蠢欲动了。心知肚明买来就是纯玩具，但还是好想买。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
