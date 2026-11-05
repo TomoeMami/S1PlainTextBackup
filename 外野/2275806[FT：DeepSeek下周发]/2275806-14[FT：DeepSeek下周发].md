@@ -1754,3 +1754,53 @@ https://mp.weixin.qq.com/s/YOWslIRykThfGGwx-71RHA
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  宏.  
+##### 19388#       发表于 2026-11-5 23:19
+
+<blockquote>云卷花开 发表于 2026-11-5 23:15
+日本 ip 举办的中国 llm 讨论，评价为看都不用看
+
+Re:Source</blockquote>
+然而蒸馏和算力的问题目前多方印证
+
+*****
+
+####  novem  
+##### 19389#       发表于 2026-11-5 23:20
+
+除过蒸馏不会讲话系列
+
+
+*****
+
+####  overflowal  
+##### 19390#       发表于 2026-11-5 23:21
+
+deepseek harness 团队发文写了下，昨天光deepseek harness在官方api就消耗了92T的token    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  overflowal  
+##### 19391#       发表于 2026-11-5 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474352&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-5 23:19</a>
+然而蒸馏和算力的问题目前多方印证</blockquote>
+这种文章我可以给你写几篇。因为只要在里面插一些谁都知道的事，比如算力缺啊，比如数据难搞啊，其他跑火车也会有人觉得哇～多方印证～    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 19392#       发表于 2026-11-5 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473610&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-11-5 19:42</a>
+你在说啥？我在loongarch上 claudecode/codex/opencode/pi/dsh/qoder/workbuddy/zcode 全都能用啊。
+
+ ...</blockquote>
+现在都ts Python写的哪有不能技术上不能用的 只是有些地方安全管的严只能用认证过的
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
