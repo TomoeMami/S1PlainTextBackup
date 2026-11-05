@@ -1046,3 +1046,25 @@ oneshot或者一两轮还行，所有任务都有明确的边界/验证的也行
 https://github.com/petrel-cn/prompt-generator/</blockquote>
 就是这个
 
+
+*****
+
+####  inpachi  
+##### 19334#       发表于 2026-11-5 15:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">6.1sol对我的工作来说是够了，主要工作内容是让它读文档读交互稿，结合本地已有的项目文件给我出一份只需要我小改就能用的测试用例。
+
+排查问题的时候直接把log丢给它也能自己去排查到问题原因，照着出问题的提交就能直接找对应程序开单处理
+
+*****
+
+####  ytrfegd  
+##### 19335#       发表于 2026-11-5 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70472291&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-11-5 15:06</a>
+
+在考虑全面做好规划一次出活这方面其实挺不错的，另外就是够便宜，甚至是plus用户只要不多开项目，都能比 ...</blockquote>
+即使是500刀用户只用astra也跑不了几天
+
+可以使用linuxdo上的人开发的codex prove，让CODEX用6.1 SOL做主干调度，ASTRA做专家诊
+
