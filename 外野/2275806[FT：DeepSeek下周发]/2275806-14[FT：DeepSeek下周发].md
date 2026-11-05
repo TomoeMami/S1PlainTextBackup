@@ -1068,3 +1068,31 @@ https://github.com/petrel-cn/prompt-generator/</blockquote>
 
 可以使用linuxdo上的人开发的codex prove，让CODEX用6.1 SOL做主干调度，ASTRA做专家诊
 
+
+*****
+
+####  qz66618  
+##### 19336#       发表于 2026-11-5 15:52
+
+说到底，where is the DeepSeek-V4.1PRO？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  GLYSDSB  
+##### 19337#       发表于 2026-11-5 15:53
+
+有无什么色图素材网推荐，deepseek给我推荐的latent tags，用起来很不方便，Civitai倒是挺好的，就是不够可视化，那个costume gallery挺好的，可惜衣服数量还是不够多<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2464A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  warlock228  
+##### 19338#       发表于 2026-11-5 15:53
+
+GPT现在是这样的，我今天叫他做的第一版锁死大于等于65岁，效果不错就把改成选择框可选大于和小于XX岁的框，它直接真的给我做成大于和小于了把等于扔了，我自己复测发现少了数据，第一次不去复测肯定被他坑了
+
+<img src="https://picui.ogmua.cn/s1/2026/11/05/6aec35ec9ec08.webp" referrerpolicy="no-referrer">
+
