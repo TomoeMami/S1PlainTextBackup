@@ -643,3 +643,32 @@ Re:Source</blockquote>
 闲鱼买个十几块的jio试试先。如果后面发现argon额度不够用，再考虑升级。</blockquote>
 谷谷歌歌已经开始铲jio的套餐了，现在就别买了吧，做好只能体验一两周的期望那可以买
 
+
+*****
+
+####  HazukiShion  
+##### 19295#       发表于 2026-11-5 08:41
+
+现在日译中 4Pro、K3 和 Gemini 4 差距大吗？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Baccano  
+##### 19296#       发表于 2026-11-5 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470154&amp;ptid=2275806" target="_blank">awy002 发表于 2026-11-5 08:28</a>
+
+我已经买了🥹，没事反正能报销。</blockquote>
+海外的也能报销，这也太爽了。
+
+我们公司只能报销Deepseek，workbuddy这种能**的。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  很久就在那边l  
+##### 19297#       发表于 2026-11-5 08:45
+
+真就信息差
+<img src="https://p.sda1.dev/35/d1798fe1d5ba2452d374f97346f0dcaa/image.jpg" referrerpolicy="no-referrer">
+
