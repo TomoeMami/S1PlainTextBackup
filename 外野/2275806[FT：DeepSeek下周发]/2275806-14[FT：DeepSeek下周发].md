@@ -2226,3 +2226,17 @@ dsh那个Claude界面风格的插件看着挺不错的，就是用了后界面�
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">详细批判之前还是先过一轮不要笑挑战吧：
 “从老游戏的真实物理引擎里面获取空间能力，就看谁家先搞到了”
 
+
+*****
+
+####  2017.05.04  
+##### 19431#       发表于 2026-11-6 01:37
+
+<img src="https://img.stage1st.com/forum/202611/06/013758abd10f40wp75zzng.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (130.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-6 01:37 上传
+
