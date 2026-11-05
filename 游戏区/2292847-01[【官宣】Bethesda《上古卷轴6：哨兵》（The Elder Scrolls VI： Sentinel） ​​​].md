@@ -819,3 +819,11 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 真的感觉在人物美术这块杯赛这些年是失控的
 
+
+*****
+
+####  cot495  
+##### 87#       发表于 2026-11-5 17:05
+
+fo3重制版还有戏么
+

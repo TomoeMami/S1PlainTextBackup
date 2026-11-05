@@ -1165,3 +1165,13 @@ GPT现在是这样的，我今天叫他做的第一版锁死大于等于65岁，
 我的四个账号已经活了一个多月了，就一个号触发了一次403，原因多半是因为同时在两个物理地址距离很远的 ...</blockquote>
 感谢分享，我去研究下antigravity manager
 
+
+*****
+
+####  c月光咖啡  
+##### 19346#       发表于 2026-11-5 17:00
+
+用6.1sol写了篇论文，讨论的时候还不错，世界知识挺丰富的，也比较有逻辑性，生成全文的时候给我看吐了，满篇防御性写作，我都开始怀疑自己选题的方向了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
