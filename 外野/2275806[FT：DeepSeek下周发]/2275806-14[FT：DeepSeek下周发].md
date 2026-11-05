@@ -1096,3 +1096,13 @@ GPT现在是这样的，我今天叫他做的第一版锁死大于等于65岁，
 
 <img src="https://picui.ogmua.cn/s1/2026/11/05/6aec35ec9ec08.webp" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 19339#       发表于 2026-11-5 16:15
+
+<img src="https://p.sda1.dev/35/dc78960d86dfc87335694ea49042e78c/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
