@@ -1154,3 +1154,14 @@ GPT现在是这样的，我今天叫他做的第一版锁死大于等于65岁，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">别光说不练，砍个a/看看实力
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19345#       发表于 2026-11-5 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70472691&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-5 16:23</a>
+
+我的四个账号已经活了一个多月了，就一个号触发了一次403，原因多半是因为同时在两个物理地址距离很远的 ...</blockquote>
+感谢分享，我去研究下antigravity manager
+
