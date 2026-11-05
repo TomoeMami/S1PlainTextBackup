@@ -1409,3 +1409,20 @@ Workbuddy，它的搜索引擎还是特别好的
 
 —— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  艾诺琳  
+##### 19367#       发表于 2026-11-5 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473201&amp;ptid=2275806" target="_blank">平昭·南宫司卿 发表于 2026-11-5 18:04</a>
+漏油对 harness 都已经这么了解还非要用 wb 本来就是在给自己找不愉快啊</blockquote>
+wb现在推广力度高，每天有好几亿免费token，不用白不用
+
+*****
+
+####  Promeus  
+##### 19368#       发表于 2026-11-5 18:43
+
+赛伊德其实大概率是知道怎么回事的，这言论是骗文盲美国人<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">他后面说要跟老钟签协议大家一起控制ai发展速度
+
