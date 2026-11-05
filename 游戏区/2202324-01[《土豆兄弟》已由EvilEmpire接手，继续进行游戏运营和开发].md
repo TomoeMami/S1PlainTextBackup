@@ -521,3 +521,13 @@ steam最近的评价已经差成这样了么
 我看有新机制新角色我挺想买的，而且还想着补全游戏内容，而且我也只玩最低难度。如果最低难度都玩不了， ...</blockquote>
 怎么说呢，我虽然也不是什么高手，但很难想象这游戏会有哪个角色连最低难度都玩不了的，尤其是在有续关的情况下……
 
+
+*****
+
+####  KevinGraham  
+##### 497#       发表于 2026-11-5 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70471256&amp;ptid=2202324" target="_blank">别里科夫 发表于 2026-11-5 11:35</a>
+我看有新机制新角色我挺想买的，而且还想着补全游戏内容，而且我也只玩最低难度。如果最低难度都玩不了， ...</blockquote>
+最低难度不是随便打<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

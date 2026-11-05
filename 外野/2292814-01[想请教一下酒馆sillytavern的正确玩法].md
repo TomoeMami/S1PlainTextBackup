@@ -78,3 +78,14 @@ PS：梁叔叔什么时候拿出pro核弹把我炸飞瘫坐啊
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我用到现在感觉指望ai本身给你搞出点创意这事就是错的，你可以给他一个方向让他去扩展，而且扩展的前提是你要严格控制好他的整体思路，大纲方向还是得你来把控
 
+
+*****
+
+####  S1观测站  
+##### 61#       发表于 2026-11-5 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70464181&amp;ptid=2292814" target="_blank">阿刚 发表于 2026-11-3 22:18</a>
+
+其实我用到现在感觉指望ai本身给你搞出点创意这事就是错的，你可以给他一个方向让他去扩展，而且扩展的前提 ...</blockquote>
+本质上玩酒馆就是自己写大纲来着
+

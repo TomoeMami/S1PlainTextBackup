@@ -11327,3 +11327,13 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 
 可惜打完第一次凯伊线就锁仓库了，这个支援列表感觉用不上了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 8479#       发表于 2026-11-5 11:57
+
+<img src="https://p.sda1.dev/35/d8022c5bb3ceeee3c58c740312feb698/7336.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/35/3b359a5dda70f4940dbc291531ba3a09/7341.jpg" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了来了，手游超英开始出万紫千红了
+
