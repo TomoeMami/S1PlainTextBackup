@@ -1193,3 +1193,13 @@ GPT现在是这样的，我今天叫他做的第一版锁死大于等于65岁，
 有插件地址吗 求</blockquote>
 在github上看了一下项目原理，百分百被秋后算账，就怕连号都炸了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 19349#       发表于 2026-11-5 17:20
+
+市场消息：因劳资纠纷，美光科技(MU.O)暂停45亿美元的在台工厂建设项目。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">储存放弃扩产能了，看来这一波AI热潮就到此为止了？
+
