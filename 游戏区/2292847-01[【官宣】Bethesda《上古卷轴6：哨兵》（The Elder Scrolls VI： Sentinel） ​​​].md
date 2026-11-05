@@ -858,3 +858,20 @@ fo3重制版还有戏么
 
 —— 来自 vivo V2548A, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  泥鳅  
+##### 91#       发表于 2026-11-5 18:50
+
+继续拖吧，杯赛再这么拖下去，国产工业 3A 说不定就把玩家的阈值抬到对面跟不上的地步了。毕竟国内厂商对 RPG 滤镜过高，做单机都拼命在这个赛道上内卷到底，再过个七八年国产游戏在这个赛道上卷成什么样不敢想。
+
+—— 来自 HONOR PPG-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  zxlice  
+##### 92#       发表于 2026-11-5 18:50
+
+这个意境肯定不是哨兵嘛，这个海港名字得好好想一下<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -1426,3 +1426,11 @@ wb现在推广力度高，每天有好几亿免费token，不用白不用
 
 赛伊德其实大概率是知道怎么回事的，这言论是骗文盲美国人<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">他后面说要跟老钟签协议大家一起控制ai发展速度
 
+
+*****
+
+####  狭义文具爱好者  
+##### 19369#       发表于 2026-11-5 18:55
+
+wb有银河麒麟/统信uos的，这部分人感觉wb也是几乎唯一选择了
+
