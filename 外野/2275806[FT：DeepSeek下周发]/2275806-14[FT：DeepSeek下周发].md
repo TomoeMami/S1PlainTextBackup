@@ -1387,3 +1387,25 @@ https://github.com/uernamezzj/WorkBuddy-Prompt-Patcher
 
 虽然我也不认为ai的前进步伐就此罢休，不过能刚好以AI解决大量数学难题为止落下这一幕，倒也不亏也挺有戏剧性的。下一章还会继续开幕。
 
+
+*****
+
+####  空き地卯木  
+##### 19365#       发表于 2026-11-5 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473296&amp;ptid=2275806" target="_blank">cube 发表于 2026-11-5 18:23</a>
+刚刚当选美国历史上首位**联邦参议员的 Abdul El-Sayed 声称：美国应该全面暂停前沿 AI 研发，根本不必太担 ...</blockquote>
+翻译一下就是上供得还不够，到位了就宣布中国AI已经超越美国AI了
+
+
+*****
+
+####  bartholo4  
+##### 19366#       发表于 2026-11-5 18:33
+
+Workbuddy，它的搜索引擎还是特别好的
+反正用 GPT 给它把提示词精简到 2000 来字
+用 Workbuddy 的奶龙开会，有的时候效果比 DSH 还好
+
+—— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
