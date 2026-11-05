@@ -705,3 +705,15 @@ antigravity怎么更新完后说我所在的地区不给用了，我看了我出
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  空き地卯木  
+##### 19301#       发表于 2026-11-5 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470778&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-11-5 10:22</a>
+antigravity怎么更新完后说我所在的地区不给用了，我看了我出差的国家是可以用的啊
+
+万能的漏油想想办法救救 ...</blockquote>
+找网页版Gemini查一下账号地区，大概率给分到国区了
+
