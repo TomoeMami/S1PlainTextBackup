@@ -1175,3 +1175,21 @@ GPT现在是这样的，我今天叫他做的第一版锁死大于等于65岁，
 
 —— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
 
+
+*****
+
+####  泰坦失足  
+##### 19347#       发表于 2026-11-5 17:12
+
+其实可以安装对应的AI订阅的官方CLI，然后让自己的主力Agent软件去调用它们充当子agent。
+
+*****
+
+####  陈八尺  
+##### 19348#       发表于 2026-11-5 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70471648&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-5 12:47</a>
+
+有插件地址吗 求</blockquote>
+在github上看了一下项目原理，百分百被秋后算账，就怕连号都炸了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
