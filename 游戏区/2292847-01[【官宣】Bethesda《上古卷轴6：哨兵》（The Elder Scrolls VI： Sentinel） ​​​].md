@@ -806,3 +806,16 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 老滚4的捏人放当时是非常厉害的。只是时代变了。
 
+
+*****
+
+####  zzf111  
+##### 86#       发表于 2026-11-5 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470152&amp;ptid=2292847" target="_blank">wlhlz 发表于 2026-11-5 08:27</a>
+
+你要是玩过滚4原版就会发现重制版已经是大幅美化过了，觉得恐怖谷大概是因为原版根本不是人的NPC被改的比 ...</blockquote>
+我真被莎拉抬头纹法令纹和湮灭重制里开场黑人刀锋那高清泛紫的嘴唇给劝退过<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+真的感觉在人物美术这块杯赛这些年是失控的
+
