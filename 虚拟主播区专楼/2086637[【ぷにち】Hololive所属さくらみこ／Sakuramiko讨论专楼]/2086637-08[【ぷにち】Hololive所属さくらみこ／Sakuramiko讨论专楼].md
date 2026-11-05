@@ -315,3 +315,34 @@
 
 好像除了本人之外其他人就不能上本号了是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holofan  
+##### 11751#       发表于 2026-11-5 11:16
+
+没专楼就自己吐槽了，holodori上下限也是恐怖，我自己随便多花十几个饮料加上每天自然恢复的体力几乎没怎么刷就能拿到1w名以内（刚才看了一下9600名不过也是吐槽一下昨晚活动剩下8分钟的时候还是9100名我就放心不刷歌了，也没想到就这8分钟能掉500名也是很罕见了），而昨天推上有人说他这次活动消耗了1000个饮料甚至没够到1w名的门槛，到底怎么玩的这些人，而且你刷分这么费劲就别刷了好吧也是头铁
+
+*****
+
+####  holofan  
+##### 11752#       发表于 2026-11-5 16:06
+
+<img src="https://img.stage1st.com/forum/202611/05/155837zj3qza1h33raa9l3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (77.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-5 15:58 上传
+
+<img src="https://img.stage1st.com/forum/202611/05/155855wbcea0l0x49988p0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (166.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-5 15:58 上传
+
+这也是隐藏ファンサ的一种哦，针对线上观看的，现场看不太清
+
