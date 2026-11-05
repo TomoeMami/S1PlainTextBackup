@@ -787,3 +787,19 @@ dshgo改变生活啊，旧手机终于有用了
 
 —— 来自 vivo V2243A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 19308#       发表于 2026-11-5 11:41
+
+<img src="https://img.stage1st.com/forum/202611/05/114143ze3z3dwfwhekguqv.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1793850102228_1.webp</strong> (151.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-5 11:41 上传
+
+SI倒了！
+
