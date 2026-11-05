@@ -1510,3 +1510,11 @@ wb现在推广力度高，每天有好几亿免费token，不用白不用</block
 
 qoder又发了20刀astra
 
+
+*****
+
+####  frankCC  
+##### 19377#       发表于 2026-11-5 21:31
+
+我服了，qoder看着不像wb那样加了一堆没用的，还以为阿里改性了呢，就想着薅羊毛体验一下，然后连着执行两个给的方案全给我跑偏了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

@@ -875,3 +875,14 @@ fo3重制版还有戏么
 
 这个意境肯定不是哨兵嘛，这个海港名字得好好想一下<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 93#       发表于 2026-11-5 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473395&amp;ptid=2292847" target="_blank">泥鳅 发表于 2026-11-5 18:50</a>
+
+继续拖吧，杯赛再这么拖下去，国产工业 3A 说不定就把玩家的阈值抬到对面跟不上的地步了。毕竟国内厂商对 R ...</blockquote>
+老滚系列的强项是世界观和游戏MOD可拓展性....至于什么打击感之类的，从名震天下的三代开始就是砍积木
+
