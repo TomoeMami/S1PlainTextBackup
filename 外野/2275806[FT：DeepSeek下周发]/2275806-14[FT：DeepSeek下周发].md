@@ -2342,3 +2342,19 @@ mistral和阶跃都上了自己的1017服务端点，指望卖点算力顺便收
 另外跨分词器蒸思维链的高精尖技术国模都只有2~3个厂掌握了，拿摘要重写思维链是在搞笑吗？
 广义蒸馏甚至已经扩展到拿oa模型打分就算蒸馏了，哈哈哈
 
+
+*****
+
+####  四氧化三铅  
+##### 19440#       发表于 2026-11-6 05:02
+
+这图终于用在ai界了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/06/050247ayptataaosaqowuw.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1793912567268_1.webp</strong> (62.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-6 05:02 上传
+
