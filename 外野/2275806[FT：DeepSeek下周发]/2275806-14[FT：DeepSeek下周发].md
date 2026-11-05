@@ -2051,3 +2051,67 @@ dsh那个Claude界面风格的插件看着挺不错的，就是用了后界面�
 
 —— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  舞以  
+##### 19415#       发表于 2026-11-5 23:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">米猴搬史是不是因为雷神和罗圣的新模型实在垃圾，碰瓷ds结果被1017直接碾过去了，现在赶快高呼国模都药丸？
+
+*****
+
+####  squallx2  
+##### 19416#       发表于 2026-11-5 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474422&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-11-5 23:38</a>
+
+感觉是异次元新闻。看着还挺有意思的。
+
+不过也已经是二手屎了，一手屎还得看A\
+
+A\从金门大桥啥的可解释性 ...</blockquote>
+看A\的公关构成就知道了 老拳法 新战场<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿刚  
+##### 19417#       发表于 2026-11-6 00:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">老美那边还是先担心民主党铁拳打烂你的数据中心吧
+
+
+*****
+
+####  洛拉斯  
+##### 19418#       发表于 2026-11-6 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474352&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-5 23:19</a>
+
+然而蒸馏和算力的问题目前多方印证</blockquote>
+你先了解下，现在全世界跑的tokens，大头在哪里
+
+还蒸馏叙事
+
+
+*****
+
+####  空き地卯木  
+##### 19419#       发表于 2026-11-6 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474423&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-5 23:39</a>
+看luna干嘛，gpt天天重置这到底是怎么回事？不是打价格战就真当发善心？</blockquote>
+28天一周重置三次服务器就不行了 就这还抢不过各路卷ds价格还有钱赚的诸侯
+跟开源打价格战？别逗你自由市场笑了
+
+*****
+
+####  洛拉斯  
+##### 19420#       发表于 2026-11-6 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474423&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-5 23:39</a>
+
+看luna干嘛，gpt天天重置这到底是怎么回事？不是打价格战就真当发善心？</blockquote>
+笑死，真有技术会打价格战？
+
