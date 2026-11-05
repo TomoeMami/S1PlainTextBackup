@@ -1379,3 +1379,15 @@ How to get With's Grimoire in beggining ...</blockquote>
 
 这游戏真不错，舔图舔爽了。第一次见宝箱怪还以为是啥道具两个大眼珠，结果突然跳起来给吓一跳。打死了掉一个不知道啥用的道具<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  郁哲  
+##### 72#       发表于 2026-11-6 01:02
+
+ 本帖最后由 郁哲 于 2026-11-6 01:03 编辑 
+
+这游戏感觉主要还是爬山，到处飞舔图和解谜。
+战斗系统我本来还以为跟之前几个类国王密令差不多，结果你告诉我玩着玩着就变复古射击游戏了？
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">投掷物太强了，随时间恢复的无限弹药无限魔法，几个投掷物和法杖换着丢，看视频后期甚至有手榴弹，榴弹炮，激光枪
+
