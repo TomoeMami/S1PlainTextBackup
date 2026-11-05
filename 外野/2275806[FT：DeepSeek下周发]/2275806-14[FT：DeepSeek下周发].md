@@ -987,3 +987,26 @@ image的优势在人物、按照风格扩图
 
 不是哥们，你们真觉得6.1Sol好用吗，我怎么感觉这么难用，给我血压都升上来了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yudms1  
+##### 19329#       发表于 2026-11-5 15:02
+
+别说 6.1sol 了，现在的 astra 感觉也是一坨啊（我开的 high）
+
+
+*****
+
+####  LeoDT  
+##### 19330#       发表于 2026-11-5 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70472209&amp;ptid=2275806" target="_blank">Tomek 发表于 2026-11-5 14:52</a>
+
+不是哥们，你们真觉得6.1Sol好用吗，我怎么感觉这么难用，给我血压都升上来了 ...</blockquote>
+在考虑全面做好规划一次出活这方面其实挺不错的，另外就是够便宜，甚至是plus用户只要不多开项目，都能比较舒服的用。
+
+不行的方面是，没有发散，真就你说什么就做什么，跟着它走容易掉沟里，需要使用者对项目有把握。
+
+当然如果是pro以上的用户，那就没必要了，钱都花了，不要受这个罪了。
+
