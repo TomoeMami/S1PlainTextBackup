@@ -1336,3 +1336,14 @@ How to get With's Grimoire in beggining ...</blockquote>
 
 2026-11-5 19:14 上传
 
+
+*****
+
+####  pgain2004  
+##### 68#       发表于 2026-11-5 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473272&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-5 18:17</a>
+这个操作很克一些喜欢追击的粪怪，技能是突刺的武器都可以用这招</blockquote>
+不，锈蚀短剑和潘多拉之刃这种都不行，只能往前突刺
+圣剑是一直都能四向
+
