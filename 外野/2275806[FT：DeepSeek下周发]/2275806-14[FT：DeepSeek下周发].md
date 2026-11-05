@@ -2149,3 +2149,23 @@ dsh那个Claude界面风格的插件看着挺不错的，就是用了后界面�
 
 另外就是公司分类，ds有国家支持，不如说哪个厂没国家支持。任何时候都是把ds、kimi、glm三家放一块讨论的，这应是给ds国家支持独立一档……
 
+
+*****
+
+####  Promeus  
+##### 19424#       发表于 2026-11-6 00:32
+
+场外消息，随着桑德斯带领新州长们集体对数据中心开炮，美股瞬间爆炸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2017.05.04  
+##### 19425#       发表于 2026-11-6 00:34
+
+有一说一，我觉得更像是要求这帮人多交钱
+
+毕竟前几年好事全是他们的
+
+要真敢禁了那可太<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
