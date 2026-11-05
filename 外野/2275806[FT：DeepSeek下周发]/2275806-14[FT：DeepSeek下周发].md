@@ -2183,3 +2183,35 @@ dsh那个Claude界面风格的插件看着挺不错的，就是用了后界面�
 要真敢禁了那可太 ...</blockquote>
 嘉豪们手里才几个钱，比起dem基本盘中产和新附红州人差远了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 19427#       发表于 2026-11-6 01:10
+
+百度发了文心5.5flash  280b规模
+
+能打上一波flash模型比如dsv4 hy3什么的
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  lactone  
+##### 19428#       发表于 2026-11-6 01:12
+
+国内这帮搞金融的自恨这个味道有点早年军迷的感觉了
+
+但是转念一想你梁叔叔也是搞金融的，所以还是有些人的问题
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  moekyo  
+##### 19429#       发表于 2026-11-6 01:16
+
+其实梁圣以后能不能出个回忆录呢，叫我和肥鱼什么的
+
