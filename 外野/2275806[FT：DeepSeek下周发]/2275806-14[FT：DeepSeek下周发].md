@@ -1434,3 +1434,23 @@ wb现在推广力度高，每天有好几亿免费token，不用白不用
 
 wb有银河麒麟/统信uos的，这部分人感觉wb也是几乎唯一选择了
 
+
+*****
+
+####  lactone  
+##### 19370#       发表于 2026-11-5 19:02
+
+桑德斯之前说的，谁开发超级ai谁坐牢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qwased  
+##### 19371#       发表于 2026-11-5 19:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">控制速度有什么用？签了几千亿刚性算力支出的又不是老钟的企业
+
+拿不出AGI就是死
+
