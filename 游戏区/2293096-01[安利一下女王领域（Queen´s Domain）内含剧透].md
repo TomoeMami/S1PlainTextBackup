@@ -1402,3 +1402,22 @@ How to get With's Grimoire in beggining ...</blockquote>
 被迫打了贼阴的机械蜘蛛围殴战后开了好多个单向门一顿乱逛途中什么蜘蛛巢穴纯黑空间巨大陵寝
 无头苍蝇摸不着头脑以为又要捏回城晶体的时候开到一个很眼熟的门，那个门居然是初始本岛那见到的第一个大门，地图太牛逼了
 
+
+*****
+
+####  panandhao  
+##### 74#       发表于 2026-11-6 04:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474742&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-6 02:33</a>
+牛哇
+
+打完大书库从高桥往本岛走，看见路中有山崖上有个残塔打算飞过去看看结果直接掉到地底
+
+被迫打了贼阴的 ...</blockquote>
+看artstaion上作者五年前就已经在一个被取消掉的项目里，做出了尼亚西德岛和知识之塔的原型（包括森林之眼和唇足虫两个小怪物）<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+https://www.artstation.com/artwork/8e2BXx
+==========
+从整个游戏流程来看，围绕这座岛自上而下的设计，可能也是最完整且惊艳的，从最初的探索贯穿至最终的一些解谜（多的不说，总感觉神庙那里是开发完陵墓后，才加的一块新区域<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">）
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
