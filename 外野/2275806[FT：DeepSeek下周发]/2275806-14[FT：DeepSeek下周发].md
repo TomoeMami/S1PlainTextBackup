@@ -1526,3 +1526,35 @@ qoder又发了20刀astra
 
 AI工作过程中太喜欢用python怎么办，我能接受C++和C#,但完全学不进python，导致它说有几个脚本可复用但我却无法核实
 
+
+*****
+
+####  lxxh  
+##### 19379#       发表于 2026-11-5 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474058&amp;ptid=2275806" target="_blank">plusSharp 发表于 2026-11-5 21:45</a>
+
+AI工作过程中太喜欢用python怎么办，我能接受C++和C#,但完全学不进python，导致它说有几个脚本可复用但我却 ...</blockquote>
+你直接问它那个可以复用不就完事了
+
+*****
+
+####  宏.  
+##### 19380#       发表于 2026-11-5 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474058&amp;ptid=2275806" target="_blank">plusSharp 发表于 2026-11-5 21:45</a>
+
+AI工作过程中太喜欢用python怎么办，我能接受C++和C#,但完全学不进python，导致它说有几个脚本可复用但我却 ...</blockquote>
+为什么要复核，直接用，用不了再找AI修
+
+
+*****
+
+####  plusSharp  
+##### 19381#       发表于 2026-11-5 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474088&amp;ptid=2275806" target="_blank">lxxh 发表于 2026-11-5 21:53</a>
+
+你直接问它那个可以复用不就完事了</blockquote>
+AI列出了对应文件，但我看不懂所以不确定代码逻辑是否正确，下次使用需要调整的参数是否完整
+
