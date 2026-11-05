@@ -611,3 +611,14 @@ R40 Research 的 Joachim Schaeffer 与 Tilman Räuker 于11月3日发布研究�
 Re:Source</blockquote>
 太好了，谢谢高质量数据喂了肥鱼至少是开源的。
 
+
+*****
+
+####  Baccano  
+##### 19292#       发表于 2026-11-5 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468045&amp;ptid=2275806" target="_blank">awy002 发表于 2026-11-4 17:10</a>
+
+如果只管文字是不是买pro就行了</blockquote>
+闲鱼买个十几块的jio试试先。如果后面发现argon额度不够用，再考虑升级。
+

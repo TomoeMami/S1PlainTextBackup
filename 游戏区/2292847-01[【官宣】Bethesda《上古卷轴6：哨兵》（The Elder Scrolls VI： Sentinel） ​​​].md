@@ -745,3 +745,15 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 沙漠场景很容易搞出惊艳画质，不知道杯赛现在还有没有这能力
 
+
+*****
+
+####  wlhlz  
+##### 80#       发表于 2026-11-5 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70469892&amp;ptid=2292847" target="_blank">zzf111 发表于 2026-11-5 04:02</a>
+有一说一这些年杯赛的面部捏脸水平真不行吧
+
+至少我现在看天际的各个种族只是觉得丑得有特色却不会生理不适 ...</blockquote>
+你要是玩过滚4原版就会发现重制版已经是大幅美化过了，觉得恐怖谷大概是因为原版根本不是人的NPC被改的比较像人了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
