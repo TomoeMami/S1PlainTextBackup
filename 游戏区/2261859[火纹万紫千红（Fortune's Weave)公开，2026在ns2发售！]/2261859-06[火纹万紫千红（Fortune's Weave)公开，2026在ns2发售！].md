@@ -11319,3 +11319,11 @@ DLC再用了咯.没办法,先发也可能有先发的漏洞吃,后发也可以�
 
 卧槽，用菜单的情报支援刷乱数这招太好用了，不然我都不知道我要浪费多久才能刷出红鸵鸟<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简直是凯伊线救星
 
+
+*****
+
+####  57042711  
+##### 8478#       发表于 2026-11-5 08:51
+
+可惜打完第一次凯伊线就锁仓库了，这个支援列表感觉用不上了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
