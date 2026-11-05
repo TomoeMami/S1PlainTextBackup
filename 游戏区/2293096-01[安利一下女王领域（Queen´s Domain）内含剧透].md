@@ -1360,3 +1360,14 @@ How to get With's Grimoire in beggining ...</blockquote>
 圣剑是一直都能四向 ...</blockquote>
 不能吗，我试了有把重剑是可以的左右前移动攻击
 
+
+*****
+
+####  pgain2004  
+##### 70#       发表于 2026-11-5 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473617&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-5 19:44</a>
+不能吗，我试了有把重剑是可以的左右前移动攻击</blockquote>
+所以就是模组更特殊的才行，初期能拿到的这几把都不行
+但能拿重剑都是中期，玩家也该会了
+
