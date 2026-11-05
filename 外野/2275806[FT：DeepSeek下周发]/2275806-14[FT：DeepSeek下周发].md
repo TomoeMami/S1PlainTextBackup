@@ -1570,3 +1570,11 @@ wb免费版的积分是虚的，稍微用多点pony马就不给用砍了，测�
 
 这点上qoder倒是老实一点，能让你用到底
 
+
+*****
+
+####  med  
+##### 19383#       发表于 2026-11-5 22:16
+
+hy4初步评价为一个更慢更贵的dsf4.1 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer"> 体感没有明显智力差距
+
