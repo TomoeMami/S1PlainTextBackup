@@ -830,3 +830,49 @@ A/今天不少人官宣跳槽o/
 
 ——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  warlock228  
+##### 19312#       发表于 2026-11-5 12:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">能不能把达里奥抓进去蹲号子
+
+*****
+
+####  warlock228  
+##### 19313#       发表于 2026-11-5 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70471435&amp;ptid=2275806" target="_blank">malisa 发表于 2026-11-5 12:03</a>
+
+A/今天不少人官宣跳槽o/
+
+不是卧底吧 14天又回老家</blockquote>
+之前不是已经有CC的核心开发元老上市前夕反常开润，估计他们确实内部看到了点什么先溜为敬了
+
+*****
+
+####  Promeus  
+##### 19314#       发表于 2026-11-5 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70471297&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-5 11:41</a>
+SI倒了！</blockquote>
+桑德斯这个只是早期提案，那时候支持率不高<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在可以出动dsa宣传队形成压力了
+
+*****
+
+####  Promeus  
+##### 19315#       发表于 2026-11-5 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70471484&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-5 12:12</a>
+之前不是已经有CC的核心开发元老上市前夕反常开润，估计他们确实内部看到了点什么先溜为敬了 ...</blockquote>
+昨天又跑了一个cc的人
+
+
+*****
+
+####  很久就在那边l  
+##### 19316#       发表于 2026-11-5 12:16
+
+没人玩gpt新出的生成gif功能吗
+
