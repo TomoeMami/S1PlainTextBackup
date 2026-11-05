@@ -2368,3 +2368,18 @@ mistral和阶跃都上了自己的1017服务端点，指望卖点算力顺便收
 
 —— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  novalli  
+##### 19442#       发表于 2026-11-6 07:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474324&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-5 23:11</a>
+https://mp.weixin.qq.com/s/YOWslIRykThfGGwx-71RHA
+
+中国LLM讨论纪要</blockquote>
+看到这种顺着A/的“蒸馏”污名化说的就有点犯嘀咕，看下去感觉像是炒股的。
+炒股的评价行业现状，我还不如问问准备找工作的研究生怎么看。
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
