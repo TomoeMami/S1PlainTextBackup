@@ -876,3 +876,19 @@ SI倒了！</blockquote>
 
 没人玩gpt新出的生成gif功能吗
 
+
+*****
+
+####  Promeus  
+##### 19317#       发表于 2026-11-5 12:20
+
+另外很好笑的就是现在宣讲员们在宣布dem打击数据中心✅O/A/是利好<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 19318#       发表于 2026-11-5 12:22
+
+停止数据中心建设债务都要炸了…
+
