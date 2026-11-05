@@ -798,3 +798,11 @@ Thank you for 40 years of shared memories. We can’t wait to make even more tog
 
 —— 来自 OnePlus PHP110, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  星花  
+##### 85#       发表于 2026-11-5 12:48
+
+老滚4的捏人放当时是非常厉害的。只是时代变了。
+

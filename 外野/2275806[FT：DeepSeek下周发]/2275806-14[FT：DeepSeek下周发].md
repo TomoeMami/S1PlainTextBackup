@@ -892,3 +892,37 @@ SI倒了！</blockquote>
 
 停止数据中心建设债务都要炸了…
 
+
+*****
+
+####  warlock228  
+##### 19319#       发表于 2026-11-5 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470224&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-5 08:45</a>
+
+真就信息差</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">有插件地址吗 求
+
+*****
+
+####  艾诺琳  
+##### 19320#       发表于 2026-11-5 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470937&amp;ptid=2275806" target="_blank">Unlight 发表于 2026-11-5 10:49</a>
+话说，怎么用本地大模型翻书来着？
+我试着整了个ollama，装了HunYuan-MT2-7B，但是文译不工作啊。
+运行一两 ...</blockquote>
+你问ai就是，装一个harness解千愁
+
+
+*****
+
+####  spaceblue  
+##### 19321#       发表于 2026-11-5 12:56
+
+<blockquote>斯卡文分则能成 发表于 2026-11-5 10:22
+antigravity怎么更新完后说我所在的地区不给用了，我看了我出差的国家是可以用的啊
+
+万能的漏油想想办法救救 ...</blockquote>
+我闲鱼上找人帮解锁的
+
