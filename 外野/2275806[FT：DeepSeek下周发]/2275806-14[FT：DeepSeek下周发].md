@@ -3187,3 +3187,32 @@ a/下周路演，这还搞不搞了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Unlight  
+##### 19515#       发表于 2026-11-6 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475143&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-6 08:46</a>
+wenyi的侧重点是质量，lingua gacha感觉还是以效率为主的
+
+我比较建议的用法是lingua gacha里面用世界知识 ...</blockquote>
+问题是文译慢了几倍不说，质量上还一塌糊涂就离谱。大段大段的漏翻。梗概也驴唇不对马嘴。
+因为我用的都是那个9b的qwen3.8的问题吗？
+不过lg那个agent也不太聪明的样子…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qwased  
+##### 19516#       发表于 2026-11-6 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476264&amp;ptid=2275806" target="_blank">Unlight 发表于 2026-11-6 12:14</a>
+
+问题是文译慢了几倍不说，质量上还一塌糊涂就离谱。大段大段的漏翻。梗概也驴唇不对马嘴。
+
+因为我用的都 ...</blockquote>
+3.8没有9b，是社区自己蒸馏的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">27b跑翻译也很糟糕，毕竟是coding特化了
+
