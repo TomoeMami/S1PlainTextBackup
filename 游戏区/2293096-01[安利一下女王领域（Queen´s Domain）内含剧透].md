@@ -2041,3 +2041,17 @@ https://www.artstation.com/artwork/8e2BXx
 
 几乎所有你好奇想去看的犄角旮沓和刁钻点位都有隐藏能捡，好奇宝宝最爱的游戏。
 
+
+*****
+
+####  panandhao  
+##### 130#       发表于 2026-11-7 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478965&amp;ptid=2293096" target="_blank">Shu-Stella 发表于 2026-11-7 00:20</a>
+这游戏的隐藏有的是真TM能藏，你永远想不到什么地方用什么方式有个隐藏房间。
+
+几乎所有你好奇想去看的犄角 ...</blockquote>
+游戏里的骷髅很关键<img src="https://static.stage1st.com/image/smiley/face2017/236.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

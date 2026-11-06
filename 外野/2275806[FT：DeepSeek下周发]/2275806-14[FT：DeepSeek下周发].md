@@ -3986,3 +3986,13 @@ AI studio开个API自己测测比听别人说和看测评都管用，什么模�
 请教下漏油，o÷ 这边生图而言，chat 和 codex 之间，从实践上来说，会有什么很实际的区别吗 ...</blockquote>
 Chat也有智能体，也能读记忆(其他的chat)，读不到本地项目记忆。其他感觉和codex区别不大，趁还没合并额度我要多用chat生图了
 
+
+*****
+
+####  舞以  
+##### 19586#       发表于 2026-11-7 00:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实虽然k3.1龟速，但是k3.1的token效率和轨迹长度都很精简的，有那种超大规模模型该有的感觉
+
+qwen3.8max看评测还得靠超级长思考来解决问题，感觉qwen的大模团队技术力堪忧）
+
