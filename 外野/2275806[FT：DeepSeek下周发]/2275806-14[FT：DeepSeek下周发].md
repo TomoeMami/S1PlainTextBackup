@@ -2738,3 +2738,50 @@ deepseek手上还有特别强化攻击力的cyber模型，放出来的1017已经
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  宅男的爱  
+##### 19475#       发表于 2026-11-6 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475106&amp;ptid=2275806" target="_blank">awy002 发表于 2026-11-6 08:38</a>
+
+我hardness里大肥鱼的版本号变成4.1Flash没有1017的图标了，这不会是把我模型降智了吧 ...</blockquote>
+dsh升级了0.2.2 RC1后，1017标识就没了
+
+
+*****
+
+####  孤舟垂钓  
+##### 19476#       发表于 2026-11-6 09:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 19477#       发表于 2026-11-6 09:11
+
+这次是米猴的孤狼攻击了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+一坨大粪来回甩，你们不吃屎就是你们挑食！
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  qwased  
+##### 19478#       发表于 2026-11-6 09:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">德州州长说可以谈，只要马斯克打钱就能继续建数据中心
+
+想炒股的今天真得抄底吧，周一肯定涨回去了
+
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 19479#       发表于 2026-11-6 09:15
+
+Ling 3.2 Flash斩杀1017
+
