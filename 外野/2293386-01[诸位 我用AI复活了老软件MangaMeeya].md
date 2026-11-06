@@ -449,3 +449,11 @@ mangameeya搭配上漫画下载器真的绝了，十几年前一直这么用。�
 
 厉害啊。今年早些时候还一直在用MangaMeeya，前一阵才因为各种问题换了Neeview，但还是慢而且各种不习惯。现在又能换回去了感谢楼主<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jiangyou  
+##### 42#       发表于 2026-11-7 02:06
+
+以7.4为基础吗，7.4好像删除了对pdf的支持所以有阵子我一直在用7.25
+

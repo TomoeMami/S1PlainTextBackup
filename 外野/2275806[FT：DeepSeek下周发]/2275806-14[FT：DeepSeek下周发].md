@@ -4062,3 +4062,13 @@ qwen真的土，能干出来解释梗的事情</blockquote>
 
 ds：发个论文，你们按我这个论文搞Infra就可以获得更快、更便宜的Deepseek，顺便一提这是我们Deepseek最新的模型。
 
+
+*****
+
+####  lactone  
+##### 19592#       发表于 2026-11-7 02:01
+
+但是qwen好歹也是国模技术第二<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
