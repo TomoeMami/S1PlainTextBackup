@@ -1963,3 +1963,14 @@ https://www.artstation.com/artwork/8e2BXx
 
 刚找到上古界域第二个存档点，真牛逼了这张图，要做全收集攻略不知道要花多少时间hhh，可惜明天还要搬家不然通宵玩了
 
+
+*****
+
+####  panandhao  
+##### 123#       发表于 2026-11-6 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478710&amp;ptid=2293096" target="_blank">不能曰的秘密 发表于 2026-11-6 22:34</a>
+
+刚找到上古界域第二个存档点，真牛逼了这张图，要做全收集攻略不知道要花多少时间hhh，可惜明天还要搬家不 ...</blockquote>
+这个图内容应该是最多的，基本每块石头上（包括现在上不去的）都会放点东西<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
