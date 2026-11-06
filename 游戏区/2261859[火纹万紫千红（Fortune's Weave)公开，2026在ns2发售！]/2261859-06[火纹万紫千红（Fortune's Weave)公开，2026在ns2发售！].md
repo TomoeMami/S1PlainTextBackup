@@ -11654,3 +11654,14 @@ engage最后一次更新销量是160w来着？
 
 而且很难说风花雪月的时候，制作组有没有想好这个设定
 
+
+*****
+
+####  chiefshi  
+##### 8513#       发表于 2026-11-6 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475329&amp;ptid=2261859" target="_blank">57042711 发表于 2026-11-6 09:17</a>
+有些支援只能第一部看的，各种神秘解锁条件建议去各种wiki看条件然后按顺序一个个解锁
+ ...</blockquote>
+看完之后要重新打到最后一章才能带过去吗，蕾达篇的支援全锁上了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

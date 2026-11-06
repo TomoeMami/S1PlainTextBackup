@@ -3050,3 +3050,62 @@ OpenCode Go的DS又429了<img src="https://static.stage1st.com/image/smiley/face
 
   我宣布，DeepSeekHarness 比 pi 牛逼多了，谁能拒绝在蹬的间隙来上一集红果呢？
 
+
+*****
+
+####  lactone  
+##### 19505#       发表于 2026-11-6 11:02
+
+<img src="https://img.stage1st.com/forum/202611/06/110138xn480hq08d80tw18.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (88.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-6 11:01 上传
+
+polymarket首页开始开盘AI泡沫啥时候爆了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小野賢章  
+##### 19506#       发表于 2026-11-6 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475888&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-6 11:02</a>
+
+polymarket首页开始开盘AI泡沫啥时候爆了</blockquote>
+看了一下判断破裂的标准：
+
+本市场将结算为“是”，如果人工智能行业在指定日期美东时间晚上11:59之前经历行业低迷。否则，本市场将结算为“否”。
+
+就本市场而言，一旦在本市场指定时间范围的90天内发生以下事件中的至少三项，人工智能行业即被视为经历了行业低迷：
+
+英伟达公司（NVDA）收盘价较其历史最高点下跌50%。
+
+iShares PHLX半导体ETF（SOXX）收盘价较其历史最高点下跌40%。
+
+OpenAI, Inc.或Anthropic PBC宣布破产。
+
+OpenAI, Inc.被收购。
+
+根据SiliconData Silicon Index（网址：[https://www.silicondata.com/products/silicon-index](https://www.silicondata.com/products/silicon-index)）显示，H100租赁价格连续五天降至1.00美元或以下。
+
+主要AI硬件供应商崩盘：台湾积体电路制造股份有限公司（TSM）、ASML Holding N.V.（ASML）、Broadcom Inc.（AVGO）、Arista Networks, Inc.（ANET）或Super Micro Computer, Inc.（SMCI）中任一公司的收盘价较其历史最高点下跌50%。
+
+一旦在本市场指定时间范围的90天内满足三项条件，本市场可立即结算。
+
+*****
+
+####  eno_emos  
+##### 19507#       发表于 2026-11-6 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475777&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-11-6 10:41</a>
+
+OpenCode Go的DS又429了</blockquote>
+这两天感觉明显慢很多，之前能到120~160tps，这两天只有60多点
+
+还时不时429
+
+怕不是印度光头找的上游机房合作商快被蹬爆了<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
