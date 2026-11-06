@@ -11637,3 +11637,20 @@ engage最后一次更新销量是160w来着？
 
 差不多的水平
 
+
+*****
+
+####  六至九  
+##### 8512#       发表于 2026-11-6 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475471&amp;ptid=2261859" target="_blank">DarkDawn 发表于 2026-11-6 09:38</a>
+
+芙托娜说过“如果我坐在芙朵拉的王座上”云云
+
+而在蕾雅心目中贝雷特应该是有这个功能的
+
+也很有趣 ...</blockquote>
+蕾雅应该不知道坐上去会被顶号
+
+而且很难说风花雪月的时候，制作组有没有想好这个设定
+
