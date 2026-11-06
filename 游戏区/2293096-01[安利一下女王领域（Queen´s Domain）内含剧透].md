@@ -1626,3 +1626,24 @@ https://www.artstation.com/artwork/8e2BXx
 买了个晨星锤感觉亏了，贪它的钝击+穿刺，但锤类实在是太慢了。感觉骷髅用火烧也不是不行，我是不是应该先 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感谢避雷，我原来也想先买这玩意来着。
 
+
+*****
+
+####  vidomina  
+##### 93#         楼主| 发表于 2026-11-6 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476858&amp;ptid=2293096" target="_blank">Emmerich 发表于 2026-11-6 14:45</a>
+
+草 山腰那个是有小纸条提示山顶有大量蜈蚣和炸药的尸体吗 我好像完全没拿到类似于遗物的东西 可能是漏捡 ...</blockquote>
+山顶的蜈蚣都杀了，再敲一块石头能翘敲出个隐藏怪。这游戏还有几个需要攻击才能激活的怪。
+
+*****
+
+####  Emmerich  
+##### 94#       发表于 2026-11-6 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476875&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-6 14:49</a>
+
+山顶的蜈蚣都杀了，再敲一块石头能翘敲出个隐藏怪。这游戏还有几个需要攻击才能激活的怪。 ...</blockquote>
+嗯我准备神庙清完了去砍了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
