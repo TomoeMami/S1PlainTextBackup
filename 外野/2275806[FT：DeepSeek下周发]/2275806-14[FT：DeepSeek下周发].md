@@ -3906,3 +3906,17 @@ vibe那里建一个key就可以用1017了
 法棍订阅现在x上传开了，计算压力很大，从最开始的单流800tps一路滑到 ...</blockquote>
 牛逼！感谢分享！
 
+
+*****
+
+####  qqwliao  
+##### 19579#       发表于 2026-11-6 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478632&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-6 21:59</a>
+按猫老板的爆料，qwen团队和kimi是直接竞争对手，要说服高层把卡给他们而不是kimi
+
+那大概率就是有什么项 ...</blockquote>
+那倒是能解释为什么kimi要作弊刷分了，估计竞争白热化了，最后只能活一个
+
+—— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
