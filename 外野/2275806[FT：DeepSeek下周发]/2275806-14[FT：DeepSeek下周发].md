@@ -3753,3 +3753,21 @@ ttft 40s 输出60tps</blockquote>
 
 所以说啥时候出<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  なるぼど  
+##### 19566#       发表于 2026-11-6 21:03
+
+楼里有没有用tripo会员的，你们都是定什么档的，我想搞个包年810的，这个划算不坛友们。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  静哮苍穹  
+##### 19567#       发表于 2026-11-6 21:05
+
+这什么，巨肥鱼？什么时候出啊
+
