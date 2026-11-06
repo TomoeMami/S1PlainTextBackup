@@ -11665,3 +11665,13 @@ engage最后一次更新销量是160w来着？
  ...</blockquote>
 看完之后要重新打到最后一章才能带过去吗，蕾达篇的支援全锁上了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  5ew47  
+##### 8514#       发表于 2026-11-6 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475891&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-11-6 11:02</a>
+看完之后要重新打到最后一章才能带过去吗，蕾达篇的支援全锁上了</blockquote>
+不用的，刷过的好感度不用再打一遍最后一章才能带到第三部，两边都是实时更新的
+
