@@ -3429,3 +3429,15 @@ qwen4你在哪里
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Promeus  
+##### 19536#       发表于 2026-11-6 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477185&amp;ptid=2275806" target="_blank">梁皇无忌 发表于 2026-11-6 15:53</a>
+这个结论是怎么得出的
+
+—— 来自 vivo V2547DA, Android 16, 鹅球 v4.0.100-alpha</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
