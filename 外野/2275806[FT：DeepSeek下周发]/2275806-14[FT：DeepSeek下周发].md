@@ -3637,3 +3637,11 @@ vibe那里建一个key就可以用1017了
 
 opendesign上线了一个4.1f 1017 eco（大概是慢速版本），给了$220额度（正常版本$120）<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一般市民  
+##### 19555#       发表于 2026-11-6 19:27
+
+说起来老马的Grok 4.8也没消息啊，总不能是和Qwen比憋气吧 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
