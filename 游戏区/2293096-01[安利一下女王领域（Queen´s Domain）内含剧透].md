@@ -1944,3 +1944,14 @@ https://www.artstation.com/artwork/8e2BXx
 
 刚来到上古界域，知识塔和陵墓设计的就很好了，后面还有高手？！
 
+
+*****
+
+####  panandhao  
+##### 121#       发表于 2026-11-6 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478517&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-6 21:18</a>
+
+锈蚀大斧进化后也是苍炎的，叫奥怖绝的白银花园，魔法是发波，也很强力的~ ...</blockquote>
+这么厉害！！！<img src="https://static.stage1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

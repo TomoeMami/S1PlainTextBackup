@@ -3864,3 +3864,32 @@ qwen4 next week
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 19576#       发表于 2026-11-6 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478622&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-6 21:56</a>
+
+九月底评测的时候大家都反映前端不错
+
+而且前几天arena灰测反响也不错</blockquote>
+按猫老板的爆料，qwen团队和kimi是直接竞争对手，要说服高层把卡给他们而不是kimi
+
+那大概率就是有什么项目打不过k31p，必须要完胜才愿意发
+
+
+*****
+
+####  lactone  
+##### 19577#       发表于 2026-11-6 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478632&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-6 21:59</a>
+按猫老板的爆料，qwen团队和kimi是直接竞争对手，要说服高层把卡给他们而不是kimi
+
+那大概率就是有什么项 ...</blockquote>
+那更蠢了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
