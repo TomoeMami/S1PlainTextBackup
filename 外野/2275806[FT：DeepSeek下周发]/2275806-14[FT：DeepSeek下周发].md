@@ -3675,3 +3675,38 @@ ttft 40s 输出60tps<img src="https://static.stage1st.com/image/smiley/face2017/
 ttft 40s 输出60tps</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 19559#       发表于 2026-11-6 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477870&amp;ptid=2275806" target="_blank">dreamenory 发表于 2026-11-6 18:21</a>
+
+群友是这样说的…
+
+—— 来自 HONOR AAK-AN00, Android 16, 鹅球 v4.0</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这话6年前我在v区听过，然后我独轮车真被V拉黑了
+
+
+*****
+
+####  蜇灵  
+##### 19560#       发表于 2026-11-6 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478014&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-11-6 18:57</a>
+165的是自家模型，第三方只有15刀</blockquote>
+就是165刀，不过昨天晚上疯狂429和无响应，今天则是缓存有问题，动不动缓存失效，感觉稳定性还是不够好
+
+
+*****
+
+####  蜇灵  
+##### 19561#       发表于 2026-11-6 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477791&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-11-6 18:01</a>
+话说用插件反代wb积分然后被藤子封号是真的假的啊
+
+—— 来自 鹅球 v3.5.99-alpha ...</blockquote>
+用国际版，拿github开小号
+
