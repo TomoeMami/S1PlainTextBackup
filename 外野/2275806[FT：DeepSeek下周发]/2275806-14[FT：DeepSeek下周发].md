@@ -3449,3 +3449,14 @@ qwen4你在哪里
 
 逆天啊
 
+
+*****
+
+####  hisousihou  
+##### 19538#       发表于 2026-11-6 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477203&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-11-6 15:57</a>
+
+那算了 我随便用吧 老东西急就用DS应付，老东西不急就让GLM磨洋工</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">坛友也有给老东西翻译的工作吗，用AI一般是怎么做？
+

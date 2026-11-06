@@ -1687,3 +1687,16 @@ https://www.artstation.com/artwork/8e2BXx
 
 算了，就用这个好了，谢谢
 
+
+*****
+
+####  qwetyuyu  
+##### 98#       发表于 2026-11-6 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473223&amp;ptid=2293096" target="_blank">pgain2004 发表于 2026-11-5 18:09</a>
+
+顺带一提，可以奔跑跳+空中升龙+冲刺，或者单独跳+升龙可以上一些台阶
+
+又或者带初始剑这种技能是冲刺的， ...</blockquote>
+大佬 倒地怎么连续冲刺阿，我现在拿了圣剑恩杜，但是只有拿到手里才能冲刺阿，我看视频很多都是拿的短剑冲刺一次，然后立马又能在冲刺，我怎么也试不出来
+
