@@ -481,3 +481,11 @@
 看贴吧说YTB上泄露了一亿下载生放送的录播视频，奖励已经爆出来了，30石头x2+一个圣杯分三天送，还有个自 ...</blockquote>
 这个奖励有点真啊，毕竟都猜测给个五星自选，而且60石头和商店新增和之前的奖励差不多。
 
+
+*****
+
+####  khxooo  
+##### 21756#       发表于 2026-11-6 16:31
+
+全世界统一维护，大的要来了？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
