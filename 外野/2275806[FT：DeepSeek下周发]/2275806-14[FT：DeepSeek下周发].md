@@ -3996,3 +3996,19 @@ Chat也有智能体，也能读记忆(其他的chat)，读不到本地项目记�
 
 qwen3.8max看评测还得靠超级长思考来解决问题，感觉qwen的大模团队技术力堪忧）
 
+
+*****
+
+####  舞以  
+##### 19587#       发表于 2026-11-7 01:03
+
+<img src="https://img.stage1st.com/forum/202611/07/010326i27d3ih80vo3zim0.jpg" referrerpolicy="no-referrer">
+
+<strong>e6cf08038cf23c44714ec01524ffcbab_720.jpg</strong> (195.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 01:03 上传
+
+qwen真的土，能干出来解释梗的事情
+
