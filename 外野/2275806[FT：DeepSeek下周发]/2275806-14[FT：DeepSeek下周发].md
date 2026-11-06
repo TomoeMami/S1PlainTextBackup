@@ -2813,3 +2813,88 @@ Ling 3.2 Flash斩杀1017
 
 所以这周说的大招全都没来<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小野賢章  
+##### 19483#       发表于 2026-11-6 09:28
+
+不可能单独阉割网安能力的，防御式编程和网安是一体两面的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，最多做拒答，但是在长任务里面AI可能自己就开始搞攻击了，即使用户没有要求。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19484#       发表于 2026-11-6 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475076&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-6 08:30</a>
+你看看我在这楼里的历史发言就知道我用过K3.1吗，不如说我更怀疑你用的K3.1是哪个K3.1，workbuddy积分送 ...</blockquote>
+Allegro订阅
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19485#       发表于 2026-11-6 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475111&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-6 08:40</a>
+你在说啥，kimi官方专门说了靠限制网安数据来砍了k3.1的网安能力，网安你可以认为是coding的一个子集 ...</blockquote>
+月之暗面的说法是有一个checkpoint的网安能力比较强，但并没有说主动剔除了数据，我个人认为是那个版本的网安比较强，其他的能力比较弱，所以就没办法拿出来。大模型的RL也是个很玄学的事儿。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19486#       发表于 2026-11-6 09:31
+
+另外K3.1的网安能力很强啊，相比K3是极大的提升，当然你要说它不如肥鱼1017，那是没办法的事儿，肥鱼太强了。怎么传到现在都变成K3.1网安能力不行了。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19487#       发表于 2026-11-6 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475076&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-6 08:30</a>
+你看看我在这楼里的历史发言就知道我用过K3.1吗，不如说我更怀疑你用的K3.1是哪个K3.1，workbuddy积分送 ...</blockquote>
+你懂大模型的训练吗？基模不变的情况下砍一部分数据，增加另一部分数据，你在讲玄幻故事？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  阿刚  
+##### 19488#       发表于 2026-11-6 09:35
+
+<blockquote>舞以 发表于 2026-11-6 09:11
+这次是米猴的孤狼攻击了
+
+一坨大粪来回甩，你们不吃屎就是你们挑食！
+</blockquote>
+心疼楼上认真解释的老哥们。。。。
+
+*****
+
+####  CyborgIP  
+##### 19489#       发表于 2026-11-6 09:36
+
+看到+100条信息还以为是有大的发布了，失望<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2509A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 19490#       发表于 2026-11-6 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474905&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-11-6 07:24</a>
+
+1017 作为一个小参数低成本 模型真的强过头了
+
+—— 来自 HONOR PTP-AN70, Android 16, 鹅球 v3.5.99 ...</blockquote>
+这模型加上engram真得不算小，差不多都有之前v3的大小了
+

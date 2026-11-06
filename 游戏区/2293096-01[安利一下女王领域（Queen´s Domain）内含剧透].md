@@ -1421,3 +1421,11 @@ https://www.artstation.com/artwork/8e2BXx
 
 —— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  vidomina  
+##### 75#         楼主| 发表于 2026-11-6 09:32
+
+鱼化石这个饰品到底有什么作用，还是没看出来<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
