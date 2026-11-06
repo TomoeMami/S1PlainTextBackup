@@ -4166,3 +4166,14 @@ qoder cn没上吗？
 注入伟大的西方价值，反正我是先卸载 Hermes 了</blockquote>
 那怎么还用老钟的基模 自己不会炼吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hisousihou  
+##### 19601#       发表于 2026-11-7 07:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478361&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-6 20:28</a>
+
+看来Qwen 4没跳</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">原来qwen不读千问而是鲲
+
