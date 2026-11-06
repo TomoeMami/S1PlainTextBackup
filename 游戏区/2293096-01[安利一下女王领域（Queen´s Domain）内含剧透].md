@@ -1746,3 +1746,31 @@ https://www.artstation.com/artwork/8e2BXx
 对了，问下那个翡翠印章是开哪 ...</blockquote>
 我也没找完，去Steam社区搜下吧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 103#       发表于 2026-11-6 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477484&amp;ptid=2293096" target="_blank">qwetyuyu 发表于 2026-11-6 16:55</a>
+
+大佬 倒地怎么连续冲刺阿，我现在拿了圣剑恩杜，但是只有拿到手里才能冲刺阿，我看视频很多都是拿的短剑 ...</blockquote>
+那个邪道好像已经修了，一般游玩其实也可以不用
+
+圣剑不装备也能按技能键飞（我也是改侧键），装备在手里时方向键+右键攻击机动性极高，满级还有蓄力攻击aoe
+
+
+*****
+
+####  zzf111  
+##### 104#       发表于 2026-11-6 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476118&amp;ptid=2293096" target="_blank">留小草 发表于 2026-11-6 11:41</a>
+
+买了个晨星锤感觉亏了，贪它的钝击+穿刺，但锤类实在是太慢了。感觉骷髅用火烧也不是不行，我是不是应该先 ...</blockquote>
+骷髅和石像鬼一类弱钝击，一开始只能用那个木头棒槌
+
+在海底神殿能见到个魔力锤打骷髅很好用，战技蓄能也快
+
+到知识之塔后在商店买的菱形◆锤（彼时最贵的那个武器）也很好用，重击出手极快
+

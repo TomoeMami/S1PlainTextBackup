@@ -3475,3 +3475,23 @@ qwen4你在哪里
 
 也有说用qwen，gemma什么的
 
+
+*****
+
+####  我就再氪一单  
+##### 19540#       发表于 2026-11-6 17:33
+
+现在类workbuddy的软件且能在非信创linux系统上运行的有啥推荐吗？后悔没整一个m4 mac mini了，自己跑的项目基于的dsh为了安全性是反代到127.0.0.1随机端口用浏览器访问登录，没法用无头虚拟机
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  空き地卯木  
+##### 19541#       发表于 2026-11-6 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477384&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-6 16:38</a>
+逆天啊</blockquote>
+深度求索员工看了都要连夜进修串商
+
