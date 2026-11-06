@@ -4012,3 +4012,15 @@ qwen3.8max看评测还得靠超级长思考来解决问题，感觉qwen的大模
 
 qwen真的土，能干出来解释梗的事情
 
+
+*****
+
+####  lactone  
+##### 19588#       发表于 2026-11-7 01:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479045&amp;ptid=2275806" target="_blank">舞以 发表于 2026-11-7 01:03</a>
+qwen真的土，能干出来解释梗的事情</blockquote>
+又鸽了还敢出来找骂<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
