@@ -3840,3 +3840,27 @@ ttft 40s 输出60tps</blockquote>
 
 你以为是的千问大小姐，其实是你鲲姐啦！
 
+
+*****
+
+####  qwased  
+##### 19574#       发表于 2026-11-6 21:53
+
+qwen4 next week
+
+看来就是炸炉了，这么反反复复的耍猴<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 19575#       发表于 2026-11-6 21:56
+
+九月底评测的时候大家都反映前端不错
+
+而且前几天arena灰测反响也不错
+
+不会是因为aa改版所以缩回去吧？那样就太蠢了
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
