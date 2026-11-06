@@ -3362,3 +3362,11 @@ GLM5.3F的文字能力怎么样，能说出人话吗？
 GLM5.3F的文字能力怎么样，能说出人话吗？</blockquote>
 我用下来感觉还可以，比大肥鱼的F强一点
 
+
+*****
+
+####  hytghy  
+##### 19529#       发表于 2026-11-6 15:07
+
+写公文类，WORKBUDDY里面哪个模型更靠谱一些？感觉里面的几个都差不多的样子<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
