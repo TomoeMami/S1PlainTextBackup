@@ -117,3 +117,33 @@
 
        [https://prize.bushiroad-creative.com/product/11408](https://prize.bushiroad-creative.com/product/11408)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42193#       发表于 2026-11-6 20:07
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/06/200727jrjrdfyybjtztyy9.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-06_20-05-54.png</strong> (646.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-6 20:07 上传
+
+       [https://x.com/bang_dream_info/status/2118644563111739866](https://x.com/bang_dream_info/status/2118644563111739866)
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/06/200726r5z417jixiiu2vid.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-06_20-06-48.png</strong> (355.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-6 20:07 上传
+
+       [https://t.bilibili.com/1267534186521034789](https://t.bilibili.com/1267534186521034789)
+
