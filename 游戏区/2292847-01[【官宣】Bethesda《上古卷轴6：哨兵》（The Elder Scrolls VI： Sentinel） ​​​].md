@@ -906,3 +906,14 @@ fo3重制版还有戏么
 
 这是个城市地名，哨兵城
 
+
+*****
+
+####  posthoc  
+##### 95#       发表于 2026-11-6 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473398&amp;ptid=2292847" target="_blank">zxlice 发表于 2026-11-5 18:50</a>
+
+这个意境肯定不是哨兵嘛，这个海港名字得好好想一下</blockquote>
+但是这个城市起名就是起的哨兵的意思。当年红卫人老家沉了，红卫殖民舰队Ra Gaga出海找新家，就是一个放哨的先看到了这里的海港，然后红卫人的王就以“哨兵”命名了这个当时还是小镇子的港口。至于之前的精灵原住民管这地方叫啥似乎无人在意了。
+

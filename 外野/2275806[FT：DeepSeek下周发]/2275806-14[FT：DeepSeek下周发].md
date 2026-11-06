@@ -3243,3 +3243,45 @@ wenyi的侧重点是质量，lingua gacha感觉还是以效率为主的
 
 你可以试试把那套提取术语表的工作流抽出来放WB或者反重力之类的有便宜大模型的地方用，把术语表提取完导回去lg里面进行具体文本翻译，这一步就可以用本地的便宜模型比如mt2了
 
+
+*****
+
+####  Unlight  
+##### 19519#       发表于 2026-11-6 12:27
+
+ 本帖最后由 Unlight 于 2026-11-6 12:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476303&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-6 12:24</a>
+对啊
+
+你可以试试把那套提取术语表的工作流抽出来放WB或者反重力之类的有便宜大模型的地方用，把术语表提 ...</blockquote>
+mt2的问题是有甲<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 。当初卡了半天，才发现mt一个翻译模型居然甲那么厚…ollama网站上面也没看到有什么靠谱的破甲版。
+
+我可以说是刚接触大模型，对很多概念都没有认识，lg算是我用的第一个harness了…我还是纯本地吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qwased  
+##### 19520#       发表于 2026-11-6 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476315&amp;ptid=2275806" target="_blank">Unlight 发表于 2026-11-6 12:27</a>
+mt2的问题是有甲 。当初卡了半天，才发现mt一个翻译模型居然甲那么厚…ollama网站上面也没看到有什么靠谱 ...</blockquote>
+只用来翻译是无甲的，你是不是让他干agent的活了
+
+
+*****
+
+####  Unlight  
+##### 19521#       发表于 2026-11-6 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476327&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-6 12:31</a>
+只用来翻译是无甲的，你是不是让他干agent的活了</blockquote>
+估计是吧，我之前直接拿文译全挂的mt2，然后就…
+那我该怎么只让mt2翻译？
+然后说实在我现在在lg里用qwen 3.8 9b得到的术语表和最终译文还是能接受的。就是agent有点蠢，老空转。可不可以还用qwen做术语表，然后用mt2只翻译？或者拆得更碎，agent用27b q3km，术语表和润色用9b，翻译用mt2？
+抱歉，我对这个实在不清楚。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
