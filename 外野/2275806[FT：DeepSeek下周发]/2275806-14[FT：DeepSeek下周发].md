@@ -3109,3 +3109,13 @@ OpenCode Go的DS又429了</blockquote>
 
 怕不是印度光头找的上游机房合作商快被蹬爆了<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 19508#       发表于 2026-11-6 11:15
+
+Codex不给重置了，官方渠道GLM5.3感觉被降智了，OCG的DS也跑不动了
+
+各种不祥之兆啊，我们的AGI大业怕是要中道崩蹙了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
