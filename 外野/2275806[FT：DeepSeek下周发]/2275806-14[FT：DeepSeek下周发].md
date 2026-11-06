@@ -3519,3 +3519,28 @@ qwen4你在哪里
 梁子这几天应该已经赚飞了</blockquote>
 另外传闻Anthropic取消IPO。
 
+
+*****
+
+####  startraveller  
+##### 19544#       发表于 2026-11-6 17:58
+
+所以Qwen4这周还是跳票了是吧
+
+
+*****
+
+####  warlock228  
+##### 19545#       发表于 2026-11-6 18:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">想想老美用DS是真的爽，一整天上班都在梁文谷时间加上挣得美元付阮梅币那个费用谁看了不爽上天，叫他们离了大肥鱼比杀了他们还难受吧
+
+*****
+
+####  zzy516232108  
+##### 19546#       发表于 2026-11-6 18:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">话说用插件反代wb积分然后被藤子封号是真的假的啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
