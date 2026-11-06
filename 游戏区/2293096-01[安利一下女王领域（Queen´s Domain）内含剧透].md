@@ -1505,3 +1505,60 @@ https://www.artstation.com/artwork/8e2BXx
 
 谁知道这正式版水平如此恐怖。
 
+
+*****
+
+####  wcorvo  
+##### 83#       发表于 2026-11-6 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70463446&amp;ptid=2293096" target="_blank">panandhao 发表于 2026-11-3 19:03</a>
+
+打通第一个结局了（坏结局），十张地图传送点全开，后面几个结局该怎么触发，还在摸索。
+
+就个人体验来说， ...</blockquote>
+大佬，请问下，现在推到知识之塔拿到放大招的石头，然后完全不知道怎么走了，旁边两扇门都没有钥匙，还有一个地方全被肉块糊着
+
+*****
+
+####  zzf111  
+##### 84#       发表于 2026-11-6 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474802&amp;ptid=2293096" target="_blank">panandhao 发表于 2026-11-6 04:38</a>
+
+看artstaion上作者五年前就已经在一个被取消掉的项目里，做出了尼亚西德岛和知识之塔的原型（包括森林之 ...</blockquote>
+厚积薄发蓄锐一鸣啊
+
+之前也玩过怀旧大陆最后的英雄地图也不错（以它的体量而言，但是中后期的地图联通就很应付，捷径都是超长楼梯和超长密道）而且整蛊搞怪内的容太多了代入不进去<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  退行  
+##### 85#       发表于 2026-11-6 14:23
+
+玩了2小时，现在的感想就是怎么这也能走，怎么这也有东西，地图填充的也太好了
+
+
+*****
+
+####  zzf111  
+##### 86#       发表于 2026-11-6 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476747&amp;ptid=2293096" target="_blank">wcorvo 发表于 2026-11-6 14:22</a>
+
+大佬，请问下，现在推到知识之塔拿到放大招的石头，然后完全不知道怎么走了，旁边两扇门都没有钥匙，还有 ...</blockquote>
+应该是这个情况→高层的楼梯可以旋转移动，但得先从楼梯上跳到（正常情况到不了的）默认楼梯低点位置的正对面
+
+*****
+
+####  Emmerich  
+##### 87#       发表于 2026-11-6 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70468895&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-4 20:12</a>
+
+卡关了，求大佬指一下路
+
+目前的进度是拿完两个风息石和飞剑，舔完第一个小岛
+
+（第一座岛点了两个灯塔，宝 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">海盗小弟在哪找到的。。。我感觉水世界神庙都快打完了一个都没见着
+
