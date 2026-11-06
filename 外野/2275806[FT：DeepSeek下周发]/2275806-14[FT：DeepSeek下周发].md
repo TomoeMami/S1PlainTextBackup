@@ -4092,3 +4092,18 @@ ds：发个论文，你们按我这个论文搞Infra就可以获得更快、更�
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  冤枉呐  
+##### 19595#       发表于 2026-11-7 02:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478831&amp;ptid=2275806" target="_blank">璇瑢子R 发表于 2026-11-6 23:24</a>
+gemini最近这些新模型好用吗？不编程就用来写东西，查东西，还有可能出出图。
+
+在考虑要不要订阅 ...</blockquote>
+jio，网页版，写东西水平确实高
+但是不经用
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
