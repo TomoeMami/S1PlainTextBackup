@@ -3399,3 +3399,33 @@ GLM5.3F的文字能力怎么样，能说出人话吗？</blockquote>
 
 —— 来自 vivo V2547DA, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  zzy516232108  
+##### 19533#       发表于 2026-11-6 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477180&amp;ptid=2275806" target="_blank">med 发表于 2026-11-6 15:53</a>
+
+其实这一档都没有明显差异，都是在智力和模型尺寸有限情况下，尽可能提高agent干活能力。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那算了 我随便用吧 老东西急就用DS应付，老东西不急就让GLM磨洋工
+
+
+*****
+
+####  bushfu  
+##### 19534#       发表于 2026-11-6 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477052&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-6 15:26</a>
+华尔街日报说a/估值要按一万亿来了</blockquote>
+每天下调2500e
+
+*****
+
+####  lactone  
+##### 19535#       发表于 2026-11-6 16:05
+
+qwen4你在哪里
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
