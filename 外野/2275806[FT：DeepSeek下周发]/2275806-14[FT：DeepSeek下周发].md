@@ -2974,3 +2974,20 @@ HuggingFace上k3和k3.1的参数量写的都是2.8T，文件总大小都是1.56T
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  库德里尔  
+##### 19497#       发表于 2026-11-6 10:10
+
+pov：看到一群人和屏蔽列表吵架 感受到无可奈何
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qwased  
+##### 19498#       发表于 2026-11-6 10:10
+
+给你懂完了，训练用了多少数据和参数量有什么关系<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈的智障
+
