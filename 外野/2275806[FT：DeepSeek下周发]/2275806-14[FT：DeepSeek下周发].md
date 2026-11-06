@@ -3807,3 +3807,28 @@ ttft 40s 输出60tps</blockquote>
 
 我让dsh把wb的系统提示词改了，然后吧wb当dsh用
 
+
+*****
+
+####  Vneeto  
+##### 19571#       发表于 2026-11-6 21:30
+
+说文解字
+
+<img src="https://img.stage1st.com/forum/202611/06/212947orn0rplhur65rh7r.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20261106_212842.jpg</strong> (635.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-6 21:29 上传
+
+*****
+
+####  xuanwu_lei  
+##### 19572#       发表于 2026-11-6 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478422&amp;ptid=2275806" target="_blank">买码！注册！ 发表于 2026-11-6 20:48</a>
+你也是鱼？</blockquote>
+这不是宗主的暗号吗，应该是🐔<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

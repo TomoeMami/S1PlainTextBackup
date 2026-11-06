@@ -1916,3 +1916,23 @@ https://www.artstation.com/artwork/8e2BXx
 从头到尾我一直在用的其实只有苍焰火炬 ...</blockquote>
 锈蚀大斧进化后也是苍炎的，叫奥怖绝的白银花园，魔法是发波，也很强力的~
 
+
+*****
+
+####  zzf111  
+##### 118#       发表于 2026-11-6 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478512&amp;ptid=2293096" target="_blank">panandhao 发表于 2026-11-6 21:14</a>
+
+之前把潘多拉之剑升到了一百级，最后只在原有伤害上+300%，太坑了
+
+从头到尾我一直在用的其实只有苍焰火炬 ...</blockquote>
+有潘多拉之刃这个东西在都不想做全成就了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（看到全成就里有升级全部主武器
+
+*****
+
+####  神他妈的开胃菜  
+##### 119#       发表于 2026-11-6 21:29
+
+这上古界域给我整麻了，这么大能不能给我个地图啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
