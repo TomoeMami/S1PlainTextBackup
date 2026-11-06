@@ -1647,3 +1647,16 @@ https://www.artstation.com/artwork/8e2BXx
 山顶的蜈蚣都杀了，再敲一块石头能翘敲出个隐藏怪。这游戏还有几个需要攻击才能激活的怪。 ...</blockquote>
 嗯我准备神庙清完了去砍了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoulovely  
+##### 95#       发表于 2026-11-6 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70463446&amp;ptid=2293096" target="_blank">panandhao 发表于 2026-11-3 19:03</a>
+
+打通第一个结局了（坏结局），十张地图传送点全开，后面几个结局该怎么触发，还在摸索。
+
+就个人体验来说， ...</blockquote>
+问下，有网站可以看全蛋和全骷髅头嘛，现在想打3结局，但全蛋难收集，骷髅头更逆天
+
