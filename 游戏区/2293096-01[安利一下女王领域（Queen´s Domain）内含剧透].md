@@ -1878,3 +1878,28 @@ https://www.artstation.com/artwork/8e2BXx
 
 其实后面直接吃灵魂果就行了。
 
+
+*****
+
+####  panandhao  
+##### 115#       发表于 2026-11-6 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477290&amp;ptid=2293096" target="_blank">zhoulovely 发表于 2026-11-6 16:16</a>
+问下，有网站可以看全蛋和全骷髅头嘛，现在想打3结局，但全蛋难收集，骷髅头更逆天 ...</blockquote>
+全蛋我是随缘搜集了。推荐你先收集一些头骨，去换一个石化鸭鸭（换这个不需要太多），让商人卖给你灵视面具的透视饰品，然后按照地图顺序一个个找——我的习惯是先找大块地方的蛋和头骨，然后再找小地方的：主要是区域间的通道和地下世界
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  panandhao  
+##### 116#       发表于 2026-11-6 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478479&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-6 21:06</a>
+主要就在这，我几乎为了升武器都是升满一把就换一把，没怎没用过那几把强力武器。。。更别说那些联动武器 ...</blockquote>
+之前把潘多拉之剑升到了一百级，最后只在原有伤害上+300%，太坑了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+从头到尾我一直在用的其实只有苍焰火炬，唯一一个靠苍焰debuff战胜所有近战枪支的神器，能够代替它的只有奥怖绝的审判<img src="https://static.stage1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">（苍焰属性的武器，这游戏好像就这两把）
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
