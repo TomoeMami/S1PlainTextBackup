@@ -3370,3 +3370,11 @@ GLM5.3F的文字能力怎么样，能说出人话吗？</blockquote>
 
 写公文类，WORKBUDDY里面哪个模型更靠谱一些？感觉里面的几个都差不多的样子<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 19530#       发表于 2026-11-6 15:26
+
+华尔街日报说a/估值要按一万亿来了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
