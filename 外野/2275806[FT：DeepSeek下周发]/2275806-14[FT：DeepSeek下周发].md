@@ -2991,3 +2991,30 @@ pov：看到一群人和屏蔽列表吵架 感受到无可奈何
 
 给你懂完了，训练用了多少数据和参数量有什么关系<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈的智障
 
+
+*****
+
+####  龙骑士尹志平  
+##### 19499#       发表于 2026-11-6 10:19
+
+猕猴可怕
+
+*****
+
+####  cscbzcbz  
+##### 19500#       发表于 2026-11-6 10:22
+
+今天都没啥动静，只能再等下周了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  lactone  
+##### 19501#       发表于 2026-11-6 10:25
+
+qwen4再不出来算是放鸽子了
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
