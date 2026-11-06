@@ -3629,3 +3629,11 @@ a/再晚点拖一拖怕不是就剩五千万了
 165的是自家模型，第三方只有15刀</blockquote>
 vibe那里建一个key就可以用1017了
 
+
+*****
+
+####  BarricadeMKXX  
+##### 19554#       发表于 2026-11-6 19:22
+
+opendesign上线了一个4.1f 1017 eco（大概是慢速版本），给了$220额度（正常版本$120）<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
