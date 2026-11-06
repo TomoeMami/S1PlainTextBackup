@@ -3320,3 +3320,14 @@ mt2的问题是有甲 。当初卡了半天，才发现mt一个翻译模型居�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 19525#       发表于 2026-11-6 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476533&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-6 13:24</a></blockquote>
+加速加速<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
