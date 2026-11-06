@@ -3119,3 +3119,38 @@ Codex不给重置了，官方渠道GLM5.3感觉被降智了，OCG的DS也跑不�
 
 各种不祥之兆啊，我们的AGI大业怕是要中道崩蹙了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tk553521  
+##### 19509#       发表于 2026-11-6 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475968&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-6 11:15</a>
+Codex不给重置了，官方渠道GLM5.3感觉被降智了，OCG的DS也跑不动了
+
+各种不祥之兆啊，我们的AGI大业怕是要 ...</blockquote>
+卜要怕，只要肥鱼发4.1p一切都会好起来的
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Steel.Haze  
+##### 19510#       发表于 2026-11-6 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475772&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-11-6 10:41</a>
+
+1017出来20天了，4.1Pro呢，救一下啊</blockquote>
+没准正是梁子等下一个美AI股回光返照的高位然后发布版本吃个大空红包呢？
+
+
+*****
+
+####  飞剪号  
+##### 19511#       发表于 2026-11-6 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475999&amp;ptid=2275806" target="_blank">Steel.Haze 发表于 2026-11-6 11:20</a>
+
+没准正是梁子等下一个美AI股回光返照的高位然后发布版本吃个大空红包呢？ ...</blockquote>
+梁子这几天应该已经赚飞了
+
