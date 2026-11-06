@@ -3508,3 +3508,14 @@ qwen4你在哪里
 
 “虽然不能卖老中卡不能给数据还要整天蛐蛐你们，但是你们电这么便宜怎么不能给我们用用呢，或者说我们大发慈悲允许在你们地面上建我们数据中心怎么样”<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Steel.Haze  
+##### 19543#       发表于 2026-11-6 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476004&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-11-6 11:20</a>
+
+梁子这几天应该已经赚飞了</blockquote>
+另外传闻Anthropic取消IPO。
+
