@@ -3665,3 +3665,13 @@ gptimage2.6，GIF的甲厚得不行，什么叫轻度性暗示就能触发违规
 opendesign上线了一个4.1f 1017 eco（大概是慢速版本），给了$220额度（正常版本$120） ...</blockquote>
 ttft 40s 输出60tps<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overflowal  
+##### 19558#       发表于 2026-11-6 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478204&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-6 19:46</a>
+ttft 40s 输出60tps</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+

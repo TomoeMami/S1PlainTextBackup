@@ -489,3 +489,13 @@
 
 全世界统一维护，大的要来了？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 21757#       发表于 2026-11-6 19:51
+
+A店充值折扣又开始了，截止到12.2
+
+折扣码 FGO_ANXONGUDAWINTER
+
