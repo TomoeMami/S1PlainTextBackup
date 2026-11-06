@@ -4024,3 +4024,41 @@ qwen真的土，能干出来解释梗的事情</blockquote>
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  startraveller  
+##### 19589#       发表于 2026-11-7 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478985&amp;ptid=2275806" target="_blank">舞以 发表于 2026-11-7 00:29</a>
+其实虽然k3.1龟速，但是k3.1的token效率和轨迹长度都很精简的，有那种超大规模模型该有的感觉（所谓的“大 ...</blockquote>
+对的 K3系列其实很有opus 5.5那种聪明劲
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 舞以 + 1其实更像gpt xD
+
+查看全部评分
+
+*****
+
+####  飞剪号  
+##### 19590#       发表于 2026-11-7 01:24
+
+还是ds低调而自信，基本不宣发，或者拿发论文当宣发
+
+
+*****
+
+####  来都来了  
+##### 19591#       发表于 2026-11-7 01:26
+
+ds：发个论文，你们按我这个论文搞Infra就可以获得更快、更便宜的Deepseek，顺便一提这是我们Deepseek最新的模型。
+
