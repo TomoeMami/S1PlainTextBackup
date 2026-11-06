@@ -1733,3 +1733,16 @@ https://www.artstation.com/artwork/8e2BXx
 
 对了，问下那个翡翠印章是开哪里的宝库的？橙色和银色都开了
 
+
+*****
+
+####  vidomina  
+##### 102#         楼主| 发表于 2026-11-6 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477584&amp;ptid=2293096" target="_blank">zhoulovely 发表于 2026-11-6 17:15</a>
+
+那个显示距离的用起来好眼花缭乱的，并且开过的箱子什么的也显示，不好用
+
+对了，问下那个翡翠印章是开哪 ...</blockquote>
+我也没找完，去Steam社区搜下吧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
