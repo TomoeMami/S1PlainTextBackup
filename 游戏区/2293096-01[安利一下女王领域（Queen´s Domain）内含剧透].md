@@ -1447,3 +1447,14 @@ https://www.artstation.com/artwork/8e2BXx
 
 买了个晨星锤感觉亏了，贪它的钝击+穿刺，但锤类实在是太慢了。感觉骷髅用火烧也不是不行，我是不是应该先练初始那个生锈长矛？
 
+
+*****
+
+####  vidomina  
+##### 78#         楼主| 发表于 2026-11-6 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476118&amp;ptid=2293096" target="_blank">留小草 发表于 2026-11-6 11:41</a>
+
+买了个晨星锤感觉亏了，贪它的钝击+穿刺，但锤类实在是太慢了。感觉骷髅用火烧也不是不行，我是不是应该先 ...</blockquote>
+一般来说，先练大木棒吧，进化完很有用。
+
