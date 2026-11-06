@@ -1562,3 +1562,67 @@ https://www.artstation.com/artwork/8e2BXx
 （第一座岛点了两个灯塔，宝 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">海盗小弟在哪找到的。。。我感觉水世界神庙都快打完了一个都没见着
 
+
+*****
+
+####  白河响剑  
+##### 88#       发表于 2026-11-6 14:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初体验是怪又多又硬 然后一开始兜兜转转因为不知道副手打开关而卡了好久
+
+但探索体验着实牛逼
+
+拿了一冲多了一片探索
+
+拿了二冲又一片探索
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像应该是拿了二冲去水神殿在去书库
+
+但我看主岛有个洞稀里糊涂钻了进去乌漆嘛黑连爬带滚逃到个森林
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">惊险惊险 刺激刺激
+
+*****
+
+####  zzf111  
+##### 89#       发表于 2026-11-6 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476772&amp;ptid=2293096" target="_blank">Emmerich 发表于 2026-11-6 14:25</a>
+
+海盗小弟在哪找到的。。。我感觉水世界神庙都快打完了一个都没见着</blockquote>
+本岛出生点右面朝方向手边山腰上一个
+本岛第二个存档点墓地附近有个巨大三叶虫附近几个墓碑的地方，其中有个棋子碑可以互动开隐藏门，里面有一个（藏得最阴的）
+海面神殿附近，在走出第一波围殴鱼的地方，右拐面朝山崖，左边有个两飞+拳套勉强能跳到的地方有一个
+水世界海底boss打完坐电梯出来有个大坑里有一个
+
+
+*****
+
+####  Emmerich  
+##### 90#       发表于 2026-11-6 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476835&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-6 14:41</a>
+
+本岛出生点右面朝方向手边山腰上一个
+
+本岛第二个存档点墓地附近有个巨大三叶虫附近几个墓碑的地方，其中 ...</blockquote>
+草 山腰那个是有小纸条提示山顶有大量蜈蚣和炸药的尸体吗 我好像完全没拿到类似于遗物的东西 可能是漏捡了？
+
+*****
+
+####  zzf111  
+##### 91#       发表于 2026-11-6 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476858&amp;ptid=2293096" target="_blank">Emmerich 发表于 2026-11-6 14:45</a>
+
+草 山腰那个是有小纸条提示山顶有大量蜈蚣和炸药的尸体吗 我好像完全没拿到类似于遗物的东西 可能是漏捡 ...</blockquote>
+应该是同一层高度，但是另一边面朝大海的山腰
+
+*****
+
+####  瑟莉亚  
+##### 92#       发表于 2026-11-6 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476118&amp;ptid=2293096" target="_blank">留小草 发表于 2026-11-6 11:41</a>
+
+买了个晨星锤感觉亏了，贪它的钝击+穿刺，但锤类实在是太慢了。感觉骷髅用火烧也不是不行，我是不是应该先 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感谢避雷，我原来也想先买这玩意来着。
+
