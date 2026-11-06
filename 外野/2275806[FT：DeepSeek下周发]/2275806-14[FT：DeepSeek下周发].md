@@ -4115,3 +4115,44 @@ jio，网页版，写东西水平确实高
 
 qoder上了个qwen4 max preview，测自行车骑鹈鹕会发现他一直在想鹈鹕骑车才对吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 19597#       发表于 2026-11-7 07:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479217&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-7 06:52</a>
+qoder上了个qwen4 max preview，测自行车骑鹈鹕会发现他一直在想鹈鹕骑车才对吧</blockquote>
+qoder cn没上吗？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  moekyo  
+##### 19598#       发表于 2026-11-7 07:13
+
+注入伟大的西方价值，反正我是先卸载 Hermes 了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/07/071234m86s262z6zyt82e2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 07:12 上传
+
+*****
+
+####  qwased  
+##### 19599#       发表于 2026-11-7 07:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479236&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-7 07:11</a>
+
+qoder cn没上吗？
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+现在好像是只有国际版
+
+感觉前端有点一般
+
