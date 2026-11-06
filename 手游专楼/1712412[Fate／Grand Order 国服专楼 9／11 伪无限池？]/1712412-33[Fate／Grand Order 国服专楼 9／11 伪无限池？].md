@@ -36,3 +36,11 @@
 
 免费一天一抽至今未出五星，四星只出过一个秦良玉
 
+
+*****
+
+####  马桶3  
+##### 48292#       发表于 2026-11-6 13:04
+
+BGO把芝诺比阿从卡池里删了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
