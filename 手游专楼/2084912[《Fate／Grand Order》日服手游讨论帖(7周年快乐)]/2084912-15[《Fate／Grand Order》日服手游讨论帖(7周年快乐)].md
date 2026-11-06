@@ -470,3 +470,14 @@
 
 松永直接白送好啊，
 
+
+*****
+
+####  khxooo  
+##### 21755#       发表于 2026-11-6 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476373&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2026-11-6 12:41</a>
+
+看贴吧说YTB上泄露了一亿下载生放送的录播视频，奖励已经爆出来了，30石头x2+一个圣杯分三天送，还有个自 ...</blockquote>
+这个奖励有点真啊，毕竟都猜测给个五星自选，而且60石头和商店新增和之前的奖励差不多。
+

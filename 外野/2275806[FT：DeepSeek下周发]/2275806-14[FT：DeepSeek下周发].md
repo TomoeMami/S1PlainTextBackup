@@ -3285,3 +3285,18 @@ mt2的问题是有甲 。当初卡了半天，才发现mt一个翻译模型居�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwased  
+##### 19522#       发表于 2026-11-6 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476348&amp;ptid=2275806" target="_blank">Unlight 发表于 2026-11-6 12:36</a>
+
+估计是吧，我之前直接拿文译全挂的mt2，然后就…
+
+那我该怎么只让mt2翻译？
+
+然后说实在我现在在lg里用qwen ...</blockquote>
+工作台的翻译那个按钮可以切换让哪个模型翻译的，agent模式用有思维链能正常使用工具的模型提完术语表再去工作台让mt2开始翻
+
