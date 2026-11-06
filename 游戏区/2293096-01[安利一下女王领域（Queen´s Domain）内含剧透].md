@@ -1998,3 +1998,16 @@ https://www.artstation.com/artwork/8e2BXx
 打第一个boss死了一次，再去发现大棒槌没了，要重新跑去地 ...</blockquote>
 你存档了吗
 
+
+*****
+
+####  Shu-Stella  
+##### 126#       发表于 2026-11-7 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478900&amp;ptid=2293096" target="_blank">不会武术 发表于 2026-11-6 23:50</a>
+
+这游戏死了复活丢装备是什么神秘设定还是神秘bug
+
+打第一个boss死了一次，再去发现大棒槌没了，要重新跑去地 ...</blockquote>
+这游戏死亡是直接回档最后一次存档
+
