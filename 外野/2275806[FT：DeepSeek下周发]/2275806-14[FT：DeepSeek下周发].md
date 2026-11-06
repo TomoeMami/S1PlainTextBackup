@@ -3710,3 +3710,30 @@ ttft 40s 输出60tps</blockquote>
 —— 来自 鹅球 v3.5.99-alpha ...</blockquote>
 用国际版，拿github开小号
 
+
+*****
+
+####  startraveller  
+##### 19562#       发表于 2026-11-6 20:28
+
+看来Qwen 4没跳
+
+<img src="https://img.stage1st.com/forum/202611/06/202837zme7qookspmei9kp.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1096.png</strong> (180.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-6 20:28 上传
+
+
+*****
+
+####  Promeus  
+##### 19563#       发表于 2026-11-6 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478361&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-6 20:28</a>
+看来Qwen 4没跳</blockquote>
+坤！<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
