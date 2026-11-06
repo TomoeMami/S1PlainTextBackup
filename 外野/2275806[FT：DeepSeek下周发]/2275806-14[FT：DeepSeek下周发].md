@@ -2383,3 +2383,26 @@ https://mp.weixin.qq.com/s/YOWslIRykThfGGwx-71RHA
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  宏.  
+##### 19443#       发表于 2026-11-6 07:51
+
+<blockquote>novalli 发表于 2026-11-6 07:32
+看到这种顺着A/的“蒸馏”污名化说的就有点犯嘀咕，看下去感觉像是炒股的。
+
+炒股的评价行业现状，我还不 ...</blockquote>
+这就是个炒股的，但如果有一个疑问是为什么国模以ds1017为首的小模型进展显著，但是大模型进展缓慢，包括月暗在k3.1和智谱在5.5上面搞出来的一坨骚操作，除了参数量和算力的问题还能往哪个方向怀疑？1017再怎么好那也是个coding特化的小模型，4.1pro始终不出，k3.1官宣金融特化之后GLM5.5居然传闻也是金融特化，这就有点不正常了，反正这楼里我没见谁觉得认为大模型的方向应该是这么搞的
+
+
+*****
+
+####  rachepatty  
+##### 19444#       发表于 2026-11-6 07:55
+
+所以算力的欠缺是怎么和超广义扩大化的蒸馏扯起来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+老钟就是不如老外是吧，思想钢印啊思想钢印<img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
