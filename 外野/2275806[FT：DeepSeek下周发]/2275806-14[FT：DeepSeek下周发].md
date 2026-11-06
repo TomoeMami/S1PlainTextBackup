@@ -3495,3 +3495,16 @@ qwen4你在哪里
 逆天啊</blockquote>
 深度求索员工看了都要连夜进修串商
 
+
+*****
+
+####  2017.05.04  
+##### 19542#       发表于 2026-11-6 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477662&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-11-6 17:34</a>
+
+深度求索员工看了都要连夜进修串商</blockquote>
+不是开玩笑他们真有人这么想
+
+“虽然不能卖老中卡不能给数据还要整天蛐蛐你们，但是你们电这么便宜怎么不能给我们用用呢，或者说我们大发慈悲允许在你们地面上建我们数据中心怎么样”<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
