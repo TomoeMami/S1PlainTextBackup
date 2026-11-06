@@ -3961,3 +3961,18 @@ gemini最近这些新模型好用吗？不编程就用来写东西，查东西�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  2017.05.04  
+##### 19584#       发表于 2026-11-6 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478831&amp;ptid=2275806" target="_blank">璇瑢子R 发表于 2026-11-6 23:24</a>
+gemini最近这些新模型好用吗？不编程就用来写东西，查东西，还有可能出出图。
+
+在考虑要不要订阅 ...</blockquote>
+AI studio开个API自己测测比听别人说和看测评都管用，什么模型都能用
+也花不了几美分
+
+—— 来自 HUAWEI CMM-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
