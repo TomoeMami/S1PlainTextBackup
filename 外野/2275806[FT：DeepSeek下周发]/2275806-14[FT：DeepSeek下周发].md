@@ -3154,3 +3154,26 @@ Codex不给重置了，官方渠道GLM5.3感觉被降智了，OCG的DS也跑不�
 没准正是梁子等下一个美AI股回光返照的高位然后发布版本吃个大空红包呢？ ...</blockquote>
 梁子这几天应该已经赚飞了
 
+
+*****
+
+####  lactone  
+##### 19512#       发表于 2026-11-6 11:32
+
+a/下周路演，这还搞不搞了<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  cube  
+##### 19513#       发表于 2026-11-6 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476071&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-6 11:32</a>
+
+a/下周路演，这还搞不搞了
+
+—— 来自 HONOR BRT-AN00, Android 17, 鹅球 v3.5.99-alpha</blockquote>
+已经被压价了，估值直接跌了4000多亿刀。
+
