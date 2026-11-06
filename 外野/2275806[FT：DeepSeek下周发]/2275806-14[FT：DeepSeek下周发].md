@@ -3351,3 +3351,14 @@ mt2的问题是有甲 。当初卡了半天，才发现mt一个翻译模型居�
 
 GLM5.3F的文字能力怎么样，能说出人话吗？
 
+
+*****
+
+####  马桶3  
+##### 19528#       发表于 2026-11-6 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476700&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-11-6 14:09</a>
+
+GLM5.3F的文字能力怎么样，能说出人话吗？</blockquote>
+我用下来感觉还可以，比大肥鱼的F强一点
+
