@@ -3579,3 +3579,15 @@ qwen4你在哪里
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 19549#       发表于 2026-11-6 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477770&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-6 17:58</a>
+所以Qwen4这周还是跳票了是吧</blockquote>
+不一定，qwen一般也是晚上发模型
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
