@@ -3645,3 +3645,23 @@ opendesign上线了一个4.1f 1017 eco（大概是慢速版本），给了$220�
 
 说起来老马的Grok 4.8也没消息啊，总不能是和Qwen比憋气吧 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发呆的龙虾  
+##### 19556#       发表于 2026-11-6 19:46
+
+gptimage2.6，GIF的甲厚得不行，什么叫轻度性暗示就能触发违规。同样的提示词生成静态图片完全没问题。果然AI越强审核越强。<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  qwased  
+##### 19557#       发表于 2026-11-6 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478107&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-11-6 19:22</a>
+
+opendesign上线了一个4.1f 1017 eco（大概是慢速版本），给了$220额度（正常版本$120） ...</blockquote>
+ttft 40s 输出60tps<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
