@@ -3216,3 +3216,30 @@ wenyi的侧重点是质量，lingua gacha感觉还是以效率为主的
 因为我用的都 ...</blockquote>
 3.8没有9b，是社区自己蒸馏的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">27b跑翻译也很糟糕，毕竟是coding特化了
 
+
+*****
+
+####  Unlight  
+##### 19517#       发表于 2026-11-6 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476269&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-6 12:16</a>
+3.8没有9b，是社区自己蒸馏的27b跑翻译也很糟糕，毕竟是coding特化了</blockquote>
+对，那个9b的3.8到底是个啥东西啊？说是用3.8 27b蒸的3.5 9b？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qwased  
+##### 19518#       发表于 2026-11-6 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476294&amp;ptid=2275806" target="_blank">Unlight 发表于 2026-11-6 12:22</a>
+
+对，那个9b的3.8到底是个啥东西啊？说是用3.8 27b蒸的3.5 9b？
+
+—— 来自 S1Fun ...</blockquote>
+对啊
+
+你可以试试把那套提取术语表的工作流抽出来放WB或者反重力之类的有便宜大模型的地方用，把术语表提取完导回去lg里面进行具体文本翻译，这一步就可以用本地的便宜模型比如mt2了
+
