@@ -3544,3 +3544,38 @@ qwen4你在哪里
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  来都来了  
+##### 19547#       发表于 2026-11-6 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477791&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-11-6 18:01</a>
+话说用插件反代wb积分然后被藤子封号是真的假的啊
+
+—— 来自 鹅球 v3.5.99-alpha ...</blockquote>
+用别怕，怕别用，封别叫<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dreamenory  
+##### 19548#       发表于 2026-11-6 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477791&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-11-6 18:01</a>
+话说用插件反代wb积分然后被藤子封号是真的假的啊
+
+—— 来自 鹅球 v3.5.99-alpha ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/06/182108cfwxeeay5dsdkkww.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1793960467759_1.webp</strong> (17.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-6 18:21 上传
+
+群友是这样说的…
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
