@@ -3893,3 +3893,16 @@ qwen4 next week
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  spaceblue  
+##### 19578#       发表于 2026-11-6 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478030&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-6 19:00</a>
+
+vibe那里建一个key就可以用1017了
+
+法棍订阅现在x上传开了，计算压力很大，从最开始的单流800tps一路滑到 ...</blockquote>
+牛逼！感谢分享！
+
