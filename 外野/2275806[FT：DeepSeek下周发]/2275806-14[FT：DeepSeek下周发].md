@@ -3612,3 +3612,20 @@ qwen4你在哪里
 https://github.com/UpcleanRestmercy/mistral-bridge</blockquote>
 165的是自家模型，第三方只有15刀
 
+
+*****
+
+####  haiuhfuwah  
+##### 19552#       发表于 2026-11-6 18:58
+
+a/再晚点拖一拖怕不是就剩五千万了
+
+*****
+
+####  qwased  
+##### 19553#       发表于 2026-11-6 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478014&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-11-6 18:57</a>
+165的是自家模型，第三方只有15刀</blockquote>
+vibe那里建一个key就可以用1017了
+

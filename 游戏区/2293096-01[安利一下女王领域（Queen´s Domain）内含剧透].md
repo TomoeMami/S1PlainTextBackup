@@ -1790,3 +1790,14 @@ https://www.artstation.com/artwork/8e2BXx
 
 这游戏的钱卡不卡呀，一口气花光总觉得会错失什么，武器啥的都不敢买
 
+
+*****
+
+####  vidomina  
+##### 107#         楼主| 发表于 2026-11-6 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477909&amp;ptid=2293096" target="_blank">郁哲 发表于 2026-11-6 18:31</a>
+
+这游戏的钱卡不卡呀，一口气花光总觉得会错失什么，武器啥的都不敢买</blockquote>
+游戏难度不高（走对路的情况下），前期买投掷物就行了，卖的武器饰品都很一般，都是捡的或者任务给的更强。
+
