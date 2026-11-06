@@ -2406,3 +2406,53 @@ https://mp.weixin.qq.com/s/YOWslIRykThfGGwx-71RHA
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  Rowen233  
+##### 19445#       发表于 2026-11-6 07:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473610&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-11-5 19:42</a>
+
+你在说啥？我在loongarch上 claudecode/codex/opencode/pi/dsh/qoder/workbuddy/zcode 全都能用啊。
+
+ ...</blockquote>
+基本要用统信的都有国产化合规需求的
+
+
+*****
+
+####  Rowen233  
+##### 19446#       发表于 2026-11-6 08:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474417&amp;ptid=2275806" target="_blank">舞以 发表于 2026-11-5 23:37</a>
+
+鉴定一个人是不是不懂ai还要装懂的标准就是看他怎么评价luna terra和sonnet haiku，吹这四个模型的都能鉴定 ...</blockquote>
+说实话充Claude Pro了肯定用Opus啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给的额度还挺慷慨的
+
+
+*****
+
+####  Nanachi  
+##### 19447#       发表于 2026-11-6 08:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70473610&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-11-5 19:42</a>
+你在说啥？我在loongarch上 claudecode/codex/opencode/pi/dsh/qoder/workbuddy/zcode 全都能用啊。
+
+ ...</blockquote>
+他说的是旧世界龙芯 uos 吧，nodejs 还是 22
+
+
+*****
+
+####  宏.  
+##### 19448#       发表于 2026-11-6 08:06
+
+<blockquote>rachepatty 发表于 2026-11-6 07:55
+所以算力的欠缺是怎么和超广义扩大化的蒸馏扯起来的 
+
+老钟就是不如老外是吧，思想钢印啊思想钢印
+</blockquote>
+
+kimi作为国模参数最激进的那一家，k3.1显然比预期的推迟了，中间传闻练炸炉，k3.1出来之后一股子防御性对话味道，那怎么看都不是拿ds的开源成果能后训练出来的
+
