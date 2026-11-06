@@ -1660,3 +1660,30 @@ https://www.artstation.com/artwork/8e2BXx
 就个人体验来说， ...</blockquote>
 问下，有网站可以看全蛋和全骷髅头嘛，现在想打3结局，但全蛋难收集，骷髅头更逆天
 
+
+*****
+
+####  vidomina  
+##### 96#         楼主| 发表于 2026-11-6 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477290&amp;ptid=2293096" target="_blank">zhoulovely 发表于 2026-11-6 16:16</a>
+
+问下，有网站可以看全蛋和全骷髅头嘛，现在想打3结局，但全蛋难收集，骷髅头更逆天 ...</blockquote>
+目前貌似没有，只能用透视小挂件找。
+
+不过我看啊b上有人貌似开的什么虚幻引擎调试模式？直接显示物品位置，你可以问问。
+
+*****
+
+####  zhoulovely  
+##### 97#       发表于 2026-11-6 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477404&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-6 16:41</a>
+
+目前貌似没有，只能用透视小挂件找。
+
+不过我看啊b上有人貌似开的什么虚幻引擎调试模式？直接显示物品位置 ...</blockquote>
+我下过那个全物品显示图了，但感觉，emmm
+
+算了，就用这个好了，谢谢
+

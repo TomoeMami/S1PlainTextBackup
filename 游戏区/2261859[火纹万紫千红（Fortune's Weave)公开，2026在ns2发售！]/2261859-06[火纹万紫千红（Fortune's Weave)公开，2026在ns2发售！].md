@@ -11700,3 +11700,13 @@ engage最后一次更新销量是160w来着？
 
 已经到了第3部再刷 虽然也能刷 但是每章给的回合数不太够
 
+
+*****
+
+####  5ew47  
+##### 8517#       发表于 2026-11-6 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477136&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-11-6 15:45</a>
+试了一下不行么，第三章队友拉进来还是锁的</blockquote>
+我的我的，我说错了，虽然好感度是实时继承，但是剧情锁的状态必须通过重新打通一遍第一部来更新，你之前说的没错
+
