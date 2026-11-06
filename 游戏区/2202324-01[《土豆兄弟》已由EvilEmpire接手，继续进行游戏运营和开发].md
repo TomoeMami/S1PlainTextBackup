@@ -569,3 +569,27 @@ steam最近的评价已经差成这样了么
 
 时间旅行者这个土豆真的轮椅，拿到献血之后无限时停跟玩麦克斯佩恩一样，爽了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cs0111  
+##### 502#       发表于 2026-11-6 23:08
+
+<img src="https://img.stage1st.com/forum/202611/06/230750ikyqu2ufurnqruqa.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (564.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-6 23:07 上传
+
+<img src="https://img.stage1st.com/forum/202611/06/230751jn7lci8n38gpayii.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (103.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-6 23:07 上传
+
+异变是可以复制角色本身的词条的，某些时候把控得好非常逆天……
+

@@ -3928,3 +3928,16 @@ vibe那里建一个key就可以用1017了
 
 请教下漏油，o÷ 这边生图而言，chat 和 codex 之间，从实践上来说，会有什么很实际的区别吗
 
+
+*****
+
+####  zzy516232108  
+##### 19581#       发表于 2026-11-6 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478541&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-6 21:25</a>
+
+没必要反代
+
+我让dsh把wb的系统提示词改了，然后吧wb当dsh用</blockquote>
+我操 还有这种操作
+
