@@ -2785,3 +2785,31 @@ dsh升级了0.2.2 RC1后，1017标识就没了
 
 Ling 3.2 Flash斩杀1017
 
+
+*****
+
+####  wandeeees  
+##### 19480#       发表于 2026-11-6 09:19
+
+斩杀哥不无聊吗，时不时就出来斩杀下DS<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">看着真的很弱智啊
+
+
+*****
+
+####  舞以  
+##### 19481#       发表于 2026-11-6 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475106&amp;ptid=2275806" target="_blank">awy002 发表于 2026-11-6 08:38</a>
+我hardness里大肥鱼的版本号变成4.1Flash没有1017的图标了，这不会是把我模型降智了吧 ...</blockquote>
+只是新版本把这个标记去掉了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  startraveller  
+##### 19482#       发表于 2026-11-6 09:24
+
+所以这周说的大招全都没来<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
