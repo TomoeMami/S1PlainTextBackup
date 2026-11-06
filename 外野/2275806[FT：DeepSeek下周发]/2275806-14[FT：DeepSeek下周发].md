@@ -4072,3 +4072,11 @@ ds：发个论文，你们按我这个论文搞Infra就可以获得更快、更�
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 19593#       发表于 2026-11-7 02:19
+
+我也很喜欢 k3，尤其是前阵子公司还自部署了原始精度 weight 的 k3，用着还是有种白月光感 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 个人感觉是虽然 k3.1 很多地方变好了，但总觉得和 k3 不是一个风格了
+
