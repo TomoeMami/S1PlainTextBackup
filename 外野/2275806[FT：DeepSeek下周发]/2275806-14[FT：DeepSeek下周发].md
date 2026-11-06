@@ -3976,3 +3976,13 @@ AI studio开个API自己测测比听别人说和看测评都管用，什么模�
 
 —— 来自 HUAWEI CMM-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 19585#       发表于 2026-11-6 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478717&amp;ptid=2275806" target="_blank">平昭·南宫司卿 发表于 2026-11-6 22:38</a>
+请教下漏油，o÷ 这边生图而言，chat 和 codex 之间，从实践上来说，会有什么很实际的区别吗 ...</blockquote>
+Chat也有智能体，也能读记忆(其他的chat)，读不到本地项目记忆。其他感觉和codex区别不大，趁还没合并额度我要多用chat生图了
+
