@@ -2456,3 +2456,13 @@ https://mp.weixin.qq.com/s/YOWslIRykThfGGwx-71RHA
 
 kimi作为国模参数最激进的那一家，k3.1显然比预期的推迟了，中间传闻练炸炉，k3.1出来之后一股子防御性对话味道，那怎么看都不是拿ds的开源成果能后训练出来的
 
+
+*****
+
+####  rachepatty  
+##### 19449#       发表于 2026-11-6 08:11
+
+不是，后训练和DS的开源论文和weight关联在哪儿啊，跟蒸馏的关系又从哪儿来的，大参数模型能蒸馏多少啊，蒸馏根本够不上需求，自己读读DS的文章吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
