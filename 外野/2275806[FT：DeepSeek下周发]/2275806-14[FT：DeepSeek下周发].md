@@ -2691,3 +2691,50 @@ deepseek手上还有特别强化攻击力的cyber模型，放出来的1017已经
 
 楼里的给他画面干啥，直接下插件屏蔽就完事了，s1论坛坛友都有人搞了个插件。s1 plus 论坛体验增强插件
 
+
+*****
+
+####  a4ac7  
+##### 19470#       发表于 2026-11-6 09:01
+
+不是听说国外有AGI了吗，来个agi把这些dem搞定很难吗<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  wandeeees  
+##### 19471#       发表于 2026-11-6 09:02
+
+原来是有人进来打滚，那没啥说的，屏蔽就完事儿了，理他你就输了
+
+*****
+
+####  wlhlz  
+##### 19472#       发表于 2026-11-6 09:03
+
+这位是泥潭老懂哥了，终于连AI也给他懂完了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HazukiShion  
+##### 19473#       发表于 2026-11-6 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475204&amp;ptid=2275806" target="_blank">cube 发表于 2026-11-6 08:57</a>
+
+谈问题也得谈明白。
+
+结果是一堆金融狗在那反复嚼A畜O傻两家吐出来的隔夜馍。</blockquote>
+主要是这类文章大多都是说问题说地挺来劲的，但关于解决他自己提出的这些问题的具体可行方案就完全不提/没下文了，感觉压根就没动脑真正思考过。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 19474#       发表于 2026-11-6 09:05
+
+看到几十条新回复还以为是大的来了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
