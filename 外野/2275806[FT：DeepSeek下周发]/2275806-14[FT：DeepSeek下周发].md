@@ -3300,3 +3300,23 @@ mt2的问题是有甲 。当初卡了半天，才发现mt一个翻译模型居�
 然后说实在我现在在lg里用qwen ...</blockquote>
 工作台的翻译那个按钮可以切换让哪个模型翻译的，agent模式用有思维链能正常使用工具的模型提完术语表再去工作台让mt2开始翻
 
+
+*****
+
+####  Unlight  
+##### 19523#       发表于 2026-11-6 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476435&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-6 12:56</a>
+工作台的翻译那个按钮可以切换让哪个模型翻译的，agent模式用有思维链能正常使用工具的模型提完术语表再 ...</blockquote>
+也就是不从agent那儿翻译是吧？我过两天试试。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Promeus  
+##### 19524#       发表于 2026-11-6 13:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
