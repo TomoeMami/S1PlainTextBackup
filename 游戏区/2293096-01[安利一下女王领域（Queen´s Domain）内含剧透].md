@@ -1955,3 +1955,11 @@ https://www.artstation.com/artwork/8e2BXx
 锈蚀大斧进化后也是苍炎的，叫奥怖绝的白银花园，魔法是发波，也很强力的~ ...</blockquote>
 这么厉害！！！<img src="https://static.stage1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不能曰的秘密  
+##### 122#       发表于 2026-11-6 22:34
+
+刚找到上古界域第二个存档点，真牛逼了这张图，要做全收集攻略不知道要花多少时间hhh，可惜明天还要搬家不然通宵玩了
+
