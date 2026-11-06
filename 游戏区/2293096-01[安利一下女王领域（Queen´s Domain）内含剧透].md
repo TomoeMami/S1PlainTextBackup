@@ -1487,3 +1487,21 @@ https://www.artstation.com/artwork/8e2BXx
 
 打了demo，刚开始初始武器不太好用，而且没捡到投掷的，有点懵。另外是不是没有锁敌，一人称视角转得飞快我适应了半天。
 
+
+*****
+
+####  vidomina  
+##### 82#         楼主| 发表于 2026-11-6 14:02
+
+也不是，之前我记得也是好评如潮来着，貌似前段时间做了推广，引来不少新玩家，多数差评都在吐槽战斗，毕竟国王密令那样的战斗风格确实不太习惯。同时demo确实一般般吧，没有hark那般惊。
+
+<img src="https://img.stage1st.com/forum/202611/06/140146olf25zlm6y5f5m22.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202611/06/140146olf25zlm6y5f5m22.png">
+
+<strong>屏幕截图 2026-11-06 140058.png</strong> (17.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-6 14:01 上传
+
+谁知道这正式版水平如此恐怖。
+
