@@ -3591,3 +3591,24 @@ qwen4你在哪里
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  scg2017  
+##### 19550#       发表于 2026-11-6 18:55
+
+怕被封号而不反代，那和被封没区别。
+前提是本来就不怎么使用workbuddy
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  spaceblue  
+##### 19551#       发表于 2026-11-6 18:57
+
+<blockquote>qwased 发表于 2026-11-3 02:23
+https://github.com/UpcleanRestmercy/mistral-bridge</blockquote>
+165的是自家模型，第三方只有15刀
+
