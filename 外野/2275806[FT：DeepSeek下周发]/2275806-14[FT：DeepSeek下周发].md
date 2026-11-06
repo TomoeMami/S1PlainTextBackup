@@ -3460,3 +3460,18 @@ qwen4你在哪里
 那算了 我随便用吧 老东西急就用DS应付，老东西不急就让GLM磨洋工</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">坛友也有给老东西翻译的工作吗，用AI一般是怎么做？
 
+
+*****
+
+####  zzy516232108  
+##### 19539#       发表于 2026-11-6 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477459&amp;ptid=2275806" target="_blank">hisousihou 发表于 2026-11-6 16:50</a>
+
+坛友也有给老东西翻译的工作吗，用AI一般是怎么做？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">我不给老东西做翻译，就是普通的办公文字处理的活，加了很多提示词专杀鱼八股，又喂了很多材料让他学习说话的风味，感觉还是很难说人话
+
+前面几页说AI翻译的话用HY-MT2，怎么部署可以问问DS
+
+也有说用qwen，gemma什么的
+
