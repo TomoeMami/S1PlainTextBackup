@@ -2466,3 +2466,51 @@ kimi作为国模参数最激进的那一家，k3.1显然比预期的推迟了，
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19450#       发表于 2026-11-6 08:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474957&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-6 07:51</a>
+这就是个炒股的，一个兼听信源而已，我转了又不代表我全信，但如果有一个疑问是为什么国模以ds1017为首的 ...</blockquote>
+你用过K3.1吗？K3.1相对于K3的进化，你知道有多少吗？3个月时间用2万卡的算力就把K3这种规模的模型做了非常强的后训练，这个能力难道是不行？Kimi强调的金融特性是它的生态，而不是模型本身能力，模型本身的金融能力是泛化出来的。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19451#       发表于 2026-11-6 08:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70474997&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-6 08:06</a>
+kimi作为国模参数最激进的那一家，k3.1显然比预期的推迟了，中间传闻练炸炉，k3.1出来之后一股子防御性对 ...</blockquote>
+现在互联网语料中有非常多GPT生成的内容，RL到像GPT太正常了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  FACS  
+##### 19452#       发表于 2026-11-6 08:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">转点屎就是兼听，那我看日推全是兼听信源啊
+
+*****
+
+####  龙骑将  
+##### 19453#       发表于 2026-11-6 08:27
+
+<blockquote>宏. 发表于 2026-11-5 23:11
+https://mp.weixin.qq.com/s/YOWslIRykThfGGwx-71RHA
+
+中国LLM讨论纪要
+</blockquote>
+字节：慢就是快，坚持自研不蒸馏，资本和算力强，问题是组织复杂、实验室互抢资源
+
+--------------------
+
+感觉就是来吹字节的，把其他家的成就都说成蒸馏，就字节白莲花
+
