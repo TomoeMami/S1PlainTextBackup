@@ -4080,3 +4080,15 @@ ds：发个论文，你们按我这个论文搞Infra就可以获得更快、更�
 
 我也很喜欢 k3，尤其是前阵子公司还自部署了原始精度 weight 的 k3，用着还是有种白月光感 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 个人感觉是虽然 k3.1 很多地方变好了，但总觉得和 k3 不是一个风格了
 
+
+*****
+
+####  冤枉呐  
+##### 19594#       发表于 2026-11-7 02:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477336&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-6 16:26</a></blockquote>
+难为作者了
+逻辑只能走通，但是谁先死呢？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
