@@ -2613,3 +2613,81 @@ wenyi的侧重点是质量，lingua gacha感觉还是以效率为主的
 
 注意别用1017提取术语表，世界知识差的后果就是他提取出一大堆什么张飞→张飞，刘备→刘备之类的无用高频词<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  awy002  
+##### 19463#       发表于 2026-11-6 08:50
+
+<blockquote>misuzu0723 发表于 2026-11-6 08:45
+放心好了，按照DS只之前恨不得把pro也下掉的德性，不会专门搞个降智模型给你用的 ...</blockquote>
+主要是我感觉确实降智了，昨天要他把我的话翻译，结果就翻译了个头尾，中间还是中文
+
+*****
+
+####  mitzvah  
+##### 19464#       发表于 2026-11-6 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475111&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-6 08:40</a>
+
+你在说啥，kimi官方专门说了靠限制网安数据来砍了k3.1的网安能力，网安你可以认为是coding的一个子集 ...</blockquote>
+模型后端强，网安能力不可能差的
+
+他说砍了，你不看看实测数据？
+
+就1017和kimi3.1 pro这破坏力，蒸馏说就可以扯淡了，现在都是在容器沙盒里rl自行解决问题来跑合成数据训练的，蒸馏个屁
+
+094933hgm5gb3nvnpfhkfv.webp
+(141.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-6 08:48 上传
+
+<img src="https://img.stage1st.com/forum/202611/06/084804w9ce9tj9zs6jj9s6.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mitzvah  
+##### 19465#       发表于 2026-11-6 08:52
+
+deepseek手上还有特别强化攻击力的cyber模型，放出来的1017已经群魔乱舞的情况下，专用网安模型有多强根本不敢想
+
+*****
+
+####  HazukiShion  
+##### 19466#       发表于 2026-11-6 08:52
+
+其实我觉得这种只谈问题但不谈行之有效的解决方案的压根就没必要看吧，这还是在不讨论这问题分析对不对的情况下。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Promeus  
+##### 19467#       发表于 2026-11-6 08:55
+
+这玩意可以看一下封面的中国地图<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cube  
+##### 19468#       发表于 2026-11-6 08:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475178&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-11-6 08:52</a>
+
+其实我觉得这种只谈问题但不谈行之有效的解决方案的压根就没必要看吧，这还是在不讨论这问题分析对不对的情 ...</blockquote>
+谈问题也得谈明白。
+
+结果是一堆金融狗在那反复嚼A畜O傻两家吐出来的隔夜馍。
+
+民主党这次对AI科技巨头的打法可太有意思了，你说牢钟蒸馏你但是永远也追不上，那就停下来吧，不让牢钟蒸牢钟不就永远追不上了么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ivly  
+##### 19469#       发表于 2026-11-6 08:57
+
+楼里的给他画面干啥，直接下插件屏蔽就完事了，s1论坛坛友都有人搞了个插件。s1 plus 论坛体验增强插件
+
