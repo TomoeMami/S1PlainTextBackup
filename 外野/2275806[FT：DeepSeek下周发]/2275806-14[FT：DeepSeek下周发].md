@@ -2550,3 +2550,66 @@ lingua gacha比文译快太多了，同样都是那个9B的Qwen3.8。不过我�
 你看看我在这楼里的历史发言就知道我用过K3.1吗，不如说我更怀疑你用的K3.1是哪个K3.1，workbuddy积分送 ...</blockquote>
 安全能力还能不是泛化出来的？训练数据已经排除网安数据的情况下，公开的opus fable，Astra都不可能提供任何网安语料照样暴涨
 
+
+*****
+
+####  awy002  
+##### 19457#       发表于 2026-11-6 08:38
+
+我hardness里大肥鱼的版本号变成4.1Flash没有1017的图标了，这不会是把我模型降智了吧
+
+
+*****
+
+####  宏.  
+##### 19458#       发表于 2026-11-6 08:40
+
+<blockquote>mitzvah 发表于 2026-11-6 08:36
+安全能力还能不是泛化出来的？训练数据已经排除网安数据的情况下，公开的opus fable，Astra都不可能提供 ...</blockquote>
+你在说啥，kimi官方专门说了靠限制网安数据来砍了k3.1的网安能力，网安你可以认为是coding的一个子集
+
+
+*****
+
+####  samfs  
+##### 19459#       发表于 2026-11-6 08:42
+
+<blockquote>awy002 发表于 2026-11-5 14:38
+我hardness里大肥鱼的版本号变成4.1Flash没有1017的图标了，这不会是把我模型降智了吧 ...</blockquote>
+也许你把 DSH 的窗口拉得宽一些 1017就出现了
+
+
+*****
+
+####  awy002  
+##### 19460#       发表于 2026-11-6 08:45
+
+<blockquote>samfs 发表于 2026-11-6 08:42
+也许你把 DSH 的窗口拉得宽一些 1017就出现了</blockquote>
+没有，不知道是不是因为我全局国外的原因
+
+*****
+
+####  misuzu0723  
+##### 19461#       发表于 2026-11-6 08:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475106&amp;ptid=2275806" target="_blank">awy002 发表于 2026-11-6 08:38</a>
+
+我hardness里大肥鱼的版本号变成4.1Flash没有1017的图标了，这不会是把我模型降智了吧 ...</blockquote>
+放心好了，按照DS只之前恨不得把pro也下掉的德性，不会专门搞个降智模型给你用的
+
+
+*****
+
+####  qwased  
+##### 19462#       发表于 2026-11-6 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475086&amp;ptid=2275806" target="_blank">Unlight 发表于 2026-11-6 08:33</a>
+
+lingua gacha比文译快太多了，同样都是那个9B的Qwen3.8。不过我也没仔细找，9070XT本地模型现在版本答案 ...</blockquote>
+wenyi的侧重点是质量，lingua gacha感觉还是以效率为主的
+
+我比较建议的用法是lingua gacha里面用世界知识比较好的模型去跑agent模式的提取术语表，然后切本地的hy mt2 30A3B进行翻译，比较省钱<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">16G显存的卡跑mt2 30a3b apex nano就行，8并发总输出能有大几百tps
+
+注意别用1017提取术语表，世界知识差的后果就是他提取出一大堆什么张飞→张飞，刘备→刘备之类的无用高频词<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
