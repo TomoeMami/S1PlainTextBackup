@@ -4156,3 +4156,13 @@ qoder cn没上吗？
 
 感觉前端有点一般
 
+
+*****
+
+####  qwased  
+##### 19600#       发表于 2026-11-7 07:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479238&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-7 07:13</a>
+注入伟大的西方价值，反正我是先卸载 Hermes 了</blockquote>
+那怎么还用老钟的基模 自己不会炼吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
