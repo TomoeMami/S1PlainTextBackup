@@ -4107,3 +4107,11 @@ jio，网页版，写东西水平确实高
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  qwased  
+##### 19596#       发表于 2026-11-7 06:52
+
+qoder上了个qwen4 max preview，测自行车骑鹈鹕会发现他一直在想鹈鹕骑车才对吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
