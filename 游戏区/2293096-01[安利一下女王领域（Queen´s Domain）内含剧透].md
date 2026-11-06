@@ -1835,3 +1835,22 @@ https://www.artstation.com/artwork/8e2BXx
 
 正式版第一个门怎么改了草，我直接下去开门傻眼了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Shu-Stella  
+##### 111#       发表于 2026-11-6 20:53
+
+这游戏大部分敌人我都是只会靠放风筝过，或者刺剑什么的后跳，硬刚真的不知道怎么打，没有闪避也没有格挡，只有一个盾有格挡能力但是判定很严。
+
+
+*****
+
+####  郁哲  
+##### 112#       发表于 2026-11-6 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478432&amp;ptid=2293096" target="_blank">Shu-Stella 发表于 2026-11-6 20:53</a>
+
+这游戏大部分敌人我都是只会靠放风筝过，或者刺剑什么的后跳，硬刚真的不知道怎么打，没有闪避也没有格挡， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">近战是真的给自己加难度，但又要给武器升级进化，不得不偶尔掏出来刷刷经验
+

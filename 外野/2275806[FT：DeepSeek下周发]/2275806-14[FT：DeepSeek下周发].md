@@ -3737,3 +3737,19 @@ ttft 40s 输出60tps</blockquote>
 看来Qwen 4没跳</blockquote>
 坤！<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  买码！注册！  
+##### 19564#       发表于 2026-11-6 20:48
+
+你也是鱼？
+
+
+*****
+
+####  qz66618  
+##### 19565#       发表于 2026-11-6 20:55
+
+所以说啥时候出<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
