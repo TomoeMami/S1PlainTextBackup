@@ -2011,3 +2011,33 @@ https://www.artstation.com/artwork/8e2BXx
 打第一个boss死了一次，再去发现大棒槌没了，要重新跑去地 ...</blockquote>
 这游戏死亡是直接回档最后一次存档
 
+
+*****
+
+####  myron_cloud  
+##### 127#       发表于 2026-11-7 00:18
+
+有老哥用switch2玩么，想知道性能表现怎么样
+
+*****
+
+####  28201  
+##### 128#       发表于 2026-11-7 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478478&amp;ptid=2293096" target="_blank">panandhao 发表于 2026-11-6 21:06</a>
+
+用飞刀射一下棱形缺口
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, 鹅球 v3.5.99</blockquote>
+谢谢老哥，刚玩太专注了没顾上回<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Shu-Stella  
+##### 129#       发表于 2026-11-7 00:20
+
+这游戏的隐藏有的是真TM能藏，你永远想不到什么地方用什么方式有个隐藏房间。
+
+几乎所有你好奇想去看的犄角旮沓和刁钻点位都有隐藏能捡，好奇宝宝最爱的游戏。
+
