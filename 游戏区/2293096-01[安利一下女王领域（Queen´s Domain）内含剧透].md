@@ -1903,3 +1903,16 @@ https://www.artstation.com/artwork/8e2BXx
 
 —— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  vidomina  
+##### 117#         楼主| 发表于 2026-11-6 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478512&amp;ptid=2293096" target="_blank">panandhao 发表于 2026-11-6 21:14</a>
+
+之前把潘多拉之剑升到了一百级，最后只在原有伤害上+300%，太坑了
+
+从头到尾我一直在用的其实只有苍焰火炬 ...</blockquote>
+锈蚀大斧进化后也是苍炎的，叫奥怖绝的白银花园，魔法是发波，也很强力的~
+

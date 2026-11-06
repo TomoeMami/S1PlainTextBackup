@@ -3771,3 +3771,39 @@ ttft 40s 输出60tps</blockquote>
 
 这什么，巨肥鱼？什么时候出啊
 
+
+*****
+
+####  cscbzcbz  
+##### 19568#       发表于 2026-11-6 21:20
+
+别吊胃口了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">拉出来溜溜
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  洛拉斯  
+##### 19569#       发表于 2026-11-6 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70476962&amp;ptid=2275806" target="_blank">hytghy 发表于 2026-11-6 15:07</a>
+
+写公文类，WORKBUDDY里面哪个模型更靠谱一些？感觉里面的几个都差不多的样子 ...</blockquote>
+让ds直出后，用k3润色一次
+
+
+*****
+
+####  洛拉斯  
+##### 19570#       发表于 2026-11-6 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477791&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-11-6 18:01</a>
+
+话说用插件反代wb积分然后被藤子封号是真的假的啊
+
+—— 来自 鹅球 v3.5.99-alpha ...</blockquote>
+没必要反代
+
+我让dsh把wb的系统提示词改了，然后吧wb当dsh用
+
