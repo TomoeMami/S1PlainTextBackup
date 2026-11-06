@@ -1811,3 +1811,27 @@ https://www.artstation.com/artwork/8e2BXx
 
 —— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  郁哲  
+##### 109#       发表于 2026-11-6 20:37
+
+ 本帖最后由 郁哲 于 2026-11-6 20:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478371&amp;ptid=2293096" target="_blank">qappip 发表于 2026-11-6 20:33</a>
+
+开荒怎么玩啊，看你们安利买了一个，感觉难度比月下之巅难好多，拿把锈剑打个鸡都费力
+
+—— 来自 vivo V24 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这游戏战斗系统是真一坨，近战A一下会清空耐力条，得蓄力。体验改善要等拿到一堆投掷物和远程武器，每个投掷物的充能恢复时间是独立的，丢完这个丢那个，变成射击游戏。
+
+锈剑右键可以当成闪避用，A一下扭头跑路，或者用锈枪的右键简单粗暴
+
+
+*****
+
+####  28201  
+##### 110#       发表于 2026-11-6 20:44
+
+正式版第一个门怎么改了草，我直接下去开门傻眼了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
