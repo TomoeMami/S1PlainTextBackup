@@ -11675,3 +11675,13 @@ engage最后一次更新销量是160w来着？
 看完之后要重新打到最后一章才能带过去吗，蕾达篇的支援全锁上了</blockquote>
 不用的，刷过的好感度不用再打一遍最后一章才能带到第三部，两边都是实时更新的
 
+
+*****
+
+####  chiefshi  
+##### 8515#       发表于 2026-11-6 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477110&amp;ptid=2261859" target="_blank">5ew47 发表于 2026-11-6 15:37</a>
+不用的，刷过的好感度不用再打一遍最后一章才能带到第三部，两边都是实时更新的 ...</blockquote>
+试了一下不行么，第三章队友拉进来还是锁的
+
