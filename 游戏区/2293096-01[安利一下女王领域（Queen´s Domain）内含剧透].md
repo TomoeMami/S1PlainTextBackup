@@ -1700,3 +1700,36 @@ https://www.artstation.com/artwork/8e2BXx
 又或者带初始剑这种技能是冲刺的， ...</blockquote>
 大佬 倒地怎么连续冲刺阿，我现在拿了圣剑恩杜，但是只有拿到手里才能冲刺阿，我看视频很多都是拿的短剑冲刺一次，然后立马又能在冲刺，我怎么也试不出来
 
+
+*****
+
+####  vidomina  
+##### 99#         楼主| 发表于 2026-11-6 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477484&amp;ptid=2293096" target="_blank">qwetyuyu 发表于 2026-11-6 16:55</a>
+
+大佬 倒地怎么连续冲刺阿，我现在拿了圣剑恩杜，但是只有拿到手里才能冲刺阿，我看视频很多都是拿的短剑 ...</blockquote>
+看看按键设置，忘了哪个键了。我改成侧键挺好用。
+
+*****
+
+####  zhoulovely  
+##### 100#       发表于 2026-11-6 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477484&amp;ptid=2293096" target="_blank">qwetyuyu 发表于 2026-11-6 16:55</a>
+
+大佬 倒地怎么连续冲刺阿，我现在拿了圣剑恩杜，但是只有拿到手里才能冲刺阿，我看视频很多都是拿的短剑 ...</blockquote>
+默认左ctrl
+
+*****
+
+####  zhoulovely  
+##### 101#       发表于 2026-11-6 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70477572&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-6 17:13</a>
+
+看看按键设置，忘了哪个键了。我改成侧键挺好用。</blockquote>
+那个显示距离的用起来好眼花缭乱的，并且开过的箱子什么的也显示，不好用
+
+对了，问下那个翡翠印章是开哪里的宝库的？橙色和银色都开了
+
