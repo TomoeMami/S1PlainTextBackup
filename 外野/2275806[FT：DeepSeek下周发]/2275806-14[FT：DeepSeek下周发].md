@@ -2514,3 +2514,39 @@ https://mp.weixin.qq.com/s/YOWslIRykThfGGwx-71RHA
 
 感觉就是来吹字节的，把其他家的成就都说成蒸馏，就字节白莲花
 
+
+*****
+
+####  宏.  
+##### 19454#       发表于 2026-11-6 08:30
+
+<blockquote>半江瑟瑟半江红 发表于 2026-11-6 08:19
+你用过K3.1吗？K3.1相对于K3的进化，你知道有多少吗？3个月时间用2万卡的算力就把K3这种规模的模型做了非 ...</blockquote>
+
+你看看我在这楼里的历史发言就知道我用过K3.1吗，不如说我更怀疑你用的K3.1是哪个K3.1，workbuddy积分送的那个？k3.1官方宣传的几个卖点，coding、3D、金融，你说这是泛化出来的，你信吗？k3.1发布当晚在kimi官方群就有人说这玩意说话风格从opus变成了astra，非常让人怀疑其实后训练砍了世界知识，为了给coding和金融腾地方。至于3D，泛化到3D这有点太好笑了
+
+
+*****
+
+####  Unlight  
+##### 19455#       发表于 2026-11-6 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70470970&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-5 10:54</a>
+wenyi应该是agent工作流，不能接混元这种纯翻译模型的
+
+可以接lingua gacha用其他模型提取了术语表之后用混 ...</blockquote>
+lingua gacha比文译快太多了，同样都是那个9B的Qwen3.8。不过我也没仔细找，9070XT本地模型现在版本答案是哪个来着？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  mitzvah  
+##### 19456#       发表于 2026-11-6 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70475076&amp;ptid=2275806" target="_blank">宏. 发表于 2026-11-6 08:30</a>
+
+你看看我在这楼里的历史发言就知道我用过K3.1吗，不如说我更怀疑你用的K3.1是哪个K3.1，workbuddy积分送 ...</blockquote>
+安全能力还能不是泛化出来的？训练数据已经排除网安数据的情况下，公开的opus fable，Astra都不可能提供任何网安语料照样暴涨
+
