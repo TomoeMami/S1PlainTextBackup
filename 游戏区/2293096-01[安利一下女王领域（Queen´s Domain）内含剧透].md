@@ -2111,3 +2111,34 @@ https://www.artstation.com/artwork/8e2BXx
 
 商店的吸血刀不错，大木棒升满也有回血技能。
 
+
+*****
+
+####  Shu-Stella  
+##### 137#       发表于 2026-11-7 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478992&amp;ptid=2293096" target="_blank">panandhao 发表于 2026-11-7 00:31</a>
+
+游戏里的骷髅很关键，尤其是摆出手势指着某处的骷髅，顺着手指的方向走，必定能开出隐藏墙
+
+—— 来自 Xi ...</blockquote>
+有的骷髅我没get到，比如水下神庙门口那个指着楼梯的骷髅，但是看过去是一个趴着的骷髅外就没别的东西，还有神庙BOSS打完后出来的传送点下面夹缝里也有个骷髅指着一面墙，但是我找了半天没看到有什么东西。
+
+*****
+
+####  Shu-Stella  
+##### 138#       发表于 2026-11-7 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479663&amp;ptid=2293096" target="_blank">妄想中毒 发表于 2026-11-7 10:28</a>
+
+初期怎么玩，这也太受苦了路边一条狗都能单杀我</blockquote>
+这游戏捡到第一个抛投武器以后难度就会大幅下降了，甚至玩到后面都不太会死了。
+
+
+*****
+
+####  28201  
+##### 139#       发表于 2026-11-7 11:32
+
+昨天一路通到图书馆了，两次飞拿了之后飞飞飞真爽。难怪demo评价不好了，好玩的地方都没展示，武器没升级前怪又硬。不过现在口碑这么好没所谓了吧。
+
