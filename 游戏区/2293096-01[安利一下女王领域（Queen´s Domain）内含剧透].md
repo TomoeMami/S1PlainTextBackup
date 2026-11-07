@@ -2388,3 +2388,14 @@ https://www.artstation.com/artwork/8e2BXx
 把4把生锈武器全升到10级变质成新的特殊武器了，数值还都很高 ...</blockquote>
 还有大斧，大锤，刺剑
 
+
+*****
+
+####  zzf111  
+##### 162#       发表于 2026-11-7 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480505&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-7 15:23</a>
+
+还有大斧，大锤，刺剑</blockquote>
+这几把是在商店能买到的 还是像生锈巨剑那样方块钥匙开密室得到的？
+
