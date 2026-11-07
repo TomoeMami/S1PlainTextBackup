@@ -11769,3 +11769,16 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 虽然我不咋sl点数，但有的时候就加2点还加的稀奇古怪的真的不能忍
 
+
+*****
+
+####  Jabeck  
+##### 8523#       发表于 2026-11-7 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480990&amp;ptid=2261859" target="_blank">requiem116 发表于 2026-11-7 18:24</a>
+
+升级加点的乱数要怎么改变？
+
+虽然我不咋sl点数，但有的时候就加2点还加的稀奇古怪的真的不能忍 ...</blockquote>
+去转职，无论成功还是失败都能把这次加点顶掉。
+

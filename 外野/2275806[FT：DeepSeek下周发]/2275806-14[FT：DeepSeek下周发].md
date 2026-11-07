@@ -4534,3 +4534,32 @@ Gemini聊天问点诗词歌词都不给放全文让自己搜，要你何用<img 
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moekyo  
+##### 19639#       发表于 2026-11-7 19:25
+
+怕不是 Hermes 最有用的一集，早上刷到 Nous Research 那条推之后，后面刷的凡是喷它的推文下面，都会看到它们官号在复读没看 blog <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白日依山尽  
+##### 19640#       发表于 2026-11-7 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481018&amp;ptid=2275806" target="_blank">なるぼど 发表于 2026-11-7 18:34</a>
+
+大佬们，我codex蹬太猛，上传流量用太多，机场用了五六百g了，有点抗不住，你们是怎么解决的
+
+—— 来自 S1 ...</blockquote>
+多开新会话
+
+会话目录少放无关文档（或者告诉codex不要读哪些无关文档）
+
+少处理多媒体内容
+
+保持代理稳定，一旦断了又要重新上传
+
+换大流量机场或者买大流量服务器
+

@@ -704,3 +704,22 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 非洲人如果像萌新有那么多5星可以养哪还会有这种烦恼</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是5星太多才会刷 我们非洲萌新 金苹果都是4位数起步的  从来不知道什么是刷 当然页不会溢出
 
+
+*****
+
+####  壳壳牛  
+##### 21775#       发表于 2026-11-7 19:18
+
+偷跑的信息都已经公布了，会有新情报吗
+
+
+*****
+
+####  alucardcz  
+##### 21776#       发表于 2026-11-7 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481138&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2026-11-7 19:18</a>
+
+偷跑的信息都已经公布了，会有新情报吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经结束啦 不要想太多
+

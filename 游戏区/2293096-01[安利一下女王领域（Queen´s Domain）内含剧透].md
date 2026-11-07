@@ -2605,3 +2605,28 @@ https://queensdomainwiki.sbs/en
 
 好气啊，无意中从初始地点那口井跑进地底世界，里面的怪都好肉啊，但我有枪在手怕个球，一路上biubiubiu杀了好多高级怪，角色和枪都升了好多级，也捡了不少好东西，但碰到拿枪的骷髅，一不小心挂了，全部白玩。
 
+
+*****
+
+####  panandhao  
+##### 183#       发表于 2026-11-7 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481033&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-7 18:38</a>
+想吐槽虽然知道方向罗盘是国王密令传统，但在游戏中一点用都没有不是吗</blockquote>
+找一些隐藏怪攻略的时候，不清楚作者说的方位在哪，看看对方右上角的罗盘还是比较管用的，其他时候确实感受不到存在感……立体结构太多了，不像lunacid那种平面迷宫，迷路时还可以靠罗盘辨明下自己方位<img src="https://static.stage1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Algie  
+##### 184#       发表于 2026-11-7 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480620&amp;ptid=2293096" target="_blank">zhoulovely 发表于 2026-11-7 16:15</a>
+
+问下，为什么我点这个链接最后会到**网站上
+
+V  P  N</blockquote>
+不清楚，可能这维基需要魔法上网吧
+
