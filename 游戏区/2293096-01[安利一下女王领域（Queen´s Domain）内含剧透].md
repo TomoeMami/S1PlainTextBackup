@@ -2348,3 +2348,14 @@ https://www.artstation.com/artwork/8e2BXx
 这游戏怪不仅在存档点回血后复活，还会随着时间经过复活？我打完第一个拿钥匙的地牢后坐电梯出来，外面的小 ...</blockquote>
 虽然确实会随时间经过复活，但是体感其实得隔挺久才会复活，你说的这里应该是固定的剧情节点，从第一个墓穴拿完钥匙出来就会触发野怪袭击营地事件
 
+
+*****
+
+####  MTDlnZc  
+##### 159#       发表于 2026-11-7 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480230&amp;ptid=2293096" target="_blank">瑟莉亚 发表于 2026-11-7 13:26</a>
+
+昨天一路推完了海王，感觉还挺弱的，还不如神殿里的小怪鱼群麻烦，打小怪还浪费了我一堆药，还好棍棒升级后 ...</blockquote>
+锈剑升级后，商人会卖一把同动作模型的，伤害比初始的锈剑高一些
+

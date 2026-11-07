@@ -4282,3 +4282,14 @@ qoder用着flash，突然发现积分都没了，原来要收费了。那么那q
 
 使用工具的积极性比3.8系列都强很多，我没有要求他使用工具的时候他都会主动使用合适的mcp工具
 
+
+*****
+
+####  swallow0808  
+##### 19612#       发表于 2026-11-7 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479988&amp;ptid=2275806" target="_blank">JRPG 发表于 2026-11-7 12:11</a>
+
+NousResearch 这整的活可太招笑了</blockquote>
+感觉就是Nerd觉得自己一滩屎清理不干净了，找个别的拉点眼球。
+
