@@ -4358,3 +4358,27 @@ ds是不是又炸了，workbuddy上也用不了了<img src="https://static.stage
 
 快点恢复吧，还干活呢，明天不想干活
 
+
+*****
+
+####  BarricadeMKXX  
+##### 19621#       发表于 2026-11-7 15:18
+
+oc429，官方api也炸
+
+
+*****
+
+####  洛拉斯  
+##### 19622#       发表于 2026-11-7 15:22
+
+现在谁家api还能用，那谁就是真的自己部署了，如果现在一起炸那，那就说明其实是转发官方
+
+
+*****
+
+####  qwased  
+##### 19623#       发表于 2026-11-7 15:27
+
+中午有人预告说是推理框架升级了，梁子还是留了一手啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

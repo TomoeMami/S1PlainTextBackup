@@ -2375,3 +2375,16 @@ https://www.artstation.com/artwork/8e2BXx
 
 另外道具灵魂油能直升武器经验3级
 
+
+*****
+
+####  vidomina  
+##### 161#         楼主| 发表于 2026-11-7 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480457&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-7 15:06</a>
+
+正在大书库第二个篝火打石像鬼书虫刷武器经验
+
+把4把生锈武器全升到10级变质成新的特殊武器了，数值还都很高 ...</blockquote>
+还有大斧，大锤，刺剑
+
