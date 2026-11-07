@@ -3317,3 +3317,11 @@ PS5实体版可能还会有
 
 <img src="https://i.111666.best/image/fjflxHiBVmROcGndSl121d.jpg" referrerpolicy="no-referrer">">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 355#       发表于 2026-11-8 01:04
+
+手游主角都有，就是不带神乡玩
+
