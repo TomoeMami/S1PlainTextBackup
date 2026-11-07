@@ -2768,3 +2768,12 @@ https://www.nexusmods.com/queensdomain/mods/24
 还有一个书孔，在楼上魔石雕像旁边</blockquote>
 感谢，可以了。没想到不是在同一层。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  郁哲  
+##### 198#       发表于 2026-11-7 23:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这个给武器升级的设计真是破坏体验，武器好不容易升满进化了，然后拿到了新武器，是重新练新武器看看能不能进化还是用旧武器呢，新武器废半天劲结果发现没法进化咋整，只能去看攻略剧透避免无用功。
+然后还有强制性让玩家练武器的三叉戟，磨珊迪枪这一块
+
