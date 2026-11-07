@@ -80,3 +80,11 @@ BGO把芝诺比阿从卡池里删了<img src="https://static.stage1st.com/image/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">看了下这自选五星池子，就怖军、果心居士、源为朝没有，是new一个还是小恩5宝或者太公望2宝，犹豫
 
+
+*****
+
+####  绫魂h  
+##### 48297#       发表于 2026-11-7 19:32
+
+前几天免费出了太公望，不然直接选太公望了。现在想new仇玛丽，还是太公望2宝
+

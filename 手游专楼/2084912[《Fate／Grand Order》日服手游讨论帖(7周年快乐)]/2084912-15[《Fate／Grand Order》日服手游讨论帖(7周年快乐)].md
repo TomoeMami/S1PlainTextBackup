@@ -723,3 +723,22 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 偷跑的信息都已经公布了，会有新情报吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经结束啦 不要想太多
 
+
+*****
+
+####  壳壳牛  
+##### 21777#       发表于 2026-11-7 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481165&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-11-7 19:26</a>
+
+已经结束啦 不要想太多</blockquote>
+擅自期待了<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 21778#       发表于 2026-11-7 19:36
+
+反正我是毫无波澜的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
