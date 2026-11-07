@@ -11790,3 +11790,17 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 终于快打完四条线了，考虑到dlc还会有四条线还有重开第三部会亏因果融合的碎片这两点，是不是应该等到dlc出了再玩第三部
 
+
+*****
+
+####  凯洛伦  
+##### 8525#       发表于 2026-11-7 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480939&amp;ptid=2261859" target="_blank">Antidote丶 发表于 2026-11-7 18:01</a>
+终于打完四条线的第一部了，准备打战争篇了。
+
+想问下因为因果融合，为了不让仓库的东西丢失，怎么处理比较 ...</blockquote>
+仓库道具还好，丁真线如果抓了想留的马最好给下了，不然第三部没选丁真线的人会被吞
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
