@@ -2239,3 +2239,11 @@ https://www.artstation.com/artwork/8e2BXx
 
 —— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  妄想中毒  
+##### 149#       发表于 2026-11-7 12:51
+
+营地应该有传送功能可以解锁吧，开了几个地方不能传送太难受了
+
