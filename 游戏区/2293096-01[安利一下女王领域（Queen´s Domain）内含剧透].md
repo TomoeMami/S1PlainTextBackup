@@ -2098,3 +2098,16 @@ https://www.artstation.com/artwork/8e2BXx
 
 初期怎么玩，这也太受苦了路边一条狗都能单杀我
 
+
+*****
+
+####  vidomina  
+##### 136#         楼主| 发表于 2026-11-7 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479663&amp;ptid=2293096" target="_blank">妄想中毒 发表于 2026-11-7 10:28</a>
+
+初期怎么玩，这也太受苦了路边一条狗都能单杀我</blockquote>
+多买投掷物，实在不行解锁初始大树秘密武器，选个无限子弹的长枪。
+
+商店的吸血刀不错，大木棒升满也有回血技能。
+
