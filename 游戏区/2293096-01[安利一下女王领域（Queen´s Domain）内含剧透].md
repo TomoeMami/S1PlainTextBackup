@@ -2499,3 +2499,16 @@ https://queensdomainwiki.sbs/en
 女王魔域wiki</blockquote>
 问下，为什么我点这个链接最后会到**网站上
 
+
+*****
+
+####  vidomina  
+##### 173#         楼主| 发表于 2026-11-7 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480616&amp;ptid=2293096" target="_blank">shimotsuki14 发表于 2026-11-7 16:13</a>
+
+玛德，好不容易凑了20块钱，买了个晨星锤然后存了档
+
+然后就看到建议先搞投射武器的建议</blockquote>
+商店里买的武器貌似只有吸血刀和重机枪最好有，其它屁用没有。
+

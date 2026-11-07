@@ -641,3 +641,14 @@ MuMu-20261107-005506-901.jpg
 但是虽然 虽然但是 好歹送个15羁绊火或者3000的夫夫意思意思啊</blockquote>
 爹服：你说的什么东西我怎么从来没听说过
 
+
+*****
+
+####  alucardcz  
+##### 21769#       发表于 2026-11-7 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480645&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-11-7 16:26</a>
+
+爹服：你说的什么东西我怎么从来没听说过</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这难道就是全球同步的真正理由马
+
