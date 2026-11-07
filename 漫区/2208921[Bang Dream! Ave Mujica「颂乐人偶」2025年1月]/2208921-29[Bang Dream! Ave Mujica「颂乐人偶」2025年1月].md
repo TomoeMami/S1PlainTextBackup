@@ -216,3 +216,109 @@ Ave Mujica重新出道后，祥子正构思着下一场假面舞会。
 #BanGDream# #OurNotes# #交织的乐章#</blockquote>
        [https://www.bilibili.com/video/BV1Bp4j61E2P](https://www.bilibili.com/video/BV1Bp4j61E2P)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42196#       发表于 2026-11-7 18:41
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/07/184110clj41ialij4u0ub1.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-07_18-40-12.png</strong> (1.45 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:41 上传
+
+       [https://x.com/bang_dream_on/status/2118992884569608555](https://x.com/bang_dream_on/status/2118992884569608555)
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/07/184109ru904ibbypmyuyde.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-07_18-40-26.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:41 上传
+
+       [https://x.com/bang_dream_on/status/2118992886834622742](https://x.com/bang_dream_on/status/2118992886834622742)
+
+       <[strong>🎵《BanG Dream! Our Notes》乐曲试玩——《双月~Deep Into The Forest~》</strong>](https://www.bilibili.com/video/BV1T14q6HET4) <blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/07/184111as3ajs4na0a3qsq5.png" referrerpolicy="no-referrer">
+
+<strong>8ec9a1646b3ed07edeed878447a3b0c31d50856e.png</strong> (1.74 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:41 上传
+
+由Ave Mujica演唱的原创乐曲《双月~Deep Into The Forest~》将在本次挑战演出活动中登场，该曲目预计将于活动结束后追加，敬请期待🎶！✨
+
+✦ 乐曲介绍
+
+《双月~Deep Into The Forest~》
+
+乐队：Ave Mujica
+
+作词：Diggy-MO’
+
+作曲：長谷川大介(SUPA LOVE)
+
+编曲：長谷川大介(SUPA LOVE)
+
+※演示画面为开发中的画面，实际内容可能有所不同。
+
+#BanGDream# #OurNotes# #交织的乐章#</blockquote>
+       [https://www.bilibili.com/video/BV1T14q6HET4](https://www.bilibili.com/video/BV1T14q6HET4)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42197#       发表于 2026-11-7 18:46
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/07/184552c3qmiwefqxd3ffvg.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-07_18-44-04.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:45 上传
+
+       [https://x.com/bang_dream_on/status/2118993358194385335](https://x.com/bang_dream_on/status/2118993358194385335)
+
+       <[strong>🎉「光辉殿堂的不朽篇章」招募开启预告！</strong>](https://www.bilibili.com/video/BV1TC4q6XE2x) <blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/07/184627nl7s71shsplprdgs.png" referrerpolicy="no-referrer">
+
+<strong>2ffbdbfdff4dde383a34cad7b8c7cb770f832c4c.png</strong> (542.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:46 上传
+
+「光辉殿堂的不朽篇章」招募预计于明日14:00开启， 以下【成员】与【留影】全新登场，千万不要错过哦！✨
+
+【成员】  
+
+・SSR—Mortis
+
+・SSR—Amoris 
+
+【留影】  
+
+・SSR—Mortis
+
+・SSR—Oblivionis
+
+※更多详情请查看游戏内公告。
+
+#BanGDream# #OurNotes# #交织的乐章#</blockquote>
+       [https://www.bilibili.com/video/BV1TC4q6XE2x](https://www.bilibili.com/video/BV1TC4q6XE2x)
+

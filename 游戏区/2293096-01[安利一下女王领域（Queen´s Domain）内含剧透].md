@@ -2581,3 +2581,11 @@ https://queensdomainwiki.sbs/en
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  vidomina  
+##### 180#         楼主| 发表于 2026-11-7 18:38
+
+想吐槽虽然知道方向罗盘是国王密令传统，但在游戏中一点用都没有不是吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

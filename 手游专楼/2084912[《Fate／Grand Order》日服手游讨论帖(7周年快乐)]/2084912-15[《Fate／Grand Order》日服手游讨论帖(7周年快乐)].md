@@ -682,3 +682,14 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 多少开个福袋吧
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 21773#       发表于 2026-11-7 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480827&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-11-7 17:22</a>
+
+太欧了 羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">非洲人如果像萌新有那么多5星可以养哪还会有这种烦恼
+
