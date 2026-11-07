@@ -4797,3 +4797,17 @@ r1时期就有人搞这种阴湿的破事
 
 今年下半年国产厂家集中交付了一批算力，OA给到的竞争压力也在加大。我估计国内模型厂家要加速训更大规模的模型了
 
+
+*****
+
+####  novalli  
+##### 19663#       发表于 2026-11-8 06:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482228&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-11-8 02:44</a>
+用中国开源模型蒸馏了个符合西方价值观的模型，而且教师模型可能还是中国的，这是什么抽象行为艺术 ...</blockquote>
+甚至不能算蒸馏，只是后训练强行掰了一下。
+感觉像是屈打成招一样。看好部署之后模型憋不住突然爆出极端中特社言论<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+哦对了，不知道Nous选择的语料是民主党的还是共和党的？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
