@@ -2214,3 +2214,16 @@ https://www.artstation.com/artwork/8e2BXx
 结局3还要全蛋是嘛？残卷我都还有剩下几个没用上，不知道蛋是到数量就行还是非得全收集 ...</blockquote>
 3不用全蛋，30换飞行菇就可以了，4结局是要全骷髅的
 
+
+*****
+
+####  zhoulovely  
+##### 147#       发表于 2026-11-7 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479937&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-7 11:56</a>
+
+要这么多吗，我好像是攒了16个吧去交的给了。</blockquote>
+主要是骷髅头不像蛋这种发光，模型比较明显
+
+没提示，找起来特别的累，真的靠运气
+

@@ -603,3 +603,15 @@ steam最近的评价已经差成这样了么
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cs0111  
+##### 504#       发表于 2026-11-7 12:24
+
+异种不再随机变道具了，算是变得正常了
+
+异变复制道具词条的比例大幅提高了，还行
+
+机械芯片掉落率直接砍到变异瓶掉落率的一半，然后机械升级可选属性也砍半，砍这么狠吗……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
