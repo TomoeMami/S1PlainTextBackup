@@ -2854,3 +2854,17 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 水上区域从蜈蚣那个断桥飞两次就过去了啊。倒是拿蛋那里我以为一开始有了飞剑就能拿，掉海里无数次。后来加了2飞从高台下去很简单就拿到了<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  77BBC  
+##### 206#       发表于 2026-11-8 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481997&amp;ptid=2293096" target="_blank">madnesshare 发表于 2026-11-8 00:11</a>
+你们都不会卡关的吗。。我打倒了一个地下的骷髅BOSS以后，也去悬崖边跳冲刺山洞拿了一个奇怪的投掷石块，在 ...</blockquote>
+主线流程被冲刺锁定，卡关一定是有地方没去，冲刺次数不够。
+例如初期水神庙要靠冲刺过断桥，中期上古界域要五冲刺到废料场。
+有个地图会好很多，不知道会不会有人做mod
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

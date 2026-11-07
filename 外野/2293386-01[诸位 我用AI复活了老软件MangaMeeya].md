@@ -516,3 +516,25 @@ Honeywiew有个同公司出的后继者Bandiview，部分功能收费，相比ho
 
 试了下好像对x64的RAR包还是不太支持的样子？
 
+
+*****
+
+####  net13p  
+##### 49#       发表于 2026-11-8 00:22
+
+原来用MangaMeeya,但是2个问题不可忍受,一个是特殊字符支持,还有就是新压缩包不支持
+
+后来改用NeeView,就是打开巨卡,还有对大体积的webp打开卡顿
+
+试了好多软件,最后发现EVERYTHING家的voidImageViewer速度最快
+
+
+*****
+
+####  莉洁莉特  
+##### 50#       发表于 2026-11-8 00:27
+
+我用它看完的JOJO1-7
+
+—— 来自 OPPO PCCM00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
