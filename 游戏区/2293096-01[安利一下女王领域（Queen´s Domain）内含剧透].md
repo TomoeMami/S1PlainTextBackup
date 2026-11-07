@@ -2758,3 +2758,13 @@ https://www.nexusmods.com/queensdomain/mods/24
 而且这个差不多就是官方easy模式，其实有点破坏原本的设计，不那么推荐
 理论上武器威力都是够用的，需要熟悉不同武器的走位方法
 
+
+*****
+
+####  瑟莉亚  
+##### 197#       发表于 2026-11-7 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481696&amp;ptid=2293096" target="_blank">pgain2004 发表于 2026-11-7 22:22</a>
+还有一个书孔，在楼上魔石雕像旁边</blockquote>
+感谢，可以了。没想到不是在同一层。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
