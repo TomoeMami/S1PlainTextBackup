@@ -620,3 +620,24 @@ MuMu-20261107-005506-901.jpg
 就这点小事还全世界同步？</blockquote>
 不都是这样的吗，大的从来都是藏着掖着，保底和1000石头都是毫无征兆的放出来，大张旗鼓的怎么可能有好东西<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21767#       发表于 2026-11-7 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480595&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-11-7 16:05</a>
+
+不都是这样的吗，大的从来都是藏着掖着，保底和1000石头都是毫无征兆的放出来，大张旗鼓的怎么可能有好东 ...</blockquote>
+但是虽然 虽然但是 好歹送个15羁绊火或者3000的夫夫意思意思啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 21768#       发表于 2026-11-7 16:26
+
+<blockquote>alucardcz 发表于 2026-11-7 16:19
+但是虽然 虽然但是 好歹送个15羁绊火或者3000的夫夫意思意思啊</blockquote>
+爹服：你说的什么东西我怎么从来没听说过
+
