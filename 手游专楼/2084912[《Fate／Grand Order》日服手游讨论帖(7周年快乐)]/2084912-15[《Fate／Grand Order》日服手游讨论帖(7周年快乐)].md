@@ -652,3 +652,11 @@ MuMu-20261107-005506-901.jpg
 爹服：你说的什么东西我怎么从来没听说过</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这难道就是全球同步的真正理由马
 
+
+*****
+
+####  森兰丸  
+##### 21770#       发表于 2026-11-7 16:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该怎么办
+
