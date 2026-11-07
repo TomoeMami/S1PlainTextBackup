@@ -10364,7 +10364,7 @@
     "newtitle": "[拷贝漫画凉了吗？]",
     "lastedit": 1793753168,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2088269": {
@@ -13491,12 +13491,12 @@
     "update": false
   },
   "2286687": {
-    "totalreply": 2126,
+    "totalreply": 2133,
     "title": "[开个帖子，记录一下打海猫鸣泣之时的感想]",
     "newtitle": "[开个帖子，记录一下打海猫鸣泣之时的感想]",
-    "lastedit": 1793723166,
+    "lastedit": 1794012365,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2271287": {
@@ -13626,10 +13626,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 41462,
+    "totalreply": 41466,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1794011888,
+    "lastedit": 1794012486,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17640,10 +17640,10 @@
     "update": false
   },
   "2293244": {
-    "totalreply": 133,
+    "totalreply": 134,
     "title": "[10 月份北京所有高尔夫球场主要负责人开会，后续高尔夫球场或将关停整改。]",
     "newtitle": "[10 月份北京所有高尔夫球场主要负责人开会，后续高尔夫球场或将关停整改。]",
-    "lastedit": 1793968206,
+    "lastedit": 1794012365,
     "category": "外野",
     "active": true,
     "update": false
@@ -17793,19 +17793,19 @@
     "update": false
   },
   "2293096": {
-    "totalreply": 133,
+    "totalreply": 134,
     "title": "[安利一下女王领域（Queen´s Domain）内含剧透]",
     "newtitle": "[安利一下女王魔域（Queen´s Domain）内含剧透]",
-    "lastedit": 1793993765,
+    "lastedit": 1794012125,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2293275": {
-    "totalreply": 109,
+    "totalreply": 110,
     "title": "[不行啊坛友们，人到中年还是撸管频繁，一看＊＊一看擦边漫就想要]",
     "newtitle": "[不行啊坛友们，人到中年还是撸管频繁，一看＊＊一看擦边漫就想要]",
-    "lastedit": 1793977685,
+    "lastedit": 1794012125,
     "category": "外野",
     "active": true,
     "update": false
@@ -17865,10 +17865,10 @@
     "update": false
   },
   "2293276": {
-    "totalreply": 76,
+    "totalreply": 77,
     "title": "[在没违反交规的情况下，遇到其他司机大声骂你，会选择反击吗？]",
     "newtitle": "[在没违反交规的情况下，遇到其他司机大声骂你，会选择反击吗？]",
-    "lastedit": 1793970726,
+    "lastedit": 1794012005,
     "category": "外野",
     "active": true,
     "update": false
@@ -18072,10 +18072,10 @@
     "update": false
   },
   "2293376": {
-    "totalreply": 82,
+    "totalreply": 83,
     "title": "[结婚到底怎么结]",
     "newtitle": "[结婚到底怎么结]",
-    "lastedit": 1793999165,
+    "lastedit": 1794012365,
     "category": "外野",
     "active": true,
     "update": false
@@ -18099,10 +18099,10 @@
     "update": false
   },
   "2293342": {
-    "totalreply": 59,
+    "totalreply": 60,
     "title": "[旧的游戏机 是留着 还是卖掉？]",
     "newtitle": "[旧的游戏机 是留着 还是卖掉？]",
-    "lastedit": 1794009005,
+    "lastedit": 1794012485,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -18261,10 +18261,10 @@
     "update": false
   },
   "2293412": {
-    "totalreply": 62,
+    "totalreply": 64,
     "title": "[仰望U9X认证无定语世界极速 503.17km时速 仰望U9X #DriveTo500 一镜到底！]",
     "newtitle": "[仰望U9X认证无定语世界极速 503.17km时速 仰望U9X #DriveTo500 一镜到底！]",
-    "lastedit": 1793995325,
+    "lastedit": 1794012125,
     "category": "外野",
     "active": true,
     "update": false
@@ -18311,6 +18311,15 @@
     "newtitle": "[诸位 我用AI复活了老软件MangaMeeya]",
     "lastedit": 1793990285,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2172600": {
+    "totalreply": 87,
+    "title": "[gal归漫同级生2重制版2024年6月28号发售]",
+    "newtitle": "[gal归漫同级生2重制版2024年6月28号发售]",
+    "lastedit": 1794012486,
+    "category": "漫区",
     "active": true,
     "update": false
   }

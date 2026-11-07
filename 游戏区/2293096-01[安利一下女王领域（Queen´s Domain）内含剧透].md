@@ -2082,3 +2082,11 @@ https://www.artstation.com/artwork/8e2BXx
 
 玩了两小时 堆怪有点难顶
 
+
+*****
+
+####  Algie  
+##### 134#       发表于 2026-11-7 08:39
+
+不知道会不会有人把地图导出来放在noclip.website之类的网页端供人观摩
+
