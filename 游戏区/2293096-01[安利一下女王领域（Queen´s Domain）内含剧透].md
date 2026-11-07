@@ -2522,3 +2522,40 @@ https://queensdomainwiki.sbs/en
 
 还有，屏幕四个角上有一层雾气是咋回事？有办法消掉吗？
 
+
+*****
+
+####  MTDlnZc  
+##### 175#       发表于 2026-11-7 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480734&amp;ptid=2293096" target="_blank">ziyuan327 发表于 2026-11-7 16:54</a>
+问一下，我看别人的视频里，生锈长矛可以向前冲刺，我按右键怎么是往后退的？
+
+还有，屏幕四个角上有一层雾 ...</blockquote>
+锈长矛那个可能是他在用圣剑冲刺，圣剑不切出来也可以冲刺
+第二个四角的雾气 可能是你装备了魔法书给的世界赐福戒指，能给一次免伤的那个。四角的雾气代表你身上有护盾能免伤
+
+—— 来自 vivo V2301A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tatara  
+##### 176#       发表于 2026-11-7 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480734&amp;ptid=2293096" target="_blank">ziyuan327 发表于 2026-11-7 16:54</a>
+
+问一下，我看别人的视频里，生锈长矛可以向前冲刺，我按右键怎么是往后退的？
+
+还有，屏幕四个角上有一层雾 ...</blockquote>
+你是不是用了彩蛋装备里的那个世界赐福指环，雾气就是这个戒指抵挡一次攻击的护盾，被打一下就会消失，几秒后又会再生成。
+
+
+*****
+
+####  ziyuan327  
+##### 177#       发表于 2026-11-7 17:12
+
+原来如此，多谢楼上的了。
+
+彩蛋给的枪真是给力，前期玩得毫无压力，游戏体验直接上升。
+
