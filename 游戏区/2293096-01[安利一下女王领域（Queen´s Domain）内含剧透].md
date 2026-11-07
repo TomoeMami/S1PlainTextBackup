@@ -2638,3 +2638,14 @@ V  P  N</blockquote>
 
 刚准备买了受苦，打折没了，先不受苦了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Shu-Stella  
+##### 186#       发表于 2026-11-7 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481115&amp;ptid=2293096" target="_blank">ziyuan327 发表于 2026-11-7 19:07</a>
+
+好气啊，无意中从初始地点那口井跑进地底世界，里面的怪都好肉啊，但我有枪在手怕个球，一路上biubiubiu杀 ...</blockquote>
+一般这种遇到打不过的怪就说明不是该来的时候，第一件事先找到出口。
+

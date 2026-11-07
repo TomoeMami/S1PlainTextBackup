@@ -6744,3 +6744,13 @@ ai真好用，把274张图片整成个pdf了~
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  隔壁老黄  
+##### 627#       发表于 2026-11-7 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481359&amp;ptid=2283081" target="_blank">u2deack 发表于 2026-11-7 20:30</a>
+要有分队的话不是也得给他们刷一下各种幻兵，虽然也不是很麻烦但是有点懒得管，不过我玩的普通难度应该也 ...</blockquote>
+没有，只有黑白女主会短时间交替不在队
+
