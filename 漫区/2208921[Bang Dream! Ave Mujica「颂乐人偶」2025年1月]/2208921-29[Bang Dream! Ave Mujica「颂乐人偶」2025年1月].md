@@ -322,3 +322,62 @@ Ave Mujica重新出道后，祥子正构思着下一场假面舞会。
 #BanGDream# #OurNotes# #交织的乐章#</blockquote>
        [https://www.bilibili.com/video/BV1TC4q6XE2x](https://www.bilibili.com/video/BV1TC4q6XE2x)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42198#       发表于 2026-11-7 18:48
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/07/184811xyy6lkcwzbjlkllp.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-07_18-47-13.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:48 上传
+
+       [https://x.com/bang_dream_on/status/2118993861402104264](https://x.com/bang_dream_on/status/2118993861402104264)
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/07/184811w26prw5fp1w6rzfr.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-07_18-47-46.png</strong> (557.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:48 上传
+
+       [https://t.bilibili.com/1267894963789627432](https://t.bilibili.com/1267894963789627432)
+
+*****
+
+####  堀内爱里衣  
+##### 42199#       发表于 2026-11-7 18:49
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/07/184936znfhnynhh21gf2rn.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-07_18-49-14.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:49 上传
+
+       [https://x.com/bang_dream_on/status/2118994365116715032](https://x.com/bang_dream_on/status/2118994365116715032)
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/07/184935j1lu3hw8s930wn3l.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-07_18-48-45.png</strong> (603.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:49 上传
+
+       [https://t.bilibili.com/1267896252322807840](https://t.bilibili.com/1267896252322807840)
+
