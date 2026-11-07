@@ -6730,3 +6730,17 @@ ai真好用，把274张图片整成个pdf了~
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  u2deack  
+##### 626#       发表于 2026-11-7 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481349&amp;ptid=2283081" target="_blank">黑暗之眼 发表于 2026-11-7 20:26</a>
+这游戏不光板凳，连强行分队走的都可以拿100%经验和MRP，不需要担心这个
+
+—— 来自 HUAWEI PLA-AL10, An ...</blockquote>
+要有分队的话不是也得给他们刷一下各种幻兵，虽然也不是很麻烦但是有点懒得管，不过我玩的普通难度应该也无所谓就是了，到时候随便装应该也能打过
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

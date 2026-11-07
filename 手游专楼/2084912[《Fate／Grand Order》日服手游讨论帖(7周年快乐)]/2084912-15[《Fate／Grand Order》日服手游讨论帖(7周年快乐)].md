@@ -750,3 +750,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 甚至没有限定五星自选<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21780#       发表于 2026-11-7 20:30
+
+这掉落 体力没地方用也不刷这本啊？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
