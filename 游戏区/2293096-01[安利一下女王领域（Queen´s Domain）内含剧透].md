@@ -2436,3 +2436,11 @@ https://www.artstation.com/artwork/8e2BXx
 
 —— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  vidomina  
+##### 167#         楼主| 发表于 2026-11-7 15:48
+
+提灯和发光果小果都一般，不知道联动武器的hark的灯锤有没效果<img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
