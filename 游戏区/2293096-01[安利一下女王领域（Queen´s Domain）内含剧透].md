@@ -2444,3 +2444,22 @@ https://www.artstation.com/artwork/8e2BXx
 
 提灯和发光果小果都一般，不知道联动武器的hark的灯锤有没效果<img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Shu-Stella  
+##### 168#       发表于 2026-11-7 16:00
+
+商店卖的第四个三叉戟钥匙有什么用？买了但是一直没找到有什么地方能插，还是说其实流程还没到需要用的时候，我才刚到墓地图。
+
+
+*****
+
+####  nitrome  
+##### 169#       发表于 2026-11-7 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480582&amp;ptid=2293096" target="_blank">Shu-Stella 发表于 2026-11-7 16:00</a>
+
+商店卖的第四个三叉戟钥匙有什么用？买了但是一直没找到有什么地方能插，还是说其实流程还没到需要用的时候 ...</blockquote>
+先买了拿着，后期有用
+
