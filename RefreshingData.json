@@ -13247,15 +13247,6 @@
     "active": false,
     "update": false
   },
-  "2252073": {
-    "totalreply": 317,
-    "title": "[2026年奥特曼系列60周年 新奥「ULTRAMAN TEO」]",
-    "newtitle": "[2026年奥特曼系列60周年 新奥「ULTRAMAN TEO」]",
-    "lastedit": 1792882925,
-    "category": "漫区",
-    "active": false,
-    "update": false
-  },
   "2283740": {
     "totalreply": 473,
     "title": "[看到一个关于南北榜案的新说法，有无道理呢]",
@@ -18418,6 +18409,15 @@
     "title": "[推漫：地狱乐园]",
     "newtitle": "[推漫：地狱乐园]",
     "lastedit": 1794070568,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2252073": {
+    "totalreply": 313,
+    "title": "[2026年奥特曼系列60周年 新奥「ULTRAMAN TEO」]",
+    "newtitle": "[2026年奥特曼系列60周年 新奥「ULTRAMAN TEO」]",
+    "lastedit": 1794092769,
     "category": "漫区",
     "active": true,
     "update": false
