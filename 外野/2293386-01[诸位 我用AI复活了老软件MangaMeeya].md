@@ -538,3 +538,14 @@ Honeywiew有个同公司出的后继者Bandiview，部分功能收费，相比ho
 
 —— 来自 OPPO PCCM00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  革萌  
+##### 51#         楼主| 发表于 2026-11-8 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481979&amp;ptid=2293386" target="_blank">sagat.raid 发表于 2026-11-8 00:05</a>
+
+试了下好像对x64的RAR包还是不太支持的样子？</blockquote>
+增加了RAR5的支持
+

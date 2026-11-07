@@ -4733,3 +4733,11 @@ youtube在我这唯一作用就是测试网是不是掉了<img src="https://stat
 
 晚上干一个活大肥鱼执行任务直接把我的的代理节点池改了，而且不知不觉还改了我的一个端口，虽然整个活做挺好的，但还是没绷住<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lazia  
+##### 19656#       发表于 2026-11-8 01:40
+
+既然Hermes主动露屁股了，准备全面转DSH<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不知道有什么好用的记忆插件。
+
