@@ -2160,3 +2160,46 @@ https://www.artstation.com/artwork/8e2BXx
 全蛋我是随缘搜集了。推荐你先收集一些头骨，去换一个石化鸭鸭（换这个不需要太多），让商人卖给你灵视面 ...</blockquote>
 就是头骨不知道再哪收集啊。。。结局2打完了，好像头骨都只看到3个 ，换鸭子要多少个头骨？
 
+
+*****
+
+####  vidomina  
+##### 142#         楼主| 发表于 2026-11-7 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479908&amp;ptid=2293096" target="_blank">zhoulovely 发表于 2026-11-7 11:47</a>
+
+就是头骨不知道再哪收集啊。。。结局2打完了，好像头骨都只看到3个 ，换鸭子要多少个头骨？ ...</blockquote>
+感觉一个就够了吧
+
+*****
+
+####  zhoulovely  
+##### 143#       发表于 2026-11-7 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479920&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-7 11:53</a>
+
+感觉一个就够了吧</blockquote>
+没，我起码交了3个都无事发生
+
+
+*****
+
+####  zhoulovely  
+##### 144#       发表于 2026-11-7 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479920&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-7 11:53</a>
+
+感觉一个就够了吧</blockquote>
+结局3还要全蛋是嘛？残卷我都还有剩下几个没用上，不知道蛋是到数量就行还是非得全收集
+
+
+*****
+
+####  vidomina  
+##### 145#         楼主| 发表于 2026-11-7 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479922&amp;ptid=2293096" target="_blank">zhoulovely 发表于 2026-11-7 11:53</a>
+
+没，我起码交了3个都无事发生</blockquote>
+要这么多吗<img src="https://static.stage1st.com/image/smiley/face2017/026.png">，我好像是攒了16个吧去交的给了。
+
