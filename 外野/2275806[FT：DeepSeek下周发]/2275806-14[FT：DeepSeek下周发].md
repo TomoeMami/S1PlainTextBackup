@@ -4177,3 +4177,36 @@ qoder cn没上吗？
 看来Qwen 4没跳</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">原来qwen不读千问而是鲲
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19602#       发表于 2026-11-7 07:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479106&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-7 02:01</a>
+但是qwen好歹也是国模技术第二
+
+—— 来自 HONOR BRT-AN00, Android 17, 鹅球 v3.5.99-alpha ...</blockquote>
+千问算不上第二，第二是kimi
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  awy002  
+##### 19603#       发表于 2026-11-7 07:51
+
+<blockquote>なるぼど 发表于 2026-11-6 21:03
+楼里有没有用tripo会员的，你们都是定什么档的，我想搞个包年810的，这个划算不坛友们。
+
+—— 来自 S1Fun ...</blockquote>
+看你用来干啥了，我感觉虽然一眼可以真的细看还有很多问题，还有贴图你可能得让ai再算一遍，总之有公司用的我建议可以用
+
+
+*****
+
+####  FeteFete  
+##### 19604#       发表于 2026-11-7 07:54
+
+有人订阅了grok bot，了么，有啥用
+
