@@ -4492,3 +4492,11 @@ dax骗钱大王啊，还行不行了
 
 光炸不出新东西也不给补偿 <img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  辞冬  
+##### 19635#       发表于 2026-11-7 17:56
+
+Gemini聊天问点诗词歌词都不给放全文让自己搜，要你何用<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
