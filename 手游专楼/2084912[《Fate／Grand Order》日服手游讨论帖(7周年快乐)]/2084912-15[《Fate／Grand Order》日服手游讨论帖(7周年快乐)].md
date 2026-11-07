@@ -585,3 +585,19 @@ MuMu-20261107-005506-901.jpg
 
 选个黑狗吧，也就这个有点强度了。
 
+
+*****
+
+####  quanlix  
+##### 21763#       发表于 2026-11-7 14:38
+
+梅老板这不给个超绝强化本？
+
+
+*****
+
+####  qixinno1  
+##### 21764#       发表于 2026-11-7 14:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不如强化CBA吧 难道梅林还能强化个3技能减CD
+
