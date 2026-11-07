@@ -2695,3 +2695,16 @@ V  P  N</blockquote>
 
 后来不死心，又下去，来回死了好几趟，总算摸清了各种敌人的路数，花了一晚上，已经把枪升满了，果断捏水晶走人。
 
+
+*****
+
+####  pgain2004  
+##### 191#       发表于 2026-11-7 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481598&amp;ptid=2293096" target="_blank">ziyuan327 发表于 2026-11-7 21:54</a>
+能给一个怪刷新改到3小时的mod链接吗？到处跑图探索本来就很费时间，实在受不了隔一会儿刷一次怪了。 ...</blockquote>
+https://www.nexusmods.com/queensdomain/mods/24
+
+180分钟是默认值，自己按喜好改
+看了一下新版增加了休息也不刷新选项（这个就有点过了，当然最后阶段搞纯收集时能开一下）
+
