@@ -4811,3 +4811,20 @@ r1时期就有人搞这种阴湿的破事
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  umamusume  
+##### 19664#       发表于 2026-11-8 07:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481018&amp;ptid=2275806" target="_blank">なるぼど 发表于 2026-11-7 18:34</a>
+大佬们，我codex蹬太猛，上传流量用太多，机场用了五六百g了，有点抗不住，你们是怎么解决的
+
+—— 来自 S1 ...</blockquote>
+1.生图让他发webp p90给你，用过一次就丢
+2.需要生图的任务让他开子代理做，做完就关
+3.图太多的会话直接重开
+流量多是因为超过16m不走websocket，每次都全量上传不走增量，前面都没回复到点子上
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
