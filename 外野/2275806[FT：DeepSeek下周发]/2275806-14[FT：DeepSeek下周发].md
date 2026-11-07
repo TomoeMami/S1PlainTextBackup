@@ -4301,3 +4301,13 @@ NousResearch 这整的活可太招笑了</blockquote>
 
 终于知道为什么都说ds是吃白饭的大肥鱼了，在hermes里干活没感觉，框框干，最近把工作流迁移到dsh了，整天就是偷懒，猜测，糊弄，干一半说干完了还说跑了校验。
 
+
+*****
+
+####  果壳中的松鼠  
+##### 19614#       发表于 2026-11-7 15:06
+
+ds官网是不是又炸了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
