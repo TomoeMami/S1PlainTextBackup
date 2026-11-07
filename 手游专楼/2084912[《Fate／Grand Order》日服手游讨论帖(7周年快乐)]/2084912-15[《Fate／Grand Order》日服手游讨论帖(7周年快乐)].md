@@ -783,3 +783,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 鬼迷心窍选了尻枪，但上线第一发终于出了剑心
 
+
+*****
+
+####  都谷捻柏  
+##### 21783#       发表于 2026-11-7 21:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">选的黑玛丽，等一个灵衣。
+
