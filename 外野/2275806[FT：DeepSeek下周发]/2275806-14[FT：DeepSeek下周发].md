@@ -4758,3 +4758,22 @@ r1时期就有人搞这种阴湿的破事
 
 发生啥了？
 
+
+*****
+
+####  rachepatty  
+##### 19659#       发表于 2026-11-8 02:38
+
+19598楼有翻译后的X截图
+典型的价值观和种族骑士，不得不骂一声，什么白皮猴子就懂这些 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  阿刚  
+##### 19660#       发表于 2026-11-8 02:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">用中国开源模型蒸馏了个符合西方价值观的模型，而且教师模型可能还是中国的，这是什么抽象行为艺术
+
