@@ -524,3 +524,56 @@ MuMu-20261107-005506-901.jpg
 
 爹服把奖励泄完了，也拉完了
 
+
+*****
+
+####  Jamaisvu  
+##### 21760#       发表于 2026-11-7 08:58
+
+美服偷跑奖励：
+
+<img src="https://img.stage1st.com/forum/202611/07/085428m8z11g9le81ag2we.jpg" referrerpolicy="no-referrer">
+
+<strong>1794012805009.jpg</strong> (513.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-7 08:54 上传
+
+<img src="https://img.stage1st.com/forum/202611/07/085429txllkgvgb4yl3bx8.jpg" referrerpolicy="no-referrer">
+
+<strong>1794012808071.jpg</strong> (381.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-7 08:54 上传
+
+<img src="https://img.stage1st.com/forum/202611/07/085429gqklq1fjjjl1b3mu.jpg" referrerpolicy="no-referrer">
+
+<strong>1794012812866.jpg</strong> (300.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-7 08:54 上传
+
+三天登录发60石头一圣杯，做任务给30石头一礼装，还有庆祝活动给10石。
+
+话说自选非限定五星没有娄希和但丁，应该和各服进度有关吧...
+
+
+*****
+
+####  angelooo  
+##### 21761#       发表于 2026-11-7 09:01
+
+<blockquote>Jamaisvu 发表于 2026-11-7 08:58
+美服偷跑奖励：
+
+</blockquote>
+爹服还没实装娄希
+
+我甚至怀疑要是实装了就没这个自选了23333
+
