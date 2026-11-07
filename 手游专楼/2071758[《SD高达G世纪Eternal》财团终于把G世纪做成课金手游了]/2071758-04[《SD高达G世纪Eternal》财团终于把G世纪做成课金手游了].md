@@ -16,3 +16,16 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  洛克萨斯  
+##### 4960#       发表于 2026-11-7 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480010&amp;ptid=2071758" target="_blank">冰风血羽 发表于 2026-11-7 12:17</a>
+
+需要满星吗，这俩我正好有
+
+—— 来自 realme RMX6699, Android 16, 鹅球 v4.0.100-alpha ...</blockquote>
+有就行，伤害差一点也就慢一点
+
