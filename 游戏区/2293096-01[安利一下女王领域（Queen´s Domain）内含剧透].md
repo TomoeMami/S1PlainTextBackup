@@ -2868,3 +2868,36 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  madnesshare  
+##### 207#       发表于 2026-11-8 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482006&amp;ptid=2293096" target="_blank">28201 发表于 2026-11-8 00:15</a>
+
+水上区域从蜈蚣那个断桥飞两次就过去了啊。倒是拿蛋那里我以为一开始有了飞剑就能拿，掉海里无数次。后来加 ...</blockquote>
+初始地图有2个冲刺吗？我转了好多地方，没找到增加第二个冲刺的宝物啊
+
+
+*****
+
+####  zzf111  
+##### 208#       发表于 2026-11-8 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482049&amp;ptid=2293096" target="_blank">madnesshare 发表于 2026-11-8 00:30</a>
+
+初始地图有2个冲刺吗？我转了好多地方，没找到增加第二个冲刺的宝物啊</blockquote>
+二飞在本岛第二个保存点（小墓地）附近高处的亭子里
+
+
+*****
+
+####  pgain2004  
+##### 209#       发表于 2026-11-8 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482049&amp;ptid=2293096" target="_blank">madnesshare 发表于 2026-11-8 00:30</a>
+初始地图有2个冲刺吗？我转了好多地方，没找到增加第二个冲刺的宝物啊</blockquote>
+提示，短剑冲刺或者商店拳套升龙都是加冲程/上升滞空利器，多应用可以早去很多地方
+武器切换推荐直接设成123对应三把武器的形式（而不是12来回切换），这样可以奔跑跳+拳套升空+风冲+武器冲刺，飞越距离会远很多
+
