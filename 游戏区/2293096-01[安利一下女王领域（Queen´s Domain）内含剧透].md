@@ -2953,3 +2953,25 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 白树守卫也是被鱼人的爪形钥匙给锁住的。
 
+
+*****
+
+####  panandhao  
+##### 214#       发表于 2026-11-8 03:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482218&amp;ptid=2293096" target="_blank">三度音 发表于 2026-11-8 02:37</a>
+为什么投掷物 奇特方块 就安排了一个特殊的解密雷神沃达索强化，
+
+而同样特殊的投掷物 白树守卫的果实 却没 ...</blockquote>
+感觉白树像是某种贝奥瓦海民的原始信仰，三叉戟钥匙有点像从远古流传至今，开启贝奥瓦王室圣地的圣物？（无论是神庙、石化花园、白树神殿，都可以使用）
+
+按之前梳理的逻辑来推，四神信仰是目前这个时代的人所信奉的，说不定现在贝奥瓦信仰的吉格基前身就是白树，只不过在这个时代，白树的信众被边缘化了。
+
+这种边缘化，或许也跟腐朽洞窟常年被装置腐化，白树本身也遭受腐蚀有关？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+仔细看腐朽洞窟石壁，上面其实还画了有很多描绘深海、化石什么的线条艺术（记录贝奥瓦远古历史的？）……只不过这地方早就住不了正常人，鱼人们都已经搬到地上了，看样子也就有点朝圣者跑来跑去。
+
+只能说现在沃达索日子混的还是太好了，有一整个大厅供着他，一块圣石都有升级的待遇<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
