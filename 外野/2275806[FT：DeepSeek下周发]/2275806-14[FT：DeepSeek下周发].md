@@ -4714,3 +4714,14 @@ youtube在我这唯一作用就是测试网是不是掉了<img src="https://stat
 晚高峰断线重连到你怀疑人生。AI Agent对网络要求和流媒体相当，一旦卡起来那可能根本就动不了，不是刷网 ...</blockquote>
 500G流量用完你起码烧了100亿token咯
 
+
+*****
+
+####  千千千千鸟  
+##### 19654#       发表于 2026-11-8 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481938&amp;ptid=2275806" target="_blank">aiyouo 发表于 2026-11-7 23:53</a>
+
+说到梯子，又没有好使的，我那个最近几个月高峰必卡，非高峰时不时卡，难受死了 ...</blockquote>
+直接让AGENT去搜就行了。现在有各种测评站啥的，我之前也是300G一不小心用完了，紧急去测评站点了两下筛选随便找了个高分的临时买了一个月，
+
