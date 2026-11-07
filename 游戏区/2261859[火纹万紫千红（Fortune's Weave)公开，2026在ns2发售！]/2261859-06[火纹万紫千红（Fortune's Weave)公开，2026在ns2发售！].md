@@ -11889,3 +11889,16 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 关于高级武器箱，我不知道是不是前面两条线我没在意，我到女王线的时候才发现商会那里可以换4个高级武器箱 ...</blockquote>
 商会换武器箱我印象里是女王线专属的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Antidote丶  
+##### 8534#       发表于 2026-11-8 02:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482033&amp;ptid=2261859" target="_blank">57042711 发表于 2026-11-8 00:25</a>
+
+女王篇第一部一定记得招点马戏团，就是主角老家那个B级大范围加血的…后面很有用可以拿来清瘴气灭火啥的 ...</blockquote>
+我好像一个马戏团都没招到，利贝拉村还是？？？。
+
+回合太赶了，没办法
+
