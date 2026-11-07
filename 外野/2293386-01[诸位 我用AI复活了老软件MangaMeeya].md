@@ -487,3 +487,16 @@ mangameeya搭配上漫画下载器真的绝了，十几年前一直这么用。�
 
 不明觉厉
 
+
+*****
+
+####  password  
+##### 46#       发表于 2026-11-7 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70478793&amp;ptid=2293386" target="_blank">evincar 发表于 2026-11-6 23:06</a>
+
+那么现在主流是啥，honeywiew吗</blockquote>
+Honeywiew有个同公司出的后继者Bandiview，部分功能收费，相比honeywiew加了很多新格式支持像AVIF和JXL，还加了HDR和DPI感知等功能，最新版avif的打开速度改进了很多
+
+还有就是开源的Neeview，功能很多，但我是用不习惯
+

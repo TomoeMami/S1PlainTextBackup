@@ -4210,3 +4210,16 @@ qoder cn没上吗？
 
 有人订阅了grok bot，了么，有啥用
 
+
+*****
+
+####  warlock228  
+##### 19605#       发表于 2026-11-7 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479280&amp;ptid=2275806" target="_blank">FeteFete 发表于 2026-11-7 07:54</a>
+
+有人订阅了grok bot，了么，有啥用</blockquote>
+用来无痛去连opus5.5大人，这个玩意的概念是管家你发他任务他会判断并找对应的模型去做这件事有可能连到opus，不能自由选模型
+
+但是最近额度大砍，老马也算力不够了
+
