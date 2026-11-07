@@ -2667,3 +2667,31 @@ V  P  N</blockquote>
 
 测试了一下加速投掷武器的饰品效果，银手镯的效果比盗贼面具强一点点，大致上一个20%一个25%的样子，都带上可叠加，打boss时可以换一下
 
+
+*****
+
+####  ziyuan327  
+##### 189#       发表于 2026-11-7 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480881&amp;ptid=2293096" target="_blank">pgain2004 发表于 2026-11-7 17:42</a>
+
+具体时间是20分钟
+
+现在nexusmod上有mod可以改到180分钟（休息仍然复活）
+
+还有些诸如显示具体血量和伤害数 ...</blockquote>
+能给一个怪刷新改到3小时的mod链接吗？到处跑图探索本来就很费时间，实在受不了隔一会儿刷一次怪了。
+
+
+*****
+
+####  ziyuan327  
+##### 190#       发表于 2026-11-7 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481422&amp;ptid=2293096" target="_blank">Shu-Stella 发表于 2026-11-7 20:55</a>
+
+一般这种遇到打不过的怪就说明不是该来的时候，第一件事先找到出口。</blockquote>
+主要是有枪在手，给了我很大信心。
+
+后来不死心，又下去，来回死了好几趟，总算摸清了各种敌人的路数，花了一晚上，已经把枪升满了，果断捏水晶走人。
+

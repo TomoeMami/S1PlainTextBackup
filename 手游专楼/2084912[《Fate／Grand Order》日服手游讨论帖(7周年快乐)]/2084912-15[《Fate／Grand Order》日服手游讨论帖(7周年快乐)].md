@@ -791,3 +791,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">选的黑玛丽，等一个灵衣。
 
+
+*****
+
+####  qixinno1  
+##### 21784#       发表于 2026-11-7 21:50
+
+选的枪呆 各种池子扔石头都快扔出一个保底了都没出
+
