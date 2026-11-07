@@ -96,3 +96,22 @@ BGO把芝诺比阿从卡池里删了<img src="https://static.stage1st.com/image/
 
 这自选我竟然一个非常想选的都没有<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lcn  
+##### 48299#       发表于 2026-11-7 22:54
+
+剑双子
+弓特斯拉、源为潮
+枪弗栗多、怖军
+骑船长、魁扎尔、阿喀琉斯、欧罗巴、尼莫
+术山鲁佐德
+杀李书文、果心居士
+狂黑狗、伽拉忒亚
+仇尼托、仇玛丽
+志度内
+
+看看好像缺的不少，但实际上没什么想换的。
+请问下这里面有配得上用场的吗？山鲁佐德？
+

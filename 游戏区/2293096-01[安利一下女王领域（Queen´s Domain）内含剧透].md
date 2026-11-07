@@ -2738,3 +2738,23 @@ https://www.nexusmods.com/queensdomain/mods/24
 图书馆倒数第二层有个消除肉块才出现的门怎么开呢？同一层对面的塞本书就开了，这个塞了书没动静。 ...</blockquote>
 还有一个书孔，在楼上魔石雕像旁边
 
+
+*****
+
+####  luffy0085  
+##### 195#       发表于 2026-11-7 22:49
+
+开荒体验一言难尽，一开始用默认武器周旋，好不容易拿到冲刺剑后，发现有开局解锁枪械的办法。用了枪械以后发现这个枪的准星其实是骗人的，离得越近，准星越骗。而且二段冲刺后到水面那个地图，用枪能被鱼群啃得生活不能自理<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pgain2004  
+##### 196#       发表于 2026-11-7 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481768&amp;ptid=2293096" target="_blank">luffy0085 发表于 2026-11-7 22:49</a>
+开荒体验一言难尽，一开始用默认武器周旋，好不容易拿到冲刺剑后，发现有开局解锁枪械的办法。用了枪械以后 ...</blockquote>
+枪其实偏右点就行，熟悉了没什么难度
+而且这个差不多就是官方easy模式，其实有点破坏原本的设计，不那么推荐
+理论上武器威力都是够用的，需要熟悉不同武器的走位方法
+
