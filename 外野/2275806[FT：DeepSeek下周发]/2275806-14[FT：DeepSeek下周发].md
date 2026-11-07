@@ -4741,3 +4741,20 @@ youtube在我这唯一作用就是测试网是不是掉了<img src="https://stat
 
 既然Hermes主动露屁股了，准备全面转DSH<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不知道有什么好用的记忆插件。
 
+
+*****
+
+####  lactone  
+##### 19657#       发表于 2026-11-8 02:33
+
+r1时期就有人搞这种阴湿的破事
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  阿刚  
+##### 19658#       发表于 2026-11-8 02:33
+
+发生啥了？
+
