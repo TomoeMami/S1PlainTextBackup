@@ -48,3 +48,16 @@
 那个全网最细up整出了8射程的云活了</blockquote>
 哪个啊？
 
+
+*****
+
+####  jackyhuang  
+##### 4963#       发表于 2026-11-7 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481867&amp;ptid=2071758" target="_blank">zksandy 发表于 2026-11-7 23:30</a>
+哪个啊？</blockquote>
+守矢早苗吧
+搞游戏情报的结果游戏画面上体力常年999+被人说云也不奇怪
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

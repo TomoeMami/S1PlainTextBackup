@@ -2785,3 +2785,30 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 三叉戟刚拿到叉鱼都费力，打完一看图鉴都要斩击<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 鱼人倒是可以用，但我主要飞刀
 
+
+*****
+
+####  zzf111  
+##### 200#       发表于 2026-11-7 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481859&amp;ptid=2293096" target="_blank">郁哲 发表于 2026-11-7 23:28</a>
+
+这个给武器升级的设计真是破坏体验，武器好不容易升满进化了，然后拿到了新武器，是重新练新武器看看能不能 ...</blockquote>
+这游戏的三弟枪只用磨五级还是十级还好吧，刷海神殿4符文石门存档点附近的鱼人十分钟就能搞定
+
+流程上也不是必须的（虽然提前有了能省很多事）
+
+武器能质变的不多，其他武器练满级也不吃游戏资源
+
+不算几把生锈武器质变和祖宗剑实在太担架，从海区开始后面捡的武器体感80％也都是轮椅
+
+不做全武器满级成就的话用什么打都没压力的
+
+
+*****
+
+####  zzf111  
+##### 201#       发表于 2026-11-7 23:55
+
+凭直觉从？？？一路跑酷到上古界域，火车王拉了几里路仇恨 捡了科技飞刀开了个门进了两条（怀疑是传送空间的）隧道直接找到上古界域的飞翼传送点真是太好玩了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4697,3 +4697,20 @@ youtube在我这唯一作用就是测试网是不是掉了<img src="https://stat
 
 话说梁文锋的裤子也是蓝色西裤吗
 
+
+*****
+
+####  aiyouo  
+##### 19652#       发表于 2026-11-7 23:53
+
+说到梯子，又没有好使的，我那个最近几个月高峰必卡，非高峰时不时卡，难受死了
+
+*****
+
+####  startraveller  
+##### 19653#       发表于 2026-11-7 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481311&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-11-7 20:15</a>
+晚高峰断线重连到你怀疑人生。AI Agent对网络要求和流媒体相当，一旦卡起来那可能根本就动不了，不是刷网 ...</blockquote>
+500G流量用完你起码烧了100亿token咯
+
