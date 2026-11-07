@@ -11848,3 +11848,44 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 还有就是对很多人来说坐骑加成即使升到满也就能加那么一两点
 但进了大地图还是忍不住去刷坐骑刷采集，回家又要喂动物转职洗乱数，要不然整条凯伊线能随便乱杀的就只剩古大哥了
 
+
+*****
+
+####  57042711  
+##### 8530#       发表于 2026-11-8 00:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482036&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-11-8 00:26</a>
+在最后一条凯伊线用了下升级乱数推导，结果发现我的哈尔温无论怎么转职都不强
+还有就是对很多人来说坐骑加 ...</blockquote>
+建议还是直接野生马战车听天由命比较节约时间，这么多战车总有一个能打的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+哪怕是加入晚的努佐都可能变大哥…
+
+
+*****
+
+####  Humpy  
+##### 8531#       发表于 2026-11-8 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482036&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-11-8 00:26</a>
+在最后一条凯伊线用了下升级乱数推导，结果发现我的哈尔温无论怎么转职都不强
+还有就是对很多人来说坐骑加 ...</blockquote>
+我打凯伊线时古大哥反而长残了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然我是让他骑红鸟的，倒也不算太意外<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  reficul  
+##### 8532#       发表于 2026-11-8 00:47
+
+关于高级武器箱，我不知道是不是前面两条线我没在意，我到女王线的时候才发现商会那里可以换4个高级武器箱？？相当于我前面两条线少拿了合计8把雷电剑/净化剑= =天呐
+
+*****
+
+####  Humpy  
+##### 8533#       发表于 2026-11-8 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482083&amp;ptid=2261859" target="_blank">reficul 发表于 2026-11-8 00:47</a>
+关于高级武器箱，我不知道是不是前面两条线我没在意，我到女王线的时候才发现商会那里可以换4个高级武器箱 ...</blockquote>
+商会换武器箱我印象里是女王线专属的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
