@@ -2812,3 +2812,18 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 凭直觉从？？？一路跑酷到上古界域，火车王拉了几里路仇恨 捡了科技飞刀开了个门进了两条（怀疑是传送空间的）隧道直接找到上古界域的飞翼传送点真是太好玩了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 202#       发表于 2026-11-8 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481768&amp;ptid=2293096" target="_blank">luffy0085 发表于 2026-11-7 22:49</a>
+
+开荒体验一言难尽，一开始用默认武器周旋，好不容易拿到冲刺剑后，发现有开局解锁枪械的办法。用了枪械以后 ...</blockquote>
+汉皮枪的准星左偏，一般打怪朝左多描一些就行
+
+鱼群那里一开始没啥aoe手段确实不好打，前期能捡到的要么是祖宗飞剑满级质变和海底捡到的魔力锤
+
+要么彩蛋码里的幽灵长矛或辐射剑那些
+

@@ -508,3 +508,11 @@ Honeywiew有个同公司出的后继者Bandiview，部分功能收费，相比ho
 
 我win10还在用这个软件看漫画，功能直观界面干净<img src="https://static.stage1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sagat.raid  
+##### 48#       发表于 2026-11-8 00:05
+
+试了下好像对x64的RAR包还是不太支持的样子？
+
