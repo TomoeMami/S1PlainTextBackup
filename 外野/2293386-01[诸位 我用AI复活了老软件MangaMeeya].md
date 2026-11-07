@@ -549,3 +549,13 @@ Honeywiew有个同公司出的后继者Bandiview，部分功能收费，相比ho
 试了下好像对x64的RAR包还是不太支持的样子？</blockquote>
 增加了RAR5的支持
 
+
+*****
+
+####  WiiGe  
+##### 52#       发表于 2026-11-8 02:09
+
+[https://github.com/leopck/MangaMeeya/tree/master](https://github.com/leopck/MangaMeeya/tree/master)
+
+考虑不用补丁而是直接改进代码来重新编译一份现代的64位和ARM版本吗?
+

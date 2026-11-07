@@ -2920,3 +2920,16 @@ https://www.nexusmods.com/queensdomain/mods/24
 初始地图有2个冲刺吗？我转了好多地方，没找到增加第二个冲刺的宝物啊</blockquote>
 就楼上说的那个地方，第二个水晶往左手边看就能看到那个亭子，从对面楼梯跳过去
 
+
+*****
+
+####  zzf111  
+##### 212#       发表于 2026-11-8 02:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481648&amp;ptid=2293096" target="_blank">瑟莉亚 发表于 2026-11-7 22:08</a>
+
+图书馆倒数第二层有个消除肉块才出现的门怎么开呢？同一层对面的塞本书就开了，这个塞了书没动静。 ...</blockquote>
+那个次顶层 锁住的门（长廊空间）除了附近的书架 在顶层的路尽头还有一个空位可以放书
+
+一开始我也没头绪找了攻略才知道
+
