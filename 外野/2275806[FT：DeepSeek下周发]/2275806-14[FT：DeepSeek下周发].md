@@ -4311,3 +4311,50 @@ ds官网是不是又炸了<img src="https://static.stage1st.com/image/smiley/fac
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ov_efly  
+##### 19615#       发表于 2026-11-7 15:08
+
+炸了，最近是真有东西要上
+
+*****
+
+####  洛拉斯  
+##### 19616#       发表于 2026-11-7 15:08
+
+好了，确认Deepseek官方api炸那。我2个harness都**了
+
+*****
+
+####  绯色日照  
+##### 19617#       发表于 2026-11-7 15:09
+
+ds是不是又炸了，workbuddy上也用不了了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  洛拉斯  
+##### 19618#       发表于 2026-11-7 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480399&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-11-7 14:38</a>
+
+终于知道为什么都说ds是吃白饭的大肥鱼了，在hermes里干活没感觉，框框干，最近把工作流迁移到dsh了，整天 ...</blockquote>
+你全局提示词没设置好
+
+*****
+
+####  aiyouo  
+##### 19619#       发表于 2026-11-7 15:09
+
+难道说 大的要来了
+
+
+*****
+
+####  ov_efly  
+##### 19620#       发表于 2026-11-7 15:11
+
+快点恢复吧，还干活呢，明天不想干活
+
