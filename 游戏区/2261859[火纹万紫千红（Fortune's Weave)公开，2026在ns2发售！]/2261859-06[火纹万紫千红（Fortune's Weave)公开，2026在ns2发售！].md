@@ -11902,3 +11902,16 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 回合太赶了，没办法
 
+
+*****
+
+####  reficul  
+##### 8535#       发表于 2026-11-8 03:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482086&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-11-8 00:48</a>
+
+商会换武器箱我印象里是女王线专属的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">那就好，没亏就是赚
+
+我还震惊这么大四个箱子以前怎么就没发现
+

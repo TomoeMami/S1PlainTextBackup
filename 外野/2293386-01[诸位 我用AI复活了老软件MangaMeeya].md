@@ -559,3 +559,16 @@ Honeywiew有个同公司出的后继者Bandiview，部分功能收费，相比ho
 
 考虑不用补丁而是直接改进代码来重新编译一份现代的64位和ARM版本吗?
 
+
+*****
+
+####  sagat.raid  
+##### 53#       发表于 2026-11-8 03:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482161&amp;ptid=2293386" target="_blank">革萌 发表于 2026-11-8 01:38</a>
+
+增加了RAR5的支持</blockquote>
+打开正常了，目前还剩个小瑕疵是显示文件夹缩略图时，ZIP或者RAR5内内容如果是FLASH或WebP文件的话，无法形成缩略图。
+
+当然单击进去都是正常打开的，无伤大雅，未来如果还有别的修正的话可以考虑看看是否有办法再顺手补上？<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
