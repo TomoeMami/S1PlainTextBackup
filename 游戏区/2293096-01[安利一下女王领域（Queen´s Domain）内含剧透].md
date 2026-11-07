@@ -2270,3 +2270,17 @@ https://www.artstation.com/artwork/8e2BXx
 营地应该有传送功能可以解锁吧，开了几个地方不能传送太难受了</blockquote>
 营地的传送站，在哪个升降平台上面，不过前面到不了。
 
+
+*****
+
+####  panandhao  
+##### 152#       发表于 2026-11-7 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479908&amp;ptid=2293096" target="_blank">zhoulovely 发表于 2026-11-7 11:47</a>
+就是头骨不知道再哪收集啊。。。结局2打完了，好像头骨都只看到3个 ，换鸭子要多少个头骨？
+
+主要头骨不像 ...</blockquote>
+确实难搞，最后一个结局没有再打就是因为头骨藏的地方都太奇怪了。正常能收集的一些头骨，基本都被藏在了你得抬头去看的突出平台上，多去留意这些平时可以跳上去但感觉没什么必要去的地方
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
