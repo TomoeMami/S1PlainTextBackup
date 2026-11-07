@@ -4601,3 +4601,38 @@ Gemini聊天问点诗词歌词都不给放全文让自己搜，要你何用<img 
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19644#       发表于 2026-11-7 20:04
+
+现在ai伟力太强大了，一句话就能vibe汉化游戏，瘫坐在椅子上，仿佛看到原子弹爆炸
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  なるぼど  
+##### 19645#       发表于 2026-11-7 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481223&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-7 19:48</a>
+无解，加流量，开销比起token来说不值一提。
+
+论坛助手,iPhone</blockquote>
+那我服了，又搞了个1000g不知道能蹬多久。<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  なるぼど  
+##### 19646#       发表于 2026-11-7 20:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481172&amp;ptid=2275806" target="_blank">squallx2 发表于 2026-11-7 19:28</a>
+我的解决方案是你土鳖吹水视频切换到480 720P</blockquote>
+youtube在我这唯一作用就是测试网是不是掉了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -742,3 +742,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 反正我是毫无波澜的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 21779#       发表于 2026-11-7 20:02
+
+甚至没有限定五星自选<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
