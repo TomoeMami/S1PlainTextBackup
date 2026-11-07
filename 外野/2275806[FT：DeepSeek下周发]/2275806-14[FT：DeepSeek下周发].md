@@ -4520,3 +4520,17 @@ Gemini聊天问点诗词歌词都不给放全文让自己搜，要你何用<img 
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Promeus  
+##### 19638#       发表于 2026-11-7 19:06
+
+🔻根据**的报道，Anthropic 的达里奥 2014 年被诊断出睾丸癌，接受了化疗。
+🔻众所周知，睾丸癌治疗的第一步通常是根治性腹股沟睾丸切除术，即切除患侧的蛋。
+🔻所以达里奥是摘蛋之人？
+🔻达里奥本人拒绝接受这次《**》采访。
+#海外新鲜事#  #热点聚焦#  #美国AI禁令 科技股#  #美股历史性暴跌或影响金价# 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

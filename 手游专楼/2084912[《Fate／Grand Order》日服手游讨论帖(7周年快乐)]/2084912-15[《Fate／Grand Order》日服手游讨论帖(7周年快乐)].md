@@ -693,3 +693,14 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 太欧了 羡慕</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">非洲人如果像萌新有那么多5星可以养哪还会有这种烦恼
 
+
+*****
+
+####  alucardcz  
+##### 21774#       发表于 2026-11-7 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481068&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-11-7 18:47</a>
+
+非洲人如果像萌新有那么多5星可以养哪还会有这种烦恼</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是5星太多才会刷 我们非洲萌新 金苹果都是4位数起步的  从来不知道什么是刷 当然页不会溢出
+
