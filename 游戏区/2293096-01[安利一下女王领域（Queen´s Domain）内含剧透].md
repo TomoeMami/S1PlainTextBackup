@@ -2463,3 +2463,39 @@ https://www.artstation.com/artwork/8e2BXx
 商店卖的第四个三叉戟钥匙有什么用？买了但是一直没找到有什么地方能插，还是说其实流程还没到需要用的时候 ...</blockquote>
 先买了拿着，后期有用
 
+
+*****
+
+####  zhoulovely  
+##### 170#       发表于 2026-11-7 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480457&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-7 15:06</a>
+
+正在大书库第二个篝火打石像鬼书虫刷武器经验
+
+把4把生锈武器全升到10级变质成新的特殊武器了，数值还都很高 ...</blockquote>
+我觉得后面还有几个生锈武器，像是生锈斧头啥的，应该都能质变
+
+
+*****
+
+####  shimotsuki14  
+##### 171#       发表于 2026-11-7 16:13
+
+玛德，好不容易凑了20块钱，买了个晨星锤然后存了档
+然后就看到建议先搞投射武器的建议<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  zhoulovely  
+##### 172#       发表于 2026-11-7 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480539&amp;ptid=2293096" target="_blank">Algie 发表于 2026-11-7 15:41</a>
+
+https://queensdomainwiki.sbs/en
+
+女王魔域wiki</blockquote>
+问下，为什么我点这个链接最后会到**网站上
+
