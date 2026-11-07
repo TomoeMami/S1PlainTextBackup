@@ -2559,3 +2559,25 @@ https://queensdomainwiki.sbs/en
 
 彩蛋给的枪真是给力，前期玩得毫无压力，游戏体验直接上升。
 
+
+*****
+
+####  pgain2004  
+##### 178#       发表于 2026-11-7 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480343&amp;ptid=2293096" target="_blank">Algie 发表于 2026-11-7 14:15</a>
+虽然确实会随时间经过复活，但是体感其实得隔挺久才会复活，你说的这里应该是固定的剧情节点，从第一个墓 ...</blockquote>
+具体时间是20分钟
+现在nexusmod上有mod可以改到180分钟（休息仍然复活）
+还有些诸如显示具体血量和伤害数值、面向最近的隐藏门/银骷髅并显示距离、物品栏变两列、可拖曳装备物品等实用mod，挺不错的
+
+
+*****
+
+####  77BBC  
+##### 179#       发表于 2026-11-7 17:47
+
+其实是有自动存档的。游戏崩溃了几次重进后都在原位置
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
