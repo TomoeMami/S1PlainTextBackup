@@ -4636,3 +4636,30 @@ youtube在我这唯一作用就是测试网是不是掉了<img src="https://stat
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cody198879  
+##### 19647#       发表于 2026-11-7 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481287&amp;ptid=2275806" target="_blank">なるぼど 发表于 2026-11-7 20:06</a>
+那我服了，又搞了个1000g不知道能蹬多久。
+
+—— 来自 S1Fun</blockquote>
+几块钱的吹雪云良心云这种搞搞就好了
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  tillnight  
+##### 19648#       发表于 2026-11-7 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481305&amp;ptid=2275806" target="_blank">cody198879 发表于 2026-11-7 20:13</a>
+
+几块钱的吹雪云良心云这种搞搞就好了
+
+—— 来自 HONOR WKL-AN80, Android 17, 鹅球 v3.5.99-alpha ...</blockquote>
+晚高峰断线重连到你怀疑人生。AI Agent对网络要求和流媒体相当，一旦卡起来那可能根本就动不了，不是刷网页可以慢慢等。
+
