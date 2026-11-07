@@ -2203,3 +2203,14 @@ https://www.artstation.com/artwork/8e2BXx
 没，我起码交了3个都无事发生</blockquote>
 要这么多吗<img src="https://static.stage1st.com/image/smiley/face2017/026.png">，我好像是攒了16个吧去交的给了。
 
+
+*****
+
+####  vidomina  
+##### 146#         楼主| 发表于 2026-11-7 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479930&amp;ptid=2293096" target="_blank">zhoulovely 发表于 2026-11-7 11:55</a>
+
+结局3还要全蛋是嘛？残卷我都还有剩下几个没用上，不知道蛋是到数量就行还是非得全收集 ...</blockquote>
+3不用全蛋，30换飞行菇就可以了，4结局是要全骷髅的
+

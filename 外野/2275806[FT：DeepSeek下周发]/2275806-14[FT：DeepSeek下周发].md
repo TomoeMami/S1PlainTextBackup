@@ -4223,3 +4223,22 @@ qoder cn没上吗？
 
 但是最近额度大砍，老马也算力不够了
 
+
+*****
+
+####  startraveller  
+##### 19606#       发表于 2026-11-7 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479677&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-7 10:34</a>
+用来无痛去连opus5.5大人，这个玩意的概念是管家你发他任务他会判断并找对应的模型去做这件事有可能连到o ...</blockquote>
+额度被喷完后又加回来了好像
+
+*****
+
+####  大暴死  
+##### 19607#       发表于 2026-11-7 12:02
+
+Qwen这是在玩鲲鲸考是吧，鲲考考你谁是大赢鲸<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
