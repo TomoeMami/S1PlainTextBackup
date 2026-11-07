@@ -572,3 +572,16 @@ Honeywiew有个同公司出的后继者Bandiview，部分功能收费，相比ho
 
 当然单击进去都是正常打开的，无伤大雅，未来如果还有别的修正的话可以考虑看看是否有办法再顺手补上？<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  革萌  
+##### 54#         楼主| 发表于 2026-11-8 03:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482196&amp;ptid=2293386" target="_blank">WiiGe 发表于 2026-11-8 02:09</a>
+
+https://github.com/leopck/MangaMeeya/tree/master
+
+考虑不用补丁而是直接改进代码来重新编译一份现代的64 ...</blockquote>
+对于这类完全没有代码的程序，通过逆向重构的代价太大了，虽然现在很多人对AI予以厚望。但是完全逆向这个软件并没有什么把握。
+
