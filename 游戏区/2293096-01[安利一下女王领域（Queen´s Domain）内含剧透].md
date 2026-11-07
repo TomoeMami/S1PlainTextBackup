@@ -2317,3 +2317,23 @@ https://www.artstation.com/artwork/8e2BXx
 昨天一路推完了海王，感觉还挺弱的，还不如神殿里的小怪鱼群麻烦，打小怪还浪费了我一堆药，还好棍棒升级后缓解了续航问题。之后把3个火点了进图书馆没有几步就掉坑里了，下来就是一个雕像，因为之前在海神殿爬山的时候，碰到了一个叫血肉石像鬼的怪，知道有石像鬼这个东西，心想这个雕像捅一下不会活过来吧？结果最后用火炬一捅还真复活了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，一路疑神疑鬼的见雕像就捅，结果就这一个是捅了才复活的。这个坑一路好深还以为要死里面了，结果还好活着出来了。
 话说后面还有什么武器模组是初始锈剑，潘多拉之刃一样突刺不耗精力的吗？锈剑升级后模组变了，现在跑酷探路只能装潘多拉之刃了。
 
+
+*****
+
+####  瑟莉亚  
+##### 156#       发表于 2026-11-7 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479907&amp;ptid=2293096" target="_blank">pzgr43 发表于 2026-11-7 11:46</a>
+这游戏怪不仅在存档点回血后复活，还会随着时间经过复活？我打完第一个拿钥匙的地牢后坐电梯出来，外面的小 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时我刚出电梯刚想右转去存档，结果激光眼复活了，把我射死了。
+
+
+*****
+
+####  妄想中毒  
+##### 157#       发表于 2026-11-7 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479907&amp;ptid=2293096" target="_blank">pzgr43 发表于 2026-11-7 11:46</a>
+这游戏怪不仅在存档点回血后复活，还会随着时间经过复活？我打完第一个拿钥匙的地牢后坐电梯出来，外面的小 ...</blockquote>
+这个应该是你解锁了特定机关后某些场景出现变化，神殿门口本来是没怪的，打开机关后才开始固定刷怪，篝火边上的士兵也死了
+
