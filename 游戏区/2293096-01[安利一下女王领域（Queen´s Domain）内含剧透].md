@@ -2649,3 +2649,13 @@ V  P  N</blockquote>
 好气啊，无意中从初始地点那口井跑进地底世界，里面的怪都好肉啊，但我有枪在手怕个球，一路上biubiubiu杀 ...</blockquote>
 一般这种遇到打不过的怪就说明不是该来的时候，第一件事先找到出口。
 
+
+*****
+
+####  shimotsuki14  
+##### 187#       发表于 2026-11-7 21:17
+
+买迟了，怒亏10块钱
+
+—— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

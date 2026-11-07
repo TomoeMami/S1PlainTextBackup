@@ -758,3 +758,28 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 这掉落 体力没地方用也不刷这本啊？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 21781#       发表于 2026-11-7 21:12
+
+<blockquote>alucardcz 发表于 2026-11-7 20:30
+这掉落 体力没地方用也不刷这本啊？</blockquote>
+不少人因为生放送随口聊的那句还觉得是不是给总数多刷点会有隐藏奖励，怎么你们的苹果很多吗能浪费在这种本上？
+
+*****
+
+####  v22325  
+##### 21782#       发表于 2026-11-7 21:13
+
+<img src="https://img.stage1st.com/forum/202611/07/211221yji9xxwbdd9kx3tw.jpg" referrerpolicy="no-referrer">
+
+<strong>1000049068.jpg</strong> (303.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 21:12 上传
+
+鬼迷心窍选了尻枪，但上线第一发终于出了剑心
+
