@@ -4452,3 +4452,25 @@ oc429，官方api也炸
 大的要来了。</blockquote>
 什么底边鬼佬<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 19631#       发表于 2026-11-7 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480658&amp;ptid=2275806" target="_blank">lambl 发表于 2026-11-7 16:28</a>
+大的要来了。</blockquote>
+没啥意思，这是关于他自己部署的发言
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cscbzcbz  
+##### 19632#       发表于 2026-11-7 16:45
+
+试了下官方api，没感觉有变化。
+另外这ocg这两天一直429，今天周末也429。还能不能愉快的用了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
