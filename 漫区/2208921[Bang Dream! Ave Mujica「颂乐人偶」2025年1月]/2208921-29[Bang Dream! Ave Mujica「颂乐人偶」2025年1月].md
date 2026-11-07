@@ -147,3 +147,72 @@
 
        [https://t.bilibili.com/1267534186521034789](https://t.bilibili.com/1267534186521034789)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42194#       发表于 2026-11-7 18:32
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/07/183153araf3klfydbbcorf.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-07_18-29-47.png</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:31 上传
+
+       [https://x.com/bang_dream_on/status/2118947097340940627](https://x.com/bang_dream_on/status/2118947097340940627)
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/07/183154it8ml28b1g34zbmt.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-07_18-29-22.png</strong> (413.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:31 上传
+
+       [https://t.bilibili.com/1267844873739829285](https://t.bilibili.com/1267844873739829285)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42195#       发表于 2026-11-7 18:37
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/07/183704vofbmm34fcqmm961.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-07_18-34-32.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:37 上传
+
+       [https://x.com/bang_dream_on/status/2118992384327360715](https://x.com/bang_dream_on/status/2118992384327360715)
+
+       <[strong>🎉「月色之下流转之舞」剧情预告</strong>](https://www.bilibili.com/video/BV1Bp4j61E2P) <blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/07/183703ojmrzjummwmwunnv.png" referrerpolicy="no-referrer">
+
+<strong>e7649691db7f81d0b6f566346fb23001635db005.png</strong> (297.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-7 18:37 上传
+
+现在为您带来的是即将于明日14:00开启的挑战演出活动「月色之下流转之舞」剧情预告！
+
+Ave Mujica重新出道后，祥子正构思着下一场假面舞会。
+
+在那里上演的，是一段围绕森林古堡中的公主所展开的故事。
+
+而公主的面孔，在每个人眼中都截然不同…………             
+
+#BanGDream# #OurNotes# #交织的乐章#</blockquote>
+       [https://www.bilibili.com/video/BV1Bp4j61E2P](https://www.bilibili.com/video/BV1Bp4j61E2P)
+

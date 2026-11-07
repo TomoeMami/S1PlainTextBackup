@@ -671,3 +671,14 @@ MuMu-20261107-005506-901.jpg
 QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该怎么办</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">太欧了 羡慕
 
+
+*****
+
+####  exiaexa  
+##### 21772#       发表于 2026-11-7 18:36
+
+送常驻池其实还是有点抠门了
+
+多少开个福袋吧
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

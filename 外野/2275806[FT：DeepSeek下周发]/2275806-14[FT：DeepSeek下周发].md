@@ -4500,3 +4500,23 @@ dax骗钱大王啊，还行不行了
 
 Gemini聊天问点诗词歌词都不给放全文让自己搜，要你何用<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 19636#       发表于 2026-11-7 18:33
+
+让AI放手去做研究
+
+然后它汇报它发现数据里面有重复的，正在调用子agent进行两个一对的对比。<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  なるぼど  
+##### 19637#       发表于 2026-11-7 18:34
+
+大佬们，我codex蹬太猛，上传流量用太多，机场用了五六百g了，有点抗不住，你们是怎么解决的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
