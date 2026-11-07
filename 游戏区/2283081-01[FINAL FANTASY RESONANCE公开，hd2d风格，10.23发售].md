@@ -6708,3 +6708,25 @@ ai真好用，把274张图片整成个pdf了~
 
 通关了感觉还行。在我这很可能99%比明年4月的ff7最终篇好玩。ff味比重生纯正多了
 
+
+*****
+
+####  u2deack  
+##### 624#       发表于 2026-11-7 20:23
+
+从第五章开头接着玩，这游戏队里几个角色后面会不会有暂时离开或者强行分队的部分，工匠和大叔想放板凳不管了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  黑暗之眼  
+##### 625#       发表于 2026-11-7 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481340&amp;ptid=2283081" target="_blank">u2deack 发表于 2026-11-7 20:23</a>
+从第五章开头接着玩，这游戏队里几个角色后面会不会有暂时离开或者强行分队的部分，工匠和大叔想放板凳不管 ...</blockquote>
+这游戏不光板凳，连强行分队走的都可以拿100%经验和MRP，不需要担心这个
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
