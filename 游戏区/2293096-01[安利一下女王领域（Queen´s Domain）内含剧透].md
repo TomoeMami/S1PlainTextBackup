@@ -2909,3 +2909,14 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 另外魔导书里有一把3蓄能多向冲刺的女巫镰刀，对这个也很有帮助，推荐一下
 
+
+*****
+
+####  28201  
+##### 211#       发表于 2026-11-8 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482049&amp;ptid=2293096" target="_blank">madnesshare 发表于 2026-11-8 00:30</a>
+
+初始地图有2个冲刺吗？我转了好多地方，没找到增加第二个冲刺的宝物啊</blockquote>
+就楼上说的那个地方，第二个水晶往左手边看就能看到那个亭子，从对面楼梯跳过去
+
