@@ -2716,3 +2716,25 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 图书馆倒数第二层有个消除肉块才出现的门怎么开呢？同一层对面的塞本书就开了，这个塞了书没动静。
 
+
+*****
+
+####  panandhao  
+##### 193#       发表于 2026-11-7 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481648&amp;ptid=2293096" target="_blank">瑟莉亚 发表于 2026-11-7 22:08</a>
+图书馆倒数第二层有个消除肉块才出现的门怎么开呢？同一层对面的塞本书就开了，这个塞了书没动静。 ...</blockquote>
+应该是书塞错了？不是任何书都可以触发的
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  pgain2004  
+##### 194#       发表于 2026-11-7 22:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481648&amp;ptid=2293096" target="_blank">瑟莉亚 发表于 2026-11-7 22:08</a>
+图书馆倒数第二层有个消除肉块才出现的门怎么开呢？同一层对面的塞本书就开了，这个塞了书没动静。 ...</blockquote>
+还有一个书孔，在楼上魔石雕像旁边
+
