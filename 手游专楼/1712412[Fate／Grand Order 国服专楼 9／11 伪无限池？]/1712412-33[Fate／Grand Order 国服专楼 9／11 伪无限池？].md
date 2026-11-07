@@ -157,3 +157,14 @@ MuMu-20261108-023307-521.jpg
 
 <img src="https://img.stage1st.com/forum/202611/08/023155uocuczikcyttey5u.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 48303#       发表于 2026-11-8 07:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482210&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-11-8 02:32</a>
+
+一时没有忍住手，90石头但丁来了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">狗楼友各种暴跳
+

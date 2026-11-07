@@ -4828,3 +4828,20 @@ r1时期就有人搞这种阴湿的破事
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  我就再氪一单  
+##### 19665#       发表于 2026-11-8 07:41
+
+ 本帖最后由 我就再氪一单 于 2026-11-8 07:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481424&amp;ptid=2275806" target="_blank">wing130083 发表于 2026-11-7 20:57</a>
+话说装个🐟能解决很多pc环境相关的问题
+
+🐟检查电脑环境太效率了，判断多多少少有点问题配合人工纠偏就非常 ...</blockquote>
+是的，以前最早装完系统还要珍藏驱动包，后来是用各种驱动管家，驱动管家后来也不行了会驱动级劫持系统，于是又回到最早期某些驱动和运行库得手动保存的状态剩下的靠微软自动更新。
+昨天是nuc上装winserver，大肥鱼从推荐的系统版本开始分析，装完之后发现nuc驱动从Intel转到华硕官网了，那堆驱动手动安装都没几个能成功，直接让大肥鱼接手，最后甚至还解决了rdp无法监听端口的问题。
+感觉古法装系统已经没啥意义了。
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
