@@ -660,3 +660,14 @@ MuMu-20261107-005506-901.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该怎么办
 
+
+*****
+
+####  alucardcz  
+##### 21771#       发表于 2026-11-7 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480748&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-11-7 16:58</a>
+
+QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该怎么办</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">太欧了 羡慕
+
