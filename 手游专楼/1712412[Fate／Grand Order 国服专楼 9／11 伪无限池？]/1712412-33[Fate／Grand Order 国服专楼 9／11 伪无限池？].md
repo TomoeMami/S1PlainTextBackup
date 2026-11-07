@@ -115,3 +115,18 @@ BGO把芝诺比阿从卡池里删了<img src="https://static.stage1st.com/image/
 看看好像缺的不少，但实际上没什么想换的。
 请问下这里面有配得上用场的吗？山鲁佐德？
 
+
+*****
+
+####  khxooo  
+##### 48300#       发表于 2026-11-7 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481783&amp;ptid=1712412" target="_blank">lcn 发表于 2026-11-7 22:54</a>
+
+剑双子
+
+弓特斯拉、源为潮
+
+枪弗栗多、怖军</blockquote>
+建议羽蛇神，有他冲，有魔放，还有现在版本的减CD。
+
