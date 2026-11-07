@@ -4242,3 +4242,11 @@ Qwen这是在玩鲲鲸考是吧，鲲考考你谁是大赢鲸<img src="https://s
 
 —— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  JRPG  
+##### 19608#       发表于 2026-11-7 12:11
+
+NousResearch 这整的活可太招笑了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
