@@ -4250,3 +4250,35 @@ Qwen这是在玩鲲鲸考是吧，鲲考考你谁是大赢鲸<img src="https://s
 
 NousResearch 这整的活可太招笑了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 19609#       发表于 2026-11-7 12:57
+
+这qoduck越用越像27b啊，核弹爆炸了？
+
+*****
+
+####  魔法师lain  
+##### 19610#       发表于 2026-11-7 12:58
+
+qoder用着flash，突然发现积分都没了，原来要收费了。那么那qoduck究竟是啥玩意<img src="https://static.stage1st.com/image/smiley/animal2017/003.png" referrerpolicy="no-referrer">，是flash吗
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qwased  
+##### 19611#       发表于 2026-11-7 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480131&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-11-7 12:58</a>
+
+qoder用着flash，突然发现积分都没了，原来要收费了。那么那qoduck究竟是啥玩意，是flash吗
+
+—— 来自 HUA ...</blockquote>
+前端比3.8flash烂，又远好于3.8 27b
+
+使用工具的积极性比3.8系列都强很多，我没有要求他使用工具的时候他都会主动使用合适的mcp工具
+

@@ -2247,3 +2247,26 @@ https://www.artstation.com/artwork/8e2BXx
 
 营地应该有传送功能可以解锁吧，开了几个地方不能传送太难受了
 
+
+*****
+
+####  zzf111  
+##### 150#       发表于 2026-11-7 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479849&amp;ptid=2293096" target="_blank">Shu-Stella 发表于 2026-11-7 11:27</a>
+
+有的骷髅我没get到，比如水下神庙门口那个指着楼梯的骷髅，但是看过去是一个趴着的骷髅外就没别的东西， ...</blockquote>
+一般附近有骷髅指引的隐藏门，门就在手指指的直接方向（一般都对着墙）而不是附近，你说的这两个都是这个情况<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+到了大书库倒有个指窗户 跳窗后两边都能飞有东西拿的
+
+*****
+
+####  vidomina  
+##### 151#         楼主| 发表于 2026-11-7 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480110&amp;ptid=2293096" target="_blank">妄想中毒 发表于 2026-11-7 12:51</a>
+
+营地应该有传送功能可以解锁吧，开了几个地方不能传送太难受了</blockquote>
+营地的传送站，在哪个升降平台上面，不过前面到不了。
+
