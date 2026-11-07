@@ -4474,3 +4474,13 @@ oc429，官方api也炸
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  eno_emos  
+##### 19633#       发表于 2026-11-7 16:53
+
+opencode就算不429也只有60tps了
+
+dax骗钱大王啊，还行不行了
+
