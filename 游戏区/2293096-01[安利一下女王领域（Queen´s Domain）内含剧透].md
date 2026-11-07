@@ -2227,3 +2227,15 @@ https://www.artstation.com/artwork/8e2BXx
 
 没提示，找起来特别的累，真的靠运气
 
+
+*****
+
+####  panandhao  
+##### 148#       发表于 2026-11-7 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479849&amp;ptid=2293096" target="_blank">Shu-Stella 发表于 2026-11-7 11:27</a>
+有的骷髅我没get到，比如水下神庙门口那个指着楼梯的骷髅，但是看过去是一个趴着的骷髅外就没别的东西， ...</blockquote>
+神庙BOSS打完后，夹缝里指着墙的骷髅，应该是点火台下方的那个吧，他指着的墙按互动键是可以开启的，趴着的那个忘记在哪里了<img src="https://static.stage1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
