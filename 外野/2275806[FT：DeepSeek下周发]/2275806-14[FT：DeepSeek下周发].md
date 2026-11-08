@@ -5369,3 +5369,22 @@ hy4 glm5.3 0813差不多一条线吧
 这两天一直尝试让ai给我手搓游戏机外设的杂志，使用了hy3 hy4 glm5.3 glm5.3-flash，大肥鱼1017，总体感觉就glm5.3和大肥鱼1017能打，其他的都是一坨，
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 19712#       发表于 2026-11-8 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483690&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-11-8 15:24</a>
+
+这个在哪启用？我更新到最新了，没有找到开关</blockquote>
+模型旁边的星星
+
+<img src="https://img.stage1st.com/forum/202611/08/165055i2dvsz79v9y2psd9.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-11-08_16-50-19.png</strong> (38.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-8 16:50 上传
+

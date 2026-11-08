@@ -3144,3 +3144,31 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 血好厚，用什么武器效果比较好，爱的魔力转圈圈躲不开，飞天砸地看不清<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nitrome  
+##### 233#       发表于 2026-11-8 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483892&amp;ptid=2293096" target="_blank">不会武术 发表于 2026-11-8 16:34</a>
+
+卡在死灵书了
+
+血好厚，用什么武器效果比较好，爱的魔力转圈圈躲不开，飞天砸地看不清 ...</blockquote>
+火炬+投掷，一下没A，精力全用来绕圈就行
+
+
+*****
+
+####  28201  
+##### 234#       发表于 2026-11-8 16:52
+
+真的全靠飞刀救我<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">玩出fps效果
+
+*****
+
+####  darkfall  
+##### 235#       发表于 2026-11-8 16:53
+
+总算跳井从地底反跑回到了知识之塔，所以点三火原来不是必要途径，就是过程有点曲折
+
