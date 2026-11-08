@@ -5318,3 +5318,14 @@ hy4 尝试了好几个类型的任务，都感觉有点难用，某个榜是怎�
 hy4 尝试了好几个类型的任务，都感觉有点难用，某个榜是怎么能评出来比 k3.1 强的 ...</blockquote>
 猫本人现在就是HY的员工<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 19707#       发表于 2026-11-8 15:57
+
+猫榜的推理测试还是挺好的 
+agentic 就见仁见智了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
