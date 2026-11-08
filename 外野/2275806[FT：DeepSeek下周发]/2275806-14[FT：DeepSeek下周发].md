@@ -4905,3 +4905,35 @@ r1时期就有人搞这种阴湿的破事
 
 硬件和OS相关的东西对普通人而言都是黑盒（其实对agent来说也是，因为看不到源码），但能根据反馈猜个七七八八，这就挺厉害的
 
+
+*****
+
+####  wing130083  
+##### 19671#       发表于 2026-11-8 08:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482448&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-8 08:27</a>
+
+反过来说这些问题原本就不复杂，只是需要的背景知识太多所以以往看来门槛很高
+
+硬件和OS相关的东西对普通 ...</blockquote>
+主要就是人力把报错信息挨个查询意义这一步太恶心
+
+🐟把所有报错的含义都翻译成人话之后大部分问题用户就能处理
+
+（🐟反而未必用最合理的方案处理。她有时候过于喜欢力大砖飞）
+
+
+*****
+
+####  wing130083  
+##### 19672#       发表于 2026-11-8 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482427&amp;ptid=2275806" target="_blank">御众师 发表于 2026-11-8 08:15</a>
+
+虽然但是，我都多少年没遇到pc环境相关问题了……</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我本来也觉得大部分情况没问题了
+
+直到配个动作影片刮削器配到脑壳疼，喊🐟挨个解决了一大堆问题用上
+
+有些软件是真觉得你不会用是你自己问题的
+

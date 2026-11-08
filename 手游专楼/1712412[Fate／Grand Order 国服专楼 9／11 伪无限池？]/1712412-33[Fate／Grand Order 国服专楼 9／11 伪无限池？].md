@@ -168,3 +168,13 @@ MuMu-20261108-023307-521.jpg
 一时没有忍住手，90石头但丁来了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">狗楼友各种暴跳
 
+
+*****
+
+####  Kon-El  
+##### 48304#       发表于 2026-11-8 08:33
+
+选了羽蛇神，当插件一宝够用了
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
