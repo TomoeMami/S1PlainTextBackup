@@ -36,3 +36,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某保险公司终于正式和exaid联动出广告，而日清则似乎准备和build联动
 
+
+*****
+
+####  黑上シグマ  
+##### 282#       发表于 2026-11-8 12:05
+
+说起来，现在这个只有耗子才能把人救回来的设定，别搞得像前几年小明哥演的牙狼一样到最后告诉你是假的……
+
