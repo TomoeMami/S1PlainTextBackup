@@ -5209,3 +5209,19 @@ The pragmatic programmer也提到过这种方法叫“变换式编程”，都�
 比方说前几天升级了个软件，提示权限过宽用不了，要我收紧Windows权限，上agent直接扫盘，回来就定位到是公司电脑在系统装机的时候给整个c盘开了个everyone的完全权限，几分钟取消掉就好了
 搁以前也不是不能解决，一个上午都在查资料定位找故障点去了，忙起来更有可能直接捏着鼻子用了
 
+
+*****
+
+####  cube  
+##### 19696#       发表于 2026-11-8 13:34
+
+转个地狱笑话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/08/133354t08myfyy8ad5mmmb.png" referrerpolicy="no-referrer">
+
+<strong>10da9a22683cd78fc8c64f60cf9f7320.png</strong> (352.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-8 13:33 上传
+

@@ -3048,3 +3048,16 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 卧槽，这个游戏也太夸张了。。这个初始地图就这么多宝物和隐藏的，我找了下攻略，这也太多了，初始地图就能有几十个各种隐藏的东西
 
+
+*****
+
+####  zzf111  
+##### 223#       发表于 2026-11-8 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482735&amp;ptid=2293096" target="_blank">妄想中毒 发表于 2026-11-8 10:18</a>
+
+有哪些武器质变后比较好用的</blockquote>
+所有生锈武器质变后基本都是担架，祖宗飞剑也是机动性一顶一的强
+
+前期刷不来武器等级 不想受苦就用彩蛋码搞世界赐福指环，汉皮步枪和幽灵长枪
+

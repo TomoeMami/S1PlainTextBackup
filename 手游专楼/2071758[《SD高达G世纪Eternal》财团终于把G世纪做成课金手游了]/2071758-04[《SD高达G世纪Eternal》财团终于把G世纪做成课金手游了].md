@@ -61,3 +61,25 @@
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  blue321  
+##### 4964#       发表于 2026-11-8 13:31
+
+真有8射的话早就业界震惊了啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+不过开技能后也就一次的话，8射也不是很实用…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  blue321  
+##### 4964#       发表于 2026-11-8 13:31
+
+真有8射的话早就业界震惊了啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+不过开技能后也就一次的话，8射也不是很实用…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
