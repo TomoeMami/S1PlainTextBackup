@@ -5077,3 +5077,28 @@ agent倒过来，因为它本能的用bash所以整个开发过程是数据驱�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  umamusume  
+##### 19687#       发表于 2026-11-8 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482865&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-8 10:58</a>
+我让sol桥接mcp交任务给dsh的大肥鱼改个界面，结果肥鱼看着设计图和gpt讨论完之后做出来的效果还不如sol ...</blockquote>
+因为你桥反了 路由器不需要高智商
+另外这些模型根本就不用拿来做前端，先用毛坯房测试没大问题，opencode上让argon统一做一次前端就行了
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  swallow0808  
+##### 19688#       发表于 2026-11-8 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482162&amp;ptid=2275806" target="_blank">Lazia 发表于 2026-11-8 01:40</a>
+既然Hermes主动露屁股了，准备全面转DSH不知道有什么好用的记忆插件。</blockquote>
+和hermes一样也有lcm和hindsight插件。可以让你自己的AI做下处理，我之前用的是这俩基本可以把数据直接塞过去
+
+—— 来自 HUAWEI VOL-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
