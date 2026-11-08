@@ -5197,3 +5197,15 @@ The pragmatic programmer也提到过这种方法叫“变换式编程”，都�
 
 所以说AI时代软件工程知识比具体技术知识还要保值，说程序员和软件工程已死的人大概还处于刚接触vibe coding的版本<img src="https://static.stage1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空き地卯木  
+##### 19695#       发表于 2026-11-8 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482427&amp;ptid=2275806" target="_blank">御众师 发表于 2026-11-8 08:15</a>
+虽然但是，我都多少年没遇到pc环境相关问题了……</blockquote>
+自己亲手拿官方镜像装的还好，起码知根知底，单位里面用个几年的系统总会有些前人乱搞甚至装机时候遗留的问题
+比方说前几天升级了个软件，提示权限过宽用不了，要我收紧Windows权限，上agent直接扫盘，回来就定位到是公司电脑在系统装机的时候给整个c盘开了个everyone的完全权限，几分钟取消掉就好了
+搁以前也不是不能解决，一个上午都在查资料定位找故障点去了，忙起来更有可能直接捏着鼻子用了
+
