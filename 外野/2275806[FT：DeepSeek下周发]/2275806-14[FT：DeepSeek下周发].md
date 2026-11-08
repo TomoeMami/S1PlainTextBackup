@@ -5419,3 +5419,41 @@ hy4 glm5.3 0813差不多一条线吧
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zack1999  
+##### 19715#       发表于 2026-11-8 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483954&amp;ptid=2275806" target="_blank">阿萨辛艾沃尔 发表于 2026-11-8 16:50</a>
+
+模型旁边的星星</blockquote>
+原来是输入后才有这个提示，我自己设置里找半天都没找到
+
+
+*****
+
+####  weiyang  
+##### 19716#       发表于 2026-11-8 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483598&amp;ptid=2275806" target="_blank">阿萨辛艾沃尔 发表于 2026-11-8 14:50</a>
+
+这workbuddy的新功能挺有意思，一键修改提示词，把我的大白话变成了看着很专业的提示词，感觉就算不用wb， ...</blockquote>
+随着模型能力的发展，现在应该也不再强调提示词工程了，更推崇的是有什么说什么，越多越好
+
+
+*****
+
+####  mitzvah  
+##### 19717#       发表于 2026-11-8 17:57
+
+用q2的1017本地照着图片画了一个影之实力者的svg，你还别说哪怕1017，哪怕q2的1017，这个视力也是真实的
+
+<img src="https://img.stage1st.com/forum/202611/08/175715el33ll0lhhl0yhll.png" referrerpolicy="no-referrer">
+
+<strong>compare_original_vs_drawn.png</strong> (108.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-8 17:57 上传
+
