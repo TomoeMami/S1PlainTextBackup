@@ -381,3 +381,70 @@ Ave Mujica重新出道后，祥子正构思着下一场假面舞会。
 
        [https://t.bilibili.com/1267896252322807840](https://t.bilibili.com/1267896252322807840)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42200#       发表于 2026-11-8 16:27
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/08/162701hlj34t7938g8yum4.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-08_16-23-25.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-8 16:27 上传
+
+       [https://x.com/bang_dream_on/status/2119310878806053122](https://x.com/bang_dream_on/status/2119310878806053122)
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/08/162735idkwe8khn7778a79.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-08_16-23-46.png</strong> (278.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-8 16:27 上传
+
+       [https://x.com/bang_dream_on/status/2119311304192324048](https://x.com/bang_dream_on/status/2119311304192324048)
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/08/162659zo7qjil5mp5k5q42.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-08_16-24-32.png</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-8 16:26 上传
+
+       [https://www.bilibili.com/opus/1268214509392101376](https://www.bilibili.com/opus/1268214509392101376)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42201#       发表于 2026-11-8 16:35
+
+       <[strong>【OurNotes】「月色之下流转之舞」Ave Mujica活动剧情</strong>](https://www.bilibili.com/video/BV1yW4p6uE3q) <blockquote>个人录制
+
+拉丁语章节标题的小翻译
+
+Principissa Arcis.——城堡的公主
+
+Crescit et decrescit.——盛衰有时
+
+Adfer mihi quod volo.——带来我所愿之物
+
+Vultus ignotus.——未知的面容
+
+Video ut volo.——我如愿看见
+
+Attamen iuxta me.——然而，在我身旁
+
+Responsum iam est.——答案已定</blockquote>
+       [https://www.bilibili.com/video/BV1yW4p6uE3q](https://www.bilibili.com/video/BV1yW4p6uE3q)
+

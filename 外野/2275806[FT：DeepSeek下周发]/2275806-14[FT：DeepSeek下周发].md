@@ -5358,3 +5358,14 @@ hy4 glm5.3 0813差不多一条线吧
 这workbuddy的新功能挺有意思，一键修改提示词，把我的大白话变成了看着很专业的提示词，感觉就算不用wb， ...</blockquote>
 这个功能出了一段时间了，它有的话会专业过头，把你原本的意思给曲解了，我之前很喜欢修改，后面发现全给我改出幻觉了，现在改大白话了
 
+
+*****
+
+####  口袋妖怪  
+##### 19711#       发表于 2026-11-8 16:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">hy4有这么厉害吗，我用的wb里的免费hy4，质量参差不齐，有时候它甚至不能识图，就感觉一阵弱智一阵强，在wb下我基本上把它当一个chat用，在同一任务下来给我感觉总体不如大肥鱼1017，
+
+这两天一直尝试让ai给我手搓游戏机外设的杂志，使用了hy3 hy4 glm5.3 glm5.3-flash，大肥鱼1017，总体感觉就glm5.3和大肥鱼1017能打，其他的都是一坨，
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
