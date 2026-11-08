@@ -261,3 +261,13 @@ MuMu-20261108-023307-521.jpg
 
 这次自选，认真看了下大号的5星，我居然有，5宝月神，5宝米缸，5宝拉二（这个我自己打骑冠已经发现），但月神和米缸我是自己都忘记了有5宝，这3个全部都是歪出来的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 48312#       发表于 2026-11-8 20:15
+
+喷了，龙娘抽了弹尽粮绝，刚换了这个月的五张呼符，倒数第二张没下载新数据但是转了彩圈，一个金枪，转过来又是一位弗栗多<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
