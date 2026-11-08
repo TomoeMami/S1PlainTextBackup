@@ -5147,3 +5147,22 @@ agent倒过来，因为它本能的用bash所以整个开发过程是数据驱�
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  noneoneone  
+##### 19692#       发表于 2026-11-8 12:13
+
+之前看到有人转过知乎上deepseek的产品部成员回答super agent相关的内容，说是dsh应该快有跨会话的记忆能力了，所以近期有点懒得折腾第三方记忆插件。
+
+我是觉得super agent这种概念发展下去首先被替代的就是hermes这类claw了。
+[https://www.zhihu.com/question/2099984457524572950](https://www.zhihu.com/question/2099984457524572950)
+
+<img src="https://img.stage1st.com/forum/202611/08/120157cviqta4qjw88z5q8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-8 12:01 上传
+
