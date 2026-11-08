@@ -3425,3 +3425,14 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 看笑了
 
+
+*****
+
+####  RinC  
+##### 259#       发表于 2026-11-9 02:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70485406&amp;ptid=2293096" target="_blank">アルメリア 发表于 2026-11-9 01:28</a>
+
+海底神庙存档点旁边可以插5把三叉戟的牢房中间的那间怎么开，看到墙上有个洞但是没找到从哪飞过去 ...</blockquote>
+打完boss坐电梯，中间有个破洞
+
