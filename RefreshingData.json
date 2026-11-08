@@ -396,12 +396,12 @@
     "update": false
   },
   "2086637": {
-    "totalreply": 11752,
+    "totalreply": 11754,
     "title": "[【ぷにち】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "newtitle": "[【七代目】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
-    "lastedit": 1793866087,
+    "lastedit": 1794128887,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2086516": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 49146,
+    "totalreply": 49147,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》9.30 问心无愧]",
-    "lastedit": 1794128165,
+    "lastedit": 1794128887,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7529,7 +7529,7 @@
     "newtitle": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
     "lastedit": 1793869446,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2152801": {
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 19712,
+    "totalreply": 19713,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[DeepSeek V4.1 Flash 1017：许愿式编程一键成真 ｜ 大模型讨论专楼]",
-    "lastedit": 1794127927,
+    "lastedit": 1794128649,
     "category": "外野",
     "active": true,
     "update": false
@@ -13068,10 +13068,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 45062,
+    "totalreply": 45064,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1794123366,
+    "lastedit": 1794128765,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13617,10 +13617,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 41725,
+    "totalreply": 41728,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1794127926,
+    "lastedit": 1794128887,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14424,15 +14424,6 @@
     "lastedit": 1794117965,
     "category": "游戏区",
     "active": true,
-    "update": false
-  },
-  "2292174": {
-    "totalreply": 49,
-    "title": "[大AI时代下的一些极客玩家们的折腾玩法]",
-    "newtitle": "[大AI时代下的一些极客玩家们的折腾玩法]",
-    "lastedit": 1792919166,
-    "category": "游戏区",
-    "active": false,
     "update": false
   },
   "2292308": {
@@ -17424,10 +17415,10 @@
     "update": false
   },
   "2293244": {
-    "totalreply": 150,
+    "totalreply": 151,
     "title": "[10 月份北京所有高尔夫球场主要负责人开会，后续高尔夫球场或将关停整改。]",
     "newtitle": "[10 月份北京所有高尔夫球场主要负责人开会，后续高尔夫球场或将关停整改。]",
-    "lastedit": 1794125885,
+    "lastedit": 1794128527,
     "category": "外野",
     "active": true,
     "update": false
@@ -17577,10 +17568,10 @@
     "update": false
   },
   "2293096": {
-    "totalreply": 235,
+    "totalreply": 236,
     "title": "[安利一下女王领域（Queen´s Domain）内含剧透]",
     "newtitle": "[安利一下女王魔域（Queen´s Domain）内含剧透]",
-    "lastedit": 1794128047,
+    "lastedit": 1794128527,
     "category": "游戏区",
     "active": true,
     "update": false

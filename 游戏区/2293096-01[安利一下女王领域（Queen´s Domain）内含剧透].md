@@ -3172,3 +3172,14 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 总算跳井从地底反跑回到了知识之塔，所以点三火原来不是必要途径，就是过程有点曲折
 
+
+*****
+
+####  vidomina  
+##### 236#         楼主| 发表于 2026-11-8 16:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483966&amp;ptid=2293096" target="_blank">darkfall 发表于 2026-11-8 16:53</a>
+
+总算跳井从地底反跑回到了知识之塔，所以点三火原来不是必要途径，就是过程有点曲折 ...</blockquote>
+点三火简单啊，海神庙也是必打的~
+
