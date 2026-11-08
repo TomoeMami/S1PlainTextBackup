@@ -3089,3 +3089,13 @@ https://www.nexusmods.com/queensdomain/mods/24
 没上ns港服吗 怎么找不到</blockquote>
 美服 19.99刀
 
+
+*****
+
+####  shimotsuki14  
+##### 227#       发表于 2026-11-8 15:28
+
+在海底找三叉戟钥匙找的晕头
+
+—— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
