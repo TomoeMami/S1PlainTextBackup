@@ -5036,3 +5036,15 @@ hermes这个垃圾软件，运行速度慢的要死，早该滚蛋了。
 
 hermese那堆题tmd简直就是恶心透了
 
+
+*****
+
+####  warlock228  
+##### 19684#       发表于 2026-11-8 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482750&amp;ptid=2275806" target="_blank">umamusume 发表于 2026-11-8 10:23</a>
+你让大肥鱼当路由器，让sol当写代码的
+
+—— 来自 samsung SM-S9480, Android 16, 鹅球 v4.0 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我让sol桥接mcp交任务给dsh的大肥鱼改个界面，结果肥鱼看着设计图和gpt讨论完之后做出来的效果还不如sol自己写
+
