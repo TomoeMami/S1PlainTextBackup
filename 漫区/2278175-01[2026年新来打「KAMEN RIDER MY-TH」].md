@@ -60,3 +60,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">黑猫怎么就成了败犬位了
 
+
+*****
+
+####  otakun  
+##### 285#       发表于 2026-11-8 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482928&amp;ptid=2278175" target="_blank">黑上シグマ 发表于 2026-11-8 11:16</a>
+某保险公司终于正式和exaid联动出广告，而日清则似乎准备和build联动</blockquote>
+某保险之前的算擦边，现在是正式的exaid授权联动了？
+
