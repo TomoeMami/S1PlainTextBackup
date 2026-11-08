@@ -3258,3 +3258,14 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 打完结局2了，听说后面很坐牢，云一下结局算了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  神他妈的开胃菜  
+##### 244#       发表于 2026-11-8 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70484293&amp;ptid=2293096" target="_blank">留小草 发表于 2026-11-8 18:34</a>
+
+上古界域还剩一个塔，太好玩了，都说上古界域拉了，我感觉还好，问题也确实有，一是从有限路径变成开放，前 ...</blockquote>
+其实只要知道连接隧道两边是不同就简单好多，我一开始不知道就满地图瞎逛，蓝印记和电流枪都没拿，玩起来就很痛苦
+
