@@ -70,3 +70,14 @@
 某保险公司终于正式和exaid联动出广告，而日清则似乎准备和build联动</blockquote>
 某保险之前的算擦边，现在是正式的exaid授权联动了？
 
+
+*****
+
+####  黑上シグマ  
+##### 286#       发表于 2026-11-8 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483464&amp;ptid=2278175" target="_blank">otakun 发表于 2026-11-8 14:01</a>
+
+某保险之前的算擦边，现在是正式的exaid授权联动了？</blockquote>
+是的，今天放的，飞彩和大我也来了
+
