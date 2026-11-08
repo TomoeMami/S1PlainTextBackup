@@ -3348,3 +3348,14 @@ https://www.nexusmods.com/queensdomain/mods/24
 拿面具地方的正对面碑文有写，需要你饰品栏戴上晶片面具重走一回陵墓区域，你会发现六个新东西可以互动（ ...</blockquote>
 发现了，路过还以为是什么特效没过去看<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Shu-Stella  
+##### 253#       发表于 2026-11-8 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70484998&amp;ptid=2293096" target="_blank">郁哲 发表于 2026-11-8 22:26</a>
+
+再见了女王魔域，玩了大概两三个小时的流程没存档，打完知识塔探完周边，最后飞到一个残缺的塔楼里，落地被 ...</blockquote>
+这游戏要有空就存档，和魂不同，坐火不会重新刷怪，休息或者等待20分钟才会，所以路过存档点就随手存一下。
+
