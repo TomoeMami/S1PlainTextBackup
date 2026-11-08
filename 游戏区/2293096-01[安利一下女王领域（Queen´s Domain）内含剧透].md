@@ -3338,3 +3338,13 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 道心破碎，硬整老游戏存档机制这一块
 
+
+*****
+
+####  瑟莉亚  
+##### 252#       发表于 2026-11-8 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70484992&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-8 22:22</a>
+拿面具地方的正对面碑文有写，需要你饰品栏戴上晶片面具重走一回陵墓区域，你会发现六个新东西可以互动（ ...</blockquote>
+发现了，路过还以为是什么特效没过去看<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
