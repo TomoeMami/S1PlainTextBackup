@@ -5457,3 +5457,16 @@ hy4 glm5.3 0813差不多一条线吧
 
 2026-11-8 17:57 上传
 
+
+*****
+
+####  老司机的马甲  
+##### 19718#       发表于 2026-11-8 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482751&amp;ptid=2275806" target="_blank">wakakaka0679 发表于 2026-11-8 10:23</a>
+
+群友批量薅WorkBuddy国际版羊毛，已经GPT自由了
+
+到处跑已经装了的付费软件和验证码算法 ...</blockquote>
+老司机指指路啊
+
