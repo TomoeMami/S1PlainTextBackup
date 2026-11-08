@@ -585,3 +585,18 @@ https://github.com/leopck/MangaMeeya/tree/master
 考虑不用补丁而是直接改进代码来重新编译一份现代的64 ...</blockquote>
 对于这类完全没有代码的程序，通过逆向重构的代价太大了，虽然现在很多人对AI予以厚望。但是完全逆向这个软件并没有什么把握。
 
+
+*****
+
+####  mitzvah  
+##### 55#       发表于 2026-11-8 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482196&amp;ptid=2293386" target="_blank">WiiGe 发表于 2026-11-8 02:09</a>
+
+https://github.com/leopck/MangaMeeya/tree/master
+
+考虑不用补丁而是直接改进代码来重新编译一份现代的64 ...</blockquote>
+想要移动端快速漫画阅读和封面墙功能的话推荐我自己写的这个[https://stage1st.com/2b/thread-2290929-1-1.html](https://stage1st.com/2b/thread-2290929-1-1.html)
+
+封面墙，快速入库读取，一键翻译，ehentai数据库功能一应俱全，还能帮你管理ehviewer的漫画库
+
