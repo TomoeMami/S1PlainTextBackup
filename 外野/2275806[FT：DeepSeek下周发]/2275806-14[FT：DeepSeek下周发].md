@@ -5339,3 +5339,11 @@ hy4 glm5.3 0813差不多一条线吧
 
 但是hy是真的走上正轨一点点变好了，牢唐还在拼命画饼，发了个访谈说马上出一个1.3T 接近fable5的模型<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  med  
+##### 19709#       发表于 2026-11-8 16:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer"> qwen4要出了我才注意到qwen3.8max有2.4T，，，，，这像话吗
+

@@ -31,3 +31,13 @@ ac英灵殿支持pro强化了 育碧要是有心看门狗也建议安排下<img 
 
 额，要出ps4版
 
+
+*****
+
+####  zeroboss4  
+##### 869#       发表于 2026-11-8 16:11
+
+格斗摇杆呢
+
+—— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
