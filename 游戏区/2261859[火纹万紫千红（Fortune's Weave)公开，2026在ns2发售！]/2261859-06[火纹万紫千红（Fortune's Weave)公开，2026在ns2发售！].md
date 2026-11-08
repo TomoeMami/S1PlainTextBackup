@@ -12091,3 +12091,13 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 切换支援界面的乱数调整方法好像只能刷一次，多次切换支援界面还是保留第二次的结果 ...</blockquote>
 不是的，你可能刚好两次结果一样而已，切多次会逐个向后切换，我最多试过切8次才演讲大成功
 
+
+*****
+
+####  沙发果冻  
+##### 8553#       发表于 2026-11-9 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482083&amp;ptid=2261859" target="_blank">reficul 发表于 2026-11-8 00:47</a>
+关于高级武器箱，我不知道是不是前面两条线我没在意，我到女王线的时候才发现商会那里可以换4个高级武器箱 ...</blockquote>
+除了女王线很难挖到那么多材料兑换吧，就女王线材料富余
+
