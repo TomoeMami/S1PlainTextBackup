@@ -12111,3 +12111,16 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 除了女王线很难挖到那么多材料兑换吧，就女王线材料富余</blockquote>
 算算格子尽量多采集，然后不错过日历里的大部分特殊日子，有目的的去采集，应该也可以富裕
 
+
+*****
+
+####  jockeyjoestar  
+##### 8555#       发表于 2026-11-9 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480939&amp;ptid=2261859" target="_blank">Antidote丶 发表于 2026-11-7 18:01</a>
+
+终于打完四条线的第一部了，准备打战争篇了。
+
+想问下因为因果融合，为了不让仓库的东西丢失，怎么处理比较 ...</blockquote>
+先别跳过第二部就对了。有什么东西漏了后面补
+
