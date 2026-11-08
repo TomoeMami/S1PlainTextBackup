@@ -5180,3 +5180,20 @@ agent倒过来，因为它本能的用bash所以整个开发过程是数据驱�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hugosol  
+##### 19694#       发表于 2026-11-8 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482923&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-11-8 11:16</a>
+
+我感觉llm接到agent里面以后看待软件工程问题的方式和人类程序员是根本不一样的
+
+人类程序员拿到一个需求做 ...</blockquote>
+这个看个人习惯吧，如果要做一个全新的模块我也习惯先决定数据结构，因为这会限制你后续程序逻辑要怎么设计
+
+The pragmatic programmer也提到过这种方法叫“变换式编程”，都是几十年来人类一直在使用的思维方式
+
+所以说AI时代软件工程知识比具体技术知识还要保值，说程序员和软件工程已死的人大概还处于刚接触vibe coding的版本<img src="https://static.stage1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
