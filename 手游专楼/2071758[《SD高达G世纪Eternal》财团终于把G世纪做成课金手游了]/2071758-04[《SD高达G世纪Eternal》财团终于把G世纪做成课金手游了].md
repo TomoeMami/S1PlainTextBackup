@@ -83,3 +83,28 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  冰风血羽  
+##### 4965#       发表于 2026-11-8 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480331&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-11-7 14:10</a>
+有就行，伤害差一点也就慢一点</blockquote>
+确实真神了，上了这俩一直往前冲感觉13-15难度都不大了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+
+*****
+
+####  洛克萨斯  
+##### 4966#       发表于 2026-11-8 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70485015&amp;ptid=2071758" target="_blank">冰风血羽 发表于 2026-11-8 22:32</a>
+
+确实真神了，上了这俩一直往前冲感觉13-15难度都不大了
+
+—— 来自 realme RMX6699, Android 16, 鹅球 v4 ...</blockquote>
+是吧，重击双四动兄弟真的猛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">极大提升推图攻坚体验
+
