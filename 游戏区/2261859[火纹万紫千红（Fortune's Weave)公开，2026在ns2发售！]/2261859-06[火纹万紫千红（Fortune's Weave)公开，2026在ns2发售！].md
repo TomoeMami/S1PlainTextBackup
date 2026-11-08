@@ -12018,3 +12018,11 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 我都是只上一个人，骑着飞龙跑路<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Antidote丶  
+##### 8546#       发表于 2026-11-8 14:45
+
+进第二部发现加护等级又变回1了，是不是提升不了了
+
