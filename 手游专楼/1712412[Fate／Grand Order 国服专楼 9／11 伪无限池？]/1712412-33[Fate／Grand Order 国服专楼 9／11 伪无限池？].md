@@ -253,3 +253,11 @@ MuMu-20261108-023307-521.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了一下，NEW了大象
 
+
+*****
+
+####  艾尔特翔  
+##### 48311#       发表于 2026-11-8 15:14
+
+这次自选，认真看了下大号的5星，我居然有，5宝月神，5宝米缸，5宝拉二（这个我自己打骑冠已经发现），但月神和米缸我是自己都忘记了有5宝，这3个全部都是歪出来的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
