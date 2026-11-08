@@ -11990,3 +11990,13 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 当然IS这个懒狗更可能干的是简单粗暴的另外四条线通关一次性给大量碎片，还是有上限只是上限高了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Humpy  
+##### 8543#       发表于 2026-11-8 09:41
+
+看了眼漫画，凯线的那个临时补充追加参赛名额原来是因为有个队在比赛前就被杀光了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+漫画剧情增改了很多啊，测验也把和屠牛者对打改了……
+

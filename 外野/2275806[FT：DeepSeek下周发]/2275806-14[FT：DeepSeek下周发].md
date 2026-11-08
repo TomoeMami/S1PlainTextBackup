@@ -4949,3 +4949,11 @@ r1时期就有人搞这种阴湿的破事
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  warlock228  
+##### 19674#       发表于 2026-11-8 09:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">gptplus没有了提宝真的用sol中和高两天烧一半周额度，你们平时主力一直用sol吗我问gpt她推荐用规则派子代理让luna写代码 但是又看到说codex程序默认非必要不怎么会派子代理因为效果不好？
+

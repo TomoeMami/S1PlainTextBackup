@@ -2986,3 +2986,11 @@ https://www.nexusmods.com/queensdomain/mods/24
 感觉白树像是某种贝奥瓦海民的原始信仰，三叉戟钥匙有点像从远古流传至今，开启贝奥瓦王室圣地的圣物？（ ...</blockquote>
 那种化石纹路开始我以为是什么指引呢，太怪了。就在被大鱼吞噬的那里，结果爬上去什么也没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  28201  
+##### 216#       发表于 2026-11-8 09:39
+
+打怪能掉点钱就好了，现在就那个蜥蜴的小包能换钱，还只有9块。异态药都买不起太惨了
+
