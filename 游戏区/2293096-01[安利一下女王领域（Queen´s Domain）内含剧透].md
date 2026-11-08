@@ -3029,3 +3029,14 @@ https://www.nexusmods.com/queensdomain/mods/24
 打怪能掉点钱就好了，现在就那个蜥蜴的小包能换钱，还只有9块。捡也都是一块两块。异态药都买不起太惨了 ...</blockquote>
 打到海底神庙怪太多直接不打了<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  28201  
+##### 221#       发表于 2026-11-8 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482782&amp;ptid=2293096" target="_blank">gogoex 发表于 2026-11-8 10:34</a>
+
+打到海底神庙怪太多直接不打了</blockquote>
+只能跑酷，清怪我放弃了，鱼也太多了。到神殿里面更厉害，个个都带异态攻击，难怪外面送了个降低异态率的（也没太大用
+

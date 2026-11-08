@@ -5026,3 +5026,13 @@ gptplus没有了提宝真的用sol中和高两天烧一半周额度，你们平�
 
 hermes这个垃圾软件，运行速度慢的要死，早该滚蛋了。
 
+
+*****
+
+####  jojog  
+##### 19683#       发表于 2026-11-8 10:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这波还不如a/，起码a/还不会说我塞了什么shi
+
+hermese那堆题tmd简直就是恶心透了
+
