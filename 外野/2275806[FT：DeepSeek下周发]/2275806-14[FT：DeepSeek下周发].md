@@ -5297,3 +5297,24 @@ hy4 尝试了好几个类型的任务，都感觉有点难用，某个榜是怎�
 这workbuddy的新功能挺有意思，一键修改提示词，把我的大白话变成了看着很专业的提示词，感觉就算不用wb， ...</blockquote>
 这个在哪启用？我更新到最新了，没有找到开关
 
+
+*****
+
+####  heemoon  
+##### 19705#       发表于 2026-11-8 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483690&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-11-8 15:24</a>
+这个在哪启用？我更新到最新了，没有找到开关</blockquote>
+这功能出了有段时间了，在对话框模型名的左边有个星星图标，点一下就行
+
+
+*****
+
+####  舞以  
+##### 19706#       发表于 2026-11-8 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483596&amp;ptid=2275806" target="_blank">平昭·南宫司卿 发表于 2026-11-8 14:49</a>
+
+hy4 尝试了好几个类型的任务，都感觉有点难用，某个榜是怎么能评出来比 k3.1 强的 ...</blockquote>
+猫本人现在就是HY的员工<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+

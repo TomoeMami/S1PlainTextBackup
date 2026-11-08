@@ -3099,3 +3099,11 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 —— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  qwetyuyu  
+##### 228#       发表于 2026-11-8 15:40
+
+玩不下去了，体验太烦了，没有即使存档，有些地图太暗了 就是让你故意看不清，小怪又多又硬，战斗只有丢远程
+
