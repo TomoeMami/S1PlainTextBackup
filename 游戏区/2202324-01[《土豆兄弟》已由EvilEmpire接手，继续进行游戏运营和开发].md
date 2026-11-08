@@ -666,3 +666,38 @@ steam最近的评价已经差成这样了么
 徒步蛆增强之后意外还挺猛的，前期钱多追经济拉一拉收获基本就能打了，断手、猎人这些老睿智最后竟然都是用 ...</blockquote>
 猎人用弩就行了 前期多点攻速，前期战力太强了，后期机械飞行也不缺成长，机械化完全不看发育属性有前期战力的就是爽。
 
+
+*****
+
+####  恶搞之王  
+##### 509#       发表于 2026-11-8 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70484943&amp;ptid=2202324" target="_blank">敬明挑梅西 发表于 2026-11-8 22:06</a>
+
+徒步蛆增强之后意外还挺猛的，前期钱多追经济拉一拉收获基本就能打了，断手、猎人这些老睿智最后竟然都是用 ...</blockquote>
+猎人用吹箭不错
+
+原始精准都是好属性，攻速快范围远，机械化点高出穿透就行了
+
+
+*****
+
+####  iceddd  
+##### 510#       发表于 2026-11-8 23:43
+
+简单玩了一下士兵机器人和复合弓
+士兵纯白板 机枪是白色稀有度的链枪又有点过于超模
+复合弓是个啥玩意<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 前期太弱了
+机器人感觉没有进化属性前期巨缺伤害 我拿轨道炮才难5首通    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  iceddd  
+##### 510#       发表于 2026-11-8 23:43
+
+简单玩了一下士兵机器人和复合弓
+士兵纯白板 机枪是白色稀有度的链枪又有点过于超模
+复合弓是个啥玩意<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 前期太弱了
+机器人感觉没有进化属性前期巨缺伤害 我拿轨道炮才难5首通    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
