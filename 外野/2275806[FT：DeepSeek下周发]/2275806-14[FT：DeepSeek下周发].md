@@ -5048,3 +5048,32 @@ hermese那堆题tmd简直就是恶心透了
 —— 来自 samsung SM-S9480, Android 16, 鹅球 v4.0 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我让sol桥接mcp交任务给dsh的大肥鱼改个界面，结果肥鱼看着设计图和gpt讨论完之后做出来的效果还不如sol自己写
 
+
+*****
+
+####  eno_emos  
+##### 19685#       发表于 2026-11-8 11:16
+
+我感觉llm接到agent里面以后看待软件工程问题的方式和人类程序员是根本不一样的
+
+人类程序员拿到一个需求做开发做改进先从逻辑框架开始实现，然后做交互做ui，数据部分是最后的
+
+agent倒过来，因为它本能的用bash所以整个开发过程是数据驱动的，先考虑数据结构再考虑运行逻辑，ui反而是很靠后的部分
+
+在正向开发的时候到做交互的环节模型就开始头大，但是逆向工程的时候那他这个特性就猛了
+
+拆东西扫一眼看得清清楚楚，拆得飞快
+
+*****
+
+####  剑影若兰  
+##### 19686#       发表于 2026-11-8 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482751&amp;ptid=2275806" target="_blank">wakakaka0679 发表于 2026-11-8 10:23</a>
+群友批量薅WorkBuddy国际版羊毛，已经GPT自由了
+
+到处跑已经装了的付费软件和验证码算法 ...</blockquote>
+请问这羊毛怎么薅<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

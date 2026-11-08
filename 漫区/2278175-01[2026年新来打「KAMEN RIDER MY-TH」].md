@@ -28,3 +28,11 @@
 
 对着癫佬的蛇羊唯唯诺诺，对着好说话的老虎重拳出击，看上去有点这样的感觉
 
+
+*****
+
+####  黑上シグマ  
+##### 281#       发表于 2026-11-8 11:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某保险公司终于正式和exaid联动出广告，而日清则似乎准备和build联动
+
