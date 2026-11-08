@@ -3393,3 +3393,35 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 海底神庙存档点旁边可以插5把三叉戟的牢房中间的那间怎么开，看到墙上有个洞但是没找到从哪飞过去
 
+
+*****
+
+####  火红之眼  
+##### 258#       发表于 2026-11-9 02:19
+
+<img src="https://img.stage1st.com/forum/202611/09/021937trzz0dp8eerqwerq.jpg" referrerpolicy="no-referrer">
+
+<strong>7BF753950E2AAF0542B58C7E8AC13697.jpg</strong> (758.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 02:19 上传
+
+<img src="https://img.stage1st.com/forum/202611/09/021943e4wum50c5uw4h79u.jpg" referrerpolicy="no-referrer">
+
+<strong>007725B4FC79623E7F9C9C85AC00DDB7.jpg</strong> (758.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 02:19 上传
+
+<img src="https://img.stage1st.com/forum/202611/09/021948g1o14y93fpeycafi.jpg" referrerpolicy="no-referrer">
+
+<strong>F1F3EB077B59C5C9F4A165897DBFBAEF.jpg</strong> (704.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 02:19 上传
+
+看笑了
+
