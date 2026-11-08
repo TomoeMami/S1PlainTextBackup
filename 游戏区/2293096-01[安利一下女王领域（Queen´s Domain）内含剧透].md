@@ -3269,3 +3269,14 @@ https://www.nexusmods.com/queensdomain/mods/24
 上古界域还剩一个塔，太好玩了，都说上古界域拉了，我感觉还好，问题也确实有，一是从有限路径变成开放，前 ...</blockquote>
 其实只要知道连接隧道两边是不同就简单好多，我一开始不知道就满地图瞎逛，蓝印记和电流枪都没拿，玩起来就很痛苦
 
+
+*****
+
+####  shimotsuki14  
+##### 245#       发表于 2026-11-8 18:52
+
+没细看，找了半天就找到了两个三叉戟钥匙，结果发现第三个钥匙是那个啥用多了掉下来的<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+打完了很多神庙感觉还有很多隐藏没发现，先传回初始地区按图索骥去了……
+
+—— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
