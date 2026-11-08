@@ -5102,3 +5102,18 @@ agent倒过来，因为它本能的用bash所以整个开发过程是数据驱�
 
 —— 来自 HUAWEI VOL-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  我就再氪一单  
+##### 19689#       发表于 2026-11-8 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482448&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-8 08:27</a>
+反过来说这些问题原本就不复杂，只是需要的背景知识太多所以以往看来门槛很高
+
+硬件和OS相关的东西对普通 ...</blockquote>
+这种查问题避不开的需要翻日志，这种事情普通人绝对是地狱难度，特别是没有日志阅读筛选工具，日志翻多了是真的要怀疑自己是不是也有阅读障碍了。对于我这种对时间和数字不敏感的人，根本没办法联系上下文分析问题。
+包括蓝屏代码速查手册，普通人根本接触不到，接触到还有一定的阅读门槛，网络上你直接搜索引擎搜代码，结果大概率是经验主义解决方案，哪能跟真把整本手册吃透的ai比
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
