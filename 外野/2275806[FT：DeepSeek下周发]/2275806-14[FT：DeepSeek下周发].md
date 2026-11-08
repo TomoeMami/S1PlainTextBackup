@@ -4937,3 +4937,15 @@ r1时期就有人搞这种阴湿的破事
 
 有些软件是真觉得你不会用是你自己问题的
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19673#       发表于 2026-11-8 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482436&amp;ptid=2275806" target="_blank">御众师 发表于 2026-11-8 08:19</a>
+那些模型有没有思维链用中文思考的，我看国模经常用英文思考，虽然输出还是中文…我基本上都用国模，感觉 ...</blockquote>
+跟提示词有关，harness系统提示词和skill大多都是英文的，所以思维链就是英文的
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
