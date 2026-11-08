@@ -4845,3 +4845,13 @@ r1时期就有人搞这种阴湿的破事
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  我就再氪一单  
+##### 19666#       发表于 2026-11-8 07:53
+
+还有内存超频，群友直接让大肥鱼提供内存小参，以前一杯茶一包烟一套小参调一天，现在2小时搞定<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
