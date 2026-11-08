@@ -3193,3 +3193,51 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 楼上说的拳套浮空看到了，但是没钱买了，一个存档位实在太老派了orz
 
+
+*****
+
+####  郁哲  
+##### 238#       发表于 2026-11-8 18:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活用ESC的拍照模式，真的把探索的体验大幅提升了，灵魂出窍飞到角落什么的到处看看
+
+
+*****
+
+####  郁哲  
+##### 239#       发表于 2026-11-8 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70484195&amp;ptid=2293096" target="_blank">double8G 发表于 2026-11-8 18:04</a>
+
+海王打不过……没药回血和异常了，被各种毒死，有啥逃课的点吗
+
+楼上说的拳套浮空看到了，但是没钱买了，一 ...</blockquote>
+木棒到10级，右键会变成持续回血的BUFF。
+<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">实在打不过也可以数值取胜，生锈武器到10级都非常强
+
+*****
+
+####  Shu-Stella  
+##### 240#       发表于 2026-11-8 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70484195&amp;ptid=2293096" target="_blank">double8G 发表于 2026-11-8 18:04</a>
+
+海王打不过……没药回血和异常了，被各种毒死，有啥逃课的点吗
+
+楼上说的拳套浮空看到了，但是没钱买了，一 ...</blockquote>
+这游戏最无脑打法就是带一堆远程，比如魔法书解锁SVT直接变FPS
+
+
+*****
+
+####  panandhao  
+##### 241#       发表于 2026-11-8 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483801&amp;ptid=2293096" target="_blank">Shu-Stella 发表于 2026-11-8 16:05</a>
+感觉上古界域这图设计一般，大部分时候就是一条路走到底，主线指引也不明显，相比较本体岛屿来说什么也没有 ...</blockquote>
+感觉这张图整体+枪支远程的种种设计，都是单独一段时间里独立做出来的（看24年biogenisis社媒就发过这地方的概念，感觉像他们某款boomer shooter的废案）
+
+包括这块去罪恶辑录的入口，设计的也很刻意，其实按道理，原本这块入口应该是在空谷才对，为了体现一种连通性，硬是给牵起来了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
