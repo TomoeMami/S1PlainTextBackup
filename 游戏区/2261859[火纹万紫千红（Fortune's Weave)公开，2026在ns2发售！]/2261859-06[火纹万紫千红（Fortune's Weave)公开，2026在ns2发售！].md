@@ -12052,3 +12052,16 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 去转职，无论成功还是失败都能把这次加点顶掉。</blockquote>
 多谢，那成本还挺高的对于前期来说<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Antidote丶  
+##### 8549#       发表于 2026-11-8 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483603&amp;ptid=2261859" target="_blank">Losange 发表于 2026-11-8 14:51</a>
+
+第三部也能刷，这个东西不急，要指挥B并且只有步兵可以带
+
+第二部第三章有这个舒服点，但是你都打算手打四 ...</blockquote>
+是的，女王篇第一部我也很少用这东西
+
