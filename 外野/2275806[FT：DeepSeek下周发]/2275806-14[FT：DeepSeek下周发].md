@@ -4989,3 +4989,24 @@ r1时期就有人搞这种阴湿的破事
 
 前几天就遇到过，发现我电脑代理tun模式用不了，然后让肥鱼查了下，原来是某个应用改了网卡配置
 
+
+*****
+
+####  umamusume  
+##### 19679#       发表于 2026-11-8 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482606&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-8 09:41</a>
+gptplus没有了提宝真的用sol中和高两天烧一半周额度，你们平时主力一直用sol吗我问gpt她推荐用规则派子代理 ...</blockquote>
+你让大肥鱼当路由器，让sol当写代码的
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  wakakaka0679  
+##### 19680#       发表于 2026-11-8 10:23
+
+群友批量薅WorkBuddy国际版羊毛，已经GPT自由了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+到处跑已经装了的付费软件和验证码算法
+
