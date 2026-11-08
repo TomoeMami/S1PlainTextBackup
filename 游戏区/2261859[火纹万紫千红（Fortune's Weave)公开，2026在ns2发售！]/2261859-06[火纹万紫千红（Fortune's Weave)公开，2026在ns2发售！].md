@@ -11959,3 +11959,24 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 来得及
 
+
+*****
+
+####  苍蓝之枪  
+##### 8540#       发表于 2026-11-8 09:19
+
+早就打完仓库锁住的已经说什么都没用了
+
+越想越觉得这b设计坑爹至极
+
+
+*****
+
+####  Jabeck  
+##### 8541#       发表于 2026-11-8 09:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482542&amp;ptid=2261859" target="_blank">otakun 发表于 2026-11-8 09:10</a>
+
+我都是在专楼才知道第二章脱出关有增援出现，你们都是把中间的也打了的？ ...</blockquote>
+中间可以别去喷，有些人想要挑战才去打。
+
