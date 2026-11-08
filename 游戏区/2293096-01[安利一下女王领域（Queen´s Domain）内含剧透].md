@@ -3367,3 +3367,21 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 这游戏怎么快速刷武器等级啊？是根据击杀数来的吗？
 
+
+*****
+
+####  留小草  
+##### 255#       发表于 2026-11-9 00:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70485294&amp;ptid=2293096" target="_blank">pzgr43 发表于 2026-11-9 00:25</a>
+
+这游戏怎么快速刷武器等级啊？是根据击杀数来的吗？</blockquote>
+看起来是伤害，造成伤害越高经验越高，非伤害武器诸如回血之类的，释放时就会加经验
+
+*****
+
+####  留小草  
+##### 256#       发表于 2026-11-9 00:50
+
+罪恶缉录地下那一段真给唬住了，怪伤害也太高了，地上部分又开始好玩了
+
