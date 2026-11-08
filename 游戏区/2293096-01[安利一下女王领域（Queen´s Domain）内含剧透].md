@@ -3280,3 +3280,14 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 —— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  郁哲  
+##### 246#       发表于 2026-11-8 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481997&amp;ptid=2293096" target="_blank">madnesshare 发表于 2026-11-8 00:11</a>
+
+你们都不会卡关的吗。。我打倒了一个地下的骷髅BOSS以后，也去悬崖边跳冲刺山洞拿了一个奇怪的投掷石块，在 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拳套的体力恢复速度是极快，如果用来战斗，正确的用法是体力满了后台放飞剑，伤害还是算飞剑的
+
