@@ -5274,3 +5274,26 @@ hy4 尝试了好几个类型的任务，都感觉有点难用，某个榜是怎�
 
 让llm给我做个网页游戏插件，别的都扭扭捏捏觉得联网游戏不能作弊，大肥鱼二话不说给我搓了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  frankCC  
+##### 19703#       发表于 2026-11-8 15:21
+
+ 本帖最后由 frankCC 于 2026-11-8 15:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483598&amp;ptid=2275806" target="_blank">阿萨辛艾沃尔 发表于 2026-11-8 14:50</a>
+
+这workbuddy的新功能挺有意思，一键修改提示词，把我的大白话变成了看着很专业的提示词，感觉就算不用wb， ...</blockquote>
+这个实际是chatterfly的功能，腾子又搞的新语音输入法，现在的内测申请应该是随便过的。
+
+
+*****
+
+####  zack1999  
+##### 19704#       发表于 2026-11-8 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483598&amp;ptid=2275806" target="_blank">阿萨辛艾沃尔 发表于 2026-11-8 14:50</a>
+
+这workbuddy的新功能挺有意思，一键修改提示词，把我的大白话变成了看着很专业的提示词，感觉就算不用wb， ...</blockquote>
+这个在哪启用？我更新到最新了，没有找到开关
+
