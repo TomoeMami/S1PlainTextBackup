@@ -5166,3 +5166,17 @@ agent倒过来，因为它本能的用bash所以整个开发过程是数据驱�
 
 2026-11-8 12:01 上传
 
+
+*****
+
+####  紧那罗  
+##### 19693#       发表于 2026-11-8 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482923&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-11-8 11:16</a>
+我感觉llm接到agent里面以后看待软件工程问题的方式和人类程序员是根本不一样的
+
+人类程序员拿到一个需求做 ...</blockquote>
+这个说法不对，OOP就是强调建模重于过程了，更别说DDD/微服务这类企业建模方法论了。在真的AGI出现之前，agent训练还是沿用人类的解题思路，无非是迭代过程比过去更快了。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
