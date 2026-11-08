@@ -5347,3 +5347,14 @@ hy4 glm5.3 0813差不多一条线吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer"> qwen4要出了我才注意到qwen3.8max有2.4T，，，，，这像话吗
 
+
+*****
+
+####  口袋妖怪  
+##### 19710#       发表于 2026-11-8 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483598&amp;ptid=2275806" target="_blank">阿萨辛艾沃尔 发表于 2026-11-8 14:50</a>
+
+这workbuddy的新功能挺有意思，一键修改提示词，把我的大白话变成了看着很专业的提示词，感觉就算不用wb， ...</blockquote>
+这个功能出了一段时间了，它有的话会专业过头，把你原本的意思给曲解了，我之前很喜欢修改，后面发现全给我改出幻觉了，现在改大白话了
+

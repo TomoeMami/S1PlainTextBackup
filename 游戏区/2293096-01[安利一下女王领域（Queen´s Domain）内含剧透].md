@@ -3115,3 +3115,14 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 感觉上古界域这图设计一般，大部分时候就是一条路走到底，主线指引也不明显，相比较本体岛屿来说什么也没有的死角也多了不少。
 
+
+*****
+
+####  vidomina  
+##### 230#         楼主| 发表于 2026-11-8 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70483801&amp;ptid=2293096" target="_blank">Shu-Stella 发表于 2026-11-8 16:05</a>
+
+感觉上古界域这图设计一般，大部分时候就是一条路走到底，主线指引也不明显，相比较本体岛屿来说什么也没有 ...</blockquote>
+我觉得这张图在相对位置上算是独立的，不太好设计捷径，近路等等和其他图连起来，所以只好把这张图能得复杂些。
+
