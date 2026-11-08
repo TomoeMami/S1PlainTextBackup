@@ -5117,3 +5117,33 @@ agent倒过来，因为它本能的用bash所以整个开发过程是数据驱�
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  warlock228  
+##### 19690#       发表于 2026-11-8 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482945&amp;ptid=2275806" target="_blank">umamusume 发表于 2026-11-8 11:21</a>
+因为你桥反了 路由器不需要高智商
+另外这些模型根本就不用拿来做前端，先用毛坯房测试没大问题，opencode ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">谢谢学到了
+
+
+*****
+
+####  我就再氪一单  
+##### 19691#       发表于 2026-11-8 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482686&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-8 10:04</a>
+大肥鱼吭哧吭哧照着astra的计划一顿猛干，然后被astra指出最开始的做法就是错的，全部白搞，用K31P擦了半天 ...</blockquote>
+我是大肥鱼当项目主设计，项目交由minimax审计<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+周末前完成了上git和备份的工作，于是突发奇想完全没有软件工程经验的我看着3000+的wb积分决定开始折腾代码debug和优化。
+
+大肥鱼自己写的1.0版本的优化方案我还能看懂一点。
+交给minimax审核方案，minimax拉满上下文和思考强度后，一个7000行代码不到的项目，雷霆思考两个半小时后，烧了我400积分。然后改完的方案审核报告这时候开始就超纲了，我就已经完全看不懂了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我这边倒是还好，mm3.1f和ds4.1f两边意见基本大差不差，甚至每次另一边接过方案稿都能往下写细则。
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
