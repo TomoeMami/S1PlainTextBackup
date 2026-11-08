@@ -5240,3 +5240,13 @@ The pragmatic programmer也提到过这种方法叫“变换式编程”，都�
 
 现在查一闪而过的窗口比之前方便多了。之前突然闪了一个窗口，Codex花了一会就告诉我是网易UU远程更新虚拟键鼠部件的原因，过去只能百思不得其解。还有收拾自己留下的烂摊子，想静默后台结果有个cmd窗口在那里
 
+
+*****
+
+####  口袋妖怪  
+##### 19699#       发表于 2026-11-8 13:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是大肥鱼便宜，
+
+下了个glm的客户端，新注册的积分用glm5.3开了个任务，任务没跑完把信号赠送积分消耗完了，我真是惊呆了，第一次见这种的<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
