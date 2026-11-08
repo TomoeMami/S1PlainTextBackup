@@ -12026,3 +12026,29 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 进第二部发现加护等级又变回1了，是不是提升不了了
 
+
+*****
+
+####  Losange  
+##### 8547#       发表于 2026-11-8 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482232&amp;ptid=2261859" target="_blank">Antidote丶 发表于 2026-11-8 02:48</a>
+
+我好像一个马戏团都没招到，利贝拉村还是？？？。
+
+回合太赶了，没办法</blockquote>
+第三部也能刷，这个东西不急，要指挥B并且只有步兵可以带
+
+第二部第三章有这个舒服点，但是你都打算手打四遍了，除了女王其余三人是没这个东西的，该怎么打就怎么打
+
+
+*****
+
+####  requiem116  
+##### 8548#       发表于 2026-11-8 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70481151&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-11-7 19:21</a>
+
+去转职，无论成功还是失败都能把这次加点顶掉。</blockquote>
+多谢，那成本还挺高的对于前期来说<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

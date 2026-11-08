@@ -3071,3 +3071,11 @@ https://www.nexusmods.com/queensdomain/mods/24
 整了个ns2版，确实好，应该能进我今年最喜欢的独立游戏前三</blockquote>
 不知是不是我触发了什么bug，ns2版本的汉皮步枪不能升级（永远0经验），steam版没这个问题<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  renkan119  
+##### 225#       发表于 2026-11-8 14:48
+
+没上ns港服吗 怎么找不到
+
