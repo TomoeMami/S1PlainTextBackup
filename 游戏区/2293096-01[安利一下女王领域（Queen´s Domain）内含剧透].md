@@ -3061,3 +3061,13 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 前期刷不来武器等级 不想受苦就用彩蛋码搞世界赐福指环，汉皮步枪和幽灵长枪
 
+
+*****
+
+####  忧蓝  
+##### 224#       发表于 2026-11-8 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70479122&amp;ptid=2293096" target="_blank">stair楼梯 发表于 2026-11-7 02:18</a>
+整了个ns2版，确实好，应该能进我今年最喜欢的独立游戏前三</blockquote>
+不知是不是我触发了什么bug，ns2版本的汉皮步枪不能升级（永远0经验），steam版没这个问题<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
