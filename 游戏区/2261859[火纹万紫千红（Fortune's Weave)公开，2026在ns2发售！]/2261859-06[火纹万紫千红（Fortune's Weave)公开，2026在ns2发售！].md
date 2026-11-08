@@ -12000,3 +12000,13 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 漫画剧情增改了很多啊，测验也把和屠牛者对打改了……
 
+
+*****
+
+####  嘲风  
+##### 8544#       发表于 2026-11-8 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482542&amp;ptid=2261859" target="_blank">otakun 发表于 2026-11-8 09:10</a>
+我都是在专楼才知道第二章脱出关有增援出现，你们都是把中间的也打了的？ ...</blockquote>
+队伍够强力就能从中间杀过去，反正我4条线只有雷达线是大摇大摆从中间趟过去的，迪哥线很勉强，另外2线都只能狗
+
