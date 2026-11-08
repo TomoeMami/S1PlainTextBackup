@@ -3291,3 +3291,19 @@ https://www.nexusmods.com/queensdomain/mods/24
 你们都不会卡关的吗。。我打倒了一个地下的骷髅BOSS以后，也去悬崖边跳冲刺山洞拿了一个奇怪的投掷石块，在 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拳套的体力恢复速度是极快，如果用来战斗，正确的用法是体力满了后台放飞剑，伤害还是算飞剑的
 
+
+*****
+
+####  妄想中毒  
+##### 247#       发表于 2026-11-8 19:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看上面那么多跳井的我也跟着跳了而且还在下面存了档，死了一个多小时才找到回来的传送点
+
+
+*****
+
+####  Shu-Stella  
+##### 248#       发表于 2026-11-8 19:35
+
+后面解锁各种远程主武器以后，全部都是共享能量条实在是有点鸡肋，意味着其实同时只能用一个武器，并不能真的玩成传统FPS那样切枪，虽然可能本意就是这个，但是能量武器数量也有点太多了。
+
