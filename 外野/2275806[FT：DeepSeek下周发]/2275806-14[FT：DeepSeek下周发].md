@@ -5329,3 +5329,13 @@ agentic 就见仁见智了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qwased  
+##### 19708#       发表于 2026-11-8 16:03
+
+hy4 glm5.3 0813差不多一条线吧
+
+但是hy是真的走上正轨一点点变好了，牢唐还在拼命画饼，发了个访谈说马上出一个1.3T 接近fable5的模型<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
