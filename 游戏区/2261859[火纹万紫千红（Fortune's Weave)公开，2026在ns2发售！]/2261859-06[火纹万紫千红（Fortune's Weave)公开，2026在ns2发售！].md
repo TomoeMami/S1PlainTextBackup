@@ -11936,3 +11936,26 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.50)
 
+
+*****
+
+####  otakun  
+##### 8538#       发表于 2026-11-8 09:10
+
+我都是在专楼才知道第二章脱出关有增援出现，你们都是把中间的也打了的？
+
+
+*****
+
+####  纯夏  
+##### 8539#       发表于 2026-11-8 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482528&amp;ptid=2261859" target="_blank">狩野すみれ 发表于 2026-11-8 09:01</a>
+
+第二部第六章，是不是有两次战斗？
+
+凯伊线首次通第二部的话，在第六章的第二次战斗前准备时下马，来得及吗 ...</blockquote>
+是 
+
+来得及
+
