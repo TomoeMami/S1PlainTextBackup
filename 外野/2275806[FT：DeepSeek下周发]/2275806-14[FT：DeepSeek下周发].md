@@ -5399,3 +5399,23 @@ hy4 glm5.3 0813差不多一条线吧
 猫本人现在就是HY的员工</blockquote>
 这个他自己说了我知道，hy 的还不如不发，现在只是觉得他这套测试有点闹麻了
 
+
+*****
+
+####  umamusume  
+##### 19714#       发表于 2026-11-8 17:12
+
+今天给dsh调插件，门限没调好
+然后大肥鱼给我调用了n个astra，我说怎么今天余量用那么快
+情况如下：
+
+<img src="https://img.stage1st.com/forum/202611/08/171205fmub5txl2lm2zmp2.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1794129124952_1.webp</strong> (381.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-8 17:12 上传
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
