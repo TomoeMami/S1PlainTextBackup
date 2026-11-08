@@ -3018,3 +3018,14 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 什么是类国王密令
 
+
+*****
+
+####  gogoex  
+##### 220#       发表于 2026-11-8 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70482599&amp;ptid=2293096" target="_blank">28201 发表于 2026-11-8 09:39</a>
+
+打怪能掉点钱就好了，现在就那个蜥蜴的小包能换钱，还只有9块。捡也都是一块两块。异态药都买不起太惨了 ...</blockquote>
+打到海底神庙怪太多直接不打了<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
