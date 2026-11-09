@@ -490,3 +490,27 @@ Responsum iam est.——答案已定</blockquote>
 
        [https://t.bilibili.com/1268548228310106113](https://t.bilibili.com/1268548228310106113)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42203#       发表于 2026-11-9 22:51
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/09/225133zzhvtth1m4ixvy44.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-09_22-46-18.png</strong> (459.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 22:51 上传
+
+       [https://x.com/bang_dream_info/status/2119744180734079230](https://x.com/bang_dream_info/status/2119744180734079230)
+
+       [https://x.com/Billboard_JAPAN/status/2119735534012756233](https://x.com/Billboard_JAPAN/status/2119735534012756233)
+
+       [https://www.billboard-japan.com/special/detail/5516](https://www.billboard-japan.com/special/detail/5516)  <strong>&lt;——原文链接</strong>
+
+       [https://avemujica.wiki/interview/index.html#ah9vCSsyfX0](https://avemujica.wiki/interview/index.html#ah9vCSsyfX0)  <strong>&lt;——唯鸡百科译文《Ave Mujica 音乐制作人 Diggy-MO’眼中的乐队制作精髓（前篇）》</strong>
+

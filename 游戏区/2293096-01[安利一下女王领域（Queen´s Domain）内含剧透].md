@@ -3991,3 +3991,18 @@ https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
 
 有存档回滚的法子吗？就想开修改器刷个古币，结果误触全武器了，真圣剑出来就不想玩了
 
+
+*****
+
+####  zzf111  
+##### 298#       发表于 2026-11-9 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488966&amp;ptid=2293096" target="_blank">郁哲 发表于 2026-11-9 22:37</a>
+
+从海神殿后面到了腐朽沼泽，这难度提升是人啊，到病村了属于。
+
+还有这拿俩板斧的大哥，对波都不敢对了 ...</blockquote>
+跳关了，海神殿后三灯塔点火齐了应该回本岛去知识塔大书库
+
+今天我也是没管上古界域地区一眼主线的地方 直接去开更高级的后期地图导致难度骤升 难度骤升
+

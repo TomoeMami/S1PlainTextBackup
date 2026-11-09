@@ -5935,3 +5935,53 @@ ai早就二游化了<img src="https://static.stage1st.com/image/smiley/face2017/
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mitzvah  
+##### 19759#       发表于 2026-11-9 22:47
+
+ 本帖最后由 mitzvah 于 2026-11-9 22:48 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488956&amp;ptid=2275806" target="_blank">novalli 发表于 2026-11-9 22:32</a>
+
+每次修改文档和脚本的时候，我都要专门过一遍删除否定词，只保留正向流程。能用脚本绝不LLM，能分阶段绝 ...</blockquote>
+没必要这么过严厉吧，让1017自己提设计方案文档，然后codebase memorymcp静态建索建立鸟瞰的全局认识评估一下设计的可行性，注意在评估过程中必须以codebase mcp为起始，一旦出现先awk，sed的整段读代码或者裸grep立刻打断（这部分其实也可以自动化），然后dap对全局认识补盲，告诉1017，它就会自己应用该方法论——这么一波下来，再写修改文档，包括修改的准代码块，然后读清单式得准代码块逐一静态工具联合评估，直到所有块都通过评估技能落码
+
+上面这个过程可以把大型项目修改时，llm注意力涣散所能产生的绝大多数问题给过滤掉，基本不会搞坏代码，反正我是没见过不能通过构建的例子，唯一问题就是修改方案的出发点可能是错的，这是领域专业知识的问题，但是这个1017也未必不懂，很多时候就是服从性太强导致的，多试几次用户对领域知识的积累多了，问问1017就能找到好的方案
+
+*****
+
+####  profr  
+##### 19760#       发表于 2026-11-9 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488953&amp;ptid=2275806" target="_blank">莱茵哈鲁特 发表于 2026-11-9 22:31</a>
+
+https://www.bilibili.com/video/BV1JkWH64ESy/  
+
+这个造桥游戏视频的评论区感觉快要变成二游流水的评论区 ...</blockquote>
+其实我觉得这期观赏性没有上一期踢球的高，不过这期播放量倒是猛增
+
+
+*****
+
+####  lactone  
+##### 19761#       发表于 2026-11-9 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488994&amp;ptid=2275806" target="_blank">profr 发表于 2026-11-9 22:49</a>
+其实我觉得这期观赏性没有上一期踢球的高，不过这期播放量倒是猛增</blockquote>
+有人投流了，今天上了睿站热搜榜
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  phorcys02  
+##### 19762#       发表于 2026-11-9 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488953&amp;ptid=2275806" target="_blank">莱茵哈鲁特 发表于 2026-11-9 22:31</a>
+
+https://www.bilibili.com/video/BV1JkWH64ESy/  
+
+这个造桥游戏视频的评论区感觉快要变成二游流水的评论区 ...</blockquote>
+二十年前也有类似的，以用谷歌/msn/gmail为荣，以用百度/qq/网易邮箱 为耻。
+
