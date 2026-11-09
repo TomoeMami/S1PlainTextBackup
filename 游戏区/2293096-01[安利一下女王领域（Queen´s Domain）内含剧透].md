@@ -3545,3 +3545,66 @@ bug6.png
 
 重型步枪+铁拳，基本颠覆了之前的战斗体验，喜欢我火箭弹接跟踪火箭弹接火箭飞拳接手雷吗
 
+
+*****
+
+####  留小草  
+##### 263#       发表于 2026-11-9 10:26
+
+重型步枪+铁拳，基本颠覆了之前的战斗体验，喜欢我火箭弹接跟踪火箭弹接火箭飞拳接手雷吗
+
+*****
+
+####  double8G  
+##### 264#       发表于 2026-11-9 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70484267&amp;ptid=2293096" target="_blank">Shu-Stella 发表于 2026-11-8 18:26</a>
+
+这游戏最无脑打法就是带一堆远程，比如魔法书解锁SVT直接变FPS</blockquote>
+魔法书哪儿拿的……我还是去查查隐藏攻略吧，我的路线是点了两个塔的火就去水城了，但是怎么都觉得水城怪难度要高1~2个难度，最主要掉落物太难出了，钱用完就真的用完了，有点傻眼<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  瑟莉亚  
+##### 265#       发表于 2026-11-9 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70486501&amp;ptid=2293096" target="_blank">double8G 发表于 2026-11-9 10:28</a>
+
+魔法书哪儿拿的……我还是去查查隐藏攻略吧，我的路线是点了两个塔的火就去水城了，但是怎么都觉得水城怪 ...</blockquote>
+初始出生地岸边沉船对面那里有棵树，那颗树侧面能互动，里面就是魔导书。
+
+*****
+
+####  vidomina  
+##### 266#         楼主| 发表于 2026-11-9 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70486406&amp;ptid=2293096" target="_blank">瑟莉亚 发表于 2026-11-9 10:10</a>
+
+昨天把地下墓地BOSS打了，感觉应该是最弱的一个BOSS了。
+
+第一次打大蝙蝠把我卡墙边加上好像大蜘蛛一屁股给 ...</blockquote>
+是那个骷髅妹子吗？好多人直接前期跑来打该是很难的啊，一直在那找小怪。
+
+*****
+
+####  vidomina  
+##### 267#         楼主| 发表于 2026-11-9 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70486501&amp;ptid=2293096" target="_blank">double8G 发表于 2026-11-9 10:28</a>
+
+魔法书哪儿拿的……我还是去查查隐藏攻略吧，我的路线是点了两个塔的火就去水城了，但是怎么都觉得水城怪 ...</blockquote>
+看22楼，慎用<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  瑟莉亚  
+##### 268#       发表于 2026-11-9 10:35
+
+ 本帖最后由 瑟莉亚 于 2026-11-9 10:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70486532&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-9 10:32</a>
+
+是那个骷髅妹子吗？好多人直接前期跑来打该是很难的啊，一直在那找小怪。 ...</blockquote>
+那个戴面具找6个印记点6个的火大蜘蛛+大蝙蝠，感觉攻击欲望挺低的，比死灵之书好打多了。
+

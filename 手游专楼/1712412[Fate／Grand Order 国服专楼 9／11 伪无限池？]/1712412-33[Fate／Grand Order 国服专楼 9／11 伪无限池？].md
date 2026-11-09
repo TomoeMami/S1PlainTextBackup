@@ -293,3 +293,11 @@ MuMu-20261108-023307-521.jpg
 
 自选羽蛇神、白枪呆、太公想了想选了羽蛇神，送的石头终于把崇皇龙娘出了，中间歪了一个欧罗巴奶奶<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 48315#       发表于 2026-11-9 10:30
+
+上头咯，大号上头抽弓贞，小号给学姐补宝，都是颗粒无收<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
