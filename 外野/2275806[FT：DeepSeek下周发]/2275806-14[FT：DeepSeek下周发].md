@@ -6127,3 +6127,51 @@ fable5.5</blockquote>
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  andychen  
+##### 19773#       发表于 2026-11-10 05:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489339&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-10 04:06</a>
+
+我感觉是不太满意性能，或者因为民主党的事情，改了个低调的名字
+
+—— 来自 HONOR BRT-AN00, Android 17 ...</blockquote>
+Anthropic还在冲IPO，特别是中期选举后很需要一个大新闻扭转市场情绪
+
+我觉得目前这个模型是他们能马上拿出来的最好的模型了
+
+
+*****
+
+####  lactone  
+##### 19774#       发表于 2026-11-10 05:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489344&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-10 05:00</a>
+Anthropic还在冲IPO，特别是中期选举后很需要一个大新闻扭转市场情绪
+
+我觉得目前这个模型是他们能马上拿 ...</blockquote>
+现在这个叙事下，模型能力未必能撑起股价叙事<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+得讲安全故事
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  mitzvah  
+##### 19775#       发表于 2026-11-10 05:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489308&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-10 02:35</a>
+
+想魔改一下推理框架，但是我自己完全不懂，就找astra出好设计文档和计划，算法、伪代码、施工顺序啥的都安 ...</blockquote>
+从头到尾都用1017编程可能更加合理，你这个工作流代理之间通过文档来交流，Astra最初计划的时候不知道是不是基于静态工具mcp和建立的？
+
+反正到1017手上，按你的描述是只能读文档傻干的，文档往往无法完整的反应项目细节，1017读完后不知道怎么继续就只能awk，sed，或者grep瞎猜胡写就坏事了。
+
+从设计阶段开始，任何轮次的操作的开头必须是codebase这样的mcp调用，要是观察到调用awk 或者sed读整段，就该立刻意识到这一轮废了打断提醒其没有按照方法论来，让1017自己提出方案然后基于方法论验证，官方api是可以自行证伪设计的，最大问题是整个设计的出发点原始需求可能是错的，这个用户缺乏领域知识，那就只能实际跑一下再反馈了
+
+我猜测你安排那么多文档就等于注入，Astra防御性话术又那么厉害，估计benchmark写的很复杂，1017，一上来看到那么复杂的benchmark设计估计瞬间就懵逼 抛开项目本身去拟合文档了，从基于事实编程的角度上讲还是要依靠模型自己call tool的返回的事实过程来驱动工作流更实际
+
