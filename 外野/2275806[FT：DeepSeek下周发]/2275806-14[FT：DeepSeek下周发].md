@@ -6088,3 +6088,42 @@ fable5.2发了
 
 按乐观派说法，不发是因为对齐上开始出现问题了。按悲观派说法，不发是因为规模太大无法提供足够的推理服务能力
 
+
+*****
+
+####  lactone  
+##### 19770#       发表于 2026-11-10 03:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489335&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-10 03:51</a>
+现在两种说法
+
+按乐观派说法，不发是因为对齐上开始出现问题了。按悲观派说法，不发是因为规模太大无法提 ...</blockquote>
+你说什么不发？qwen4吗？还是fable5.5?
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  andychen  
+##### 19771#       发表于 2026-11-10 04:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489336&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-10 03:59</a>
+
+你说什么不发？qwen4吗？还是fable5.5?
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99 ...</blockquote>
+fable5.5
+
+
+*****
+
+####  lactone  
+##### 19772#       发表于 2026-11-10 04:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489338&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-10 04:02</a>
+fable5.5</blockquote>
+我感觉是不太满意性能，或者因为民主党的事情，改了个低调的名字<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
