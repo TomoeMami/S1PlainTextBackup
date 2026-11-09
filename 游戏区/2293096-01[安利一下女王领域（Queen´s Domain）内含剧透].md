@@ -3857,3 +3857,14 @@ https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
 
 最早看iron pineapple视频加的愿望单，现在转了十小时拿到了小盾，弹反真爽，就是反击过程中没无敌。
 
+
+*****
+
+####  vidomina  
+##### 288#         楼主| 发表于 2026-11-9 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488069&amp;ptid=2293096" target="_blank">Nosgoth 发表于 2026-11-9 17:05</a>
+
+最早看iron pineapple视频加的愿望单，现在转了十小时拿到了小盾，弹反真爽，就是反击过程中没无敌。 ...</blockquote>
+发现有些怪很难弹<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
