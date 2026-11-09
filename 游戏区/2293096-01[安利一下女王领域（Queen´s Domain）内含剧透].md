@@ -4029,3 +4029,18 @@ https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
 
 看steam也有人碰到过，说是出补丁修了，可能是PS版还没上补丁，想问下有没人碰到过，是怎么个修复法，如果是刷在原地那就继续推图先了
 
+
+*****
+
+####  zzf111  
+##### 301#       发表于 2026-11-9 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489058&amp;ptid=2293096" target="_blank">火红之眼 发表于 2026-11-9 23:22</a>
+
+墓葬刀这个好像有bug，知识塔打完蜥蜴后旁边开着的箱子啥都没有，玩的PS版别的朋友也这样
+
+看steam也有人碰 ...</blockquote>
+steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空的（印象深刻）
+
+刚刚回去看 发现宝箱中多了三把投掷武器墓葬刀，箱子附近还多了个小台桌蓝台灯
+
