@@ -3868,3 +3868,31 @@ https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
 最早看iron pineapple视频加的愿望单，现在转了十小时拿到了小盾，弹反真爽，就是反击过程中没无敌。 ...</blockquote>
 发现有些怪很难弹<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 289#       发表于 2026-11-9 18:32
+
+罪恶辑录的怪强度恁高
+
+要么会禁魔伤害高凭空刷新组队出击，要么在纯黑环境会隐身会脱战袭击四五成群
+
+一看图片排名都在倒数二十左右，真的是主线怪吗
+
+
+*****
+
+####  panandhao  
+##### 290#       发表于 2026-11-9 18:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488354&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-9 18:32</a>
+罪恶辑录的怪强度恁高
+
+要么会禁魔伤害高凭空刷新组队出击，要么在纯黑环境会隐身会脱战袭击四五成群
+
+一看图 ...</blockquote>
+多备草药，遇事不决机枪+吸血刀远程，BOSS还是挺好打的<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
