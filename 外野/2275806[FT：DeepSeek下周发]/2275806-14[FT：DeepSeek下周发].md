@@ -5767,3 +5767,45 @@ qwen今天发吗？稍微期待一下27b<img src="https://static.stage1st.com/im
 —— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
 a/也憋着个新fable和新opus呢
 
+
+*****
+
+####  lactone  
+##### 19744#       发表于 2026-11-9 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488665&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-9 20:31</a>
+a/也憋着个新fable和新opus呢</blockquote>
+路演期一般要静默，否则之前s-1文件里的东西可能会被质疑<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Vneeto  
+##### 19745#       发表于 2026-11-9 20:41
+
+最近憋气大赛的太多了，都压着不动，本来的差距就越看越难受了。
+
+
+*****
+
+####  med  
+##### 19746#       发表于 2026-11-9 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70487057&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-9 12:13</a>
+
+6.2sol可能比6astra还聪明啊</blockquote>
+这个榜单和我体感很接近，就是模型智力有明显分档，同一档的智力上很难体感出来。
+
+但是sol测出来这么聪明是没想到的，我用的是没这么聪明的，比astra要差一些
+
+*****
+
+####  奈落的孤火花  
+##### 19747#       发表于 2026-11-9 20:45
+
+每次我尝试用Deepseek，然后就感觉它老是不遵守事实，说话不依据事实，开发的东西老是对不齐我的需求，即使我跟它详细沟通了。即使做出来了之后，用个Luna对抗审核一下，也能发现很多问题。
+
+我看楼里很多人都用Deepseek做了各种各样的玩意，所以我在想，是不是我用法上有什么问题需要注意？或者是强模型指挥弱模型，有一些比较好用的技巧，能让强模型在没实际写的情况下，认真给出规划来。弱模型执行好，强模型还不需要完全看一遍，就能把这个事给做好。
+
