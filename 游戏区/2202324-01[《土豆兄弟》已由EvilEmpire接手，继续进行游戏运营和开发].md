@@ -860,3 +860,14 @@ steam最近的评价已经差成这样了么
 
 应该是走对应路线有机率产生对应的进化变异，进化变异程度越高boss异化几率越高…
 
+
+*****
+
+####  Tienx  
+##### 523#       发表于 2026-11-9 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70487363&amp;ptid=2202324" target="_blank">quanlix 发表于 2026-11-9 13:49</a>
+
+全程一个变异道具不掉</blockquote>
+异变果打20个异变体必掉。但是得有三个道具
+
