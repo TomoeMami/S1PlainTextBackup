@@ -3618,3 +3618,55 @@ bug6.png
 有一说一，那个返回存档点的道具，只要一丝血进入装备栏然后使用，就能够或者回家吧。那么是不是有mod，能 ...</blockquote>
 有随时快速存档mod
 
+
+*****
+
+####  vidomina  
+##### 270#         楼主| 发表于 2026-11-9 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70486552&amp;ptid=2293096" target="_blank">瑟莉亚 发表于 2026-11-9 10:35</a>
+
+那个戴面具找6个印记点6个的火大蜘蛛+大蝙蝠，感觉攻击欲望挺低的，比死灵之书好打多了。 ...</blockquote>
+哦哦，我记错了，以为是监牢那个BOSS<img src="https://static.stage1st.com/image/smiley/face2017/008.png">，那俩确实菜。
+
+我感觉血天使和圣剑守护是吃我最多药的BOSS了。
+
+
+*****
+
+####  vidomina  
+##### 270#         楼主| 发表于 2026-11-9 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70486552&amp;ptid=2293096" target="_blank">瑟莉亚 发表于 2026-11-9 10:35</a>
+
+那个戴面具找6个印记点6个的火大蜘蛛+大蝙蝠，感觉攻击欲望挺低的，比死灵之书好打多了。 ...</blockquote>
+哦哦，我记错了，以为是监牢那个BOSS<img src="https://static.stage1st.com/image/smiley/face2017/008.png">，那俩确实菜。
+
+我感觉血天使和圣剑守护是吃我最多药的BOSS了。
+
+
+*****
+
+####  vidomina  
+##### 270#         楼主| 发表于 2026-11-9 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70486552&amp;ptid=2293096" target="_blank">瑟莉亚 发表于 2026-11-9 10:35</a>
+
+那个戴面具找6个印记点6个的火大蜘蛛+大蝙蝠，感觉攻击欲望挺低的，比死灵之书好打多了。 ...</blockquote>
+哦哦，我记错了，以为是监牢那个BOSS<img src="https://static.stage1st.com/image/smiley/face2017/008.png">，那俩确实菜。
+
+我感觉血天使和圣剑守护是吃我最多药的BOSS了。
+
+
+*****
+
+####  vidomina  
+##### 270#         楼主| 发表于 2026-11-9 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70486552&amp;ptid=2293096" target="_blank">瑟莉亚 发表于 2026-11-9 10:35</a>
+
+那个戴面具找6个印记点6个的火大蜘蛛+大蝙蝠，感觉攻击欲望挺低的，比死灵之书好打多了。 ...</blockquote>
+哦哦，我记错了，以为是监牢那个BOSS<img src="https://static.stage1st.com/image/smiley/face2017/008.png">，那俩确实菜。
+
+我感觉血天使和圣剑守护是吃我最多药的BOSS了。
+
