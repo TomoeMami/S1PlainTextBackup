@@ -5921,3 +5921,17 @@ gpt怎么也封号了，周围两个都给我说封了<img src="https://static.s
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  lactone  
+##### 19758#       发表于 2026-11-9 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488953&amp;ptid=2275806" target="_blank">莱茵哈鲁特 发表于 2026-11-9 22:31</a>
+https://www.bilibili.com/video/BV1JkWH64ESy/  
+
+这个造桥游戏视频的评论区感觉快要变成二游流水的评论区 ...</blockquote>
+ai早就二游化了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
