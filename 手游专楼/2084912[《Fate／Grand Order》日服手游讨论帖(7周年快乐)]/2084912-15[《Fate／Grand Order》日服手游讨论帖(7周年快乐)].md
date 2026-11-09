@@ -900,3 +900,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 <img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">之前打得不算，要不然1t暴打梅林又快还有些掉落
 
+
+*****
+
+####  壳壳牛  
+##### 21795#       发表于 2026-11-10 04:12
+
+四星up是你游最大的谎言<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
