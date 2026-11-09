@@ -5520,3 +5520,11 @@ hy4 glm5.3 0813差不多一条线吧
 
 我也回测到6.2 sol了，确实防御性输出风格有改进，也oneshot了一个3d模型，用的我们实际的建设项目，效果还不错，ccswitch说花了1.2刀，效果能达到我们找设计院报价几万块效果的80%，估计迭代几轮就比设计院做的效果好了
 
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 19723#       发表于 2026-11-9 11:58
+
+现在ai已经能挖手机里有没有监控了 真厉害<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

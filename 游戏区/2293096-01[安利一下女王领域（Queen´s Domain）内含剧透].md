@@ -3714,3 +3714,16 @@ bug6.png
 
 吸血弯刀为啥用技能杀敌不能获取武器经验？
 
+
+*****
+
+####  瑟莉亚  
+##### 274#       发表于 2026-11-9 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70486865&amp;ptid=2293096" target="_blank">不会武术 发表于 2026-11-9 11:29</a>
+
+有没有每个地区的收集清单啊，，感觉每个区都没收集全，这游戏攻略都找不到的 ...</blockquote>
+[https://steamcommunity.com/sharedfiles/filedetails/?id=3830330740](https://steamcommunity.com/sharedfiles/filedetails/?id=3830330740)
+
+我看的这个
+
