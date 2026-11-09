@@ -6061,3 +6061,15 @@ qoduck也能抽到很强的模型
 
 k31p分解任务书，大肥鱼实现，再让K31P验收的时间和金钱消耗甚至比K31P直接照着astra计划干要大得多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  lactone  
+##### 19768#       发表于 2026-11-10 03:05
+
+fable5.2发了
+
+居然不是5.5
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
