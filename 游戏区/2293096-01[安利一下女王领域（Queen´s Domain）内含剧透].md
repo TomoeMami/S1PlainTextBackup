@@ -4006,3 +4006,16 @@ https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
 
 今天我也是没管上古界域地区一眼主线的地方 直接去开更高级的后期地图导致难度骤升 难度骤升
 
+
+*****
+
+####  Kaornao  
+##### 299#       发表于 2026-11-9 23:10
+
+ 本帖最后由 Kaornao 于 2026-11-9 23:11 编辑 
+
+玩到海底神庙感觉不是类国王密令或者类魂而是真正意义上的3d恶魔城，好玩<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+中途跳井到林地还有跑到地下墓地打两下怪发现伤害不对直接读档跑了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

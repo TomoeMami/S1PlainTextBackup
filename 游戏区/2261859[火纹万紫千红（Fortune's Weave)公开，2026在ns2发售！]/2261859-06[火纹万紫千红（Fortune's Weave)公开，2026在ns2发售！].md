@@ -12201,3 +12201,11 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 我每次去中层住宿附近空地那里当着猫猫的面摸走鱼酱都有负罪感<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bsdlxy  
+##### 8561#       发表于 2026-11-9 23:17
+
+第三部的3门居然还是9个出击数，记得售前不是说出击数变多了吗
+

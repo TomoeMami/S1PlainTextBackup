@@ -514,3 +514,23 @@ Responsum iam est.——答案已定</blockquote>
 
        [https://avemujica.wiki/interview/index.html#ah9vCSsyfX0](https://avemujica.wiki/interview/index.html#ah9vCSsyfX0)  <strong>&lt;——唯鸡百科译文《Ave Mujica 音乐制作人 Diggy-MO’眼中的乐队制作精髓（前篇）》</strong>
 
+
+*****
+
+####  堀内爱里衣  
+##### 42204#       发表于 2026-11-9 23:12
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/09/231152xhguqprvqvgxfixi.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-09_23-10-33.png</strong> (1010.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 23:11 上传
+
+       [https://x.com/wondergoo_game/status/2119626975207932184](https://x.com/wondergoo_game/status/2119626975207932184)
+
+       [https://www.wonder.co.jp/benefit/game/detail/?id=30567](https://www.wonder.co.jp/benefit/game/detail/?id=30567)
+
