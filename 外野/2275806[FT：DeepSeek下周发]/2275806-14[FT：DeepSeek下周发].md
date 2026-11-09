@@ -6045,3 +6045,19 @@ qoduck也能抽到很强的模型
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  qwased  
+##### 19767#       发表于 2026-11-10 02:35
+
+想魔改一下推理框架，但是我自己完全不懂，就找astra出好设计文档和计划，算法、伪代码、施工顺序啥的都安排好了
+
+然后试了一下1017照着计划做，第0步测量性能基线和写bench就开始犯傻<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">找K31P擦屁股返工
+
+然后想想换了个思路，让K31P分解成任务书，手把手给肥鱼喂饭，这样肥鱼犯傻也可以按照任务书的约束拉回来
+
+但是这么跑了一个迭代之后发现，astra写设计和计划，k31p分解任务书，大肥鱼实现的流程既没有省钱也没有提速
+
+k31p分解任务书，大肥鱼实现，再让K31P验收的时间和金钱消耗甚至比K31P直接照着astra计划干要大得多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
