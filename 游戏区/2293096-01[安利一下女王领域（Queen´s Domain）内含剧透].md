@@ -3444,3 +3444,73 @@ https://www.nexusmods.com/queensdomain/mods/24
 
 有一说一，那个返回存档点的道具，只要一丝血进入装备栏然后使用，就能够或者回家吧。那么是不是有mod，能够快死了/死了就直接回家，不掉进度的？
 
+
+*****
+
+####  瑟莉亚  
+##### 261#       发表于 2026-11-9 10:10
+
+昨天把地下墓地BOSS打了，感觉应该是最弱的一个BOSS了。
+
+第一次打大蝙蝠把我卡墙边加上好像大蜘蛛一屁股给我创飞直接给我创穿模掉地下去了，掉了很久都没见底就返回标题重新读档重打了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/09/094120b0c8xwq0yk3g6p4k.png" referrerpolicy="no-referrer">
+
+<strong>BUG0.png</strong> (1.56 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 09:41 上传
+
+让我想起一个漫画<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/09/100747irl7tvhl9ldrj81d.jpg" referrerpolicy="no-referrer">
+
+<strong>bug1.jpg</strong> (255.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 10:07 上传
+
+<img src="https://img.stage1st.com/forum/202611/09/100747x9ij54xmqzezqizg.jpg" referrerpolicy="no-referrer">
+
+<strong>bug2.jpg</strong> (271.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 10:07 上传
+
+<img src="https://img.stage1st.com/forum/202611/09/100747lnzvx39w57nnttv2.jpg" referrerpolicy="no-referrer">
+
+<strong>bug3.jpg</strong> (255.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 10:07 上传
+
+<img src="https://img.stage1st.com/forum/202611/09/100747p2t2296k4nkkfqk8.jpg" referrerpolicy="no-referrer">
+
+<strong>bug4.jpg</strong> (637.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 10:07 上传
+
+bug5.jpg
+(310.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 10:07 上传
+
+<img src="https://img.stage1st.com/forum/202611/09/100747pmomp7d9ii7xrwmi.jpg" referrerpolicy="no-referrer">
+
+bug6.png
+(838.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 10:07 上传
+
+<img src="https://img.stage1st.com/forum/202611/09/100748dgtdp96fv2ogxlvt.png" referrerpolicy="no-referrer">
+
