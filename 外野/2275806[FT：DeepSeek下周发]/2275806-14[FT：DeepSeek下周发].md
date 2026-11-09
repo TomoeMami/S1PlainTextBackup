@@ -6073,3 +6073,18 @@ fable5.2发了
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  andychen  
+##### 19769#       发表于 2026-11-10 03:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489319&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-10 03:05</a>
+
+fable5.2发了
+
+居然不是5.5</blockquote>
+现在两种说法
+
+按乐观派说法，不发是因为对齐上开始出现问题了。按悲观派说法，不发是因为规模太大无法提供足够的推理服务能力
+
