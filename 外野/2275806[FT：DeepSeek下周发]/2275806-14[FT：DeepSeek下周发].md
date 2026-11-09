@@ -5486,3 +5486,13 @@ hy4 glm5.3 0813差不多一条线吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紧那罗  
+##### 19720#       发表于 2026-11-9 08:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">paseo支持会话休眠了，开着几十个agent进程内存占用从20+gb降到8g以内，这下舒服了。就是上个月刚扩的内存觉得有点亏<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
