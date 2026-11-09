@@ -5706,3 +5706,21 @@ qwen今天发吗？稍微期待一下27b<img src="https://static.stage1st.com/im
 看了下这个视频，感觉成绩倒是其次，主要还是 6.2sol 解决问题的方案和其他模型画风就不太一样 ...</blockquote>
 额度消耗也大幅降低了，如果正式发布也是这个效费比，再来个pro 50刀订阅，我真的要开一个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 19738#       发表于 2026-11-9 19:40
+
+怎么造桥游戏下面又亡国了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  奈落的孤火花  
+##### 19739#       发表于 2026-11-9 19:45
+
+听说最近glm降智很严重
+
