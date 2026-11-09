@@ -3896,3 +3896,18 @@ https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
 
 —— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zzf111  
+##### 291#       发表于 2026-11-9 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488372&amp;ptid=2293096" target="_blank">panandhao 发表于 2026-11-9 18:37</a>
+
+多备草药，遇事不决机枪+吸血刀远程，BOSS还是挺好打的
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, 鹅球 ...</blockquote>
+昨天我还在上古界域打70多排名的怪爽刷武器经验呢，下一张图直接变成170排名的怪刷我<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+没调整过来一时被打得挺狼狈
+
