@@ -3769,3 +3769,30 @@ bug6.png
 
 目前把几条从岛面通往地下世界的路都摸了一遍 但想不起来这条路了
 
+
+*****
+
+####  Triangle  
+##### 279#       发表于 2026-11-9 14:19
+
+刚打完知识塔的书 boss，药都磕光了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，现在还是用圣剑恩度，目前阶段有什么更好的武器吗？
+
+
+*****
+
+####  Shu-Stella  
+##### 280#       发表于 2026-11-9 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70487462&amp;ptid=2293096" target="_blank">Triangle 发表于 2026-11-9 14:19</a>
+
+刚打完知识塔的书 boss，药都磕光了，现在还是用圣剑恩度，目前阶段有什么更好的武器吗？ ...</blockquote>
+圣剑已经挺强了，芝士塔之后到墓地可以获得吸血大锤，我觉得也挺好用。
+
+
+*****
+
+####  Aeturnus  
+##### 281#       发表于 2026-11-9 14:26
+
+我只有三个婚仪石冠，平台附近两个还有一个不知道在哪捡的，有人知道最后一个怎么找吗，实在头疼
+

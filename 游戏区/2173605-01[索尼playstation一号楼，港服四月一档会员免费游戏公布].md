@@ -41,3 +41,20 @@ ac英灵殿支持pro强化了 育碧要是有心看门狗也建议安排下<img 
 
 —— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  黑猫软  
+##### 870#       发表于 2026-11-9 14:23
+
+<img src="https://img.stage1st.com/forum/202611/09/142233dha62d9aviqr2rrl.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1794205343486_0.jpg</strong> (201.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-9 14:22 上传
+
+PlayStation JP 提前公开了两款PS Plus游戏，《勇者斗恶龙3 传说的开始》将于11月加入游戏目录，而《真·三国无双 起源》将于12月份加入
+
