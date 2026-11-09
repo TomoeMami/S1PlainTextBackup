@@ -448,3 +448,45 @@ Attamen iuxta me.——然而，在我身旁
 Responsum iam est.——答案已定</blockquote>
        [https://www.bilibili.com/video/BV1yW4p6uE3q](https://www.bilibili.com/video/BV1yW4p6uE3q)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42202#       发表于 2026-11-9 13:28
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/09/132831cjflbepr87173t1e.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-09_13-16-49.png</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 13:28 上传
+
+       [https://x.com/bang_dream_on/status/2119633576857837620](https://x.com/bang_dream_on/status/2119633576857837620)
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/09/132824smzlt3r94tmcp9j9.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-09_13-17-07.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 13:28 上传
+
+       [https://x.com/bang_dream_on/status/2119634080073662652](https://x.com/bang_dream_on/status/2119634080073662652)
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/09/132824t8oiimkaibjiji8x.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-09_13-17-52.png</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 13:28 上传
+
+       [https://t.bilibili.com/1268548228310106113](https://t.bilibili.com/1268548228310106113)
+
