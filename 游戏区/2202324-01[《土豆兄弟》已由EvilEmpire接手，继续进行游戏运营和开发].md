@@ -871,3 +871,21 @@ steam最近的评价已经差成这样了么
 全程一个变异道具不掉</blockquote>
 异变果打20个异变体必掉。但是得有三个道具
 
+
+*****
+
+####  Tienx  
+##### 523#       发表于 2026-11-9 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70487363&amp;ptid=2202324" target="_blank">quanlix 发表于 2026-11-9 13:49</a>
+
+全程一个变异道具不掉</blockquote>
+异变果打20个异变体必掉。但是得有三个道具
+
+*****
+
+####  quanlix  
+##### 524#       发表于 2026-11-9 16:48
+
+3个道具的限制是在哪提到的？本体能力也能复制，本体算不算一个道具？
+

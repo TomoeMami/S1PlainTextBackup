@@ -12193,3 +12193,11 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 看到城里这么多猫我又想起三房更新的喂猫喂狗功能。
 
+
+*****
+
+####  otakun  
+##### 8560#       发表于 2026-11-9 16:50
+
+我每次去中层住宿附近空地那里当着猫猫的面摸走鱼酱都有负罪感<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
