@@ -5695,3 +5695,14 @@ qwen今天发吗？稍微期待一下27b<img src="https://static.stage1st.com/im
 6.2sol可能比6astra还聪明啊</blockquote>
 看了下这个视频，感觉成绩倒是其次，主要还是 6.2sol 解决问题的方案和其他模型画风就不太一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 19737#       发表于 2026-11-9 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70487855&amp;ptid=2275806" target="_blank">平昭·南宫司卿 发表于 2026-11-9 16:04</a>
+
+看了下这个视频，感觉成绩倒是其次，主要还是 6.2sol 解决问题的方案和其他模型画风就不太一样 ...</blockquote>
+额度消耗也大幅降低了，如果正式发布也是这个效费比，再来个pro 50刀订阅，我真的要开一个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
