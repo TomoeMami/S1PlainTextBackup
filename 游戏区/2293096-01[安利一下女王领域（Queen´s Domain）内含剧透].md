@@ -3796,3 +3796,14 @@ bug6.png
 
 我只有三个婚仪石冠，平台附近两个还有一个不知道在哪捡的，有人知道最后一个怎么找吗，实在头疼
 
+
+*****
+
+####  火红之眼  
+##### 282#       发表于 2026-11-9 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70487486&amp;ptid=2293096" target="_blank">Aeturnus 发表于 2026-11-9 14:26</a>
+
+我只有三个婚仪石冠，平台附近两个还有一个不知道在哪捡的，有人知道最后一个怎么找吗，实在头疼 ...</blockquote>
+有2块的平台有个宝箱，从宝箱后面跳过去的平台
+
