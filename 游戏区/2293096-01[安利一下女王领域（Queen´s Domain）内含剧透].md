@@ -3727,3 +3727,27 @@ bug6.png
 
 我看的这个
 
+
+*****
+
+####  Shu-Stella  
+##### 275#       发表于 2026-11-9 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70486501&amp;ptid=2293096" target="_blank">double8G 发表于 2026-11-9 10:28</a>
+
+魔法书哪儿拿的……我还是去查查隐藏攻略吧，我的路线是点了两个塔的火就去水城了，但是怎么都觉得水城怪 ...</blockquote>
+钱玩到后面其实根本不缺，不买消耗品甚至是溢出的，我觉得随便用。
+
+
+*****
+
+####  Shu-Stella  
+##### 276#       发表于 2026-11-9 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70486501&amp;ptid=2293096" target="_blank">double8G 发表于 2026-11-9 10:28</a>
+
+魔法书哪儿拿的……我还是去查查隐藏攻略吧，我的路线是点了两个塔的火就去水城了，但是怎么都觉得水城怪 ...</blockquote>
+开头出生点那棵树 对着后面按E解锁，不过魔法书里的武器都是一些彩蛋和联动道具，有的很轮椅以至于有点毁体验，除非不在乎战斗只想舔图爽，不然建议看情况用。
+
+我一开始就是被蛇蝎和火焰爬行者弄得烦得要死去解锁的SVT。
+
