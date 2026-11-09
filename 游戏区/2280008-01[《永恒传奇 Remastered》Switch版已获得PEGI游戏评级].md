@@ -16,3 +16,14 @@
 
 这要不是官方留了个彩蛋，普通难度下半血用愤慨能直接秒杀谁打得过？<img src="https://static.stage1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑暗之眼  
+##### 368#       发表于 2026-11-9 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488967&amp;ptid=2280008" target="_blank">空洞骑士 发表于 2026-11-9 22:38</a>
+
+塞昆德斯（时之晶灵）真的是史诗级粪怪了，物理免疫，全属性抗性，弱点只有雷。法拉没有雷属性的武器，雷魔 ...</blockquote>
+我那么久没打了都知道打这货要手控大叔用水枪，打什么弱点
+

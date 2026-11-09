@@ -4019,3 +4019,13 @@ https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  火红之眼  
+##### 300#       发表于 2026-11-9 23:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">墓葬刀这个好像有bug，知识塔打完蜥蜴后旁边开着的箱子啥都没有，玩的PS版别的朋友也这样
+
+看steam也有人碰到过，说是出补丁修了，可能是PS版还没上补丁，想问下有没人碰到过，是怎么个修复法，如果是刷在原地那就继续推图先了
+
