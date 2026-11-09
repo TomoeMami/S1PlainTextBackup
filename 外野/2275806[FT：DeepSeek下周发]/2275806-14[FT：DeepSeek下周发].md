@@ -5849,3 +5849,26 @@ a/也憋着个新fable和新opus呢</blockquote>
 
 各方都有赢的需求
 
+
+*****
+
+####  mitzvah  
+##### 19751#       发表于 2026-11-9 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488700&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-11-9 20:45</a>
+
+每次我尝试用Deepseek，然后就感觉它老是不遵守事实，说话不依据事实，开发的东西老是对不齐我的需求，即使 ...</blockquote>
+禁止类的对抗性指令是有害的，如果必须注入得化，读检查单式的指令会好很多，至于事实，对于权重而言最有用的事实就是工具返回
+
+我反正用下来用修改文档法对清单静态工具dap逐一排查再落码的技术，是可以自行发现自己计划缺陷推进任务的，代码上没啥做不了的
+
+
+*****
+
+####  qwased  
+##### 19752#       发表于 2026-11-9 22:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是怪梁子迟迟不放41pro吧，41f虽然很好用但终归还是个能力上限不够高的小模型
+
+没大模型一直拴着太容易乱搞了
+

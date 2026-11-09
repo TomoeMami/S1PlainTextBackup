@@ -3919,3 +3919,13 @@ https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，这游戏怎么还有女同
 
+
+*****
+
+####  不会武术  
+##### 293#       发表于 2026-11-9 22:08
+
+卡在拿古怪石块的地方了，出也出不去，应该有个机关开门但是在哪里
+
+—— 来自 samsung SM-F9560, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
