@@ -5820,3 +5820,17 @@ a/也憋着个新fable和新opus呢</blockquote>
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lactone  
+##### 19749#       发表于 2026-11-9 21:00
+
+而且我觉得现在ai评测也玄学化了
+
+比如鹈鹕自行车，我能区分明显的好坏，比如astra吊打luna，但是你告诉我astra fable opus 1017这几个跑出来的哪个好，还解释这个细节那个细节的，那说实话我真看不出来
+
+已经有点hifi圈水电火电的感觉了
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
