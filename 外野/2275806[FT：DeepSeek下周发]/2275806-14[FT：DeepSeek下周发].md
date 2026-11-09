@@ -5732,3 +5732,26 @@ qwen今天发吗？稍微期待一下27b<img src="https://static.stage1st.com/im
 
 真是受够了这些模型厂，Gemini 那个carbon，秒天秒地了两周都没人用得到。Qwen发个海报就跑，GPT 6.2天天如出。
 
+
+*****
+
+####  lactone  
+##### 19741#       发表于 2026-11-9 20:22
+
+周二a/路演，可能都憋着给惊喜呢
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  飞剪号  
+##### 19742#       发表于 2026-11-9 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488642&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-9 20:22</a>
+
+周二a/路演，可能都憋着给惊喜呢
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+这下众宾欢也
+

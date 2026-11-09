@@ -3911,3 +3911,11 @@ https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
 
 没调整过来一时被打得挺狼狈
 
+
+*****
+
+####  妄想中毒  
+##### 292#       发表于 2026-11-9 20:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，这游戏怎么还有女同
+
