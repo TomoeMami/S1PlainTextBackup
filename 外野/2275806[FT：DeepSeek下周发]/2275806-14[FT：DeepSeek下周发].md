@@ -5587,3 +5587,24 @@ workbuddy的ds这几天都是双倍消耗了，怪不得用的快了
 
 Llm没有在用户使用阶段的学习能力，你只能把模板给他，让他自己整理成skill
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 19729#       发表于 2026-11-9 14:50
+
+6.1sol唐完了，执行astra详细规划的任务跑了60亿了，早就已经不说人话，还得一直让astra手把手指导。
+灰测何时轮到我<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzy516232108  
+##### 19730#       发表于 2026-11-9 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70487554&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-11-9 14:43</a>
+Llm没有在用户使用阶段的学习能力，你只能把模板给他，让他自己整理成skill ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好的明白了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
