@@ -5616,3 +5616,41 @@ Llm没有在用户使用阶段的学习能力，你只能把模板给他，让�
 
 原来 DSH 要切到新版网页搜索工具才会在接三方 api 的时候只用官方网页搜索不用官方模型处理啊，又被多坑了 10 块钱
 
+
+*****
+
+####  lactone  
+##### 19732#       发表于 2026-11-9 15:08
+
+不是说qwen4下午三点发吗？难道又是美东下午三点？<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  cscbzcbz  
+##### 19733#       发表于 2026-11-9 15:12
+
+qwen今天发吗？稍微期待一下27b<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  lactone  
+##### 19732#       发表于 2026-11-9 15:08
+
+不是说qwen4下午三点发吗？难道又是美东下午三点？<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  cscbzcbz  
+##### 19733#       发表于 2026-11-9 15:12
+
+qwen今天发吗？稍微期待一下27b<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
