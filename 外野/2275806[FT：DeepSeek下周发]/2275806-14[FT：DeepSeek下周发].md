@@ -5537,3 +5537,14 @@ hy4 glm5.3 0813差不多一条线吧
 6.2sol可能比6astra还聪明啊
 <img src="https://p.sda1.dev/36/1c909ea8cc496c6c0c2667050173c49e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紧那罗  
+##### 19725#       发表于 2026-11-9 13:08
+
+6.2 我好像还选不到<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不知道啥时候有。
+顺便提一个最近看到的蹬 gpt 的技巧，订阅 plus 到最后几天的时候，升级到 pro，只需要付剩余这几天的差价即可。可以拿到 20x 的完整周额度，有重置卡可以趁这几天猛蹬，总 token 来说性价比非常高。当然前提是到期前几天内要蹬完。
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
