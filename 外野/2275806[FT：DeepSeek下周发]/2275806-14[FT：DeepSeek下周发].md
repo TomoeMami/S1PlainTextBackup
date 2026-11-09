@@ -5528,3 +5528,12 @@ hy4 glm5.3 0813差不多一条线吧
 
 现在ai已经能挖手机里有没有监控了 真厉害<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  很久就在那边l  
+##### 19724#       发表于 2026-11-9 12:13
+
+6.2sol可能比6astra还聪明啊
+<img src="https://p.sda1.dev/36/1c909ea8cc496c6c0c2667050173c49e/image.jpg" referrerpolicy="no-referrer">
+

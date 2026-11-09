@@ -647,3 +647,13 @@ demo已出，支持简体中文，有朋友试试吗
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  zero33333  
+##### 66#       发表于 2026-11-9 12:14
+
+能更换婴儿发动不同超能力？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2068A, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
