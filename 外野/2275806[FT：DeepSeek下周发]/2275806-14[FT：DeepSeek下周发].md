@@ -5998,3 +5998,19 @@ https://www.bilibili.com/video/BV1JkWH64ESy/  
 
 现在官方的GLM5.3基本没法用，不管写代码还是写文档都是一团糟
 
+
+*****
+
+####  lactone  
+##### 19764#       发表于 2026-11-9 23:54
+
+ 本帖最后由 lactone 于 2026-11-9 23:55 编辑 
+
+qwen这波我真是看不懂了，阿里那边今天发布了一个文章说qwen3.8max实现了部分自我迭代
+
+这就搞笑了
+
+黑x上都在骂
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
