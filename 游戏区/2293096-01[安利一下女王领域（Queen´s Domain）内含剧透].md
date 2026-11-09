@@ -3835,3 +3835,17 @@ bug6.png
 
 实在谈不上喜欢这地图结构的设计。初一看感觉很惊喜很有感觉，但很多时候都感觉不到他连通两块区域的意义是什么，反而增加了迷惑性。又不是捷径又不是奖励，加上数值差距进去就是一个被撵着跑，要么捏碎片要么凭运气找传送脱出，不然就是一小时白打。
 
+
+*****
+
+####  shimotsuki14  
+##### 286#       发表于 2026-11-9 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70487832&amp;ptid=2293096" target="_blank">瑟莉亚 发表于 2026-11-9 15:58</a>
+把steam的收集攻略打印成PDF了，可以方便放手机或者平板上看。
+
+https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
+挺好，相当实用。就是这两天找的时候发现个别图片分不清方向得开个大图找参照物<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
