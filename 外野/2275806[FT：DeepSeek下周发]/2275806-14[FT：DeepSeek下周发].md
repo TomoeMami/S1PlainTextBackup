@@ -6175,3 +6175,18 @@ Anthropic还在冲IPO，特别是中期选举后很需要一个大新闻扭转�
 
 我猜测你安排那么多文档就等于注入，Astra防御性话术又那么厉害，估计benchmark写的很复杂，1017，一上来看到那么复杂的benchmark设计估计瞬间就懵逼 抛开项目本身去拟合文档了，从基于事实编程的角度上讲还是要依靠模型自己call tool的返回的事实过程来驱动工作流更实际
 
+
+*****
+
+####  我就再氪一单  
+##### 19776#       发表于 2026-11-10 06:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489347&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-10 05:05</a>
+从头到尾都用1017编程可能更加合理，你这个工作流代理之间通过文档来交流，Astra最初计划的时候不知道是不 ...</blockquote>
+prompt注入很容易变成最新的执行者被灌输了错误的记忆然后和不存在的记忆左右脑互搏？
+我的想法是留文档继续留，但是只增不改不删，每一版像changelog一样留修改日志，每一个接手的ai都署自己的名字，对应条目修改不直接覆盖原文而是追加注释的方式留在下面，prompt里自己的思路也写成memory.md用于接手ai参考和理解思路。
+所以每次都得叫ai记得署名记得留下最新的注释和修改日志<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+最近重构自己的小项目时，重构前的实施计划，计划审计报告，重构后的复盘总结和审计报告都是这么写的，看下来效果还行？
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
