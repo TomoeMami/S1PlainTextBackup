@@ -4059,3 +4059,16 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 难道收头骨的难道是沃达索？
 
+
+*****
+
+####  火红之眼  
+##### 303#       发表于 2026-11-10 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489125&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-9 23:48</a>
+
+steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空的（印象深刻）
+
+刚刚回去看 发现宝箱中多了三把 ...</blockquote>
+感谢，看来是修复后就直接在对应位置刷出来，那暂时先不管了
+
