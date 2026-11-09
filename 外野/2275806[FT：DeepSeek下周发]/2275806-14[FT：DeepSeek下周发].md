@@ -5724,3 +5724,11 @@ qwen今天发吗？稍微期待一下27b<img src="https://static.stage1st.com/im
 
 听说最近glm降智很严重
 
+
+*****
+
+####  startraveller  
+##### 19740#       发表于 2026-11-9 20:14
+
+真是受够了这些模型厂，Gemini 那个carbon，秒天秒地了两周都没人用得到。Qwen发个海报就跑，GPT 6.2天天如出。
+
