@@ -3818,3 +3818,20 @@ bug6.png
 
 —— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  瑟莉亚  
+##### 284#       发表于 2026-11-9 15:58
+
+把steam的收集攻略打印成PDF了，可以方便放手机或者平板上看。
+[https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BFvXkMIQ?pwd=u236](https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BFvXkMIQ?pwd=u236)
+
+
+*****
+
+####  RinC  
+##### 285#       发表于 2026-11-9 16:06
+
+实在谈不上喜欢这地图结构的设计。初一看感觉很惊喜很有感觉，但很多时候都感觉不到他连通两块区域的意义是什么，反而增加了迷惑性。又不是捷径又不是奖励，加上数值差距进去就是一个被撵着跑，要么捏碎片要么凭运气找传送脱出，不然就是一小时白打。
+

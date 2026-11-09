@@ -5684,3 +5684,14 @@ qwen今天发吗？稍微期待一下27b<img src="https://static.stage1st.com/im
 
 2026-11-9 15:41 上传
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 19736#       发表于 2026-11-9 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70487057&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-9 12:13</a>
+
+6.2sol可能比6astra还聪明啊</blockquote>
+看了下这个视频，感觉成绩倒是其次，主要还是 6.2sol 解决问题的方案和其他模型画风就不太一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
