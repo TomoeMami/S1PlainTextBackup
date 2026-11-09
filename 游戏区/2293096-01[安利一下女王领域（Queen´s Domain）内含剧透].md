@@ -4080,3 +4080,21 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 女王城门口+城内四个boss打完全都是0奖励真不是bug吗
 
+
+*****
+
+####  vidomina  
+##### 305#         楼主| 发表于 2026-11-10 02:01
+
+这TM联机MOD都有了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Emmerich  
+##### 306#       发表于 2026-11-10 02:04
+
+<blockquote>火红之眼 发表于 2026-11-10 00:03
+感谢，看来是修复后就直接在对应位置刷出来，那暂时先不管了</blockquote>
+我在推上问过他们 总之说是知道主机版这个情况了
+
