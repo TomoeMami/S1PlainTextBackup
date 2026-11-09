@@ -3929,3 +3929,35 @@ https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
 
 —— 来自 samsung SM-F9560, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  panandhao  
+##### 294#       发表于 2026-11-9 22:20
+
+<blockquote>panandhao 发表于 2026-11-5 19:14
+用了一下午时间查缺补漏看物品看图鉴，简单梳理了一下本作的世界观（下面有一图流总结，文字内容有细节剧透 ...</blockquote>
+剧情勘误①（by B站，摸鱼的无字）：起源文明是外星文明，希拉苏女王（虚空女神西佩哈化身）是统治者，带着人类来到了这个星球，上古界域是女王造的。（鱼人可能是原住民，推测）
+
+而佩哈（自然女神普维玛化身）（在陵墓自然女神殿送我们镜片的那个）是因为沉睡而被希拉苏女王遗弃在原星球的人。
+
+她后来坐飞船追来这个世界之后击败了希拉苏女王，然后才有的人类王国。
+
+在我们给佩哈招魂拿到她的遗物之后，她会告诉你头顶彩窗玻璃有东西，进去之后发现就是一艘飞船。
+
+<img src="https://img.stage1st.com/forum/202611/09/222023avd3lnqrdq3buq34.png" referrerpolicy="no-referrer">
+
+<strong>1000142040.png</strong> (119.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 22:20 上传
+
+<img src="https://img.stage1st.com/forum/202611/09/222023fsela8188fu91ala.png" referrerpolicy="no-referrer">
+
+<strong>1000142039.png</strong> (124.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 22:20 上传
+

@@ -5872,3 +5872,13 @@ a/也憋着个新fable和新opus呢</blockquote>
 
 没大模型一直拴着太容易乱搞了
 
+
+*****
+
+####  lactone  
+##### 19753#       发表于 2026-11-9 22:25
+
+话说前两天v4pro能力疑似大幅度提升是啥原因？虽然dsh那边辟谣了，但是能力提升应该是真的
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
