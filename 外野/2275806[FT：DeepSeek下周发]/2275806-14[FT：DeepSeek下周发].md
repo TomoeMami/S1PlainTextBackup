@@ -5882,3 +5882,42 @@ a/也憋着个新fable和新opus呢</blockquote>
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cscbzcbz  
+##### 19754#       发表于 2026-11-9 22:29
+
+赌一手这周五
+这周五是11月13日，满3个月正好给0813风光大葬<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  med  
+##### 19755#       发表于 2026-11-9 22:31
+
+gpt怎么也封号了，周围两个都给我说封了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莱茵哈鲁特  
+##### 19756#       发表于 2026-11-9 22:31
+
+[https://www.bilibili.com/video/BV1JkWH64ESy/](https://www.bilibili.com/video/BV1JkWH64ESy/)  
+
+这个AI评测视频的评论区感觉快要变成二游流水的评论区了。AI圈也要二游化了吗
+
+
+*****
+
+####  novalli  
+##### 19757#       发表于 2026-11-9 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488911&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-9 22:15</a>
+禁止类的对抗性指令是有害的，如果必须注入得化，读检查单式的指令会好很多，至于事实，对于权重而言最有 ...</blockquote>
+每次修改文档和脚本的时候，我都要专门过一遍删除否定词，只保留正向流程。能用脚本绝不LLM，能分阶段绝不混在一起做。
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

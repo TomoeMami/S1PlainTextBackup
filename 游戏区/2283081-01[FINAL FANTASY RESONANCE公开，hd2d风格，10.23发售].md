@@ -6782,3 +6782,11 @@ ai真好用，把274张图片整成个pdf了~
 
 还有就是物理太拉垮了，后期都是守护全队+反射戒指+魔法乱击打伤害
 
+
+*****
+
+####  suzakushi  
+##### 631#       发表于 2026-11-9 22:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">通关了，最后这变水晶的意义在哪，到头来不还是把boss打死门关上才阻止的吗，就为了把我唯一喜欢的角色下线是吧。
+

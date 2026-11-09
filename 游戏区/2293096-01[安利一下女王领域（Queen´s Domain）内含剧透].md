@@ -3961,3 +3961,25 @@ https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
 
 2026-11-9 22:20 上传
 
+
+*****
+
+####  zhoulovely  
+##### 295#       发表于 2026-11-9 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488924&amp;ptid=2293096" target="_blank">panandhao 发表于 2026-11-9 22:20</a>
+
+剧情勘误①（by B站，摸鱼的无字）：起源文明是外星文明，希拉苏女王（虚空女神西佩哈化身）是统治者，带 ...</blockquote>
+原来是说的头顶玻璃啊
+
+我一直以为说的就是对面平台的那个玻璃，还奇怪怎么就是打不破
+
+*****
+
+####  郁哲  
+##### 296#       发表于 2026-11-9 22:37
+
+从海神殿后面到了腐朽沼泽，这难度提升是人啊，到病村了属于。
+
+还有这拿俩板斧的大哥，对波都不敢对了
+
