@@ -3751,3 +3751,11 @@ bug6.png
 
 我一开始就是被蛇蝎和火焰爬行者弄得烦得要死去解锁的SVT。
 
+
+*****
+
+####  darkfall  
+##### 277#       发表于 2026-11-9 13:24
+
+今天从知识之塔到处乱跳解了鱼人石像谜题跳下去发现居然回到了跳井那，想起那边还有一个岛，没有箱子钥匙随便跳跳往下又发现了大树洞，这地图到底多大<img src="https://static.stage1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">，探索太爽了
+
