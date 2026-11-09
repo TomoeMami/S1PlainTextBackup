@@ -3608,3 +3608,13 @@ bug6.png
 是那个骷髅妹子吗？好多人直接前期跑来打该是很难的啊，一直在那找小怪。 ...</blockquote>
 那个戴面具找6个印记点6个的火大蜘蛛+大蝙蝠，感觉攻击欲望挺低的，比死灵之书好打多了。
 
+
+*****
+
+####  pgain2004  
+##### 269#       发表于 2026-11-9 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70486010&amp;ptid=2293096" target="_blank">mataocol 发表于 2026-11-9 09:10</a>
+有一说一，那个返回存档点的道具，只要一丝血进入装备栏然后使用，就能够或者回家吧。那么是不是有mod，能 ...</blockquote>
+有随时快速存档mod
+
