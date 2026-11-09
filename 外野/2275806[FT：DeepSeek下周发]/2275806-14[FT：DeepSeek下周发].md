@@ -6014,3 +6014,34 @@ qwen这波我真是看不懂了，阿里那边今天发布了一个文章说qwen
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  frankCC  
+##### 19765#       发表于 2026-11-10 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489134&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-9 23:54</a>
+
+qwen这波我真是看不懂了，阿里那边今天发布了一个文章说qwen3.8max实现了部分自我迭代
+
+这就搞笑了</blockquote>
+阿里完全不知道在搞什么飞机，高调宣布还以为有大的，还看到个也不知是不是奉旨泄密的测试说超过opus5.5，结果这几天就这？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 19766#       发表于 2026-11-10 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489213&amp;ptid=2275806" target="_blank">frankCC 发表于 2026-11-10 00:41</a>
+阿里完全不知道在搞什么飞机，高调宣布还以为有大的，还看到个也不知是不是奉旨泄密的测试说超过opus5.5 ...</blockquote>
+从九月开始就有人说qwen4至少直出3d模型之类的很强
+无机酸那边测是仅次于opus5.5
+
+qoduck也能抽到很强的模型
+
+如果真的强，拖这么久我是没想通
+
+如果不强，敢拖这么久也是胆子大
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

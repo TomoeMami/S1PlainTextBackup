@@ -892,3 +892,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 赠送五星的bug修复了，升宝具的也能正常做任务。
 
+
+*****
+
+####  希望之花  
+##### 21794#       发表于 2026-11-10 00:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">之前打得不算，要不然1t暴打梅林又快还有些掉落
+
