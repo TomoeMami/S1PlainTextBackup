@@ -5834,3 +5834,18 @@ a/也憋着个新fable和新opus呢</blockquote>
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  phorcys02  
+##### 19750#       发表于 2026-11-9 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488734&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-9 21:00</a>
+
+而且我觉得现在ai评测也玄学化了
+
+比如鹈鹕自行车，我能区分明显的好坏，比如astra吊打luna，但是你告诉我a ...</blockquote>
+本质就是屁股大战...
+
+各方都有赢的需求
+
