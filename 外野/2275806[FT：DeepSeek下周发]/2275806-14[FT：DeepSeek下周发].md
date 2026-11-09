@@ -5985,3 +5985,16 @@ https://www.bilibili.com/video/BV1JkWH64ESy/  
 这个造桥游戏视频的评论区感觉快要变成二游流水的评论区 ...</blockquote>
 二十年前也有类似的，以用谷歌/msn/gmail为荣，以用百度/qq/网易邮箱 为耻。
 
+
+*****
+
+####  andychen  
+##### 19763#       发表于 2026-11-9 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488547&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-11-9 19:45</a>
+
+听说最近glm降智很严重</blockquote>
+上礼拜就开始了
+
+现在官方的GLM5.3基本没法用，不管写代码还是写文档都是一团糟
+
