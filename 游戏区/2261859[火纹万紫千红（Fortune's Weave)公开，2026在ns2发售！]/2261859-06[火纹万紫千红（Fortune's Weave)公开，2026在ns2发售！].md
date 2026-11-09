@@ -12124,3 +12124,36 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 想问下因为因果融合，为了不让仓库的东西丢失，怎么处理比较 ...</blockquote>
 先别跳过第二部就对了。有什么东西漏了后面补
 
+
+*****
+
+####  纯夏  
+##### 8556#       发表于 2026-11-9 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70485054&amp;ptid=2261859" target="_blank">reficul 发表于 2026-11-8 22:48</a>
+
+有军团就是方便采集，在第11章把第三部需要的复兴材料全采集齐了。第三章应该没有什么战备增强了吧？好几个 ...</blockquote>
+没了 第3部没有战备增强任务了
+
+
+*****
+
+####  纯夏  
+##### 8556#       发表于 2026-11-9 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70485054&amp;ptid=2261859" target="_blank">reficul 发表于 2026-11-8 22:48</a>
+
+有军团就是方便采集，在第11章把第三部需要的复兴材料全采集齐了。第三章应该没有什么战备增强了吧？好几个 ...</blockquote>
+没了 第3部没有战备增强任务了
+
+
+*****
+
+####  纯夏  
+##### 8556#       发表于 2026-11-9 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70485054&amp;ptid=2261859" target="_blank">reficul 发表于 2026-11-8 22:48</a>
+
+有军团就是方便采集，在第11章把第三部需要的复兴材料全采集齐了。第三章应该没有什么战备增强了吧？好几个 ...</blockquote>
+没了 第3部没有战备增强任务了
+
