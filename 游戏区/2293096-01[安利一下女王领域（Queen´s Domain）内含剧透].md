@@ -3849,3 +3849,11 @@ https://pan.baidu.com/s/1HqXjsQ2ChDHTu_BF ...</blockquote>
 
 —— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Nosgoth  
+##### 287#       发表于 2026-11-9 17:05
+
+最早看iron pineapple视频加的愿望单，现在转了十小时拿到了小盾，弹反真爽，就是反击过程中没无敌。
+
