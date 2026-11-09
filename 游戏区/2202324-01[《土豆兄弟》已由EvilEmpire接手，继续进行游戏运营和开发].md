@@ -797,3 +797,19 @@ steam最近的评价已经差成这样了么
 
 节俭\企业家异变,左脚踩右脚了
 
+
+*****
+
+####  quanlix  
+##### 517#       发表于 2026-11-9 13:49
+
+<img src="https://img.stage1st.com/forum/202611/09/134928iglt8eesvjdgq8v8.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20261109134741.jpg</strong> (53.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 13:49 上传
+
+全程一个变异道具不掉
+
