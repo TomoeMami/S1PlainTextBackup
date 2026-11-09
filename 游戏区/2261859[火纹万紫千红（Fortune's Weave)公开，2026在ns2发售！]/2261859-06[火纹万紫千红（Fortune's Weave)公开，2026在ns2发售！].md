@@ -12169,3 +12169,19 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 也没有大胃王神官，但是第二部都快打完了除了日常奶不够（只有一个远疗，还转了2个黑神驼），然后古扎岚大哥虽然没练，但是第二部人太少了就直接拉了几个板凳上来用，外加中途加入的小红小绿，毫无压力地一路打完了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JunkoPureFuries  
+##### 8558#       发表于 2026-11-9 15:31
+
+<img src="https://img.stage1st.com/forum/202611/09/153125vm13fd35y1y1znfy.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-11-09 152759.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 15:31 上传
+
+草，这里有猫的呼噜声，奇怪的细节
+
