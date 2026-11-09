@@ -27,3 +27,14 @@
 塞昆德斯（时之晶灵）真的是史诗级粪怪了，物理免疫，全属性抗性，弱点只有雷。法拉没有雷属性的武器，雷魔 ...</blockquote>
 我那么久没打了都知道打这货要手控大叔用水枪，打什么弱点
 
+
+*****
+
+####  Xenor  
+##### 369#       发表于 2026-11-10 01:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70488967&amp;ptid=2280008" target="_blank">空洞骑士 发表于 2026-11-9 22:38</a>
+
+塞昆德斯（时之晶灵）真的是史诗级粪怪了，物理免疫，全属性抗性，弱点只有雷。法拉没有雷属性的武器，雷魔 ...</blockquote>
+打时精灵ps/psp版没感觉到难，正常等级装备正常过，记得血打到一半直接一个绚丽的雷球劈结束，应该tie了下top，重置版感觉难度提升了，60级左右不到二分钟就全灭了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但重置版好像也改了可以选择直接收不用打
+
