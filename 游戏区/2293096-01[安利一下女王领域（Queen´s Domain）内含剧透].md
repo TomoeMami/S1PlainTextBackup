@@ -3694,3 +3694,23 @@ bug6.png
 
 有没有每个地区的收集清单啊，，感觉每个区都没收集全，这游戏攻略都找不到的
 
+
+*****
+
+####  shimotsuki14  
+##### 272#       发表于 2026-11-9 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70485294&amp;ptid=2293096" target="_blank">pzgr43 发表于 2026-11-9 00:25</a>
+这游戏怎么快速刷武器等级啊？是根据击杀数来的吗？</blockquote>
+体感是有效攻击次数
+
+—— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  pzgr43  
+##### 273#       发表于 2026-11-9 11:52
+
+吸血弯刀为啥用技能杀敌不能获取武器经验？
+
