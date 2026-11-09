@@ -5668,3 +5668,19 @@ qwen今天发吗？稍微期待一下27b<img src="https://static.stage1st.com/im
 
 2026-11-9 15:23 上传
 
+
+*****
+
+####  千秋难诉  
+##### 19735#       发表于 2026-11-9 15:45
+
+绷不住，牢马真有喜剧效果
+
+<img src="https://img.stage1st.com/forum/202611/09/154142sepdk7dxz7ztoqkz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-9 15:41 上传
+
