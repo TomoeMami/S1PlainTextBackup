@@ -5556,3 +5556,19 @@ hy4 glm5.3 0813差不多一条线吧
 
 workbuddy的ds这几天都是双倍消耗了，怪不得用的快了
 
+
+*****
+
+####  zzy516232108  
+##### 19727#       发表于 2026-11-9 13:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我手上有一堆PPT 和 一堆.ai psd的设计文件
+
+要怎么喂给ai让他学会语言风格&amp;排版啊
+
+感觉学起来都很困难 
+
+只有在给定框架的基础上，表现会好一点
+
+其他都很难
+
