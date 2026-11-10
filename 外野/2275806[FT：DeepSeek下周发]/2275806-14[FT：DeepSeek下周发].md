@@ -6745,3 +6745,24 @@ anyrouter已上fable5.2，反蒸馏也没用啊
 || --- | --- | --- |</blockquote>|
 但是cuda还是只能在wsl里面跑cuda gdb吧
 
+
+*****
+
+####  mitzvah  
+##### 19821#       发表于 2026-11-10 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491155&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-10 14:19</a>
+
+但是cuda还是只能在wsl里面跑cuda gdb吧</blockquote>
+dap工具本质就是个调试器，跟cuda有啥关系。omp不是内置的吗，我的mac本地部署模型跑omp卡我才自行diy的
+
+
+*****
+
+####  艾诺琳  
+##### 19822#       发表于 2026-11-10 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491061&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-11-10 13:55</a>
+最近在用dsh写word，发现它在创建和写word时word会频繁报“无法生成临时文件”，虽然最后也能生成文档但是 ...</blockquote>
+让他自己总结问题写成全局/项目记忆
+
