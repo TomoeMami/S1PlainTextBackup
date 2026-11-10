@@ -6831,3 +6831,32 @@ ai的注意力太强了, 你知道方向直接点他一下就行, 剩下的苦�
 
 用过ptc模式吗, 调试的时候调用工具都是成批成批的调用, 不是一轮一轮的来的
 
+
+*****
+
+####  紧那罗  
+##### 19828#       发表于 2026-11-10 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491503&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-11-10 15:39</a>
+ai的注意力太强了, 你知道方向直接点他一下就行, 剩下的苦活直接帮你干完.
+
+用过ptc模式吗, 调试的时候调 ...</blockquote>
+如果是成批采集数据那读log、dump之类的不是更方便，我个人也是更习惯这么用，所以没想到为啥要走调试的路子。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  hugosol  
+##### 19829#       发表于 2026-11-10 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491490&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-10 15:35</a>
+
+为啥要执着于让ai做debug 我一直觉得在人类程序员里这都不算是个好习惯
+
+何况ai干这种交互式流程又慢又费tok ...</blockquote>
+让agent debug就是AI编程的最后一公里路，有了这个你就可以把事情交代好就回去睡大觉了……理论上是这样
+
+当然会非常耗费token和时间，但是我人可以离开键盘了这一切都是值得的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
