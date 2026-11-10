@@ -6356,3 +6356,66 @@ checklist也得配合一个项目级规则文件，我昨晚尝试加个新功�
 fable5.2发布 这下国产模型又可以蒸馏了</blockquote>
 把你妈尸油蒸馏了好不好啊
 
+
+*****
+
+####  奈落的孤火花  
+##### 19792#       发表于 2026-11-10 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489505&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-11-10 08:12</a>
+
+—— 来自 HUAWEI CMM-AL10, Android 16, 鹅球 v4.0-alpha</blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/10/093816ea58t5ezu7gp5nep.png" referrerpolicy="no-referrer">
+
+<strong>29861.png</strong> (32.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 09:38 上传
+
+*****
+
+####  Lorraine_Kinney  
+##### 19793#       发表于 2026-11-10 09:38
+
+5.2发布，感觉好冷淡，不及预期吗？
+
+*****
+
+####  赤星ビスコ  
+##### 19794#       发表于 2026-11-10 09:39
+
+我感觉大模型能力超过某条线后，后续提升边际效益递减。fable 5 和一年前opus 4.5 比起来，实际干活起来的差距并不大。所谓one shot也不是正常使用场景，绝大部分情况下，使用agent编程都会伴随着持续的人的steering
+
+
+*****
+
+####  mitzvah  
+##### 19795#       发表于 2026-11-10 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489772&amp;ptid=2275806" target="_blank">我就再氪一单 发表于 2026-11-10 09:32</a>
+
+checklist我估计也得配合一个项目级规则文件，执行所有操作前先检查一遍规则文件。
+
+也正是因为有些和大肥 ...</blockquote>
+所以每一步修改前要用codebase_memory重新建索然后让代理尝试对建索用鸟瞰视野获得项目的整体认识，我用下来比项目规划文档好，尤其是先写修改目的然后基于建索评估修改对整体影响的时候
+
+*****
+
+####  zhongjie  
+##### 19796#       发表于 2026-11-10 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489803&amp;ptid=2275806" target="_blank">Lorraine_Kinney 发表于 2026-11-10 09:38</a>
+
+5.2发布，感觉好冷淡，不及预期吗？</blockquote>
+token效率好差
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 19797#       发表于 2026-11-10 09:46
+
+seedream 5.5有点厉害
+
