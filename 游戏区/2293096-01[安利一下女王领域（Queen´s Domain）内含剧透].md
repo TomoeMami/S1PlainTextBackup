@@ -4581,3 +4581,14 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 话说蜘蛛加蝙蝠的boss组合没有小鸭子掉落的吗？商店已经好久没加入新物品了
 
+
+*****
+
+####  ziyuan327  
+##### 350#       发表于 2026-11-11 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493492&amp;ptid=2293096" target="_blank">pzgr43 发表于 2026-11-11 01:18</a>
+
+话说蜘蛛加蝙蝠的boss组合没有小鸭子掉落的吗？商店已经好久没加入新物品了 ...</blockquote>
+再坚持坚持，到了上古界域，主线关三个发电塔任务，其中一个发电塔有个boss，打死后对话能拿到机械鸭子，就可以买重机枪了，右键还能发榴弹。
+
