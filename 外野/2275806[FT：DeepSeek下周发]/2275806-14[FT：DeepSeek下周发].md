@@ -7308,3 +7308,25 @@ minimax H3 image出了，是不是意味着黄图自由了</blockquote>
 
 carbon出了，只给ultra用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 19870#       发表于 2026-11-11 00:29
+
+谷歌按理说是这几家里最不缺算力的，怎么老搞这种分批行为
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qwased  
+##### 19871#       发表于 2026-11-11 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493378&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-11 00:29</a>
+谷歌按理说是这几家里最不缺算力的，怎么老搞这种分批行为
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5 ...</blockquote>
+市场部做推广胡乱送会员，加上摊子太大各种白嫖漏洞，算力不可能够用的
+
