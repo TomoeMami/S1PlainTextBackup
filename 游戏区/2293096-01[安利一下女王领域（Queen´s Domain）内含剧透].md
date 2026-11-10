@@ -4433,3 +4433,32 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 我感觉我真卡关了，跟着收集攻略到了一个放四个婚礼花冠的地方，下去到了翠谷，不知道怎么出去了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Algie  
+##### 337#       发表于 2026-11-10 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492899&amp;ptid=2293096" target="_blank">double8G 发表于 2026-11-10 21:53</a>
+
+我感觉我真卡关了，跟着收集攻略到了一个放四个婚礼花冠的地方，下去到了翠谷，不知道怎么出去了 ...</blockquote>
+我放完花冠到处乱走刚好走出那个陷阱范围没掉下去，倒是心想着先看看周围再回来没想到脚滑掉进腐败湖了<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Algie  
+##### 337#       发表于 2026-11-10 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492899&amp;ptid=2293096" target="_blank">double8G 发表于 2026-11-10 21:53</a>
+
+我感觉我真卡关了，跟着收集攻略到了一个放四个婚礼花冠的地方，下去到了翠谷，不知道怎么出去了 ...</blockquote>
+我放完花冠到处乱走刚好走出那个陷阱范围没掉下去，倒是心想着先看看周围再回来没想到脚滑掉进腐败湖了<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Algie  
+##### 338#       发表于 2026-11-10 22:04
+
+疯狂被腐败湖的扭曲血肉激光空摘坠机中，也是吃饱了
+
