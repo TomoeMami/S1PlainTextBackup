@@ -6816,3 +6816,18 @@ dap工具本质就是个调试器，跟cuda有啥关系。omp不是内置的吗�
 
 ai容易搞成屎山代码，oneshot这种对于做项目来说毫无意义
 
+
+*****
+
+####  →熙←  
+##### 19827#       发表于 2026-11-10 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491490&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-10 15:35</a>
+
+为啥要执着于让ai做debug 我一直觉得在人类程序员里这都不算是个好习惯
+
+何况ai干这种交互式流程又慢又费tok ...</blockquote>
+ai的注意力太强了, 你知道方向直接点他一下就行, 剩下的苦活直接帮你干完.
+
+用过ptc模式吗, 调试的时候调用工具都是成批成批的调用, 不是一轮一轮的来的
+
