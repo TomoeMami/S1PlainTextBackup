@@ -6206,3 +6206,11 @@ prompt注入很容易变成最新的执行者被灌输了错误的记忆然后�
 
 —— 来自 HUAWEI CMM-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 19778#       发表于 2026-11-10 08:21
+
+fable5.2发布 这下国产模型又可以蒸馏了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
