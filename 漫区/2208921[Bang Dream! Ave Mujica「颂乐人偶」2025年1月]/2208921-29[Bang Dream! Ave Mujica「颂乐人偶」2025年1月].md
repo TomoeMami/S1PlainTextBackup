@@ -591,3 +591,55 @@ Responsum iam est.——答案已定</blockquote>
 
        [https://www.animate.co.jp/gratte/51651/](https://www.animate.co.jp/gratte/51651/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42208#       发表于 2026-11-10 18:52
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/10/185200lgjpqqsooa4kqggp.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-10_18-46-48.png</strong> (422.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 18:52 上传
+
+       [https://x.com/bang_dream_info/status/2120064069940219954](https://x.com/bang_dream_info/status/2120064069940219954)
+
+       [https://x.com/iid_animedia/status/2117164814095315173](https://x.com/iid_animedia/status/2117164814095315173)
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/10/185029aa31q64zkp4a23vp.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-10_18-48-01.png</strong> (575.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 18:50 上传
+
+       [https://t.bilibili.com/1268993287890403351](https://t.bilibili.com/1268993287890403351)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42209#       发表于 2026-11-10 18:54
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/10/185406uw725o5gc08vjozz.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-10_18-53-02.png</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 18:54 上传
+
+       [https://x.com/bang_dream_info/status/2120080633770967477](https://x.com/bang_dream_info/status/2120080633770967477)
+
+       [https://avemujica-movie.bang-dream.com/news/post-16](https://avemujica-movie.bang-dream.com/news/post-16)
+

@@ -7060,3 +7060,42 @@ wb自带的功能就楼上说的专家团，不过我是觉得不同的目录写
 
 现在反代自己的workbuddy里面的deepseek1017 安全吗。。。
 
+
+*****
+
+####  hugosol  
+##### 19848#       发表于 2026-11-10 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492227&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-10 18:25</a>
+
+比如在workbuddy里开发一个项目，但项目可能分为几个小项目，例如数据分析项目、展示页面设计项目、数据归 ...</blockquote>
+通常来说大部分agent会有workspace的概念，你要修改哪个仓库就在哪个仓库发起会话
+
+但其实workspace这个概念对大模型而言没有什么的意义，你完全可以在一个会话里同时修改两个仓库对应上下游的代码，这是更自然的处理方式
+
+当你想定义适合自己的工作流时，就可以开始抛弃workbuddy这种面向入门级使用者的agent，转向有更高自由度的Pi，oh-my-pi，DeepSeek Harness这一类工具<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cody198879  
+##### 19849#       发表于 2026-11-10 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492285&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-11-10 18:46</a>
+现在反代自己的workbuddy里面的deepseek1017 安全吗。。。</blockquote>
+不付费的200积分一天限制，付费的没有限制，至少我现在用是正常的
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  来都来了  
+##### 19850#       发表于 2026-11-10 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492285&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-11-10 18:46</a>
+现在反代自己的workbuddy里面的deepseek1017 安全吗。。。</blockquote>
+如果你平时或者以后要用wb，推荐用副手机号反代，免得让藤子把你大号封了。实在不行还有老爹老妈的手机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在配置界面上，只开启一个号，其余号关闭，一个号额度用完了，再开另外一个号。不要把几个号一起放到池里，这样容易触发同IP多账号同时调用的风控。
+
