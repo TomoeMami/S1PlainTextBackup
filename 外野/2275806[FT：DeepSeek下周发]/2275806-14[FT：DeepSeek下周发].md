@@ -6871,3 +6871,37 @@ ai的注意力太强了, 你知道方向直接点他一下就行, 剩下的苦�
 如果是成批采集数据那读log、dump之类的不是更方便，我个人也是更习惯这么用，所以没想到为啥要走调试的 ...</blockquote>
 又不冲突, log是事后, dap是实时, 直接改变量改寄存器复现很方便啊
 
+
+*****
+
+####  紧那罗  
+##### 19831#       发表于 2026-11-10 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491573&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-10 15:56</a>
+
+让agent debug就是AI编程的最后一公里路，有了这个你把事情交代好就可以回去睡大觉了……理论上是这样的
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">可能是我陷入传统开发思维定式了 按照人类开发者的思维来说打断点调试是不得已而为之的低效行为
+
+所以我会更习惯让agent按tdd模式来调试
+
+*****
+
+####  紧那罗  
+##### 19832#       发表于 2026-11-10 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491606&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-11-10 16:01</a>
+又不冲突, log是事后, dap是实时, 直接改变量改寄存器复现很方便啊</blockquote>
+有道理，是我思维定式了，回头我试试。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Litccc  
+##### 19833#       发表于 2026-11-10 16:07
+
+gemini carbon已在vertex中可用，另外11月16日新开通的gcp 300刀赠金帐户将无法用于Vertex，另附一张carbon写作测试，核弹瘫坐.jpg
+<img src="https://p.sda1.dev/36/9cbb101f8d9993515c76dfd0fe6024a7/图片.png" referrerpolicy="no-referrer">
+
