@@ -4137,3 +4137,35 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 在神庙凑齐四个王冠直接进地底了，怪一个比一个难打....有探索的必要吗，还是直接找路回去（有路能回去吗
 
+
+*****
+
+####  christiny  
+##### 311#       发表于 2026-11-10 10:43
+
+ 本帖最后由 christiny 于 2026-11-10 10:45 编辑 
+
+还是推荐用步枪开荒……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我也才开始玩，第一天2小时，初上手难度蛮硬核的，满体力一刀节奏很慢。找到飞刀后，就一个一个引怪打。
+
+第二天，心一横，直接上步枪。瞬间通透了，安心享受探图的乐趣。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+至于机关这些嘛，反正看着像那么回事的地方，各种敲敲打打试一试就可以。
+
+
+*****
+
+####  christiny  
+##### 311#       发表于 2026-11-10 10:43
+
+ 本帖最后由 christiny 于 2026-11-10 10:45 编辑 
+
+还是推荐用步枪开荒……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我也才开始玩，第一天2小时，初上手难度蛮硬核的，满体力一刀节奏很慢。找到飞刀后，就一个一个引怪打。
+
+第二天，心一横，直接上步枪。瞬间通透了，安心享受探图的乐趣。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+至于机关这些嘛，反正看着像那么回事的地方，各种敲敲打打试一试就可以。
+
