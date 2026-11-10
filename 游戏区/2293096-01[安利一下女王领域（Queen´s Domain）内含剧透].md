@@ -4108,3 +4108,16 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 后面还有这么阴间的怪吗
 
+
+*****
+
+####  vidomina  
+##### 308#         楼主| 发表于 2026-11-10 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489348&amp;ptid=2293096" target="_blank">kangkangsama 发表于 2026-11-10 05:07</a>
+
+这宝箱怪太阴间了（外貌）
+
+后面还有这么阴间的怪吗</blockquote>
+有的呢，还有种换皮的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

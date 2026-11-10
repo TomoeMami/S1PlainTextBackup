@@ -6319,3 +6319,40 @@ fable5.2发布 这下国产模型又可以蒸馏了</blockquote>
 
 2026-11-10 09:23 上传
 
+
+*****
+
+####  smiths146  
+##### 19788#       发表于 2026-11-10 09:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">还复读蒸馏呢 那套，如果蒸馏有错。世界就不应该有教育，如果你还说复制思考链，那还是不应该有教育，教育就是教授人思考模式
+
+
+*****
+
+####  我就再氪一单  
+##### 19789#       发表于 2026-11-10 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489598&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-10 08:46</a>
+不同措辞的注入效果不一样，我觉得检查单式的让代理逐个按照清单一条条执行比大量禁止式措辞的注入好，而g ...</blockquote>
+checklist也得配合一个项目级规则文件，我昨晚尝试加个新功能，要不是不提示大肥鱼先阅读现有的已经重构过的库看看有没有可以复用的模块，大肥鱼又要给我从零开始瀑布式开发写一个脚本反复重新发明轮子实现功能了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">明明周末刚重构完把模块解耦
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  yuwe0714  
+##### 19790#       发表于 2026-11-10 09:33
+
+楼里的斩杀弟不会也是哪个低智大模型bot吧，说话没有一点人样<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  spaceblue  
+##### 19791#       发表于 2026-11-10 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489527&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-11-10 08:21</a>
+
+fable5.2发布 这下国产模型又可以蒸馏了</blockquote>
+把你妈尸油蒸馏了好不好啊
+
