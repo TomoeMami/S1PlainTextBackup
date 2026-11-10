@@ -534,3 +534,60 @@ Responsum iam est.——答案已定</blockquote>
 
        [https://www.wonder.co.jp/benefit/game/detail/?id=30567](https://www.wonder.co.jp/benefit/game/detail/?id=30567)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42205#       发表于 2026-11-10 13:09
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/10/130922ztbjzblcb3rrlswj.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-10_13-07-59.png</strong> (1.35 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 13:09 上传
+
+       [https://x.com/bang_dream_info/status/2119980944270737673](https://x.com/bang_dream_info/status/2119980944270737673)
+
+       [https://x.com/animage_tokuma/status/2119626279045460430](https://x.com/animage_tokuma/status/2119626279045460430)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42206#       发表于 2026-11-10 13:10
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/10/131009k40vv5f4mvml3qlv.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-10_13-06-57.png</strong> (783.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 13:10 上传
+
+       [https://x.com/bang_dream_info/status/2119988666894569927](https://x.com/bang_dream_info/status/2119988666894569927)
+
+*****
+
+####  堀内爱里衣  
+##### 42207#       发表于 2026-11-10 13:10
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/10/131042ozx3xat730apspes.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-10_13-03-47.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 13:10 上传
+
+       [https://x.com/animatecafe_grt/status/2119988427240169523](https://x.com/animatecafe_grt/status/2119988427240169523)
+
+       [https://www.animate.co.jp/gratte/51651/](https://www.animate.co.jp/gratte/51651/)
+
