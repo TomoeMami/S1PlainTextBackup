@@ -7344,3 +7344,16 @@ carbon出了，只给ultra用<img src="https://static.stage1st.com/image/smiley/
 
 最整齐的一次
 
+
+*****
+
+####  wonderful259  
+##### 19873#       发表于 2026-11-11 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492466&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-10 19:44</a>
+
+为什么这么执着反代，有封号危险
+
+反过来想啊，把你现在用的harness提示词替换掉wb，那wb不就被换壳了吗 ...</blockquote>
+这个一般怎么替换啊
+

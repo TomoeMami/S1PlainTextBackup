@@ -4562,3 +4562,14 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 说起月癫，月癫因为作者履历的缘故有一种独特的心理恐怖的气质。这边感觉就是把什么沉浸模拟国王密令魔法门老滚等第一人称rpg拉一块炖了。爽吃大炖菜属于是。
 
+
+*****
+
+####  vidomina  
+##### 348#         楼主| 发表于 2026-11-11 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493457&amp;ptid=2293096" target="_blank">AshNKsk 发表于 2026-11-11 01:02</a>
+
+全成就了，我个人感觉最坐牢的部分其实是最后刷武器熟练度那个时间点。无论是刷石化花园石虫掉灵魄油还是知 ...</blockquote>
+但女神石像的屁股很涩不是吗<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
