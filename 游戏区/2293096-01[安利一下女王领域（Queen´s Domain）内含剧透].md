@@ -4359,3 +4359,14 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 那啥，知识之塔点三个火是不是有BUG？  我三个烽火台都点了，去塔门口，没开门，上面只亮了一颗宝石。 ...</blockquote>
 没碰见有人反馈这种bug啊
 
+
+*****
+
+####  christiny  
+##### 329#       发表于 2026-11-10 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492313&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-10 18:53</a>
+
+没碰见有人反馈这种bug啊</blockquote>
+确实是BUG，但是容易解决。重进游戏就行了……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
