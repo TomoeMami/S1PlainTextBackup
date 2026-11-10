@@ -7269,3 +7269,24 @@ minimax H3 image出了，是不是意味着黄图自由了
 
 而且还有重置卡，不过现在要规划一下了，因为Tibo不给全服重置了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 19866#       发表于 2026-11-11 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493261&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-11-10 23:44</a>
+minimax H3 image出了，是不是意味着黄图自由了</blockquote>
+用moss早自由了
+
+
+*****
+
+####  akirt  
+##### 19867#       发表于 2026-11-11 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493261&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-11-10 10:44</a>
+
+minimax H3 image出了，是不是意味着黄图自由了</blockquote>
+黄图早在sd时代就自由了
+
