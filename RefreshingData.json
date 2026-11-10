@@ -6251,7 +6251,7 @@
     "newtitle": "[《龙之信条2》专楼 ／ DLC 2026年10月9日推出]",
     "lastedit": 1794076565,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2150634": {
@@ -12825,12 +12825,12 @@
     "update": false
   },
   "2275277": {
-    "totalreply": 653,
+    "totalreply": 654,
     "title": "[Re：Source 论坛客户端]",
     "newtitle": "[Re：Source 论坛客户端]",
-    "lastedit": 1793461448,
+    "lastedit": 1794335525,
     "category": "外野",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2191394": {
@@ -13167,10 +13167,10 @@
     "update": false
   },
   "2282979": {
-    "totalreply": 5167,
+    "totalreply": 5168,
     "title": "[任天堂病 栋15楼，指到了！6.9晚十点新一期nd!]",
     "newtitle": "[任天堂病 栋15楼，10.28晚十点举办iw]",
-    "lastedit": 1794322086,
+    "lastedit": 1794335645,
     "category": "游戏区",
     "active": true,
     "update": false
