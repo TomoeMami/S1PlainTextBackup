@@ -6592,3 +6592,43 @@ codebase 与补盲dap完全可以自行证伪修改计划的，我只遇到过�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">md试了一下真tm费token  太太太太贵了
 
+
+*****
+
+####  mitzvah  
+##### 19810#       发表于 2026-11-10 13:19
+
+ 本帖最后由 mitzvah 于 2026-11-10 13:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70490255&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-10 10:51</a>
+
+我把过程文档挑出来放附件了，大佬看看呢，工作流程就是按你之前那个静态分析工具流程定的，DS要规定到 ...</blockquote>
+我直接用自然语言的方法论总结文档————反正我在fork ds4和我那个漫画阅读器的时候1017乃至老ds4。1时主动使用工具是没问题的比如说这样的类似于skill的文档：
+
+读取文档后观察是否正常就是看分析和计划的第一步是是不是调用了静态工具，如果是awk，sed或者grep直接提醒他没有按照方法论，1017的智力是可以自行修正的，按照此方法论完全可以自行证伪修改计划，花点心思写个插件似乎也可以？
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+PI-静态工具与DAP使用手册-20261109.md
+
+2026-11-10 13:17 上传
+点击文件名下载附件
+
+19.35 KB, 下载次数: 1
+
+
+*****
+
+####  mitzvah  
+##### 19811#       发表于 2026-11-10 13:23
+
+抱歉传错文件了，这个才对
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+方法论-静态工具与DAP证据链-20261106.md
+
+2026-11-10 13:23 上传
+点击文件名下载附件
+
+10.33 KB, 下载次数: 3
+
