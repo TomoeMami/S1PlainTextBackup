@@ -7027,3 +7027,15 @@ Gpt说这套否定—转折—升华的行文方式在训练时候容易受到�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cody198879  
+##### 19845#       发表于 2026-11-10 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492227&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-10 18:25</a>
+比如在workbuddy里开发一个项目，但项目可能分为几个小项目，例如数据分析项目、展示页面设计项目、数据归 ...</blockquote>
+正常来讲是用专家团，或者子代理来解决的。workbuddy的开发架构专家团你试试。要有个主线程ai控制全局，谈话子代理专门做事
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

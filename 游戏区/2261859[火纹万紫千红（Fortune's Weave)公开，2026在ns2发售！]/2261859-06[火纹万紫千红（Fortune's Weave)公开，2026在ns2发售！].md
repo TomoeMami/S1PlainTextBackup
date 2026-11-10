@@ -12254,3 +12254,19 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 9章前提前到绿洲买好槟迦舍，9章开头就能转职舞娘，并不太麻烦。
 
+
+*****
+
+####  JunkoPureFuries  
+##### 8566#       发表于 2026-11-10 18:36
+
+<img src="https://img.stage1st.com/forum/202611/10/183518z9wx57t75v09vo0o.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-11-10 183157.jpg</strong> (575.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 18:35 上传
+
+原来爹才是被炼的那个<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
