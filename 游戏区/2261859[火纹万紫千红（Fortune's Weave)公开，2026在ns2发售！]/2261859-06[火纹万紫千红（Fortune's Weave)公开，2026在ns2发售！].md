@@ -12270,3 +12270,32 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 原来爹才是被炼的那个<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯夏  
+##### 8567#       发表于 2026-11-10 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489044&amp;ptid=2261859" target="_blank">bsdlxy 发表于 2026-11-9 23:17</a>
+
+第三部的3门居然还是9个出击数，记得售前不是说出击数变多了吗</blockquote>
+第4区分开始出击数就给你17个了（救世主+16人）
+
+*****
+
+####  u2deack  
+##### 8568#       发表于 2026-11-10 18:46
+
+第一部只能蕾达转舞娘的话也不用纠结了，感觉现在这个难度也不差那点数值随缘玩就行
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  otakun  
+##### 8569#       发表于 2026-11-10 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492254&amp;ptid=2261859" target="_blank">JunkoPureFuries 发表于 2026-11-10 18:36</a>
+原来爹才是被炼的那个</blockquote>
+白发鬼:为什么你老婆看起来这么年轻
+

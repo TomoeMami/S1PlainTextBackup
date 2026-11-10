@@ -7039,3 +7039,24 @@ Gpt说这套否定—转折—升华的行文方式在训练时候容易受到�
 
 —— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  紧那罗  
+##### 19846#       发表于 2026-11-10 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492227&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-10 18:25</a>
+
+比如在workbuddy里开发一个项目，但项目可能分为几个小项目，例如数据分析项目、展示页面设计项目、数据归 ...</blockquote>
+你需要多个角色的原因是什么，隔离不同项目的管理规则？
+
+wb自带的功能就楼上说的专家团，不过我是觉得不同的目录写好对应的工作纪律(agent.md)就够了
+
+
+*****
+
+####  omnitoken  
+##### 19847#       发表于 2026-11-10 18:46
+
+现在反代自己的workbuddy里面的deepseek1017 安全吗。。。
+
