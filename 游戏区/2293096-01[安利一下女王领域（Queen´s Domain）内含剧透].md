@@ -4121,3 +4121,11 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 后面还有这么阴间的怪吗</blockquote>
 有的呢，还有种换皮的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  二十二颗牛油果  
+##### 309#       发表于 2026-11-10 09:50
+
+这游戏继承demo进度的吗
+

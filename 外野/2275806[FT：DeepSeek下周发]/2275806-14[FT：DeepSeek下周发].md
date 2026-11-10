@@ -6419,3 +6419,16 @@ token效率好差
 
 seedream 5.5有点厉害
 
+
+*****
+
+####  hugosol  
+##### 19798#       发表于 2026-11-10 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489598&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-10 08:46</a>
+
+不同措辞的注入效果不一样，我觉得检查单式的让代理逐个按照清单一条条执行比大量禁止式措辞的注入好，而g ...</blockquote>
+我每次都让它删掉那些“但不代表xxx”，“不要XXX”
+
+否定式措辞也不能说没用，但token效率太低了，而且提示词越长，对人类来说越难阅读，这才是最麻烦的
+
