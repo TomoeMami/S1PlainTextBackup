@@ -7241,3 +7241,31 @@ gpt干起活来感觉就像那种不粘锅同事 你说他傻吧 也不傻 可�
 开了gpt pro100,这个套餐下能爽用astra了吧（指不开subagent    Re:Source</blockquote>
 不能，我Pro 100的周限全蹬Astra的话只够用一天
 
+
+*****
+
+####  bixinhaner  
+##### 19864#       发表于 2026-11-10 23:44
+
+<img src="https://img.stage1st.com/forum/202611/10/234433rrwkij7f7jv9rpv7.png" referrerpolicy="no-referrer">
+
+<strong>b3ac84f3ea4cf2d38db8a8fbb62ba2d0.png</strong> (220.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 23:44 上传
+
+minimax H3 image出了，是不是意味着黄图自由了
+
+
+*****
+
+####  hugosol  
+##### 19865#       发表于 2026-11-10 23:47
+
+我100pro用了codebase-memory-mcp和codemode，小需求直接用Astra写了，当然subagent用的还是6.1-sol
+
+写好一大堆需求文档连续跑几个小时那种场景得用6.1-sol……不过除此之外都用Astra没啥问题，毕竟人类打字速度有上限
+
+而且还有重置卡，不过现在要规划一下了，因为Tibo不给全服重置了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
