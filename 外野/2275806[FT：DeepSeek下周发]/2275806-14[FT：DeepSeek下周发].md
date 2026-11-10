@@ -6465,3 +6465,18 @@ seedream 5.5有点厉害
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hugosol  
+##### 19802#       发表于 2026-11-10 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489952&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-10 10:04</a>
+
+直接让astra写可验证的检查单式文档不就得了，把任务切分成可验证的独立步骤用检查单式的文档代替充满防 ...</blockquote>
+不止这些问题呢，有时候是分层架构不对，有时候是喜欢给我加一些没什么卵用的细节，LLM永远不可能知道它的想法哪里有问题<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+说到底就是你输入的信息越少，任务的规模越大，大模型的输出可能性就会越多，越是想要利用模型能力的杠杆放大自己的能力就会碰到越多这样的情况
+
+但反过来说如果是你已经做得滚瓜烂熟的工作，自己已经踩过无数坑的领域，就可以知道怎么用最短的提示词约束模型产出你想要的效果
+
