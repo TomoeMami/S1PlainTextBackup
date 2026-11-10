@@ -7379,3 +7379,15 @@ carbon出了，只给ultra用<img src="https://static.stage1st.com/image/smiley/
 carbon出了，只给ultra用</blockquote>
 G家现在总整这种耍猴烂活
 
+
+*****
+
+####  xsummer  
+##### 19876#       发表于 2026-11-11 02:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70487297&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-9 13:27</a>
+workbuddy的ds这几天都是双倍消耗了，怪不得用的快了</blockquote>
+我说怎么用的这么快…
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
