@@ -6926,3 +6926,47 @@ ds4.1f有一定的自行验证和方案修正能力, 但是有时还是会走偏
 
 4.1f确实牛逼，用峰价20多块把cam编程内一个顶级的算法功能给逆向完了，确实是个非常牛逼非常灵活的思路。在以前这个代码非常非常值钱，现在被ai框框破解完了。虽然逆向的过程非常曲折，大肥鱼也让我高血压了好多次，但是最终的成果确实非常牛逼。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19836#       发表于 2026-11-10 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491637&amp;ptid=2275806" target="_blank">Litccc 发表于 2026-11-10 16:07</a>
+Gemini Carbon已在vertex中可用，另外11月16日新开通的GCP 300刀赠金帐户将无法用于Vertex，附一张carbon写 ...</blockquote>
+啊这……一眼ai啊。bro，这连朱雀都骗不过去啊……
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  Promeus  
+##### 19837#       发表于 2026-11-10 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491792&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-11-10 16:38</a>
+啊这……一眼ai啊。bro，这连朱雀都骗不过去啊……
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+前两句话就被ai味熏吐了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HazukiShion  
+##### 19838#       发表于 2026-11-10 16:44
+
+话说 AI 写东西为啥这么喜欢用“不是”这个词？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 19839#       发表于 2026-11-10 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491829&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-11-10 16:44</a>
+话说 AI 写东西为啥这么喜欢用“不是”这个词？</blockquote>
+Gpt说这套否定—转折—升华的行文方式在训练时候容易受到青睐
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
