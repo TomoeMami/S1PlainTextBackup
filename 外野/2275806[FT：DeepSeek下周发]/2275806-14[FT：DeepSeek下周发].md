@@ -7357,3 +7357,15 @@ carbon出了，只给ultra用<img src="https://static.stage1st.com/image/smiley/
 反过来想啊，把你现在用的harness提示词替换掉wb，那wb不就被换壳了吗 ...</blockquote>
 这个一般怎么替换啊
 
+
+*****
+
+####  Promeus  
+##### 19874#       发表于 2026-11-11 01:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493378&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-11 00:29</a>
+谷歌按理说是这几家里最不缺算力的，怎么老搞这种分批行为
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5 ...</blockquote>
+云服务根本就不想让llm拿到一点算力<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
