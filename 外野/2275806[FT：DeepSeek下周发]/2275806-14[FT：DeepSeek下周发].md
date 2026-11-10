@@ -6662,3 +6662,65 @@ PI-静态工具与DAP使用手册-20261109.md
 这文档是前几天在fork'最新版的ds4.c时图省事让代理生成的，虽然已经通用化处理了一些，但是可能还是有些 ...</blockquote>
 正好我要弄的东西也差不多，等这一轮迭代跑完让他整理下文档重新调整工作流看看
 
+
+*****
+
+####  mitzvah  
+##### 19815#       发表于 2026-11-10 13:49
+
+我用的dap是如下拼出来的
+
+|| 后端 | 上游产物 | 仓库 ||
+|| --- | --- | --- ||
+|| C/C++/Rust | CodeLLDB 的 codelldb adapter | [https://github.com/vadimcn/codelldb](https://github.com/vadimcn/codelldb) ||
+|| Python | debugpy.adapter | [https://github.com/microsoft/debugpy](https://github.com/microsoft/debugpy) ||
+|| JS/TS | Node 内置 inspector + CDP；TS 用 esbuild/tsx 做 source map | Node.js 内置，无独立仓库 ||
+|| Java | 原生 JDWP 客户端（自己实现协议，无 adapter） | JDK JDWP 规范，无外部仓库 ||
+|| C#/.NET | Samsung netcoredbg（MIT，单二进制） | [https://github.com/Samsung/netcoredbg](https://github.com/Samsung/netcoredbg) |————————————————大型项目使用dap对静态工具的结论补盲，验证迁移矩阵是必须的，应该有更好的现成产物，我这套反正用起来也还可以|
+
+omp内置有dap，也不需要像我这样diy
+
+
+*****
+
+####  mitzvah  
+##### 19815#       发表于 2026-11-10 13:49
+
+ 本帖最后由 mitzvah 于 2026-11-10 13:51 编辑 
+
+我用的dap是如下拼出来的mcp服务
+
+|| 后端 | 上游产物 | 仓库 ||
+|| --- | --- | --- ||
+|| C/C++/Rust | CodeLLDB 的 codelldb adapter | [https://github.com/vadimcn/codelldb](https://github.com/vadimcn/codelldb) ||
+|| Python | debugpy.adapter | [https://github.com/microsoft/debugpy](https://github.com/microsoft/debugpy) ||
+|| JS/TS | Node 内置 inspector + CDP；TS 用 esbuild/tsx 做 source map | Node.js 内置，无独立仓库 ||
+|| Java | 原生 JDWP 客户端（自己实现协议，无 adapter） | JDK JDWP 规范，无外部仓库 ||
+|| C#/.NET | Samsung netcoredbg（MIT，单二进制） | [https://github.com/Samsung/netcoredbg](https://github.com/Samsung/netcoredbg) |————————————————大型项目使用dap对静态工具的结论补盲，验证迁移矩阵是必须的，应该有更好的现成产物，我这套反正用起来也还可以|
+
+omp内置有dap，也不需要像我这样diy
+
+
+*****
+
+####  qz66618  
+##### 19816#       发表于 2026-11-10 13:55
+
+最近在用dsh写word，发现它在创建和写word时word会频繁报“无法生成临时文件”，虽然最后也能生成文档但是过程很麻烦，漏油有什么解决的办法吗，我让dsh自己找方法目前也没起多大用处
+
+*****
+
+####  舞以  
+##### 19817#       发表于 2026-11-10 13:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞八分钱这个5.1和5.2我看和0813老师的迭代性质差不多啊
+
+*****
+
+####  rachepatty  
+##### 19818#       发表于 2026-11-10 13:57
+
+无法生成要么是权限问题要么是路径问题
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
