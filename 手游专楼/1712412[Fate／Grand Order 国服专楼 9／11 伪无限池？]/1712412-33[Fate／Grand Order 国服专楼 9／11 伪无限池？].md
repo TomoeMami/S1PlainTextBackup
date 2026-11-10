@@ -321,3 +321,19 @@ MuMu-20261108-023307-521.jpg
 
 感觉明年送的石头也不太多，更想省点了
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 48318#       发表于 2026-11-10 15:13
+
+听说玉藻前日服史诗式强化，先提前NEW了，虽然说不定过了终章就退坑<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hououmon  
+##### 48319#       发表于 2026-11-10 15:14
+
+发现除了狐狸外没有CD拐，搞了个羽蛇神
+

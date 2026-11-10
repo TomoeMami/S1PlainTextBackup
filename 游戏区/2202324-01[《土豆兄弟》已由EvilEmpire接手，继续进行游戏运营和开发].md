@@ -923,3 +923,14 @@ steam最近的评价已经差成这样了么
 3个道具的限制是在哪提到的？本体能力也能复制，本体算不算一个道具？</blockquote>
 本体不算，诅咒道具也不算
 
+
+*****
+
+####  恶搞之王  
+##### 528#       发表于 2026-11-10 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489120&amp;ptid=2202324" target="_blank">敬明挑梅西 发表于 2026-11-9 23:47</a>
+
+我宣布修地堡+回旋镖是最好玩的组合，地堡连发穿透太特么变态了，打笑了</blockquote>
+主要是回旋镖这B玩意人用是必须回手才能再扔，但炮台可以随便扔，就很快乐<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

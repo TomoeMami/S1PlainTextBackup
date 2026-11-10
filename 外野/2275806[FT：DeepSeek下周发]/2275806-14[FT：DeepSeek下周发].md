@@ -6766,3 +6766,35 @@ dap工具本质就是个调试器，跟cuda有啥关系。omp不是内置的吗�
 最近在用dsh写word，发现它在创建和写word时word会频繁报“无法生成临时文件”，虽然最后也能生成文档但是 ...</blockquote>
 让他自己总结问题写成全局/项目记忆
 
+
+*****
+
+####  matthewsteel  
+##### 19823#       发表于 2026-11-10 15:07
+
+3.8flash怎么这么卡了，是google卡了jio会员还是要更新了
+
+
+*****
+
+####  unrealMeeSeeks  
+##### 19824#       发表于 2026-11-10 15:13
+
+一种很适合one-shot时代的骗流量方法：任意游戏视频配文灰度/fable模型。真的有人信。
+
+<img src="https://img.stage1st.com/forum/202611/10/151113spgx0bua1gkqkkvl.png" referrerpolicy="no-referrer">
+
+<strong>0939ff984711f9f2bd9e2c9b06c2053e.png</strong> (157.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 15:11 上传
+
+<img src="https://img.stage1st.com/forum/202611/10/151133xqkkxkjttpkjzzye.png" referrerpolicy="no-referrer">
+
+<strong>4d5ee66782c53bae6ca15168dfa68b88.png</strong> (203.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 15:11 上传
+
