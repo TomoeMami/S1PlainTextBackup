@@ -6905,3 +6905,24 @@ ai的注意力太强了, 你知道方向直接点他一下就行, 剩下的苦�
 gemini carbon已在vertex中可用，另外11月16日新开通的gcp 300刀赠金帐户将无法用于Vertex，另附一张carbon写作测试，核弹瘫坐.jpg
 <img src="https://p.sda1.dev/36/9cbb101f8d9993515c76dfd0fe6024a7/图片.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mp5  
+##### 19834#       发表于 2026-11-10 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491493&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-11-10 15:37</a>
+
+ai容易搞成屎山代码，oneshot这种对于做项目来说毫无意义</blockquote>
+ds4.1f有一定的自行验证和方案修正能力, 但是有时还是会走偏, 需要人工干预
+
+如果能自主分析判断多个方案的可行性继续推进, 那就真的可以完全交给ai跟进项目了
+
+
+*****
+
+####  crow_wine  
+##### 19835#       发表于 2026-11-10 16:36
+
+4.1f确实牛逼，用峰价20多块把cam编程内一个顶级的算法功能给逆向完了，确实是个非常牛逼非常灵活的思路。在以前这个代码非常非常值钱，现在被ai框框破解完了。虽然逆向的过程非常曲折，大肥鱼也让我高血压了好多次，但是最终的成果确实非常牛逼。
+

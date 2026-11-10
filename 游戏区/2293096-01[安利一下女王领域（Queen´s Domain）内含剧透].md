@@ -4286,3 +4286,16 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 玩到要找8个标记好折磨</blockquote>
 这才哪到哪，50个卵和69个银骷髅不是更折么<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pgain2004  
+##### 322#       发表于 2026-11-10 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491178&amp;ptid=2293096" target="_blank">Kazepollar 发表于 2026-11-10 14:25</a>
+然而已经摸了地下世界的存档点了
+
+是不是只能找一条回去的路了</blockquote>
+没理由到地下世界都没一个飞石碎片吧，实在不行捏一个选传送塔传回去就好（还可以顺便去？？？？）
+顺带一提中期可以捡到无限返回水晶和无限飞石各一个，从此自由
+
