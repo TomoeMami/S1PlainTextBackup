@@ -7405,3 +7405,13 @@ qwen4这波是纯粹傻叉，我不觉得上周发这周发，模型性能上有
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  御坂MKII  
+##### 19878#       发表于 2026-11-11 02:59
+
+carbon 感觉有点儿微妙，有些 5.6 sol 开始的 bug case 现在查不出来
+
+但是搞玩具看起来进步异常巨大
+
