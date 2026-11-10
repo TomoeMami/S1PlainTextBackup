@@ -4169,3 +4169,14 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 至于机关这些嘛，反正看着像那么回事的地方，各种敲敲打打试一试就可以。
 
+
+*****
+
+####  vidomina  
+##### 312#         楼主| 发表于 2026-11-10 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70490014&amp;ptid=2293096" target="_blank">Kazepollar 发表于 2026-11-10 10:14</a>
+
+在神庙凑齐四个王冠直接进地底了，怪一个比一个难打....有探索的必要吗，还是直接找路回去（有路能回去吗 ...</blockquote>
+四王冠是什么？正常是海神庙-知识塔-陵墓-上古界，其他地方酌情探索
+

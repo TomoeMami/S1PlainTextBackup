@@ -6563,3 +6563,11 @@ codebase 与补盲dap完全可以自行证伪修改计划的，我只遇到过�
 <img src="https://p.sda1.dev/36/119977cb6e30f71edb532075da1dca62/image.jpg" referrerpolicy="no-referrer">
 你们这么开玩笑是不是有点太伤谷谷歌歌了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  匿名用户  
+##### 19807#       发表于 2026-11-10 11:01
+
+你们用了 codebase-memory 还会用 codegraph 吗？如果都用的话，如何写 prompt 来明确他们的分工，避免重复工作和规则冲突呢
+
