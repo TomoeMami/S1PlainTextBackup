@@ -6506,3 +6506,60 @@ seedream 5.5有点厉害
 不止这些问题呢，有时候是分层架构不对，有时候是喜欢给我加一些没什么卵用的细节，LLM永远不可能知道它 ...</blockquote>
 codebase 与补盲dap完全可以自行证伪修改计划的，我只遇到过我提出的需求没有意义的问题，要么就是视觉能力有限模型压根不理解相关概念导致无能狂怒
 
+
+*****
+
+####  qwased  
+##### 19805#       发表于 2026-11-10 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489347&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-10 05:05</a>
+
+从头到尾都用1017编程可能更加合理，你这个工作流代理之间通过文档来交流，Astra最初计划的时候不知道是不 ...</blockquote>
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+文档.7z
+(70.86 KB, 下载次数: 0)
+
+2026-11-10 10:49 上传
+
+点击文件名下载附件
+
+我把过程文档挑出来放附件了，大佬看看呢，工作流程就是按你之前那个静态分析工具流程定的，DS要规定到非常具体才会主动使用代码图工具<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+ <blockquote>- **确认起点**：git -C engine status 应干净；若不干净，先列出改动并停止，不 reset/clean。
+
+  HEAD 应是前一任务提交或复核后的后继提交。外层 AGENTS.md 的既有修改不属于任务，不混入提交。
+
+- **Phase 0**：list_projects/index_status；需要时 index_repository(mode=fast,persistence=false)。
+
+  不使用 compare_graphs 比较异名项目；detect_changes 显式 base_branch=master。
+
+- **Phase 1**：在 engine/.local/iter2/tNN-change-plan.md 写修改目标、精确 scope 和逐 hunk 准代码。
+
+- **Phase 2**：每个 hunk 都 search_graph → trace_path(direction=both, include_tests=true) →
+
+  get_code_snippet → check_index_coverage；共享类型/字段必须枚举全部消费者。不能靠一次 grep
+
+  声称“没有其他调用点”。行号只作导航，以符号和源码为准。
+
+- **Phase 3**：先写状态迁移矩阵，覆盖首次、复用、空集、跨页、失败不修改状态、旧 ticket 和析构。
+
+- **Phase 4**：只实施已核验 hunks；出现新接缝就回到 Phase 1/2，不顺手扩大范围。
+
+- **Phase 5**：运行当前任务的每个矩阵行和相关旧测试。构建通过不等于功能通过。
+
+  原生测试与 sanitizer 的时间不能混表，eager 与 CUDA Graph 不能混表。
+
+- **Phase 6/7**：更新任务证据、docs/ITERATION_2_PROGRESS.md 和必要锚点；强制 fast 重索引，
+
+  记录 generation/nodes/edges。一个任务一个 engine 提交；文档可单独 docs: 提交。不得强推。</blockquote>
+
+
+*****
+
+####  Promeus  
+##### 19806#       发表于 2026-11-10 10:54
+
+<img src="https://p.sda1.dev/36/119977cb6e30f71edb532075da1dca62/image.jpg" referrerpolicy="no-referrer">
+你们这么开玩笑是不是有点太伤谷谷歌歌了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
