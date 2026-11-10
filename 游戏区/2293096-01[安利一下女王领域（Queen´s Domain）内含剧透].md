@@ -4388,3 +4388,24 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 今日游龙了半天把好多解谜搞完，练满了好几把武器，跑到腐败湖不舍得吃药把自己浪死了 结果发现今天开玩后从没过存档（←以为存过了）<img src="https://static.stage1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kkk9233  
+##### 332#       发表于 2026-11-10 20:27
+
+刚把陵墓打大半，知识塔做太好了，以至于玩这些普通箱庭没啥乐趣
+
+
+*****
+
+####  nitrome  
+##### 333#       发表于 2026-11-10 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491178&amp;ptid=2293096" target="_blank">Kazepollar 发表于 2026-11-10 14:25</a>
+
+然而已经摸了地下世界的存档点了
+
+是不是只能找一条回去的路了</blockquote>
+你进存档点看看商店有飞石碎片吗？有的话可以买一个出狱。
+
