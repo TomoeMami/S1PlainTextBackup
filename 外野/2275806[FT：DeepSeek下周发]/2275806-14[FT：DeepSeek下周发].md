@@ -7005,3 +7005,17 @@ Gpt说这套否定—转折—升华的行文方式在训练时候容易受到�
 话说 AI 写东西为啥这么喜欢用“不是”这个词？</blockquote>
 有个说法是，现在模型在后训练中所接受的模范写法，就是用“不是……而是……”这类写法去澄清概念。
 
+
+*****
+
+####  moekyo  
+##### 19843#       发表于 2026-11-10 17:17
+
+<img src="https://img.stage1st.com/forum/202611/10/171717e5uqtjajtvrhz31j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 17:17 上传
+
