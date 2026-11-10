@@ -6571,3 +6571,14 @@ codebase 与补盲dap完全可以自行证伪修改计划的，我只遇到过�
 
 你们用了 codebase-memory 还会用 codegraph 吗？如果都用的话，如何写 prompt 来明确他们的分工，避免重复工作和规则冲突呢
 
+
+*****
+
+####  qwased  
+##### 19808#       发表于 2026-11-10 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70490313&amp;ptid=2275806" target="_blank">匿名用户 发表于 2026-11-10 11:01</a>
+
+你们用了 codebase-memory 还会用 codegraph 吗？如果都用的话，如何写 prompt 来明确他们的分工，避免重复 ...</blockquote>
+一个就行了吧，我用的前者
+
