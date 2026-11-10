@@ -7231,3 +7231,13 @@ gpt干起活来感觉就像那种不粘锅同事 你说他傻吧 也不傻 可�
 
 开了gpt pro100,这个套餐下能爽用astra了吧（指不开subagent    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  startraveller  
+##### 19863#       发表于 2026-11-10 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493018&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-11-10 22:32</a>
+开了gpt pro100,这个套餐下能爽用astra了吧（指不开subagent    Re:Source</blockquote>
+不能，我Pro 100的周限全蹬Astra的话只够用一天
+
