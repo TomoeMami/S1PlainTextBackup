@@ -4370,3 +4370,21 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 没碰见有人反馈这种bug啊</blockquote>
 确实是BUG，但是容易解决。重进游戏就行了……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Triangle  
+##### 330#       发表于 2026-11-10 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492376&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-10 19:15</a>
+
+确实是BUG，但是容易解决。重进游戏就行了……</blockquote>
+我也碰到了，三个宝石只亮了一个，不过我没在意直接开门进去了
+
+*****
+
+####  zzf111  
+##### 331#       发表于 2026-11-10 19:58
+
+今日游龙了半天把好多解谜搞完，练满了好几把武器，跑到腐败湖不舍得吃药把自己浪死了 结果发现今天开玩后从没过存档（←以为存过了）<img src="https://static.stage1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
