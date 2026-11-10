@@ -4476,3 +4476,26 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 这游戏太顶了。😂
 
+
+*****
+
+####  Shu-Stella  
+##### 340#       发表于 2026-11-10 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493101&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-10 22:57</a>
+
+大书库太顶了。打完死之书，把肉山消除了，可以上到最顶层。从顶层的墓地去到塔的外围跳跳乐，跳跳乐能拿三 ...</blockquote>
+其实不止6本书，大概八九本，真正需要的只有6本，不过还有另外的书柜解密也需要书。
+
+
+*****
+
+####  tatara  
+##### 341#       发表于 2026-11-10 23:26
+
+ 本帖最后由 tatara 于 2026-11-10 23:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493101&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-10 22:57</a>
+
+大书库太顶了。打完死之书，把肉山消除了，可以上到最顶层。从顶层的墓地去到塔的外围跳跳乐，跳跳乐能拿三 ...</blockquote>
+6书铁门其实很早就能开，其中4本知识塔里都能拿到手，剩下的两本一本藏的很简单就在初始岛墓地，另一本则比较阴间，要跳海神庙的隐藏大树洞。
+
