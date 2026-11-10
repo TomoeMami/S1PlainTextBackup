@@ -7391,3 +7391,17 @@ workbuddy的ds这几天都是双倍消耗了，怪不得用的快了</blockquote
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  lactone  
+##### 19877#       发表于 2026-11-11 02:09
+
+qwen4这波是纯粹傻叉，我不觉得上周发这周发，模型性能上有什么实质区别
+
+你这周发，新闻直接被御三家新模型盖了
+
+你这周不发，上周五打的北冥有鱼的海报就成了笑话
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
