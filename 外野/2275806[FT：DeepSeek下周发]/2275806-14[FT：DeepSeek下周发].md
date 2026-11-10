@@ -7435,3 +7435,29 @@ carbon 感觉有点儿微妙，有些 5.6 sol 开始的 bug case 现在查不出
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zephyrus99  
+##### 19881#       发表于 2026-11-11 07:32
+
+<blockquote>hugosol 发表于 2026-11-10 23:47
+我100pro用了codebase-memory-mcp和codemode，小需求直接用Astra写了，当然subagent用的还是6.1-sol
+
+写好一 ...</blockquote>
+话说我好像好久没拿到重置卡了。现在有啥门槛吗？要关注x账户？
+
+
+*****
+
+####  我就再氪一单  
+##### 19882#       发表于 2026-11-11 07:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492293&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-10 18:48</a>
+通常来说大部分agent会有workspace的概念，你要修改哪个仓库就在哪个仓库发起会话
+
+但其实workspace这个概 ...</blockquote>
+wb也就占个远程发消息功能的优势，我上周末一个周末触发了两次对话次数CD，上次1017一个抖动宕机就被藤子顺手加了个12小时的CD，我没有一天不是在捏着鼻子用WB的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
