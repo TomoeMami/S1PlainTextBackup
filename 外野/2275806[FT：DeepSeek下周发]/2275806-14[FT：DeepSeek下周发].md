@@ -6214,3 +6214,35 @@ prompt注入很容易变成最新的执行者被灌输了错误的记忆然后�
 
 fable5.2发布 这下国产模型又可以蒸馏了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 19779#       发表于 2026-11-10 08:39
+
+还只是5.2，会不会还藏着个5.5埋伏astra 6.2
+
+
+*****
+
+####  cody198879  
+##### 19780#       发表于 2026-11-10 08:46
+
+我现在真的希望梁武能够准备4.1pro 或者5Pro乱干a/了
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  mitzvah  
+##### 19781#       发表于 2026-11-10 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489409&amp;ptid=2275806" target="_blank">我就再氪一单 发表于 2026-11-10 06:50</a>
+
+prompt注入很容易变成最新的执行者被灌输了错误的记忆然后和不存在的记忆左右脑互搏？
+
+我的想法是留文档 ...</blockquote>
+不同措辞的注入效果不一样，我觉得检查单式的让代理逐个按照清单一条条执行比大量禁止式措辞的注入好，而gpt那种大量防御式措辞的文档，我怀疑是有问题的，可能会把另一个模型彻底搞晕
+
+我把计划文档当做临时的检查清单用完即弃，因为核心推动进程的是清单指示的call tool，根据工具返回的事实推动任务比传统的计划执行模式，我认为是更可靠的
+
