@@ -6432,3 +6432,36 @@ seedream 5.5有点厉害
 
 否定式措辞也不能说没用，但token效率太低了，而且提示词越长，对人类来说越难阅读，这才是最麻烦的
 
+
+*****
+
+####  2017.05.04  
+##### 19799#       发表于 2026-11-10 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489802&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-11-10 09:38</a></blockquote>
+已编辑<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mitzvah  
+##### 19800#       发表于 2026-11-10 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489867&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-10 09:51</a>
+
+我每次都让它删掉那些“但不代表xxx”，“不要XXX”
+
+否定式措辞也不能说没用，但token效率太低了，而且提 ...</blockquote>
+直接让astra写可验证的检查单式文档不就得了，把任务切分成可验证的独立步骤用检查单式的文档代替充满防御式话术的文档，让1017按照清单逐一完成
+
+
+*****
+
+####  a4ac7  
+##### 19801#       发表于 2026-11-10 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489802&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-11-10 09:38</a></blockquote>
+<img src="https://pics3.baidu.com/feed/a2cc7cd98d1001e93d142e13ff565ae454e79765.jpeg?token=7185eecc8b468d0ab0715af0e0215fc3&amp;s=A0C29E4A39CB9B700C75089F0300C082" id="aimg_R6flK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
