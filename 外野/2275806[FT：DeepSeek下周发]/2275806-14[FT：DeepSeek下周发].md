@@ -6582,3 +6582,13 @@ codebase 与补盲dap完全可以自行证伪修改计划的，我只遇到过�
 你们用了 codebase-memory 还会用 codegraph 吗？如果都用的话，如何写 prompt 来明确他们的分工，避免重复 ...</blockquote>
 一个就行了吧，我用的前者
 
+
+*****
+
+####  jojog  
+##### 19809#       发表于 2026-11-10 12:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然只是5.2不是5.5 看来没活了
+
+<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">md试了一下真tm费token  太太太太贵了
+
