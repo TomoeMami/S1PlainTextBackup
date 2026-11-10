@@ -6480,3 +6480,29 @@ seedream 5.5有点厉害
 
 但反过来说如果是你已经做得滚瓜烂熟的工作，自己已经踩过无数坑的领域，就可以知道怎么用最短的提示词约束模型产出你想要的效果
 
+
+*****
+
+####  hugosol  
+##### 19803#       发表于 2026-11-10 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489815&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-10 09:42</a>
+
+所以每一步修改前要用codebase_memory重新建索然后让代理尝试对建索用鸟瞰视野获得项目的整体认识，我用 ...</blockquote>
+其实单仓库的话不需要一直重建索引，codebase-memory-mcp会监控当前工作目录下的变更自动更新的
+
+但我现在经常多个仓库一起改，还有worktree这些按照它默认的场景似乎支持不太好，要自己设计一些机制
+
+不过codebase-memory-mcp真是很强大，现在我对上千行的文件也懒得改容忍度很高了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mitzvah  
+##### 19804#       发表于 2026-11-10 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70490015&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-10 10:14</a>
+
+不止这些问题呢，有时候是分层架构不对，有时候是喜欢给我加一些没什么卵用的细节，LLM永远不可能知道它 ...</blockquote>
+codebase 与补盲dap完全可以自行证伪修改计划的，我只遇到过我提出的需求没有意义的问题，要么就是视觉能力有限模型压根不理解相关概念导致无能狂怒
+
