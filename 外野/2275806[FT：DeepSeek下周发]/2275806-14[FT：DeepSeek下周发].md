@@ -6970,3 +6970,38 @@ Gpt说这套否定—转折—升华的行文方式在训练时候容易受到�
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Litccc  
+##### 19840#       发表于 2026-11-10 16:48
+
+ 本帖最后由 Litccc 于 2026-11-10 16:49 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491792&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-11-10 16:38</a>
+
+啊这……一眼ai啊。bro，这连朱雀都骗不过去啊……
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+八股文是无法避免的，需要用提示词去除，这个倒是小问题，我自己测了一下写文相对于argon提升不小
+
+
+*****
+
+####  qwased  
+##### 19841#       发表于 2026-11-10 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491829&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-11-10 16:44</a>
+
+话说 AI 写东西为啥这么喜欢用“不是”这个词？</blockquote>
+“不是而是”是从GPT4o的某个检查点开始不断暴增的，正好是OAI说他们提升合成语料比重的节点
+
+*****
+
+####  舞以  
+##### 19842#       发表于 2026-11-10 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491829&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-11-10 16:44</a>
+
+话说 AI 写东西为啥这么喜欢用“不是”这个词？</blockquote>
+有个说法是，现在模型在后训练中所接受的模范写法，就是用“不是……而是……”这类写法去澄清概念。
+
