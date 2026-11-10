@@ -4275,3 +4275,14 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 玩到要找8个标记好折磨
 
+
+*****
+
+####  vidomina  
+##### 321#         楼主| 发表于 2026-11-10 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491525&amp;ptid=2293096" target="_blank">Shu-Stella 发表于 2026-11-10 15:46</a>
+
+玩到要找8个标记好折磨</blockquote>
+这才哪到哪，50个卵和69个银骷髅不是更折么<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

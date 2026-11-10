@@ -6860,3 +6860,14 @@ ai的注意力太强了, 你知道方向直接点他一下就行, 剩下的苦�
 
 当然会非常耗费token和时间，但是我人可以离开键盘了这一切都是值得的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  →熙←  
+##### 19830#       发表于 2026-11-10 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491546&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-10 15:51</a>
+
+如果是成批采集数据那读log、dump之类的不是更方便，我个人也是更习惯这么用，所以没想到为啥要走调试的 ...</blockquote>
+又不冲突, log是事后, dap是实时, 直接改变量改寄存器复现很方便啊
+
