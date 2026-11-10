@@ -7290,3 +7290,21 @@ minimax H3 image出了，是不是意味着黄图自由了</blockquote>
 minimax H3 image出了，是不是意味着黄图自由了</blockquote>
 黄图早在sd时代就自由了
 
+
+*****
+
+####  tewaku  
+##### 19868#       发表于 2026-11-11 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493261&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-11-10 23:44</a>
+
+minimax H3 image出了，是不是意味着黄图自由了</blockquote>
+之前开源的视频版H3没器官的，刚开那几天相关人员还非常介意别人拿来搞黄
+
+*****
+
+####  shqingda_  
+##### 19869#       发表于 2026-11-11 00:21
+
+carbon出了，只给ultra用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
