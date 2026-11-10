@@ -7127,3 +7127,77 @@ wb自带的功能就楼上说的专家团，不过我是觉得不同的目录写
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lactone  
+##### 19854#       发表于 2026-11-10 19:37
+
+qwen这也太弱智了，不知道想干啥
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  andychen  
+##### 19855#       发表于 2026-11-10 19:41
+
+<img src="https://img.stage1st.com/forum/202611/10/194006agjjgnjkymbcnlvk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (135.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 19:40 上传
+
+Fable5.2训练过程中刻意限制了能够帮助AI开发的能力，包括硬件加速器内核设计优化和LLM架构改进能力。在这些能力上Fable5.2的能力水平和Opus5.5相当
+
+*****
+
+####  lactone  
+##### 19856#       发表于 2026-11-10 19:42
+
+现在对模型安全要求越来越高，怕不是以后对齐比训练还花时间
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  洛拉斯  
+##### 19857#       发表于 2026-11-10 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492285&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-11-10 18:46</a>
+
+现在反代自己的workbuddy里面的deepseek1017 安全吗。。。</blockquote>
+为什么这么执着反代，有封号危险
+
+反过来想啊，把你现在用的harness提示词替换掉wb，那wb不就被换壳了吗
+
+*****
+
+####  冤枉呐  
+##### 19858#       发表于 2026-11-10 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491829&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-11-10 16:44</a>
+话说 AI 写东西为啥这么喜欢用“不是”这个词？</blockquote>
+英文习惯，先否定后肯定的手法太普遍了
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  andychen  
+##### 19859#       发表于 2026-11-10 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492460&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-10 19:42</a>
+
+现在对模型安全要求越来越高，怕不是以后对齐比训练还花时间
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3 ...</blockquote>
+我认为对齐在根本上是个伪命题
+
+人类自己都没法统一价值观，我觉得是对的事情你觉得是错的，怎么可能要求AI有绝对的价值判断？
+
