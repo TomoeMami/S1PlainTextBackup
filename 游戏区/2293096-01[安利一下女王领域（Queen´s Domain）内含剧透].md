@@ -4202,3 +4202,27 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 就是海神庙的四个婚仪石冠谜题，解开后出现一个深坑，跳下去就直接跳关到苍翠空谷和腐朽洞窟了 ...</blockquote>
 那两个图涉及结局2，必大的，不过强度较高，可以后再来。
 
+
+*****
+
+####  Kaornao  
+##### 315#       发表于 2026-11-10 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70490014&amp;ptid=2293096" target="_blank">Kazepollar 发表于 2026-11-10 10:14</a>
+在神庙凑齐四个王冠直接进地底了，怪一个比一个难打....有探索的必要吗，还是直接找路回去（有路能回去吗 ...</blockquote>
+直接返回骨片回去吧，这时候的强度应该是点完三个魔像的火后去那个拿火炬的知识塔那里，我昨天也是，这游戏这里不做个电梯回去有点搞的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Kaornao  
+##### 315#       发表于 2026-11-10 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70490014&amp;ptid=2293096" target="_blank">Kazepollar 发表于 2026-11-10 10:14</a>
+在神庙凑齐四个王冠直接进地底了，怪一个比一个难打....有探索的必要吗，还是直接找路回去（有路能回去吗 ...</blockquote>
+直接返回骨片回去吧，这时候的强度应该是点完三个魔像的火后去那个拿火炬的知识塔那里，我昨天也是，这游戏这里不做个电梯回去有点搞的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
