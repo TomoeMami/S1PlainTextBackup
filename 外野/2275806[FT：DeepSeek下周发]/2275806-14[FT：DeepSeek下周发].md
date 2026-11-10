@@ -7415,3 +7415,13 @@ carbon 感觉有点儿微妙，有些 5.6 sol 开始的 bug case 现在查不出
 
 但是搞玩具看起来进步异常巨大
 
+
+*****
+
+####  艾诺琳  
+##### 19879#       发表于 2026-11-11 06:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493483&amp;ptid=2275806" target="_blank">wonderful259 发表于 2026-11-11 01:14</a>
+这个一般怎么替换啊</blockquote>
+你都知道方法了，问下ai，甚至不要问，直接说给我个方案，然后看下合理就执行呗
+
