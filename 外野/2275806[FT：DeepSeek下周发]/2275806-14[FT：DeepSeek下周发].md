@@ -6287,3 +6287,35 @@ Muse Ember斩杀hy4 1017
 
 没啥额度了，等等6.2再继续创吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我就再氪一单  
+##### 19786#       发表于 2026-11-10 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489596&amp;ptid=2275806" target="_blank">cody198879 发表于 2026-11-10 08:46</a>
+我现在真的希望梁武能够准备4.1pro 或者5Pro乱干a/了
+
+—— 来自 HONOR WKL-AN80, Android 17, 鹅球 v3.5.9 ...</blockquote>
+深度求索航天<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+等我派DeepSeek v5来把你们一个个都送上天<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  来都来了  
+##### 19787#       发表于 2026-11-10 09:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489527&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-11-10 08:21</a>
+fable5.2发布 这下国产模型又可以蒸馏了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/10/092339dxxmyujzmnizqitq.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1794273818576_1.webp</strong> (4.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 09:23 上传
+
