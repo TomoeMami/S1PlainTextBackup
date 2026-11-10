@@ -6640,3 +6640,25 @@ PI-静态工具与DAP使用手册-20261109.md
 
 后训练压榨出来的模型都是Token大吃货？
 
+
+*****
+
+####  mitzvah  
+##### 19813#       发表于 2026-11-10 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70490370&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-10 11:10</a>
+
+一个就行了吧，我用的前者</blockquote>
+这文档是前几天在fork'最新版的ds4.c时图省事让代理生成的，虽然已经通用化处理了一些，但是可能还是有些特化的ds4.c的内容
+
+
+*****
+
+####  qwased  
+##### 19814#       发表于 2026-11-10 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491011&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-10 13:44</a>
+
+这文档是前几天在fork'最新版的ds4.c时图省事让代理生成的，虽然已经通用化处理了一些，但是可能还是有些 ...</blockquote>
+正好我要弄的东西也差不多，等这一轮迭代跑完让他整理下文档重新调整工作流看看
+
