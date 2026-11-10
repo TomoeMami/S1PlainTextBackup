@@ -4226,3 +4226,34 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  28201  
+##### 316#       发表于 2026-11-10 14:22
+
+楼友说的这个鱼人雕像谜题完全没印象，要怎么触发啊？王冠是打守护者掉的那个？
+
+
+*****
+
+####  Kazepollar  
+##### 317#       发表于 2026-11-10 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491166&amp;ptid=2293096" target="_blank">28201 发表于 2026-11-10 14:22</a>
+
+楼友说的这个鱼人雕像谜题完全没印象，要怎么触发啊？王冠是打守护者掉的那个？ ...</blockquote>
+不是，是神庙那座岛的另外一半内容。在那个烽火台的塔上出发可以探索到这些
+
+*****
+
+####  Kazepollar  
+##### 318#       发表于 2026-11-10 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491081&amp;ptid=2293096" target="_blank">Kaornao 发表于 2026-11-10 14:00</a>
+
+直接返回骨片回去吧，这时候的强度应该是点完三个魔像的火后去那个拿火炬的知识塔那里，我昨天也是，这游 ...</blockquote>
+然而已经摸了地下世界的存档点了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+是不是只能找一条回去的路了
+

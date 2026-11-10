@@ -6724,3 +6724,24 @@ omp内置有dap，也不需要像我这样diy
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  很久就在那边l  
+##### 19819#       发表于 2026-11-10 14:18
+
+anyrouter已上fable5.2，反蒸馏也没用啊
+
+*****
+
+####  qwased  
+##### 19820#       发表于 2026-11-10 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491045&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-10 13:49</a>
+
+我用的dap是如下拼出来的mcp服务
+
+|| 后端 | 上游产物 | 仓库 ||
+|| --- | --- | --- |</blockquote>|
+但是cuda还是只能在wsl里面跑cuda gdb吧
+
