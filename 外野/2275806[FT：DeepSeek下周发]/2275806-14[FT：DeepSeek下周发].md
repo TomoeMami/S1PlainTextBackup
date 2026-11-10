@@ -7369,3 +7369,13 @@ carbon出了，只给ultra用<img src="https://static.stage1st.com/image/smiley/
 —— 来自 vivo V2505A, Android 17, 鹅球 v3.5 ...</blockquote>
 云服务根本就不想让llm拿到一点算力<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JRPG  
+##### 19875#       发表于 2026-11-11 01:50
+
+<blockquote>shqingda_ 发表于 2026-11-11 00:21
+carbon出了，只给ultra用</blockquote>
+G家现在总整这种耍猴烂活
+
