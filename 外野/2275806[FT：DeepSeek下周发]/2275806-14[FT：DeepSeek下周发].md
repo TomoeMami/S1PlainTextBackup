@@ -6190,3 +6190,19 @@ prompt注入很容易变成最新的执行者被灌输了错误的记忆然后�
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  2017.05.04  
+##### 19777#       发表于 2026-11-10 08:12
+
+<img src="https://img.stage1st.com/forum/202611/10/081235tjj788hy7jew7dep.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1794269555868_2.webp</strong> (116.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-10 08:12 上传
+
+—— 来自 HUAWEI CMM-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
