@@ -7425,3 +7425,13 @@ carbon 感觉有点儿微妙，有些 5.6 sol 开始的 bug case 现在查不出
 这个一般怎么替换啊</blockquote>
 你都知道方法了，问下ai，甚至不要问，直接说给我个方案，然后看下合理就执行呗
 
+
+*****
+
+####  我就再氪一单  
+##### 19880#       发表于 2026-11-11 07:26
+
+说起wb里的1017，上次群里有人发了张图，元宝穿着大肥鱼的衣服假装大肥鱼，一如大肥鱼穿claude，会不会腾子也在某些地方用元宝代替大肥鱼吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">或者wb里1017限制每日对话次数，逼免费玩家去选均衡走路由到1017，其实均衡的1017是元宝假扮的？
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
