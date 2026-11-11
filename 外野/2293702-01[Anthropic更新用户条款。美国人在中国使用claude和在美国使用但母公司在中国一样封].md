@@ -1084,3 +1084,57 @@ dario这么畜生该不会是鱿鱼吧？查了下还真是<img src="https://sta
 ？？？？？？这算什么，钓鱼执法？罚款创收？？？</blockquote>
 捐款渠道<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  warlock228  
+##### 111#       发表于 2026-11-11 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496414&amp;ptid=2293702" target="_blank">lyt777 发表于 2026-11-11 17:05</a>
+
+？？？？？？这算什么，钓鱼执法？罚款创收？？？</blockquote>
+捐款渠道<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  风烨晨曦  
+##### 112#       发表于 2026-11-11 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495298&amp;ptid=2293702" target="_blank">Zurlg 发表于 2026-11-11 13:29</a>
+都说claude生产力高，但是DSH出来前我也没见过像这样铺天盖地的手搓小程序
+
+我自己在没完全搞懂AI，也完全不 ...</blockquote>
+这问题的答案太明显了啊。
+
+看标题啊，Claude 极力禁止中国人使用啊，那你当然在国内看不到很多了。（其实即使如此还是有不少的，包括最近的一堆AI科普视频。）
+
+国外是有很多的。
+
+*****
+
+####  belatedeffort  
+##### 113#       发表于 2026-11-11 17:31
+
+达里奥被李彦宏这个中国实体物理性关联过，理论上也要被封号的吧？
+
+
+*****
+
+####  bartholo4  
+##### 114#       发表于 2026-11-11 17:33
+
+肥了开中转站的人
+
+—— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  风烨晨曦  
+##### 115#       发表于 2026-11-11 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495703&amp;ptid=2293702" target="_blank">mwj 发表于 2026-11-11 14:55</a>
+所以claude是适合连需求都说不明白的人用吗？类似于只会说一句“我想要一个微信”那种？ ...</blockquote>
+Claude能自己想办法搞清楚模糊的输入并实现不代表它不能接受清晰的要求。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不是，这都在扯啥啊。
+
