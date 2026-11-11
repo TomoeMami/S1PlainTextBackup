@@ -7556,3 +7556,30 @@ hy4的成本比1017估计高不少
 
 <img src="https://picui.ogmua.cn/s1/2026/11/11/6af3ca0db13d5.webp" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19891#       发表于 2026-11-11 09:59
+
+近似性能下真的会有比DS flash便宜的模型吗，我不信
+
+*****
+
+####  GLYSDSB  
+##### 19892#       发表于 2026-11-11 10:00
+
+插播一下小消息，喜欢anima出图的楼友们可以叫ds搜索一下一图多人相关插件，已经有人搞出来了，现在anima也实现多人图自由了，我这边实测5p图没啥问题，就是dsh构图耗时长一点
+
+—— 来自 vivo V2464A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Lorraine_Kinney  
+##### 19893#       发表于 2026-11-11 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493722&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-11-11 07:32</a>
+
+话说我好像好久没拿到重置卡了。现在有啥门槛吗？要关注x账户？</blockquote>
+这12天就没重置，TIBO转岗了，重置营销目前openai估计在重新评估
+
