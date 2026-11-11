@@ -8701,3 +8701,14 @@ pro那点高级模型用量不够塞牙缝的 ...</blockquote>
 
 另外，跨低价区购买是否会有封号风险？
 
+
+*****
+
+####  HazukiShion  
+##### 19993#       发表于 2026-11-11 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496907&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-11 19:08</a>
+
+gemini4flash感觉非常强，当1017用没什么问题，说话还好听</blockquote>
+写文怎么样？
+
