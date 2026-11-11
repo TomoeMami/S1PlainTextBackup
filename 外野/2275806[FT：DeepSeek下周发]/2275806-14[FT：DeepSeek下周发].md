@@ -8274,3 +8274,13 @@ mimo是1T，大肥鱼0813是1.7T
 
 —— 来自 HONOR MEP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  pure_liquid  
+##### 19957#       发表于 2026-11-11 13:53
+
+<blockquote>wly5556 发表于 2026-11-11 13:27
+我免费版，在设置里面的内容生成与产物设置，就能直接关啊</blockquote>
+谢谢，之前没注意有这设置选项
+
