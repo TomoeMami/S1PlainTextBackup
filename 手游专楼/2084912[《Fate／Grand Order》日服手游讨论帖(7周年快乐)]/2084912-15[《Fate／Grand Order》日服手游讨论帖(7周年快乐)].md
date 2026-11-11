@@ -1173,3 +1173,46 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 50自+20群的狂光炮，2技能是人品技扔骰子
 
+
+*****
+
+####  exiaexa  
+##### 21818#       发表于 2026-11-11 19:39
+
+ 本帖最后由 exiaexa 于 2026-11-11 19:40 编辑 
+
+友情提醒一下
+
+现在比较适合搓丸子
+
+概率3倍+友情池能出咕哒咕哒的4星、3星经验卡
+
+顺便防瞎提醒，经验卡只会出在信胜的复刻卡池，常规友情池没有啊
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 21819#       发表于 2026-11-11 19:42
+
+<img src="https://img.stage1st.com/forum/202611/11/194237gbmworm5euowbmru.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20261111_194159.png</strong> (63.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-11 19:42 上传
+
+<img src="https://img.stage1st.com/forum/202611/11/194237ns97sk1n8fzo1lpm.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20261111_194215.png</strong> (76.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-11 19:42 上传
+
+水利休造型真好看，二期卡池有盼头了。
+

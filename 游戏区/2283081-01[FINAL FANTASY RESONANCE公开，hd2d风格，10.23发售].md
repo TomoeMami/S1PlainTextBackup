@@ -6790,3 +6790,11 @@ ai真好用，把274张图片整成个pdf了~
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">通关了，最后这变水晶的意义在哪，到头来不还是把boss打死门关上才阻止的吗，就为了把我唯一喜欢的角色下线是吧。
 
+
+*****
+
+####  shinnfin  
+##### 632#       发表于 2026-11-11 19:41
+
+塞壬塔里的吉尔伽美什是没法打死的吗  试了几次都是剧情逃跑
+
