@@ -8154,3 +8154,13 @@ max团队到底在干什么啊 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 19947#       发表于 2026-11-11 13:00
+
+关键是睿站有qwen4的测试样例，很多真的不弱
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
