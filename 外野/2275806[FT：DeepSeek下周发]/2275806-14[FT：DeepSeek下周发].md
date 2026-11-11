@@ -7797,3 +7797,48 @@ wb系统提示词又臭又长防御性拉满
 
 从qoder反代到dsh里用，这个速度拉完了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19916#       发表于 2026-11-11 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494675&amp;ptid=2275806" target="_blank">qqwliao 发表于 2026-11-11 11:06</a>
+
+能力太差，要是qwen4-flash一折，那还可以，现在拉完了
+
+—— 来自 vivo V2436A, Android 16, 鹅球 v4.0 ...</blockquote>
+草，这么烂的吗，那我还是滚回去继续用OCG
+
+
+*****
+
+####  schneehertz  
+##### 19917#       发表于 2026-11-11 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494280&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-11 10:00</a>
+插播一下小消息，喜欢anima出图的楼友们可以叫ds搜索一下一图多人相关插件，已经有人搞出来了，现在anima也 ...</blockquote>
+anima模型里哪个能力最强，12gb显存能跑吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  qz66618  
+##### 19918#       发表于 2026-11-11 11:24
+
+拉不拉的好歹放个跑分吧，一般都是根据跑分和实测来对比的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  lactone  
+##### 19919#       发表于 2026-11-11 11:26
+
+qoduck不算拉吧，有时很强，有时像27b
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
