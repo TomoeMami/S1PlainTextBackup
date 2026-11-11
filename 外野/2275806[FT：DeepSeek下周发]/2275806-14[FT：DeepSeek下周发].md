@@ -7461,3 +7461,13 @@ wb也就占个远程发消息功能的优势，我上周末一个周末触发了
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  发呆的龙虾  
+##### 19883#       发表于 2026-11-11 08:14
+
+Seedream5.5王朝了，试了下海外无审核的源，下面比5.0pro画得好多了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
