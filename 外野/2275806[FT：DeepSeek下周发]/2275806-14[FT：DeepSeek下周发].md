@@ -8461,3 +8461,16 @@ TIBO终于活了，不过这次感觉稍微耐用了。</blockquote>
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  ttmaxwell  
+##### 19972#       发表于 2026-11-11 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494918&amp;ptid=2275806" target="_blank">Quelaan 发表于 2026-11-11 11:51</a>
+
+终于过了Google学生认证，结果只给我plus，不给嫖pro，懒得折腾了，在想要不要拼个ultra车得了
+
+所以谭友有 ...</blockquote>
+我已经加车队车毁人亡两次了，望坛友慎重<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
