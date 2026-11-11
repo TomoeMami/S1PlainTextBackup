@@ -8380,3 +8380,21 @@ kimi确实强，我现在让kimi做代码审计，大肥鱼偶尔反驳一下说
 
 —— 来自 HUAWEI SGT-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  奥柏伦亲王  
+##### 19965#       发表于 2026-11-11 15:23
+
+阿里这半死不活的德行，要不还是走亚马逊老路算了，把卡租给kimi罢（
+
+*****
+
+####  warlock228  
+##### 19966#       发表于 2026-11-11 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495741&amp;ptid=2275806" target="_blank">unrealMeeSeeks 发表于 2026-11-11 15:01</a>
+
+TIBO终于活了，不过这次感觉稍微耐用了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">转岗了竟然也能把手伸过来按重置按钮？重置仙人提宝恐怖如斯
+
