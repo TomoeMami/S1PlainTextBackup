@@ -7471,3 +7471,16 @@ Seedream5.5王朝了，试了下海外无审核的源，下面比5.0pro画得好
 
 —— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  紧那罗  
+##### 19884#       发表于 2026-11-11 08:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493722&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-11-11 07:32</a>
+
+话说我好像好久没拿到重置卡了。现在有啥门槛吗？要关注x账户？</blockquote>
+没这要求
+
+这个月初刚发了2张，这个也没拿到？
+
