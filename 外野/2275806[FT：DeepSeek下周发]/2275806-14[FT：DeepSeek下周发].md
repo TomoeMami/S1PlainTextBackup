@@ -9091,3 +9091,35 @@ make google great again（来自谷歌老用户的怒吼
 
 qwen4max p怎么这么慢，梦回k3    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  陈八尺  
+##### 20022#       发表于 2026-11-12 00:19
+
+看到群里截图，Carbon现在明文支持NSFW了？有富哥测试一下么<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jumbohard  
+##### 20023#       发表于 2026-11-12 00:24
+
+目前 harness 环境用的是 opencode（openchamber），看楼里的讨论有点心痒痒想换 pi 了，问问 pi 有没有类似 openchamber 那样的 gui 环境推荐？最好有移动端（手机遥控算刚需），没有的话 WebUI 也行。
+搜到一个 pi-gui 但没有移动端，感觉开发也有点早期？没 openchamber 那么花哨    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  andychen  
+##### 20024#       发表于 2026-11-12 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497755&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-11 23:00</a>
+
+这两天搞这个自动化插件，算是充分体验到了门禁就是屎这个真理了！！任何代理的工作流中都不能加入门禁，一 ...</blockquote>
+关于后训练带来的门禁和防御性措辞倾向，我感觉主要原因有两个
+
+一个是安全顾虑，这点不用多说。倒不是说大公司有多少公德心，主要还是怕官司惹上身。这点从REA火起来以后立刻被OA列入门禁就指导
+
+另一个属于我的猜测，OA的模型训练已经越来越强调超长期自主工作，在自动化工作流内如果让模型过多自行发挥可能会造成目标漂移和大量token浪费
+
