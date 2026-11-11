@@ -4980,3 +4980,11 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 我认为唯一不好用的就是短剑，长矛次之但是人家有dot，而且刺锤那个特殊攻击黄尿喷溅（自动缓回）也是aoe ...</blockquote>
 直接给你送回出生海滩，让你完成条件再来，太人性化了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kkk9233  
+##### 388#       发表于 2026-11-11 22:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上古圣域拿了5冲之后关的第一个电塔楼下那把枪神了，完美解决堆怪问题，加5个手榴弹巴不得怪越多越好
+
