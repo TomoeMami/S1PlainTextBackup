@@ -9203,3 +9203,265 @@ opencode和pi都能兼容，丰富web端和移动端生态，多机器，远程�
 看到群里截图，Carbon现在明文支持NSFW了？有富哥测试一下么</blockquote>
 vertex的话一直都是无甲的 然而企业API价格
 
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 20032#       发表于 2026-11-11 23:03
+
+看到知乎有人用ds写了蓝莓果园系统 省了几百万 完全不需要程序员<img src="https://static.stage1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
+*****
+
+####  静哮苍穹  
+##### 20033#       发表于 2026-11-11 23:06
+
+感觉确实已经到边界了，qwen4max已经没人讨论了
+
+*****
+
+####  unrealMeeSeeks  
+##### 20034#       发表于 2026-11-11 23:07
+
+至少审美有提升吧
+
+<img src="https://img.stage1st.com/forum/202611/11/230535oq2lsabv1s1xayj6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (155.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 23:05 上传
+
+<img src="https://img.stage1st.com/forum/202611/11/230658zrzruggpggg3od1g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (215.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 23:06 上传
+
+*****
+
+####  moekyo  
+##### 20035#       发表于 2026-11-11 23:09
+
+检查世界知识肯定是问它知道大肥鱼吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  unrealMeeSeeks  
+##### 20036#       发表于 2026-11-11 23:14
+
+ 本帖最后由 unrealMeeSeeks 于 2026-11-11 23:28 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不认识的孩子呢
+
+<img src="https://img.stage1st.com/forum/202611/11/231357tqsd4jqd7wdpwoi7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 23:13 上传
+
+编辑：灰测已经坠机了，不知道具体时间，不能说这个回答依然是6.2，也不代表它就是6astra。
+至少那个克苏鲁骑车是6.2风格。
+
+*****
+
+####  umamusume  
+##### 20037#       发表于 2026-11-11 23:19
+
+看灰度到没问的是说一件最接近2027年的事情，灰度到的会告诉你老美中期选举
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  魔法师lain  
+##### 20038#       发表于 2026-11-11 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497534&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-11 21:48</a>
+Dsh又更新了，会复刻0813么</blockquote>
+是加superagent吗？好用吗？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cscbzcbz  
+##### 20039#       发表于 2026-11-11 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497821&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-11-11 23:21</a>
+是加superagent吗？好用吗？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+貌似只是小更新<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  mitzvah  
+##### 20040#       发表于 2026-11-11 23:35
+
+刚才发布的插件readme存在可能小概率破坏代理行为的信息泄漏源，整个代理是基于信息步骤隔离驱动的，如果信息泄漏就会降低代理的解决问题的能力，以下是删除泄漏信息的改版
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+static-dap-socratic-2.0.2-isolation.zip
+
+2026-11-11 23:34 上传
+点击文件名下载附件
+
+32.3 KB, 下载次数: 4
+
+
+*****
+
+####  奥柏伦亲王  
+##### 20041#       发表于 2026-11-11 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497432&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-11-11 21:21</a>
+哈基米4flash应该在灰度了，看到有人发世界知识截止到了2603哈梅内伊身亡</blockquote>
+make google great again（来自谷歌老用户的怒吼
+
+*****
+
+####  56fvhue  
+##### 20042#       发表于 2026-11-12 00:07
+
+问下dsh登账号的话会有可能发生对话间污染吗？我现在用的api key，目前没有发生对话间污染的迹象。但是我想要用手机端dshgo来连电脑的话好像要登账号
+
+—— 来自 vivo V2072A, Android 11, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  静哮苍穹  
+##### 20043#       发表于 2026-11-12 00:16
+
+qwen4max p怎么这么慢，梦回k3    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  陈八尺  
+##### 20044#       发表于 2026-11-12 00:19
+
+看到群里截图，Carbon现在明文支持NSFW了？有富哥测试一下么<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Jumbohard  
+##### 20045#       发表于 2026-11-12 00:24
+
+目前 harness 环境用的是 opencode（openchamber），看楼里的讨论有点心痒痒想换 pi 了，问问 pi 有没有类似 openchamber 那样的 gui 环境推荐？最好有移动端（手机遥控算刚需），没有的话 WebUI 也行。
+搜到一个 pi-gui 但没有移动端，感觉开发也有点早期？没 openchamber 那么花哨    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  andychen  
+##### 20046#       发表于 2026-11-12 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497755&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-11 23:00</a>
+
+这两天搞这个自动化插件，算是充分体验到了门禁就是屎这个真理了！！任何代理的工作流中都不能加入门禁，一 ...</blockquote>
+关于后训练带来的门禁和防御性措辞倾向，我感觉主要原因有两个
+
+一个是安全顾虑，这点不用多说。倒不是说大公司有多少公德心，主要还是怕官司惹上身。这点从REA火起来以后立刻被OA列入门禁就指导
+
+另一个属于我的猜测，OA的模型训练已经越来越强调超长期自主工作，在自动化工作流内如果让模型过多自行发挥可能会造成目标漂移和大量token浪费
+
+*****
+
+####  qwased  
+##### 20047#       发表于 2026-11-12 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497990&amp;ptid=2275806" target="_blank">Jumbohard 发表于 2026-11-12 00:24</a>
+
+目前 harness 环境用的是 opencode（openchamber），看楼里的讨论有点心痒痒想换 pi 了，问问 pi 有没有类 ...</blockquote>
+[https://github.com/agegr/pi-web](https://github.com/agegr/pi-web)
+
+我一直用的这个，很顺手
+
+*****
+
+####  wonderful259  
+##### 20048#       发表于 2026-11-12 00:36
+
+什么，gemini 4 flash 要出来了吗？
+
+*****
+
+####  hugosol  
+##### 20049#       发表于 2026-11-12 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497990&amp;ptid=2275806" target="_blank">Jumbohard 发表于 2026-11-12 00:24</a>
+
+目前 harness 环境用的是 opencode（openchamber），看楼里的讨论有点心痒痒想换 pi 了，问问 pi 有没有类 ...</blockquote>
+一步到位上herdr或者herdr-app吧
+
+opencode和pi都能兼容，丰富web端和移动端生态，多机器，远程访问方案都有人给你集成好了
+[https://github.com/herdrdev/herdr](https://github.com/herdrdev/herdr)
+[https://github.com/herdrdev/herdr-app](https://github.com/herdrdev/herdr-app)
+
+*****
+
+####  hugosol  
+##### 20050#       发表于 2026-11-12 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497856&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-11 23:35</a>
+
+刚才发布的插件readme存在可能小概率破坏代理行为的信息泄漏源，整个代理是基于信息步骤隔离驱动的，如果信 ...</blockquote>
+不介意的话弄个github仓库持续更新吧，应该挺多人对这套方法感兴趣的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宅男的爱  
+##### 20051#       发表于 2026-11-12 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497936&amp;ptid=2275806" target="_blank">56fvhue 发表于 2026-11-12 00:07</a>
+
+问下dsh登账号的话会有可能发生对话间污染吗？我现在用的api key，目前没有发生对话间污染的迹象。但是我想 ...</blockquote>
+不会，毛都记不住
+
+*****
+
+####  来都来了  
+##### 20052#       发表于 2026-11-12 01:28
+
+ 本帖最后由 来都来了 于 2026-11-12 01:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497990&amp;ptid=2275806" target="_blank">Jumbohard 发表于 2026-11-12 00:24</a>
+
+目前 harness 环境用的是 opencode（openchamber），看楼里的讨论有点心痒痒想换 pi 了，问问 pi 有没有类 ...</blockquote>
+用 pi 就用 tui，不喜欢 tui 不推荐用 pi
+
+pi 本身的特点就是高度可定制性，用了 TUI 你就知道定制起来有多方便了。不喜欢折腾的话，继续用 opencode 就挺好的，pi 就是专门给爱折腾的人准备的。
+
+*****
+
+####  squallx2  
+##### 20053#       发表于 2026-11-12 04:20
+
+ 本帖最后由 squallx2 于 2026-11-12 05:42 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497978&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-11-12 00:19</a>
+
+看到群里截图，Carbon现在明文支持NSFW了？有富哥测试一下么</blockquote>
+vertex的话一直都是无甲的 然而企业API价格
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">这o\6.2该端上来了吧 astra严重降智 居然能弄出UI和运行内容没解耦这种低级错误 一操作就变卡 简直大肥鱼水平
+
+*****
+
+####  mitzvah  
+##### 20054#       发表于 2026-11-12 05:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70498070&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-12 01:10</a>
+
+不介意的话弄个github仓库持续更新吧，应该挺多人对这套方法感兴趣的</blockquote>
+[https://github.com/ptkdLLL/static-dap-socratic](https://github.com/ptkdLLL/static-dap-socratic)
+
+dap相关的契约也放进去了，现阶段这个手搓的dap还是有些问题，不过dap这东西出错也有探针，日志兜底，倒也能用，就是上下文消耗大些
+
+codebase memory是必须的
+
