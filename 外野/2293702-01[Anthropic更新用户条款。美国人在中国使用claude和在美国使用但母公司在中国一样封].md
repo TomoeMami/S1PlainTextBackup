@@ -355,3 +355,49 @@ a/在百度学到真东西了，牢牢掌握海外孤忠心理，知道自己越
 
 支持达圣，喜欢送钱继续送<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DiAria  
+##### 42#       发表于 2026-11-11 10:08
+
+什么时候直接”一滴血原则“
+
+原来在阿美 歧视可以这么简单直白
+
+*****
+
+####  仟音一心  
+##### 43#       发表于 2026-11-11 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494069&amp;ptid=2293702" target="_blank">你妈的为什么 发表于 2026-11-11 09:18</a>
+传下去，达里奥在百度被艳红玩坏了一个蛋
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, 鹅球 v3.5.99 ...</blockquote>
+老歌新唱。
+
+<img src="https://img.stage1st.com/forum/202611/11/100955th4d4hszdhwdewwd.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1794363020660_1.webp</strong> (66.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 10:09 上传
+
+
+*****
+
+####  caps洛奇  
+##### 44#       发表于 2026-11-11 10:16
+
+该coding一个扮演模型检测用户是否是中国人的游戏了
+
+*****
+
+####  御众师  
+##### 45#       发表于 2026-11-11 10:17
+
+<blockquote>ww-tsl 发表于 2026-11-11 09:52
+现在不是股市暴跌吗？如果A畜敢放开了让大家用AI自由创作喜闻乐见的内容，全球淫民绝对会嗷嗷叫着扑过去送 ...</blockquote>
+随便哪家ai，只要开放搞黄色，肯定会异军突起
+
