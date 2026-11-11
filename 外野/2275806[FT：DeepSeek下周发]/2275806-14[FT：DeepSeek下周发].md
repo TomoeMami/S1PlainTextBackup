@@ -7842,3 +7842,63 @@ qoduck不算拉吧，有时很强，有时像27b
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 19920#       发表于 2026-11-11 11:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个max preview能稳赢肥鱼么
+
+
+*****
+
+####  lactone  
+##### 19921#       发表于 2026-11-11 11:29
+
+光发max有啥用，27b才是qwen核心价值
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  HellMaster  
+##### 19922#       发表于 2026-11-11 11:35
+
+赶紧量化蒸馏剪枝破限去码来一波啊。
+
+*****
+
+####  startraveller  
+##### 19923#       发表于 2026-11-11 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494782&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-11 11:26</a>
+
+qoduck不算拉吧，有时很强，不稳定
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+好像现在是新checkpoint，不知道水平
+
+
+*****
+
+####  GLYSDSB  
+##### 19924#       发表于 2026-11-11 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494758&amp;ptid=2275806" target="_blank">schneehertz 发表于 2026-11-11 11:22</a>
+anima模型里哪个能力最强，12gb显存能跑吗？
+
+—— 来自 鹅球 v4.0</blockquote>
+直接把电脑配置扔给dsh，让她帮你一步到位选好模型并搭建好
+
+—— 来自 vivo V2464A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  何边杨  
+##### 19925#       发表于 2026-11-11 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491963&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-10 17:17</a></blockquote>
+如果靠蒸馏能搞出现在国内水平的大模型，那么拥有远比国内更便宜更方便的渠道去访问OA模型，购买显卡，租用算力的日法英韩德诸国，应该已经有很多至少和国内同等级水平的模型了吧<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

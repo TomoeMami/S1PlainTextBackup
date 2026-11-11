@@ -637,3 +637,41 @@ Re:Sourc ...</blockquote>
 
 不过很显然的是这几年开始，能手写代码的人类程序员会大量减少，新一代基本没啥成长机会，等几十年后有经验的老一代程序员消耗光了，人类可能真的就要完全依赖ai了
 
+
+*****
+
+####  神必迷你龙  
+##### 69#       发表于 2026-11-11 11:29
+
+骂A归骂A，但是楼里的气氛我觉得有点微妙了，ds还是早点推出4.1pro吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  平昭·南宫司卿  
+##### 70#       发表于 2026-11-11 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494805&amp;ptid=2293702" target="_blank">神必迷你龙 发表于 2026-11-11 11:29</a>
+
+骂A归骂A，但是楼里的气氛我觉得有点微妙了，ds还是早点推出4.1pro吧</blockquote>
+在外野 LLM 专楼之外讨论 AI 都是来给自己找不快的
+
+
+*****
+
+####  发呆的龙虾  
+##### 71#       发表于 2026-11-11 11:35
+
+ 本帖最后由 发呆的龙虾 于 2026-11-11 11:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494383&amp;ptid=2293702" target="_blank">御众师 发表于 2026-11-11 10:17</a>
+
+随便哪家ai，只要开放搞黄色，肯定会异军突起</blockquote>
+正经公司开放搞黄色的结果就是被告到破产。除非你的AI能强到准确识别并审核各种版权物/明星人脸。
+
+*****
+
+####  子虚乌有  
+##### 72#       发表于 2026-11-11 11:37
+
+我觉得给a/充钱的跟汉奸差不多了
+
