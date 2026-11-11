@@ -9181,3 +9181,14 @@ opencode和pi都能兼容，丰富web端和移动端生态，多机器，远程�
 问下dsh登账号的话会有可能发生对话间污染吗？我现在用的api key，目前没有发生对话间污染的迹象。但是我想 ...</blockquote>
 不会，毛都记不住
 
+
+*****
+
+####  来都来了  
+##### 20030#       发表于 2026-11-12 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497990&amp;ptid=2275806" target="_blank">Jumbohard 发表于 2026-11-12 00:24</a>
+
+目前 harness 环境用的是 opencode（openchamber），看楼里的讨论有点心痒痒想换 pi 了，问问 pi 有没有类 ...</blockquote>
+用 pi 就用 tui，不喜欢 tui 不推荐用 pi
+
