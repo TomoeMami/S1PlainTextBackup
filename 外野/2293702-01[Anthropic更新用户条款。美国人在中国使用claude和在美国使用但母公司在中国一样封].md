@@ -1138,3 +1138,46 @@ dario这么畜生该不会是鱿鱼吧？查了下还真是<img src="https://sta
 Claude能自己想办法搞清楚模糊的输入并实现不代表它不能接受清晰的要求。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 不是，这都在扯啥啊。
 
+
+*****
+
+####  MeursaulT  
+##### 116#       发表于 2026-11-11 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496545&amp;ptid=2293702" target="_blank">风烨晨曦 发表于 2026-11-11 17:35</a>
+Claude能自己想办法搞清楚模糊的输入并实现不代表它不能接受清晰的要求。
+不是，这都在扯啥啊。 ...</blockquote>
+claude适合傻子不等于claude只能给傻子用，前面那哥们说的也没毛病啊    [Re:Source Pro](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  窗外飞雪  
+##### 117#       发表于 2026-11-11 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496310&amp;ptid=2293702" target="_blank">aiyouo 发表于 2026-11-11 16:48</a>
+
+单一市场光被封禁的账号就能贡献百分之七的收入，这都不算大，我不知道什么算大了 ...</blockquote>
+一个市场就算被封也要上赶着送钱，而且被封就是纯收入直接贡献了7%的利润，那为什么不继续严厉封锁拉高利润呢？
+
+
+*****
+
+####  MeursaulT  
+##### 116#       发表于 2026-11-11 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496545&amp;ptid=2293702" target="_blank">风烨晨曦 发表于 2026-11-11 17:35</a>
+Claude能自己想办法搞清楚模糊的输入并实现不代表它不能接受清晰的要求。
+不是，这都在扯啥啊。 ...</blockquote>
+claude适合傻子不等于claude只能给傻子用，前面那哥们说的也没毛病啊    [Re:Source Pro](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  窗外飞雪  
+##### 117#       发表于 2026-11-11 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496310&amp;ptid=2293702" target="_blank">aiyouo 发表于 2026-11-11 16:48</a>
+
+单一市场光被封禁的账号就能贡献百分之七的收入，这都不算大，我不知道什么算大了 ...</blockquote>
+一个市场就算被封也要上赶着送钱，而且被封就是纯收入直接贡献了7%的利润，那为什么不继续严厉封锁拉高利润呢？
+

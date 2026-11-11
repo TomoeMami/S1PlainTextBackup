@@ -12462,3 +12462,22 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 还真是<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光焰天下第一  
+##### 8584#       发表于 2026-11-11 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496256&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-11-11 16:39</a>
+
+第三章有什么快速刷支援和技能经验和兵种经验的办法吗，太拖沓了</blockquote>
+个人推荐右上角那个传送迷宫，从深处出发，马上遇怪，觉得不对劲还能返回调整，不浪费回合，但就得老撤退，要预估好血量，没办法。
+
+
+*****
+
+####  光焰天下第一  
+##### 8585#       发表于 2026-11-11 18:04
+
+请问通关后怎么用通关后数值开二周目，我再次降临捏完脸后，如果选章节玩的话，还是每个角色还是一周目的数值，是要从第一部第一章重新打么
+
