@@ -9192,3 +9192,14 @@ opencode和pi都能兼容，丰富web端和移动端生态，多机器，远程�
 目前 harness 环境用的是 opencode（openchamber），看楼里的讨论有点心痒痒想换 pi 了，问问 pi 有没有类 ...</blockquote>
 用 pi 就用 tui，不喜欢 tui 不推荐用 pi
 
+
+*****
+
+####  squallx2  
+##### 20031#       发表于 2026-11-12 04:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497978&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-11-12 00:19</a>
+
+看到群里截图，Carbon现在明文支持NSFW了？有富哥测试一下么</blockquote>
+vertex的话一直都是无甲的 然而企业API价格
+
