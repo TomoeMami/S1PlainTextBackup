@@ -4725,3 +4725,24 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 前面铁栏里面开了个开关，不知道干嘛的，后面就忘了😂
 
+
+*****
+
+####  28201  
+##### 364#       发表于 2026-11-11 13:59
+
+还以为知识塔的肉块要消完才能进下一个区域，地下室密室就找了半天。结果打到上面才知道消除骑士在的那一层的就行了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  vidomina  
+##### 365#         楼主| 发表于 2026-11-11 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495395&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-11 13:55</a>
+
+昨天打完大书库，还漏了一把疾风刺剑，说是满轮椅的。
+
+前面铁栏里面开了个开关，不知道干嘛的，后面就忘了 ...</blockquote>
+这把刺剑独一无二的技能，一套打满我感觉是游戏中伤害最高的。
+

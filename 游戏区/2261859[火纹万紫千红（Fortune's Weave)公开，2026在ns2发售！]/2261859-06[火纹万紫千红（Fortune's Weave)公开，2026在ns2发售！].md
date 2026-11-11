@@ -12394,3 +12394,19 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 好像是解包出来的地图，我最在意的是左下角。</blockquote>
 这是大赐福还是苦行西南山
 
+
+*****
+
+####  hhgjf  
+##### 8579#       发表于 2026-11-11 14:00
+
+抱歉，借楼出个季票。日亚买的时候因为以为限日本卡/地址所以重买导致买重了。小小折扣一下160出。有意请PM，谢谢。
+
+<img src="https://img.stage1st.com/forum/202611/11/135722wutlli686nlnrl83.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (242.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 13:57 上传
+
