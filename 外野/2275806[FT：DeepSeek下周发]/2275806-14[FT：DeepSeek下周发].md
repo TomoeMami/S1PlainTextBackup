@@ -8164,3 +8164,64 @@ max团队到底在干什么啊 ...</blockquote>
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 19948#       发表于 2026-11-11 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495203&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-11 13:00</a>
+
+关键是睿站有qwen4的测试样例，很多真的不弱
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99 ...</blockquote>
+要么就是上错模型了，早上第一时间测的都是一坨<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">0813老师，我还记得你
+
+*****
+
+####  tonyunreal  
+##### 19949#       发表于 2026-11-11 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495179&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-11 12:52</a>
+问题在于qwen max是国模仅剩的两个在运营的1t以上模型之一了
+
+这下挺伤的</blockquote>
+2T以上吧
+mimo是1T，大肥鱼0813是1.7T
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  lactone  
+##### 19950#       发表于 2026-11-11 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495232&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-11 13:08</a>
+要么就是上错模型了，早上第一时间测的都是一坨0813老师，我还记得你</blockquote>
+之前qwen干过第一天上错模型的事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  舞以  
+##### 19951#       发表于 2026-11-11 13:16
+
+我让Kimi K3.1Pro和qwen4MAX Preview一起审核一个大肥鱼做的半成品项目，并把报告给肥鱼自己看。肥鱼直接锐评qwen的审阅报告本质就是一份代码卫生检查报告，而Kimi正确地给他指出了项目需要改进的主要问题。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">what can i say
+
+*****
+
+####  pure_liquid  
+##### 19952#       发表于 2026-11-11 13:18
+
+豆包SeedDream 5.5的生图挺好用的
+
+但是右下角的豆包AI水印导致不能正式使用
+
+想问一下付费版可以去水印吗
+
+楼里有用付费版豆包的坛友吗（估计很少？）
+
