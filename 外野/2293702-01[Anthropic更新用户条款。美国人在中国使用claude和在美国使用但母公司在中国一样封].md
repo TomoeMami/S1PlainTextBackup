@@ -413,3 +413,22 @@ a/在百度学到真东西了，牢牢掌握海外孤忠心理，知道自己越
 Re:Sourc ...</blockquote>
 你没见过需求不代表不存在啊，我可以讲很久的a➗有多➗的小故事，但事实就是deepseek秒一下sonnet差不多了 上面opus fable两个强力干活模型pro出来之前你碰什么瓷呢
 
+
+*****
+
+####  Vneeto  
+##### 47#       发表于 2026-11-11 10:36
+
+以前那些人还能催眠自己说只针对大陆ip用户，这下以后就真的露头就秒了？
+
+*****
+
+####  大暴死  
+##### 48#       发表于 2026-11-11 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494374&amp;ptid=2293702" target="_blank">caps洛奇 发表于 2026-11-11 10:16</a>
+该coding一个扮演模型检测用户是否是中国人的游戏了</blockquote>
+此前有基于paper please改的IP please，已经做的很好了。
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

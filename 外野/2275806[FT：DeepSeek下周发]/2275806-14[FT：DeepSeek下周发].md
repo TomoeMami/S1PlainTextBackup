@@ -7646,3 +7646,11 @@ qoder里有qwen 4 max preview了。有没什么不一样的说法。
 
 这下真要让ai监测一下哪里有流量，买来给ai用了<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tomorrow_D  
+##### 19901#       发表于 2026-11-11 10:30
+
+千问4的甲到底有多厚，帮我弟做个总  书记语录的ppt都中途中断<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
