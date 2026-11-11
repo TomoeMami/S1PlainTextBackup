@@ -8932,3 +8932,58 @@ static-dap-socratic-2.0.0-report-handoff.zip
 
 2026-11-11 22:48 上传
 
+
+*****
+
+####  mitzvah  
+##### 20009#       发表于 2026-11-11 23:00
+
+这两天搞这个自动化插件，算是充分体验到了<strong>门禁就是屎</strong>这个真理了！！任何代理的工作流中都不能加入门禁，一旦加入门禁，llm的注意力就会从解决问题完全异化为如何突破门禁————————最逆天的是，现在这些模型在训练时，不知道是rl数据甄选的时候出了什么问题呢，还是过去的屎山太多，毫无疑问存在大量的门禁，这些门禁的先验知识作祟，一旦你让这些llm写一个工作流插件，那几乎上来就是一堆门禁，感情没有门禁这些代理就不会工作了！！
+
+结果早起那几版顶着一堆门禁瞎几把跑，cot里除了讨论如何突破门禁以外，没几句是在讨论解决问题的！！！简直逆天<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">！！
+
+大量的门禁把llm变成了一心作弊糊弄用户的傻子！！！<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+我现在有点明白那些llm的安全攻击能力是从哪里来的了！！肯定是rl训练时被一堆沙盒门禁压制着，逼得这些模型放着解决现实问题不管去作弊突破沙盒，攻击着攻击着就自然变成了一个个安全特化模型
+
+想想o/，a/这两家的模型除了网安门禁以外，还有一堆道德对齐<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 20010#       发表于 2026-11-11 23:03
+
+看到知乎有人用ds写了蓝莓果园系统 省了几百万 完全不需要程序员<img src="https://static.stage1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  静哮苍穹  
+##### 20011#       发表于 2026-11-11 23:06
+
+感觉确实已经到边界了，qwen4max已经没人讨论了
+
+*****
+
+####  unrealMeeSeeks  
+##### 20012#       发表于 2026-11-11 23:07
+
+至少审美有提升吧
+
+<img src="https://img.stage1st.com/forum/202611/11/230535oq2lsabv1s1xayj6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (155.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 23:05 上传
+
+<img src="https://img.stage1st.com/forum/202611/11/230658zrzruggpggg3od1g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (215.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 23:06 上传
+
