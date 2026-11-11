@@ -1073,3 +1073,14 @@ dario这么畜生该不会是鱿鱼吧？查了下还真是<img src="https://sta
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最搞笑的还是有不少人赶着送钱给A/
 
+
+*****
+
+####  warlock228  
+##### 111#       发表于 2026-11-11 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496414&amp;ptid=2293702" target="_blank">lyt777 发表于 2026-11-11 17:05</a>
+
+？？？？？？这算什么，钓鱼执法？罚款创收？？？</blockquote>
+捐款渠道<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

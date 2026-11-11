@@ -857,3 +857,14 @@ demo已出，支持简体中文，有朋友试试吗
 
 但是一想到打开游戏说什么不是你选择了他，而是他选择了你（？）我就感觉哈哈，摔两下好像也没啥问题（？？？）
 
+
+*****
+
+####  大十字紅朔  
+##### 84#       发表于 2026-11-11 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757709&amp;ptid=2283115" target="_blank">千秋难诉 发表于 2026-6-11 09:24</a>
+
+Guro看得少，不能把小怪吸入淋逼，搞胎内回归那一套吗</blockquote>
+我很想做一个类似的，但是帅气的吸入动作的真的太难设计了<img src="https://static.stage1st.com/image/smiley/carton2017/503.png" referrerpolicy="no-referrer">
+
