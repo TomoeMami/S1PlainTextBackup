@@ -12551,3 +12551,13 @@ https://fireemblem.top/growth-seed
 
 好不容易进第三章了。凯伊战争篇，为了点虚无缥缈的属性全员飙车，真难打<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘲风  
+##### 8593#       发表于 2026-11-11 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496256&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-11-11 16:39</a>
+第三章有什么快速刷支援和技能经验和兵种经验的办法吗，太拖沓了</blockquote>
+柯雷尔神殿附近刷重甲野怪（救世主进出城就刷），拿剑和拿弓的都可以带阳炎勋章磨着刷，其他的物理职业就换武器找低伤害了，支援是大地图飨宴最省力最快
+

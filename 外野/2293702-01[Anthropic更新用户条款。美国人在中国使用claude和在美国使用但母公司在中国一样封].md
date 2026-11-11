@@ -1210,3 +1210,28 @@ claude适合傻子不等于claude只能给傻子用，前面那哥们说的也�
 单一市场光被封禁的账号就能贡献百分之七的收入，这都不算大，我不知道什么算大了 ...</blockquote>
 5-7%的收入来自违反条款就全算作中国了？我寻思它又不是只封中国的号，25年就扩大到合法地理位置上的受禁主体控制了
 
+
+*****
+
+####  以达天际  
+##### 121#       发表于 2026-11-11 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495789&amp;ptid=2293702" target="_blank">勤学苦练 发表于 2026-11-11 15:10</a>
+
+都2026年了，还在这复读“不要中国这么大一个市场了吗”呢</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这话的意思是有哪家公司不要中国市场过得更好了？
+
+
+*****
+
+####  勤学苦练  
+##### 122#       发表于 2026-11-11 23:54
+
+ 本帖最后由 勤学苦练 于 2026-11-11 23:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497890&amp;ptid=2293702" target="_blank">以达天际 发表于 2026-11-11 23:48</a>
+
+这话的意思是有哪家公司不要中国市场过得更好了？</blockquote>
+个人业务赚不到钱，大企业后高校因为各种法规和国安风险不能用，中国市场能个毛线赚头？
+
+微软都想过退出
+
