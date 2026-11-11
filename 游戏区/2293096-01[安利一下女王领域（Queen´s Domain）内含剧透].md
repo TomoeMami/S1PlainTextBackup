@@ -5043,3 +5043,20 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  量产失败型  
+##### 394#       发表于 2026-11-12 01:53
+
+打覆苔魔像时用苍炎火炬的战技持续伤害打死没掉武器,休息存档回去打半天石头不出来了是不是没戏了<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+另外蜘蛛巢穴藏吉格基钥匙上部的升降柱是哪个开关激活的,找力竭了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Emmerich  
+##### 395#       发表于 2026-11-12 01:55
+
+潘多拉之刃是不是和那个升级武器的成就无关
+
