@@ -908,3 +908,59 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 四星up是你游最大的谎言<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 21796#       发表于 2026-11-11 18:47
+
+礼装的剑心大加强啊<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 21796#       发表于 2026-11-11 18:47
+
+礼装的剑心大加强啊<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 21797#       发表于 2026-11-11 18:52
+
+还以为是只有一个五星，没想到还藏了啊
+
+*****
+
+####  exiaexa  
+##### 21798#       发表于 2026-11-11 18:52
+
+经验值你干得好啊
+
+这不比8月的泳装有意思多了
+
+别的不说看起来就很生草
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 21797#       发表于 2026-11-11 18:52
+
+还以为是只有一个五星，没想到还藏了啊
+
+*****
+
+####  exiaexa  
+##### 21798#       发表于 2026-11-11 18:52
+
+经验值你干得好啊
+
+这不比8月的泳装有意思多了
+
+别的不说看起来就很生草
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
