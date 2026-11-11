@@ -8851,3 +8851,68 @@ Nex-N2.6有点厉害 斩杀1017
 google ai ultra 5x下的gemini argon用量对比gpt plus下的astra或者sol用量如何呢？</blockquote>
 ultra5x用量再少也不至于这么少，100刀套餐没人家20刀多还是太离谱了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qqwliao  
+##### 20006#       发表于 2026-11-11 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497530&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-11-11 21:46</a>
+最近感觉6.1降智并且额度消耗大幅上升了，有办法测试嘛。
+
+任务是一样的：几百人工资文件税社保身份信息保险 ...</blockquote>
+感觉是降智了，同一套化工设计提示词，现在画出来都不如ds1017
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  mitzvah  
+##### 20007#       发表于 2026-11-11 22:04
+
+ 本帖最后由 mitzvah 于 2026-11-11 22:06 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495322&amp;ptid=2275806" target="_blank">神手之兔 发表于 2026-11-11 13:36</a>
+
+详细说说？是需要插件吗？我现在的项目dsh就有这个毛病，总忘了全局
+
+—— 来自 HONOR MEP-AN00, Android ...</blockquote>
+这两天我一直在调这个东西，我之前修改ds4.c与写漫画阅读器，其实都是半手动的，会在关键节点注入一些手动指示，比如禁止盲目裸grep，那会消耗你的注意力，你应该使用静态工具基于全局认识进行代码探索，比如现在写修改文档，包括背景知识，目的，与准代码块，然后对文档的准代码块进行逐一的评估风险可行性有效性云云————这个方法论是有效的，在ds4.c与我的漫画阅读器编写上都执行的很好就是不能完全离开人，比较累
+
+前几天我在fork 新版ds4.c时嫌麻烦，就让代理生成了我前几贴的那个文档，在我已经大量注入节点信息的情况下，那个文档是生效的，我把它上传后，找了漫画阅读器目录试了一下，完全不行<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">，我后来就想为什么不能完全自动化方法论呢？后来就让代理考古session写了一个
+
+结果完全一坨屎<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+后来手工参与调了近两天，重构了十几版，花了近百块，终于算是复刻了半自动版八成的水平
+
+就是以下插件，我把这个插件称为为<strong>事实驱动编程</strong>——————现在此插件驱动代理已经可以基于任务自动使用codebase的mcp工具全局建索建立项目认识，然后把任务目的自行展开成可验证的清单，然后自行基于工具返回的事实进行验证，修正计划缺陷闭环后写写改文档，逐个代码验证，然后落码构建后自动调试验证矩阵了！！！ 整个过程完全自动化————————只在落码以后的dap验证时可能会跑偏一点——————无论如何研究阶段时完全基于工具返回事实进行行动的！！
+
+如下操作都能完全自动化：
+
+截屏2026-11-11 22.03.43.png
+(417.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 22:03 上传
+
+<img src="https://img.stage1st.com/forum/202611/11/220355zh2c32edp4i4hh24.png" referrerpolicy="no-referrer">
+
+截屏2026-11-11 22.03.09.png
+(381.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 22:03 上传
+
+<img src="https://img.stage1st.com/forum/202611/11/220358sr06n36rbbz064nj.png" referrerpolicy="no-referrer">
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+static-dap-socratic-2.0.0-report-handoff.zip
+
+2026-11-11 21:58 上传
+点击文件名下载附件
+
+45.91 KB, 下载次数: 0
+

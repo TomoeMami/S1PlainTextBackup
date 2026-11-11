@@ -12530,3 +12530,16 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 还真是</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">古神说的每一句话都是真的
 
+
+*****
+
+####  没取名啊  
+##### 8591#       发表于 2026-11-11 22:04
+
+ 本帖最后由 没取名啊 于 2026-11-11 22:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496858&amp;ptid=2261859" target="_blank">虚无缥缈的分身 发表于 2026-11-11 18:56</a>
+凯伊线我给物理菜刀们全员上鸵鸟了，这边全员装甲鸵鸟之后发现后面的神鸵兵要黑魔b来不及拉怎么办。目前只 ...</blockquote>
+https://fireemblem.top/growth-seed
+用这个攻略站的模拟器推算一下成长乱数，可以看到转职考试判定，表上都数值低于游戏里显示的通过概率就能成功
+考转职初级中级职业来刷出好的乱数来转高级职业
+
