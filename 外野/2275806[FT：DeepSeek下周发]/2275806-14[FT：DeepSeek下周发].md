@@ -8674,3 +8674,14 @@ qwen4 max preview出了
 
 gemini4flash感觉非常强，当1017用没什么问题，说话还好听<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绕指流光  
+##### 19991#         楼主| 发表于 2026-11-11 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496593&amp;ptid=2275806" target="_blank">无极小屁孩 发表于 2026-11-11 17:48</a>
+
+精简一下主楼吧，手机浏览器看每次都要下拉好久</blockquote>
+没想到还有这种需求，那趁此机会清理一下，过期新闻的确没啥必要了，以后只更最新的，正好QWEN4上了
+

@@ -1003,3 +1003,74 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 外星人那些咋不出泳装
 
+
+*****
+
+####  壳壳牛  
+##### 21804#       发表于 2026-11-11 19:07
+
+锁卡拐来了？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  alucardcz  
+##### 21805#       发表于 2026-11-11 19:08
+
+怎么唐突冬泳？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 21806#       发表于 2026-11-11 19:12
+
+这强度是什么鬼？？？
+
+
+*****
+
+####  Jamaisvu  
+##### 21807#       发表于 2026-11-11 19:15
+
+搬一下新卡面：
+
+<img src="https://img.stage1st.com/forum/202611/11/191321sb2zb0lxelb6bgql.jpg" referrerpolicy="no-referrer">
+
+<strong>1794395558338.jpg</strong> (367.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-11 19:13 上传
+
+<img src="https://img.stage1st.com/forum/202611/11/191322jvv3vbpv4b4fb7y4.jpg" referrerpolicy="no-referrer">
+
+<strong>1794395560811.jpg</strong> (282.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-11 19:13 上传
+
+<img src="https://img.stage1st.com/forum/202611/11/191322phgg5kkgjb15o5yg.jpg" referrerpolicy="no-referrer">
+
+<strong>1794395563517.jpg</strong> (435.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-11 19:13 上传
+
+首先冬泳挺莫名其妙，但是孙一几个造型都不错，其次邪马台组合这个三破服设好雷霆啊，看着像韩国二游跑出来的...
+
+*****
+
+####  麻花疼  
+##### 21808#       发表于 2026-11-11 19:16
+
+这么大的扔子还是双人，还有强度。
+
+这回夏泳真不熟了，千里眼直接备战冬泳。<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
