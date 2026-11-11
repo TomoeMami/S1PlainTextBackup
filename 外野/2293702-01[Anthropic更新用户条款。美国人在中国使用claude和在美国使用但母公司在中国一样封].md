@@ -693,3 +693,40 @@ Re:Sourc ...</blockquote>
 正经公司开放搞黄色的结果就是被告到破产。除非你的AI能强到准确识别并审核各种版权物/明星人脸。 ...</blockquote>
 怎么可能，搞个用户协议就行了，不然用photoshop出黄图，photoshop会被告到破产吗
 
+
+*****
+
+####  aimbot  
+##### 75#       发表于 2026-11-11 11:51
+
+确实有时候感觉1017比6.1sol聪明多了
+
+不知道是不是因为我的gpt被降智了
+
+听说降智默认用的都是luna
+
+*****
+
+####  孙逸仙  
+##### 76#       发表于 2026-11-11 11:51
+
+好支威有，希望再加大力度狠狠抽脸，抽得越狠提纯纯度越高
+
+*****
+
+####  吴怀在  
+##### 77#       发表于 2026-11-11 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493993&amp;ptid=2293702" target="_blank">ov_efly 发表于 2026-11-11 09:02</a>
+何必呢， 把在美中国人加上，清净了</blockquote>
+全地球只要中国基因大于 50%，都永封。
+老黄也永封
+
+
+*****
+
+####  都谷捻柏  
+##### 78#       发表于 2026-11-11 11:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美国人在台湾用claude会被封吗？
+

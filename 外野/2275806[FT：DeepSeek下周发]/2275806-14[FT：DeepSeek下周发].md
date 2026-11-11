@@ -7912,3 +7912,55 @@ anima模型里哪个能力最强，12gb显存能跑吗？
 如果靠蒸馏能搞出现在国内水平的大模型，那么拥有远比国内更便宜更方便的渠道去访问OA模型，购买显卡，租 ...</blockquote>
 现在的“蒸馏”技术含量极高，国模真有能力蒸oa的也只有2个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空き地卯木  
+##### 19927#       发表于 2026-11-11 11:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么又车轱辘回蒸馏了，全球蒸得明白的也就两家，OA不服先蒸明白Luna和haiku再说吧
+
+*****
+
+####  cube  
+##### 19928#       发表于 2026-11-11 11:51
+
+蒸馏这么好用，GPT 6.0 LUNA一定是个好模型吧。
+
+*****
+
+####  Quelaan  
+##### 19929#       发表于 2026-11-11 11:51
+
+终于过了Google学生认证，结果只给我plus，不给嫖pro，懒得折腾了，在想要不要拼个ultra车得了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+所以谭友有发车吗
+
+
+*****
+
+####  moekyo  
+##### 19930#       发表于 2026-11-11 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494851&amp;ptid=2275806" target="_blank">何边杨 发表于 2026-11-11 11:38</a>
+
+如果靠蒸馏能搞出现在国内水平的大模型，那么拥有远比国内更便宜更方便的渠道去访问OA模型，购买显卡，租 ...</blockquote>
+根本没必要浪费口舌，我在 X 上也是推到一个屏蔽一个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aimbot  
+##### 19931#       发表于 2026-11-11 11:57
+
+<blockquote>Quelaan 发表于 2026-11-11 11:51
+终于过了Google学生认证，结果只给我plus，不给嫖pro，懒得折腾了，在想要不要拼个ultra车得了
+
+所以谭友有 ...</blockquote>
+pro不用学生认证
+
+https://github.com/mmdoctor/google-pro-helper
+
+https://linux.do/t/topic/3123997
+
+用这个可以白嫖两年，不过要有一张能够支付外币的卡，需要扣一刀保证金，取消订阅之后当天可以退回
+
