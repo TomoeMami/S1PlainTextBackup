@@ -993,3 +993,16 @@ dario是真在搞ai邪教，现身说法意识形态挂帅。以后和那些张�
 
 怪不得catwu要跑路<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真红之闪电  
+##### 105#       发表于 2026-11-11 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494768&amp;ptid=2293702" target="_blank">lyt777 发表于 2026-11-11 11:24</a>
+
+所以为什么A/不直接封掉简体中文呢？？？
+
+而且现在到底什么样的国人还能用A/啊？确实不常见啊。 ...</blockquote>
+以前是封的，现在最好笑的是不仅加了中文，好像还支持银联了……
+

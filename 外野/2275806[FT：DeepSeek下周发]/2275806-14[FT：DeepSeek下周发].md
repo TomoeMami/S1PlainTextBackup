@@ -8474,3 +8474,54 @@ TIBO终于活了，不过这次感觉稍微耐用了。</blockquote>
 所以谭友有 ...</blockquote>
 我已经加车队车毁人亡两次了，望坛友慎重<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jonarryn  
+##### 19973#       发表于 2026-11-11 16:39
+
+qwen4max综合来看能比大肥鱼强吗？能的话我就先蹬了，我千问ai平台的tokenplan还有二十天过期了
+
+
+*****
+
+####  qwased  
+##### 19974#       发表于 2026-11-11 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496252&amp;ptid=2275806" target="_blank">jonarryn 发表于 2026-11-11 16:39</a>
+qwen4max综合来看能比大肥鱼强吗？能的话我就先蹬了，我千问ai平台的tokenplan还有二十天过期了 ...</blockquote>
+建议你等过几天蹬qwen4flash
+
+
+*****
+
+####  Quelaan  
+##### 19975#       发表于 2026-11-11 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494940&amp;ptid=2275806" target="_blank">aimbot 发表于 2026-11-11 11:57</a>
+pro不用学生认证
+
+https://github.com/mmdoctor/google-pro-helper
+
+https://linux.do/t/topic/3123997</blockquote>
+这个不是说必被算账吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Quelaan  
+##### 19976#       发表于 2026-11-11 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495303&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-11-11 13:31</a>
+你谷歌账号地址不行，我记得除了美国还有印度过了认证给pro，其余区域一律都plus。还有你问晚了，早几天 ...</blockquote>
+我感觉也有可能是因为我这个号之前搞过一年学生优惠到期了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Quelaan  
+##### 19977#       发表于 2026-11-11 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496169&amp;ptid=2275806" target="_blank">ttmaxwell 发表于 2026-11-11 16:22</a>
+我已经加车队车毁人亡两次了，望坛友慎重</blockquote>
+不至于吧，你车里有人反代反重力？
+
