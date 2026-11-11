@@ -8225,3 +8225,27 @@ mimo是1T，大肥鱼0813是1.7T
 
 楼里有用付费版豆包的坛友吗（估计很少？）
 
+
+*****
+
+####  zzy516232108  
+##### 19953#       发表于 2026-11-11 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494656&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-11 11:04</a>
+
+我是让DSH扒出workbuddy的提示词位置，然后让d老师根据自己的提示词写了个补丁替换掉了wb的系统提示词， ...</blockquote>
+有具体内容吗 我让DSH搜了半天 他说原来的提示词300多字，DSH自己的提示词也300多字，我替换了以后也没什么区别（？）
+
+*****
+
+####  wly5556  
+##### 19954#       发表于 2026-11-11 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495262&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-11 13:18</a>
+豆包SeedDream 5.5的生图挺好用的
+
+但是右下角的豆包AI水印导致不能正式使用
+
+想问一下付费版可以去水印吗</blockquote>
+我免费版，在设置里面的内容生成与产物设置，就能直接关啊<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

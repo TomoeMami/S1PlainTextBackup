@@ -4680,3 +4680,14 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 新发现的女王魔域攻略站
 
+
+*****
+
+####  vidomina  
+##### 360#         楼主| 发表于 2026-11-11 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494674&amp;ptid=2293096" target="_blank">Algie 发表于 2026-11-11 11:06</a>
+
+出狱了，还是挺有引导的吧，腐败湖一个方向被斧头哥堵住了换另一个方向很快就发现传送阵了，花冠迷题掉到翠 ...</blockquote>
+无所谓，食物很多的，感觉有一百个？还是多少。
+
