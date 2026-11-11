@@ -749,3 +749,28 @@ demo已出，支持简体中文，有朋友试试吗
 
 美术大量ai，失望。
 
+
+*****
+
+####  牙狼GARO  
+##### 74#       发表于 2026-11-11 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756610&amp;ptid=2283115" target="_blank">DARK_HGCG 发表于 2026-6-10 23:52</a>
+
+什么是流星锤</blockquote>
+【孕妇参加演唱会，孩子生出生就是天崩开局-哔哩哔哩】 [https://b23.tv/v9k8YEr](https://b23.tv/v9k8YEr)
+
+第一个cut就是
+
+“此事在恶搞之家亦有记载……”
+
+
+*****
+
+####  Onelooker  
+##### 75#       发表于 2026-11-11 11:03
+
+哦，牛批
+
+还有自带双人模式的游戏
+

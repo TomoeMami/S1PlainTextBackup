@@ -503,3 +503,20 @@ Re:Sourc ...</blockquote>
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 56#       发表于 2026-11-11 11:01
+
+蒸馏更困难了<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Geronimo  
+##### 57#       发表于 2026-11-11 11:01
+
+“你不懂，她不一样”<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VYG-AL30, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

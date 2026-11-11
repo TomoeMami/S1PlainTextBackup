@@ -7750,3 +7750,50 @@ Qoduck就是Qwen 4 Max么。。
 
 2026-11-11 10:56 上传
 
+
+*****
+
+####  洛拉斯  
+##### 19912#       发表于 2026-11-11 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493483&amp;ptid=2275806" target="_blank">wonderful259 发表于 2026-11-11 01:14</a>
+
+这个一般怎么替换啊</blockquote>
+我是让DSH扒出workbuddy的提示词位置，然后让d老师根据自己的提示词写了个补丁替换掉了wb的系统提示词，因为每次wb更新版本都会覆盖，所以我用补丁形式。
+
+wb系统提示词又臭又长防御性拉满
+
+*****
+
+####  奥柏伦亲王  
+##### 19913#       发表于 2026-11-11 11:04
+
+阿里token plan上可以一折用qwen4，这个价有竞争力吗
+
+
+*****
+
+####  qqwliao  
+##### 19914#       发表于 2026-11-11 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494657&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-11-11 11:04</a>
+阿里token plan上可以一折用qwen4，这个价有竞争力吗</blockquote>
+能力太差，要是qwen4-flash一折，那还可以，现在拉完了
+
+—— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  Hattle  
+##### 19915#       发表于 2026-11-11 11:07
+
+<img src="https://img.stage1st.com/forum/202611/11/110644k84r4615a7u41d5r.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (23.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 11:06 上传
+
+从qoder反代到dsh里用，这个速度拉完了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
