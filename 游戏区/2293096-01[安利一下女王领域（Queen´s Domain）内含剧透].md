@@ -4893,3 +4893,16 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 而要论攻击时的机动性能，祖宗飞剑是绝对的top1
 
+
+*****
+
+####  ziyuan327  
+##### 380#       发表于 2026-11-11 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496727&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-11 18:18</a>
+
+绿色都是小楼房子，比如城堡大门正对区域大坑旁边那座，其他的忘了</blockquote>
+感谢，这个找到了，而且奖励是高贵的能量电池。
+
+这下更想知道剩下那个是啥了。
+
