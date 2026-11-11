@@ -1006,3 +1006,51 @@ dario是真在搞ai邪教，现身说法意识形态挂帅。以后和那些张�
 而且现在到底什么样的国人还能用A/啊？确实不常见啊。 ...</blockquote>
 以前是封的，现在最好笑的是不仅加了中文，好像还支持银联了……
 
+
+*****
+
+####  wlhlz  
+##### 106#       发表于 2026-11-11 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495789&amp;ptid=2293702" target="_blank">勤学苦练 发表于 2026-11-11 15:10</a>
+
+都2026年了，还在这复读“不要中国这么大一个市场了吗”呢</blockquote>
+那是，左脚踩右脚都可以上天了，还要什么市场<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aiyouo  
+##### 107#       发表于 2026-11-11 16:48
+
+<blockquote>勤学苦练 发表于 2026-11-11 15:10
+都2026年了，还在这复读“不要中国这么大一个市场了吗”呢</blockquote>
+单一市场光被封禁的账号就能贡献百分之七的收入，这都不算大，我不知道什么算大了
+
+
+*****
+
+####  wlhlz  
+##### 106#       发表于 2026-11-11 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495789&amp;ptid=2293702" target="_blank">勤学苦练 发表于 2026-11-11 15:10</a>
+
+都2026年了，还在这复读“不要中国这么大一个市场了吗”呢</blockquote>
+那是，左脚踩右脚都可以上天了，还要什么市场<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aiyouo  
+##### 107#       发表于 2026-11-11 16:48
+
+<blockquote>勤学苦练 发表于 2026-11-11 15:10
+都2026年了，还在这复读“不要中国这么大一个市场了吗”呢</blockquote>
+单一市场光被封禁的账号就能贡献百分之七的收入，这都不算大，我不知道什么算大了
+
+
+*****
+
+####  foolyu  
+##### 108#       发表于 2026-11-11 16:55
+
+dario这么畜生该不会是鱿鱼吧？查了下还真是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
