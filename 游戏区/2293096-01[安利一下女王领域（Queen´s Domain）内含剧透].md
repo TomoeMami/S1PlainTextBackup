@@ -4657,3 +4657,16 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 出狱了，还是挺有引导的吧，腐败湖一个方向被斧头哥堵住了换另一个方向很快就发现传送阵了，花冠迷题掉到翠谷后也是有意把你往传送阵撵
 
+
+*****
+
+####  AshNKsk  
+##### 358#       发表于 2026-11-11 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493467&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-11 01:07</a>
+
+但女神石像的屁股很涩不是吗</blockquote>
+这个就很照骗，明明普维玛和西佩哈两个的神像看着都还不错，结果化身都不怎么样，西佩哈之魂就更丑了。
+
+线下真实属于是<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

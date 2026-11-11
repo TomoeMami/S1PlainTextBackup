@@ -779,3 +779,13 @@ A/公司里的中国籍员工在条款范围里吗？<img src="https://static.st
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  便秘的猫  
+##### 84#       发表于 2026-11-11 12:18
+
+小白不太懂，我在终端用的claude code，接的是deepseek的api，这种封的了吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
