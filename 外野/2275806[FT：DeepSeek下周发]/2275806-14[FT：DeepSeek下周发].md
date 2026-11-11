@@ -8565,3 +8565,23 @@ seedream5.5的初步感想
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  ttmaxwell  
+##### 19981#       发表于 2026-11-11 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496304&amp;ptid=2275806" target="_blank">Quelaan 发表于 2026-11-11 16:47</a>
+
+不至于吧，你车里有人反代反重力？</blockquote>
+反正就gemini4刚出那会儿，上车就风控，车主表示车队一起炸了，用的号还是快半年的不算新号<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  warlock228  
+##### 19982#       发表于 2026-11-11 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496329&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-11-11 16:51</a>
+对 gpt PRO100的用量很满意了。这用量基本满足我了，甚至可能用不完    Re:Source ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果真有50刀我也会升个来用用 前提是没有6小时限额，现在plus的5小时限制太恶心了
+
