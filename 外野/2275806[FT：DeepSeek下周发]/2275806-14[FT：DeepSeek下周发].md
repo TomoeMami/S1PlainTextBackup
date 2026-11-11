@@ -8314,3 +8314,49 @@ seedream用手上项目测试了一下意外的非常不错：
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer"> 要怎样才能用到seedream 5.5 啊我还是火山付费用户都没见到
 
+
+*****
+
+####  needagf  
+##### 19960#       发表于 2026-11-11 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495659&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-11-11 14:48</a>
+
+要怎样才能用到seedream 5.5 啊我还是火山付费用户都没见到</blockquote>
+直接即梦的官网就能使用。我只知道网页版怎么用，说是api也可以。
+
+
+*****
+
+####  unrealMeeSeeks  
+##### 19961#       发表于 2026-11-11 15:01
+
+TIBO终于活了，不过这次感觉稍微耐用了。
+
+<img src="https://img.stage1st.com/forum/202611/11/145957fzg4bt6o04jmf0bj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 14:59 上传
+
+<img src="https://img.stage1st.com/forum/202611/11/150121wvrgzcrrgddnmz4a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 15:01 上传
+
+*****
+
+####  neptunehs  
+##### 19962#       发表于 2026-11-11 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494280&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-11 10:00</a>
+插播一下小消息，喜欢anima出图的楼友们可以叫ds搜索一下一图多人相关插件，已经有人搞出来了，现在anima也 ...</blockquote>
+让ds找了 说是没有 找到的是多lora（不可能给原创角色训lora）共存跟ref（串味）。请指路叫啥？谢谢
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

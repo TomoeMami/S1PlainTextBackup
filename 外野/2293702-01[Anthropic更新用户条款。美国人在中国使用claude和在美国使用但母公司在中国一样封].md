@@ -911,3 +911,42 @@ dario是真在搞ai邪教，现身说法意识形态挂帅。以后和那些张�
 能把需求说明白已经是高手了</blockquote>
 所以claude是适合连需求都说不明白的人用吗？类似于只会说一句“我想要一个微信”那种？
 
+
+*****
+
+####  smiths146  
+##### 97#       发表于 2026-11-11 14:57
+
+ 本帖最后由 smiths146 于 2026-11-11 14:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495703&amp;ptid=2293702" target="_blank">mwj 发表于 2026-11-11 14:55</a>
+
+所以claude是适合连需求都说不明白的人用吗？类似于只会说一句“我想要一个微信”那种？ ...</blockquote>
+对的你理解了。  现在 AI 使用者像古代求雨祭祀，对AI 求求你干点啥把XXXX， 这也是未来的趋势，毕竟你买东西也不会问者东西是怎么生产的吧
+
+
+*****
+
+####  猪突猛进R  
+##### 98#       发表于 2026-11-11 15:01
+
+难怪西大一个个把AI当神，原来都是求雨鬼。
+
+
+*****
+
+####  smiths146  
+##### 99#       发表于 2026-11-11 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495737&amp;ptid=2293702" target="_blank">猪突猛进R 发表于 2026-11-11 15:01</a>
+
+难怪西大一个个把AI当神，原来都是求雨鬼。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这个世界上 你再也找不出一个国家像东大一样 虽然不看 但是人均能读懂说明书的国家啊，所以我说 DS那种高速随用随停 在国内吃的更开原因就这里，我们都知道咋干了，我们要的是偷懒。而不是其他国家，我们不知道咋干 ，AI求你干下
+
+
+*****
+
+####  aiyouo  
+##### 100#       发表于 2026-11-11 15:07
+
+不太理解，中国这么大体量的市场完全不要了，他那离谱增速目标真的能实现吗，难道说鼓吹中国阴谋论和美国国家安全赚的钱真能比中国市场真金白银投下去的多？还是有什么别的原因
+
