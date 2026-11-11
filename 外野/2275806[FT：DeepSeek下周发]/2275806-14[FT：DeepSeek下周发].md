@@ -8008,3 +8008,14 @@ s1p-paste-1794369832429.png
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他国模厂实在不行就蒸kimi和ds吧
 
+
+*****
+
+####  moekyo  
+##### 19935#       发表于 2026-11-11 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494964&amp;ptid=2275806" target="_blank">舞以 发表于 2026-11-11 12:02</a>
+
+其他国模厂实在不行就蒸kimi和ds吧</blockquote>
+都不用蒸，把 DS 开源的那一套 infra 先吃透，体验就能上一个大的台阶
+

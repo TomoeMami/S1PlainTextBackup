@@ -102,3 +102,20 @@ PlayStation 取消在线射击游戏《FAIRGAMES》</blockquote>
 
 距离明晃晃大刀还有几个月而已了。
 
+
+*****
+
+####  黑猫软  
+##### 874#       发表于 2026-11-11 12:08
+
+<img src="https://img.stage1st.com/forum/202611/11/120749tkc7wk38mgy11kc7.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1794370044563_914.jpg</strong> (49.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-11 12:07 上传
+
+截至2026年11月10日，PS5全球累计销量已经突破1亿台
+
