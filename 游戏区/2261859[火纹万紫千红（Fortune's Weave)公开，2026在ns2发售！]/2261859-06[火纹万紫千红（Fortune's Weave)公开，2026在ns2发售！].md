@@ -12489,3 +12489,34 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 凯伊线我给物理菜刀们全员上鸵鸟了，这边全员装甲鸵鸟之后发现后面的神鸵兵要黑魔b来不及拉怎么办。目前只有凯伊拉上来了，处于一个有上级证但是用不出来的情况，和其他线上级证不够的情况成鲜明对比<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 8587#       发表于 2026-11-11 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496668&amp;ptid=2261859" target="_blank">光焰天下第一 发表于 2026-11-11 18:04</a>
+请问通关后怎么用通关后数值开二周目，我再次降临捏完脸后，如果选章节玩的话，还是每个角色还是一周目的数 ...</blockquote>
+重开数值不继承，只继承好感度，任务完成情况那些。只有同一条线第一第二第三部顺着继承下去
+
+
+*****
+
+####  bad_alloc  
+##### 8588#       发表于 2026-11-11 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496858&amp;ptid=2261859" target="_blank">虚无缥缈的分身 发表于 2026-11-11 18:56</a>
+凯伊线我给物理菜刀们全员上鸵鸟了，这边全员装甲鸵鸟之后发现后面的神鸵兵要黑魔b来不及拉怎么办。目前只 ...</blockquote>
+你有云存档吗 可以sl，或者章节开始时观星
+先训练将黑魔练到D+或者C左右，观星的话就是攒一堆上级证，一直考到过为止，记下第几次能过，然后读档/重置章节，用初级/中级证考之前失败的次数，成功那次再用高级证转神鸵
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  涂鸦恶魔  
+##### 8589#       发表于 2026-11-11 19:04
+
+今天再试了下切换支援情报界面调整乱数那个方法，我发现了原来是要退回到主菜单然后再次按支援情报那个按钮才生效，怪不得之前刷一次后面不行了。
+

@@ -8647,3 +8647,30 @@ seedream5.5的初步感想
 
 5小时额度你得弄个定时任务隔几个小时用luna发一句hi，周额度还是能用完的
 
+
+*****
+
+####  andychen  
+##### 19988#       发表于 2026-11-11 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496563&amp;ptid=2275806" target="_blank">ttmaxwell 发表于 2026-11-11 17:42</a>
+反正就gemini4刚出那会儿，上车就风控，车主表示车队一起炸了，用的号还是快半年的不算新号 ...</blockquote>
+要省事+用量大的话直接跨低价区买个ultra5x最好
+
+pro那点高级模型用量不够塞牙缝的
+
+
+*****
+
+####  andychen  
+##### 19989#       发表于 2026-11-11 19:06
+
+qwen4 max preview出了
+
+*****
+
+####  qwased  
+##### 19990#       发表于 2026-11-11 19:08
+
+gemini4flash感觉非常强，当1017用没什么问题，说话还好听<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
