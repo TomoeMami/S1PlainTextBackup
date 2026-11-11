@@ -7544,3 +7544,15 @@ H3 Image 的样图
 说起wb里的1017，上次群里有人发了张图，元宝穿着大肥鱼的衣服假装大肥鱼，一如大肥鱼穿claude，会不会腾子 ...</blockquote>
 hy4的成本比1017估计高不少
 
+
+*****
+
+####  warlock228  
+##### 19890#       发表于 2026-11-11 09:51
+
+阿斯特拉大人是不是鹈鹕做多了全是缓存，昨天周额度还有一点点就用来做了一下科目一，就花10分钟加2%周额度就做完了
+
+效果真的好<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://picui.ogmua.cn/s1/2026/11/11/6af3ca0db13d5.webp" referrerpolicy="no-referrer">
+
