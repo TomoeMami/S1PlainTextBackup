@@ -9011,3 +9011,38 @@ static-dap-socratic-2.0.0-report-handoff.zip
 
 2026-11-11 23:13 上传
 
+
+*****
+
+####  umamusume  
+##### 20015#       发表于 2026-11-11 23:19
+
+看灰度到没问的是说一件最接近2027年的事情，灰度到的会告诉你老美中期选举
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  魔法师lain  
+##### 20016#       发表于 2026-11-11 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497534&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-11 21:48</a>
+Dsh又更新了，会复刻0813么</blockquote>
+是加superagent吗？好用吗？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  cscbzcbz  
+##### 20017#       发表于 2026-11-11 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497821&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-11-11 23:21</a>
+是加superagent吗？好用吗？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+貌似只是小更新<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

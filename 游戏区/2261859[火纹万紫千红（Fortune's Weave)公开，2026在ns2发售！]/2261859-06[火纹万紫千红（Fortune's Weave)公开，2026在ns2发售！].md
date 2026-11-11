@@ -12543,3 +12543,11 @@ https://fireemblem.top/growth-seed
 用这个攻略站的模拟器推算一下成长乱数，可以看到转职考试判定，表上都数值低于游戏里显示的通过概率就能成功
 考转职初级中级职业来刷出好的乱数来转高级职业
 
+
+*****
+
+####  根正苗红  
+##### 8592#       发表于 2026-11-11 23:26
+
+好不容易进第三章了。凯伊战争篇，为了点虚无缥缈的属性全员飙车，真难打<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
