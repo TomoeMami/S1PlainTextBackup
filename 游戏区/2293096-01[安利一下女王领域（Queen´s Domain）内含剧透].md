@@ -4610,3 +4610,14 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 到了上古界域没碰塔到处跳跳结果跳到了罪恶记录，爬上去看到Boss说试试结果风筝死了....看序号感觉跳了太多地图，还把罪恶记录搞得满地都是怪各种被秒<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">。不过发现这地方居然又是连着苍翠，之前过不去的几个地方就是这，爽
 
+
+*****
+
+####  Kazepollar  
+##### 353#       发表于 2026-11-11 09:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492899&amp;ptid=2293096" target="_blank">double8G 发表于 2026-11-10 21:53</a>
+
+我感觉我真卡关了，跟着收集攻略到了一个放四个婚礼花冠的地方，下去到了翠谷，不知道怎么出去了 ...</blockquote>
+我刚从这里逃出去，你下去之后拼命找蓝色光就能找到存档点，是在一个湖边。在湖边往下跳附近就有传送阵
+
