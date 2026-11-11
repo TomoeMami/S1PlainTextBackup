@@ -950,3 +950,13 @@ dario是真在搞ai邪教，现身说法意识形态挂帅。以后和那些张�
 
 不太理解，中国这么大体量的市场完全不要了，他那离谱增速目标真的能实现吗，难道说鼓吹中国阴谋论和美国国家安全赚的钱真能比中国市场真金白银投下去的多？还是有什么别的原因
 
+
+*****
+
+####  勤学苦练  
+##### 101#       发表于 2026-11-11 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495772&amp;ptid=2293702" target="_blank">aiyouo 发表于 2026-11-11 15:07</a>
+不太理解，中国这么大体量的市场完全不要了，他那离谱增速目标真的能实现吗，难道说鼓吹中国阴谋论和美国国 ...</blockquote>
+都2026年了，还在这复读“不要中国这么大一个市场了吗”呢<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

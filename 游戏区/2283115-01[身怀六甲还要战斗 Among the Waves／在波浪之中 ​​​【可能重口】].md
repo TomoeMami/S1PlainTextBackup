@@ -838,3 +838,22 @@ demo已出，支持简体中文，有朋友试试吗
 
 有些坛友需要依名单枪毙了属于是。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 83#       发表于 2026-11-11 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495727&amp;ptid=2283115" target="_blank">FBC档案部专员 发表于 2026-11-11 14:59</a>
+
+一样……堵在那个墙前面不知道要干什么
+
+战斗的方式居然用瞬移过去用身体撞……孕妇不能跳但是高处坠落一 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我以我浅薄的处男知识，用鼠标跟着她肚子上的光点抚摸了半分钟，没见到安抚婴儿入睡
+
+我真没招了……
+
+看到主角闪现弹跳到高点然后掉下来一点事没有，我突然有点心疼那个孩子
+
+但是一想到打开游戏说什么不是你选择了他，而是他选择了你（？）我就感觉哈哈，摔两下好像也没啥问题（？？？）
+

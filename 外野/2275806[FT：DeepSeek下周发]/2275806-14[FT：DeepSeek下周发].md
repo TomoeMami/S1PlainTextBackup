@@ -8360,3 +8360,23 @@ TIBO终于活了，不过这次感觉稍微耐用了。
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Surlert  
+##### 19963#       发表于 2026-11-11 15:09
+
+kimi确实强，我现在让kimi做代码审计，大肥鱼偶尔反驳一下说没那么严重，大多数时候只能说：这个问题确实存在，我认。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  snake5533  
+##### 19964#       发表于 2026-11-11 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494280&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-11 10:00</a>
+插播一下小消息，喜欢anima出图的楼友们可以叫ds搜索一下一图多人相关插件，已经有人搞出来了，现在anima也 ...</blockquote>
+蹲插件名
+
+—— 来自 HUAWEI SGT-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
