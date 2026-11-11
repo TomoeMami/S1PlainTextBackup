@@ -8533,3 +8533,19 @@ https://linux.do/t/topic/3123997</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GLYSDSB  
+##### 19979#       发表于 2026-11-11 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496169&amp;ptid=2275806" target="_blank">ttmaxwell 发表于 2026-11-11 16:22</a>
+我已经加车队车毁人亡两次了，望坛友慎重</blockquote>
+snapref 
+attention couple
+anima pose control
+rs multicharacter sampler
+大肥鱼几个插件交叉来用 我还费了点功夫来找
+
+—— 来自 vivo V2464A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

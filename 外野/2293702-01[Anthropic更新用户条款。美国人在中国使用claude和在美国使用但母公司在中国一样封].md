@@ -1054,3 +1054,14 @@ dario是真在搞ai邪教，现身说法意识形态挂帅。以后和那些张�
 
 dario这么畜生该不会是鱿鱼吧？查了下还真是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lyt777  
+##### 109#       发表于 2026-11-11 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496273&amp;ptid=2293702" target="_blank">真红之闪电 发表于 2026-11-11 16:42</a>
+
+以前是封的，现在最好笑的是不仅加了中文，好像还支持银联了……</blockquote>
+？？？？？？这算什么，钓鱼执法？罚款创收？？？
+
