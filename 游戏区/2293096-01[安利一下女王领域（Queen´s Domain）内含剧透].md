@@ -4845,3 +4845,16 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 对探索有点兴趣但这个demo的战斗好劝退啊
 
+
+*****
+
+####  vidomina  
+##### 376#         楼主| 发表于 2026-11-11 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496513&amp;ptid=2293096" target="_blank">ziyuan327 发表于 2026-11-11 17:28</a>
+
+谁能大致给个上古界域里两个绿色门的大致位置？
+
+好不容易拿到绿色破印器，虽然想起在上古界域探索时，看到 ...</blockquote>
+绿色都是小楼房子，比如城堡大门正对区域大坑旁边那座，其他的忘了
+
