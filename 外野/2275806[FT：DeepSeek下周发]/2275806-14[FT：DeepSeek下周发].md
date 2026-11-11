@@ -8429,3 +8429,13 @@ TIBO终于活了，不过这次感觉稍微耐用了。</blockquote>
 
 送 credit 之后，现在的 pro100 我还是很满意的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纸皮  
+##### 19970#       发表于 2026-11-11 15:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是豆姐粉丝了，测试了一下唬人的建筑效果，至少应付我们小城市的甲方的梦想很够用了
+
+比seedance那个闭环好的在于生完图不用找它买量，美美拿图撤退<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我宣布豆姐比GPT厉害！
+
