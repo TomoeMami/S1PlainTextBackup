@@ -7505,3 +7505,31 @@ H3 Image 的样图
 这个月初刚发了2张，这个也没拿到？</blockquote>
 还真没，奇怪了
 
+
+*****
+
+####  陈八尺  
+##### 19887#       发表于 2026-11-11 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493378&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-11 00:29</a>
+
+谷歌按理说是这几家里最不缺算力的，怎么老搞这种分批行为
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5 ...</blockquote>
+大公司病呐没办法，搜索部门要卡搞AI预览，谷歌云要卡卖铲子给OA，你gemini部门死不死关我们什么事呢<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FACS  
+##### 19888#       发表于 2026-11-11 08:55
+
+<img src="https://img.stage1st.com/forum/202611/11/085456ww4onnn2ep4oz2ee.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 08:54 上传
+
+我说昨天怎么烧这么快，原来6.1sol找了astra当subagent<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
