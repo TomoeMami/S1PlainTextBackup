@@ -8773,3 +8773,21 @@ google ai ultra 5x下的gemini argon用量对比gpt plus下的astra或者sol用�
 google ai ultra 5x下的gemini argon用量对比gpt plus下的astra或者sol用量如何呢？</blockquote>
 那肯定多多了，用 carbon 感觉比 gpt 的 pro 100用 astra 还耐用一点
 
+
+*****
+
+####  绕指流光  
+##### 19999#         楼主| 发表于 2026-11-11 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497316&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-11-11 20:46</a>
+
+什么？哈基米4flash终于来了吗，这pro套餐也是终于要有点用了</blockquote>
+哈基米4flash应该在灰度了，看到有人发世界知识截止到了2603哈梅内伊身亡
+
+*****
+
+####  绕指流光  
+##### 20000#         楼主| 发表于 2026-11-11 21:21
+
+顺便拿下20000楼<img src="https://static.stage1st.com/image/smiley/face2017/067.png">属实没想到这楼能盖这么高，堪比管人痴了
+

@@ -1189,3 +1189,14 @@ claude适合傻子不等于claude只能给傻子用，前面那哥们说的也�
 
 这算既不属地又不属人，还是既属地又属人啊。
 
+
+*****
+
+####  真红之闪电  
+##### 119#       发表于 2026-11-11 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496414&amp;ptid=2293702" target="_blank">lyt777 发表于 2026-11-11 17:05</a>
+
+？？？？？？这算什么，钓鱼执法？罚款创收？？？</blockquote>
+我去看了眼，不是银联，只是付款选国家和地区有中国了
+
