@@ -8439,3 +8439,25 @@ TIBO终于活了，不过这次感觉稍微耐用了。</blockquote>
 
 比seedance那个闭环好的在于生完图不用找它买量，美美拿图撤退<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我宣布豆姐比GPT厉害！
 
+
+*****
+
+####  纸皮  
+##### 19970#       发表于 2026-11-11 15:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是豆姐粉丝了，测试了一下唬人的建筑效果，至少应付我们小城市的甲方的梦想很够用了
+
+比seedance那个闭环好的在于生完图不用找它买量，美美拿图撤退<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我宣布豆姐比GPT厉害！
+
+
+*****
+
+####  冤枉呐  
+##### 19971#       发表于 2026-11-11 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494280&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-11 10:00</a>
+插播一下小消息，喜欢anima出图的楼友们可以叫ds搜索一下一图多人相关插件，已经有人搞出来了，现在anima也 ...</blockquote>
+给个关键词啊哥们，作者名也可以嘛
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
