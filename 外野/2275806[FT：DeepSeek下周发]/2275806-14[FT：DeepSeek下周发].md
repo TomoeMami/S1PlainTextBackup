@@ -8751,3 +8751,25 @@ gemini4flash感觉非常强，当1017用没什么问题，说话还好听</block
 另外，跨低价区购买是否会有封号风险？ ...</blockquote>
 前几天ios土区有400块的ultra20x，不清楚现在还能不能上车
 
+
+*****
+
+####  pure_liquid  
+##### 19997#       发表于 2026-11-11 21:12
+
+<blockquote>andychen 发表于 2026-11-11 20:39
+土区阿区现在都能用吧
+
+至于封号，目前google的政策是严打各种白嫖pro会员，但是对付费账号只要别太瞎搞 ...</blockquote>
+google ai ultra 5x下的gemini argon用量对比gpt plus下的astra或者sol用量如何呢？
+
+
+*****
+
+####  startraveller  
+##### 19998#       发表于 2026-11-11 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497404&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-11 21:12</a>
+google ai ultra 5x下的gemini argon用量对比gpt plus下的astra或者sol用量如何呢？</blockquote>
+那肯定多多了，用 carbon 感觉比 gpt 的 pro 100用 astra 还耐用一点
+
