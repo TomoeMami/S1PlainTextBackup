@@ -7484,3 +7484,24 @@ Seedream5.5王朝了，试了下海外无审核的源，下面比5.0pro画得好
 
 这个月初刚发了2张，这个也没拿到？
 
+
+*****
+
+####  tonyunreal  
+##### 19885#       发表于 2026-11-11 08:42
+
+H3 Image 的样图
+
+[https://jo-nike.github.io/h3-image-bench/](https://jo-nike.github.io/h3-image-bench/)
+
+*****
+
+####  zephyrus99  
+##### 19886#       发表于 2026-11-11 08:43
+
+<blockquote>紧那罗 发表于 2026-11-11 08:25
+没这要求
+
+这个月初刚发了2张，这个也没拿到？</blockquote>
+还真没，奇怪了
+
