@@ -868,3 +868,14 @@ demo已出，支持简体中文，有朋友试试吗
 Guro看得少，不能把小怪吸入淋逼，搞胎内回归那一套吗</blockquote>
 我很想做一个类似的，但是帅气的吸入动作的真的太难设计了<img src="https://static.stage1st.com/image/smiley/carton2017/503.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 85#       发表于 2026-11-11 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496487&amp;ptid=2283115" target="_blank">大十字紅朔 发表于 2026-11-11 17:20</a>
+
+我很想做一个类似的，但是帅气的吸入动作的真的太难设计了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">十年前我看到过一个潜行vore片，但是现在估计找不到了，反正一个很帅的空中刺杀，女主角坐在杂兵头上，就把杂兵吞下去了
+

@@ -6798,3 +6798,14 @@ ai真好用，把274张图片整成个pdf了~
 
 塞壬塔里的吉尔伽美什是没法打死的吗  试了几次都是剧情逃跑
 
+
+*****
+
+####  黑暗之眼  
+##### 633#       发表于 2026-11-11 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497045&amp;ptid=2283081" target="_blank">shinnfin 发表于 2026-11-11 19:41</a>
+
+塞壬塔里的吉尔伽美什是没法打死的吗  试了几次都是剧情逃跑</blockquote>
+打不死的，随便打打就行
+

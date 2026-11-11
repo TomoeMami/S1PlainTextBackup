@@ -8736,3 +8736,18 @@ gemini4flash感觉非常强，当1017用没什么问题，说话还好听</block
 
 什么？哈基米4flash终于来了吗，这pro套餐也是终于要有点用了
 
+
+*****
+
+####  lubo  
+##### 19996#       发表于 2026-11-11 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496984&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-11 19:29</a>
+
+请问，现在还有低价区吗？
+
+有的话，怎么查？
+
+另外，跨低价区购买是否会有封号风险？ ...</blockquote>
+前几天ios土区有400块的ultra20x，不清楚现在还能不能上车
+

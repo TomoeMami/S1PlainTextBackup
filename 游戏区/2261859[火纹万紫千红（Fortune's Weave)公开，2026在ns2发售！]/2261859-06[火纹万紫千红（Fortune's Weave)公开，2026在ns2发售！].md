@@ -12520,3 +12520,13 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 今天再试了下切换支援情报界面调整乱数那个方法，我发现了原来是要退回到主菜单然后再次按支援情报那个按钮才生效，怪不得之前刷一次后面不行了。
 
+
+*****
+
+####  5ew47  
+##### 8590#       发表于 2026-11-11 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496557&amp;ptid=2261859" target="_blank">JunkoPureFuries 发表于 2026-11-11 17:38</a>
+还真是</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">古神说的每一句话都是真的
+
