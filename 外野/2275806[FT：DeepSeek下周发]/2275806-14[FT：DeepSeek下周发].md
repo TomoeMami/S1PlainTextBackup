@@ -8398,3 +8398,34 @@ kimi确实强，我现在让kimi做代码审计，大肥鱼偶尔反驳一下说
 TIBO终于活了，不过这次感觉稍微耐用了。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">转岗了竟然也能把手伸过来按重置按钮？重置仙人提宝恐怖如斯
 
+
+*****
+
+####  绕指流光  
+##### 19967#         楼主| 发表于 2026-11-11 15:42
+
+本帖喜迎500页，即将突破20000大关<img src="https://static.stage1st.com/image/smiley/face2017/067.png">
+
+未曾想到一个随手发的新闻帖变成如此丰富的讨论楼，从中收集了不少有用信息也有回馈，感谢各位楼友<img src="https://static.stage1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  startraveller  
+##### 19968#       发表于 2026-11-11 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495865&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-11 15:24</a>
+转岗了竟然也能把手伸过来按重置按钮？重置仙人提宝恐怖如斯</blockquote>
+毕竟隔壁的A/今天刚发了个reset，然后明天应该也要发6.2了。
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  平昭·南宫司卿  
+##### 19969#       发表于 2026-11-11 15:47
+
+看了眼应该是发卡吧，那就不着急了
+
+送 credit 之后，现在的 pro100 我还是很满意的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

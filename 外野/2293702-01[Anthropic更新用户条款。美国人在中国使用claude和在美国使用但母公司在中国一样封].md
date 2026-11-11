@@ -970,3 +970,26 @@ dario是真在搞ai邪教，现身说法意识形态挂帅。以后和那些张�
 不太理解，中国这么大体量的市场完全不要了，他那离谱增速目标真的能实现吗，难道说鼓吹中国阴谋论和美国国 ...</blockquote>
 越封收入越多吖，cn程序员和高收入人士有的是愿意送钱的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  larry1  
+##### 103#       发表于 2026-11-11 15:43
+
+我们公司也开始在中国区禁用Claude了 
+
+前几天发了邮件，现在全部切换到codex 
+
+
+*****
+
+####  warlock228  
+##### 104#       发表于 2026-11-11 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494081&amp;ptid=2293702" target="_blank">kira1988 发表于 2026-11-11 09:20</a>
+
+干脆实名注册且必须提交基因监测，带华人基因的都不让注册好了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这样搞A除公司内部先蒸发一大半
+
+怪不得catwu要跑路<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
