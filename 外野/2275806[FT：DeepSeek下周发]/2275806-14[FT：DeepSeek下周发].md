@@ -8068,3 +8068,13 @@ max搞成啥样就这样了，赶紧把27b和flash拿出来挽回一下
 
 感觉还是kimi比deepseek好用多了，体积还是很重要，平时跟Kimi沟通很顺畅，跟Deepseek就是沟通都头疼
 
+
+*****
+
+####  qwased  
+##### 19940#       发表于 2026-11-11 12:36
+
+X上有之前拿到qwen4 27B/FLASH预览测试权限的人说qwen4 max甚至得分显著低于27b
+
+max团队到底在干什么啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
