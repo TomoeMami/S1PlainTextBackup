@@ -9144,3 +9144,18 @@ qwen4max p怎么这么慢，梦回k3    [Re:Source](https://stage1st.com/2b/th
 
 什么，gemini 4 flash 要出来了吗？
 
+
+*****
+
+####  hugosol  
+##### 20027#       发表于 2026-11-12 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497990&amp;ptid=2275806" target="_blank">Jumbohard 发表于 2026-11-12 00:24</a>
+
+目前 harness 环境用的是 opencode（openchamber），看楼里的讨论有点心痒痒想换 pi 了，问问 pi 有没有类 ...</blockquote>
+一步到位上herdr或者herdr-app吧
+
+opencode和pi都能兼容，丰富web端和移动端生态，多机器，远程访问方案都有人给你集成好了
+[https://github.com/herdrdev/herdr](https://github.com/herdrdev/herdr)
+[https://github.com/herdrdev/herdr-app](https://github.com/herdrdev/herdr-app)
+
