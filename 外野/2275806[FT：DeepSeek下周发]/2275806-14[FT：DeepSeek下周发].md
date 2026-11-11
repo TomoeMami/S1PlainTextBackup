@@ -9046,3 +9046,20 @@ Dsh又更新了，会复刻0813么</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  mitzvah  
+##### 20018#       发表于 2026-11-11 23:35
+
+刚才发布的插件readme存在可能小概率破坏代理行为的信息泄漏源，整个代理是基于信息步骤隔离驱动的，如果信息泄漏就会降低代理的解决问题的能力，以下是删除泄漏信息的改版
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+static-dap-socratic-2.0.2-isolation.zip
+
+2026-11-11 23:34 上传
+点击文件名下载附件
+
+32.3 KB, 下载次数: 0
+
