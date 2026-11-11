@@ -20,3 +20,11 @@
 
 预告上有月姬r限定版上的图案，大的要来了（吗？）
 
+
+*****
+
+####  御坂MKII  
+##### 1665#       发表于 2026-11-12 03:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">真的吗，看来今年给你月放假的效果很好啊
+
