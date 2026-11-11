@@ -4988,3 +4988,14 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上古圣域拿了5冲之后关的第一个电塔楼下那把枪神了，完美解决堆怪问题，加5个手榴弹巴不得怪越多越好
 
+
+*****
+
+####  vidomina  
+##### 389#         楼主| 发表于 2026-11-11 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497487&amp;ptid=2293096" target="_blank">h33 发表于 2026-11-11 21:38</a>
+
+在第一张图逛的时候进了一个洞出不去，然后跟着骷髅的手开了个隐藏墙，刮了半天把一个圣堂武士杀了之后顺手 ...</blockquote>
+往回走在隐藏们那个房间，隐藏门对面墙还有隐藏门<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
