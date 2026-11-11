@@ -432,3 +432,52 @@ Re:Sourc ...</blockquote>
 
 —— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  陈八尺  
+##### 49#       发表于 2026-11-11 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494383&amp;ptid=2293702" target="_blank">御众师 发表于 2026-11-11 10:17</a>
+
+随便哪家ai，只要开放搞黄色，肯定会异军突起</blockquote>
+当年奥特曼倒是说过要搞chatgpt成人版，只可惜没然后了<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月白天青  
+##### 50#       发表于 2026-11-11 10:41
+
+我也完全不懂，用ai的有那么多对ai能力要求这么高的人吗？最近用dsh写了个自用的todo程序，几轮对话就好了。我体感感觉大部分人对ai的使用都还比这浅，真能用到模型能力的差距？
+
+—— 来自 OnePlus OPD2407, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  colice  
+##### 51#       发表于 2026-11-11 10:41
+
+都这样了还能赶着趟去送钱，只能说有部分人确实牛逼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HBN-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  zypyong  
+##### 52#       发表于 2026-11-11 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494283&amp;ptid=2293702" target="_blank">chaoliu 发表于 2026-11-11 10:00</a>
+所以 a÷到底有什么魔力让大家想方设法去用，我看小红书甚至有去印尼找农民弄身份线下收号的独一份的超级大 ...</blockquote>
+智力高啊。 模型确实好用 
+
+*****
+
+####  smiths146  
+##### 53#       发表于 2026-11-11 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494429&amp;ptid=2293702" target="_blank">acropolis 发表于 2026-11-11 10:27</a>
+
+你没见过需求不代表不存在啊，我可以讲很久的a➗有多➗的小故事，但事实就是deepseek秒一下sonnet差不多 ...</blockquote>
+是  用许愿式流程，去对比，就狠明显的看差别了，越模糊的需求Claude的表现越好，固定范式和检查4.1更具优势快和随用随停
+

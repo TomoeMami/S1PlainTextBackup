@@ -7654,3 +7654,39 @@ qoder里有qwen 4 max preview了。有没什么不一样的说法。
 
 千问4的甲到底有多厚，帮我弟做个总  书记语录的ppt都中途中断<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  神必迷你龙  
+##### 19902#       发表于 2026-11-11 10:39
+
+等半天发了个预览版吗？
+
+
+*****
+
+####  Tomorrow_D  
+##### 19903#       发表于 2026-11-11 10:41
+
+感觉千问4Preview有点拉啊
+两次不同的话题（一个千问办公做ppt，一个千问Studio日常对话）被提前中断，还有一个日常话题第二轮就出现了幻觉，思考时间还特别长<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 19904#       发表于 2026-11-11 10:42
+
+憋了这么久，憋了个preview，感觉就是炸了。
+正常的，再接再厉吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 19905#       发表于 2026-11-11 10:46
+
+千问4真的很疯狂, 对现实世界的理解已经远远超越了极其猫
+
