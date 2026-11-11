@@ -8803,3 +8803,51 @@ google ai ultra 5x下的gemini argon用量对比gpt plus下的astra或者sol用�
 
 甚至上个月还更复杂，是第一次从人工转向AI辅助，按说本月重复这些工作，直接从上个月的项目会话里交接过来的，应该消耗更少速度更快才对吧，是我交接的方式不对吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 20001#       发表于 2026-11-11 21:46
+
+最近感觉6.1降智并且额度消耗大幅上升了，有办法测试嘛。
+
+任务是一样的：几百人工资文件税社保身份信息保险blabla的计算、制表，上个月做的时候，效率感觉比这个月高多了，消耗也明显更少，上个月做完中途连一次重置都没用做了上百个表，这次做用了2周的额度还没全弄好<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+甚至上个月还更复杂，是第一次从人工转向AI辅助，按说本月重复这些工作，直接从上个月的项目会话里交接过来的，应该消耗更少速度更快才对吧，是我交接的方式不对吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 20002#       发表于 2026-11-11 21:48
+
+Dsh又更新了，会复刻0813么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  体制  
+##### 20003#       发表于 2026-11-11 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494280&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-11 10:00</a>
+插播一下小消息，喜欢anima出图的楼友们可以叫ds搜索一下一图多人相关插件，已经有人搞出来了，现在anima也 ...</blockquote>
+anima现在有新堂或者ratatatat74的loRA嘛<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 20004#       发表于 2026-11-11 21:54
+
+Nex-N2.6有点厉害 斩杀1017
+
+
+*****
+
+####  andychen  
+##### 20005#       发表于 2026-11-11 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497404&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-11 21:12</a>
+google ai ultra 5x下的gemini argon用量对比gpt plus下的astra或者sol用量如何呢？</blockquote>
+ultra5x用量再少也不至于这么少，100刀套餐没人家20刀多还是太离谱了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
