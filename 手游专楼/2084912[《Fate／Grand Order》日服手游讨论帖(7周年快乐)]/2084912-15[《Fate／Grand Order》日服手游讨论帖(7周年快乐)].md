@@ -1307,3 +1307,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 160抽+20呼符才来1宝双女王，怎么冬季泳装池也这么毒<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 21829#       发表于 2026-11-12 00:48
+
+留了300石头给二期，我超千利休好色……
+
