@@ -4919,3 +4919,18 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 实在喜欢朴实无华的原版攻击模组 ...</blockquote>
 锈蚀类其实就大剑，大斧，大锤，长矛还可以，其它不咋样吧，不过话又说回来，还是投掷物和各种枪好使~
 
+
+*****
+
+####  zzf111  
+##### 382#       发表于 2026-11-11 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497216&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-11 20:22</a>
+
+锈蚀类其实就大剑，大斧，大锤，长矛还可以，其它不咋样吧，不过话又说回来，还是投掷物和各种枪好使~ ...</blockquote>
+我认为唯一不好用的就是短剑，长矛次之但是人家有dot，而且刺锤那个特殊攻击黄尿喷溅（自动缓回）也是aoe伤害挺好用的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+流程里捡到的武器基本也都很强 用到通关没问题
+
+话说埃法石化效果和粘滞效果本质是不是都是迟缓
+

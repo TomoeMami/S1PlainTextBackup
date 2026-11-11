@@ -8712,3 +8712,27 @@ pro那点高级模型用量不够塞牙缝的 ...</blockquote>
 gemini4flash感觉非常强，当1017用没什么问题，说话还好听</blockquote>
 写文怎么样？
 
+
+*****
+
+####  andychen  
+##### 19994#       发表于 2026-11-11 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496984&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-11 19:29</a>
+请问，现在还有低价区吗？
+
+有的话，怎么查？
+
+另外，跨低价区购买是否会有封号风险？ ...</blockquote>
+土区阿区现在都能用吧
+
+至于封号，目前google的政策是严打各种白嫖pro会员，但是对付费账号只要别太瞎搞（大量并发，同时多用户使用）一般都不管
+
+
+*****
+
+####  奥柏伦亲王  
+##### 19995#       发表于 2026-11-11 20:46
+
+什么？哈基米4flash终于来了吗，这pro套餐也是终于要有点用了
+
