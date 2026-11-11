@@ -9083,3 +9083,11 @@ make google great again（来自谷歌老用户的怒吼
 
 —— 来自 vivo V2072A, Android 11, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  静哮苍穹  
+##### 20021#       发表于 2026-11-12 00:16
+
+qwen4max p怎么这么慢，梦回k3    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

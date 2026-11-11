@@ -5009,3 +5009,27 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 还有饰品里那个成长装置到底是什么效果，这东西只写了意义不明的能辅助体能训练，但是挨着的训练绑带写明了能加快武器练级
 
+
+*****
+
+####  vidomina  
+##### 391#         楼主| 发表于 2026-11-12 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497814&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-11 23:19</a>
+
+榴弹步枪记得是交机械鸭子买的吧
+
+还有饰品里那个成长装置到底是什么效果，这东西只写了意义不明的能辅助体 ...</blockquote>
+感觉好像是加经验？
+
+
+*****
+
+####  zzf111  
+##### 392#       发表于 2026-11-12 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497948&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-12 00:10</a>
+
+感觉好像是加经验？</blockquote>
+想多了...没想到主线后期才发这种练级道具<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">...
+
