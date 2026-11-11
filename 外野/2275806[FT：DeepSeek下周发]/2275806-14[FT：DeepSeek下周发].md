@@ -8585,3 +8585,35 @@ seedream5.5的初步感想
 对 gpt PRO100的用量很满意了。这用量基本满足我了，甚至可能用不完    Re:Source ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果真有50刀我也会升个来用用 前提是没有6小时限额，现在plus的5小时限制太恶心了
 
+
+*****
+
+####  无极小屁孩  
+##### 19983#       发表于 2026-11-11 17:48
+
+<blockquote>绕指流光 发表于 2026-11-11 15:42
+本帖喜迎500页，即将突破20000大关
+
+未曾想到一个随手发的新闻帖变成如此丰富的讨论楼，从中收集了不少有用 ...</blockquote>
+精简一下主楼吧，手机浏览器看每次都要下拉好久
+
+
+*****
+
+####  startraveller  
+##### 19984#       发表于 2026-11-11 17:51
+
+但是好像 qwen4 max 在英文区评价还不错？
+
+
+*****
+
+####  紧那罗  
+##### 19985#       发表于 2026-11-11 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496567&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-11 17:43</a>
+如果真有50刀我也会升个来用用 前提是没有5小时限额，现在plus的5小时限制太恶心了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">能接受每周用量不平衡的话可以试试我上面发的续费流玩法，配合重置卡 50 刀蹬个出100 刀的 token 量应该不难
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
