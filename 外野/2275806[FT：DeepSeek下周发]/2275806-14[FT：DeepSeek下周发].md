@@ -7902,3 +7902,13 @@ anima模型里哪个能力最强，12gb显存能跑吗？
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70491963&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-10 17:17</a></blockquote>
 如果靠蒸馏能搞出现在国内水平的大模型，那么拥有远比国内更便宜更方便的渠道去访问OA模型，购买显卡，租用算力的日法英韩德诸国，应该已经有很多至少和国内同等级水平的模型了吧<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 19926#       发表于 2026-11-11 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494851&amp;ptid=2275806" target="_blank">何边杨 发表于 2026-11-11 11:38</a>
+如果靠蒸馏能搞出现在国内水平的大模型，那么拥有远比国内更便宜更方便的渠道去访问OA模型，购买显卡，租 ...</blockquote>
+现在的“蒸馏”技术含量极高，国模真有能力蒸oa的也只有2个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
