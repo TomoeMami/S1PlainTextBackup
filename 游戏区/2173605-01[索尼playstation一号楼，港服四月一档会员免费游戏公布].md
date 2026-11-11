@@ -75,3 +75,15 @@ PlayStation JP 提前公开了两款PS Plus游戏，《勇者斗恶龙3 传说�
 
 二档
 
+
+*****
+
+####  医生狼多  
+##### 872#       发表于 2026-11-11 08:30
+
+fairgames寄了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+PlayStation 取消在线射击游戏《FAIRGAMES》
+
+索尼表示，取消的同时不会裁员，因为 Haven Studios 将转而支持其他第一方工作室
+
