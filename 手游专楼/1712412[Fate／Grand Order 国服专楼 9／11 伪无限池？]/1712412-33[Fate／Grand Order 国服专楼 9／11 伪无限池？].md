@@ -345,3 +345,11 @@ MuMu-20261108-023307-521.jpg
 
 明年是 冠呆、阿斯、小王哈、骑莉莉丝、黑花和卑弥呼了，本想抽羊弓的，不抽了，看看命定能不能抽到了。
 
+
+*****
+
+####  snakeling  
+##### 48321#       发表于 2026-11-11 23:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">明年下体抽卡只想抽冠呆、羊弓、萝莉狐和卑弥呼，农神和强度帅随缘一下。
+
