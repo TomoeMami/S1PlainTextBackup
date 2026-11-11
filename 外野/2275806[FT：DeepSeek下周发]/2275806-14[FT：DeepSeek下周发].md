@@ -7591,3 +7591,58 @@ hy4的成本比1017估计高不少
 
 qwen4max发了
 
+
+*****
+
+####  cscbzcbz  
+##### 19895#       发表于 2026-11-11 10:23
+
+真的等双11啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">到底什么水平呢
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Hattle  
+##### 19896#       发表于 2026-11-11 10:23
+
+DSH 好久都没更新动静了，深度求索在憋什么大更新吗？
+
+
+*****
+
+####  qz66618  
+##### 19897#       发表于 2026-11-11 10:24
+
+怎么没发个跑分榜单<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  needagf  
+##### 19898#       发表于 2026-11-11 10:24
+
+qoder里有qwen 4 max preview了。有没什么不一样的说法。
+
+但是前两天那个qoduck没了。
+
+
+*****
+
+####  cscbzcbz  
+##### 19899#       发表于 2026-11-11 10:26
+
+传闻中1017水平的27b呢<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  紧那罗  
+##### 19900#       发表于 2026-11-11 10:26
+
+这个月流量又要遭不住了，前面10天已经用了快600g了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">想着买个什么再补充一点，发现现在**都卖爆了。
+
+这下真要让ai监测一下哪里有流量，买来给ai用了<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
