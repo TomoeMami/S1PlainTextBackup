@@ -7533,3 +7533,14 @@ H3 Image 的样图
 
 我说昨天怎么烧这么快，原来6.1sol找了astra当subagent<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 19889#       发表于 2026-11-11 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493714&amp;ptid=2275806" target="_blank">我就再氪一单 发表于 2026-11-11 07:26</a>
+
+说起wb里的1017，上次群里有人发了张图，元宝穿着大肥鱼的衣服假装大肥鱼，一如大肥鱼穿claude，会不会腾子 ...</blockquote>
+hy4的成本比1017估计高不少
+
