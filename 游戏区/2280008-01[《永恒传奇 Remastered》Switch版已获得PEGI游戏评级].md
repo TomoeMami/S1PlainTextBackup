@@ -56,3 +56,18 @@
 
 时之精灵这么难吗 我68级打元素的那个麦斯维尔都打了俩小时 打完直接升4级 物理只有1的伤害 这个已经超级难了对我来说 这游戏等级完全没用吗囧
 
+
+*****
+
+####  Xenor  
+##### 372#       发表于 2026-11-11 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493305&amp;ptid=2280008" target="_blank">iou90 发表于 2026-11-11 00:03</a>
+
+时之精灵这么难吗 我68级打元素的那个麦斯维尔都打了俩小时 打完直接升4级 物理只有1的伤害 这个已经超级难 ...</blockquote>
+那完了，maxwell是因为血量少好像才几w<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说有没有人还记得装备隐藏属性，就是能自动回hp+tp是哪几件组合的
+
+记得是在CD1末尾拿到王者之剑搭配同期的几件装备就能用了，现在试了一下怎么还得打完隐藏迷官BOSS才行了？
+
