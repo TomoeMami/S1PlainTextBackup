@@ -481,3 +481,25 @@ Re:Sourc ...</blockquote>
 你没见过需求不代表不存在啊，我可以讲很久的a➗有多➗的小故事，但事实就是deepseek秒一下sonnet差不多 ...</blockquote>
 是  用许愿式流程，去对比，就狠明显的看差别了，越模糊的需求Claude的表现越好，固定范式和检查4.1更具优势快和随用随停
 
+
+*****
+
+####  小川彩  
+##### 54#       发表于 2026-11-11 10:53
+
+反正我用sol/astra感觉也就比v4.1f高半个级 按你楼说法 可能要么你楼某些人特别爱去送钱 要么sol/astra本质sonnet吧（<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  云卷花开  
+##### 55#       发表于 2026-11-11 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494429&amp;ptid=2293702" target="_blank">acropolis 发表于 2026-11-11 10:27</a>
+你没见过需求不代表不存在啊，我可以讲很久的a➗有多➗的小故事，但事实就是deepseek秒一下sonnet差不多 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">我只知道我手底下十个开发，水平越烂的越依赖那几个慢的跟龟爬一样的强模型，几个主力老伙计都等着公司把给 gpt 的钱省点儿多给 ds 呢，现实需求就是复杂到没法许愿，一旦人都搞不清楚怎么做 ai 在让你失望这事上基本是不会让你失望的
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

@@ -7690,3 +7690,63 @@ qoder里有qwen 4 max preview了。有没什么不一样的说法。
 
 千问4真的很疯狂, 对现实世界的理解已经远远超越了极其猫
 
+
+*****
+
+####  zzy516232108  
+##### 19906#       发表于 2026-11-11 10:48
+
+千问4什么水平？ 憋了半天出来一个预览版
+
+
+*****
+
+####  GMJ  
+##### 19907#       发表于 2026-11-11 10:50
+
+DSH有没有什么插件可以将中间工作对话的模式切换成免费网页版本的那个。。实现豆包那种复杂任务自动切换成消耗额度的工作模式。不能就干脆弄个切换开关，我人工来切也行
+
+*****
+
+####  pointer243  
+##### 19908#       发表于 2026-11-11 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494280&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-11 10:00</a>
+插播一下小消息，喜欢anima出图的楼友们可以叫ds搜索一下一图多人相关插件，已经有人搞出来了，现在anima也 ...</blockquote>
+马克一下
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  bixinhaner  
+##### 19909#       发表于 2026-11-11 10:52
+
+大模型界定律，越憋越拉，牛模都是突然袭击直接发
+
+
+*****
+
+####  zzy516232108  
+##### 19910#       发表于 2026-11-11 10:56
+
+话说用workbuddy写PPT 写完以后用MSPPT和libraoffice这种打不开一直报错 但是wps就行 这又是什么神奇的bug
+
+*****
+
+####  startraveller  
+##### 19911#       发表于 2026-11-11 10:56
+
+Qoduck就是Qwen 4 Max么。。 
+
+那么是不是算是拉了？
+
+<img src="https://img.stage1st.com/forum/202611/11/105635tr2suxbeu7by1ysh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (284.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 10:56 上传
+

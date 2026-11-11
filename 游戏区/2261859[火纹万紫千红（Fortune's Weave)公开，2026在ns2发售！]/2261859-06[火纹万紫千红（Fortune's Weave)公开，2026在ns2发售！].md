@@ -12365,3 +12365,14 @@ J9Q$G_4LX67PZ6%5IZKKQ7S.png
 
 蕾达最后应该没啥空去砍人的吧，不能一级舞娘也没啥<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡边加奈子  
+##### 8576#       发表于 2026-11-11 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494514&amp;ptid=2261859" target="_blank">57042711 发表于 2026-11-11 10:42</a>
+
+蕾达最后应该没啥空去砍人的吧，不能一级舞娘也没啥</blockquote>
+蕾达的即兴可以演奏后攻击.一回合可以干的事情要比别人多.现在普遍的用法还是演奏过顺手杀个.即便第一部只有蕾达可以转舞女,按照第一部的战斗难度其实根本不需要舞女这个职业.蕾达专心开发战斗能力,反正核心的演奏不限职业.
+
