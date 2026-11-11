@@ -87,3 +87,18 @@ PlayStation 取消在线射击游戏《FAIRGAMES》
 
 索尼表示，取消的同时不会裁员，因为 Haven Studios 将转而支持其他第一方工作室
 
+
+*****
+
+####  stoiorz  
+##### 873#       发表于 2026-11-11 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70493849&amp;ptid=2173605" target="_blank">医生狼多 发表于 2026-11-11 08:30</a>
+
+fairgames寄了
+
+PlayStation 取消在线射击游戏《FAIRGAMES》</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer"> 一般不会在感恩节和圣诞节档口裁人的。都是财报结束裁人稳定股价。
+
+距离明晃晃大刀还有几个月而已了。
+
