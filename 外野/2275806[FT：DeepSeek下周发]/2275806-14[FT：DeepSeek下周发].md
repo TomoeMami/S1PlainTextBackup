@@ -8549,3 +8549,19 @@ rs multicharacter sampler
 
 —— 来自 vivo V2464A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  neptunehs  
+##### 19980#       发表于 2026-11-11 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495631&amp;ptid=2275806" target="_blank">纸皮 发表于 2026-11-11 14:44</a>
+seedream5.5的初步感想
+
+我平常用来制作和调整建筑效果图，哈基米的banana不太通人性但是对建筑的理解比较强 ...</blockquote>
+说白了 就是国内没有ds威胁的地方统统不开源
+不管是3d模型 还是音乐 还是画画
+唯一例外mininaxh3 不过也是因为打不过seedance才开源的吧
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
