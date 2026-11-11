@@ -9159,3 +9159,14 @@ opencode和pi都能兼容，丰富web端和移动端生态，多机器，远程�
 [https://github.com/herdrdev/herdr](https://github.com/herdrdev/herdr)
 [https://github.com/herdrdev/herdr-app](https://github.com/herdrdev/herdr-app)
 
+
+*****
+
+####  hugosol  
+##### 20028#       发表于 2026-11-12 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497856&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-11 23:35</a>
+
+刚才发布的插件readme存在可能小概率破坏代理行为的信息泄漏源，整个代理是基于信息步骤隔离驱动的，如果信 ...</blockquote>
+不介意的话弄个github仓库持续更新吧，应该挺多人对这套方法感兴趣的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
