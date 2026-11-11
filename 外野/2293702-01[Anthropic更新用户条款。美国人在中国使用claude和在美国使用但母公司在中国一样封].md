@@ -730,3 +730,25 @@ Re:Sourc ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美国人在台湾用claude会被封吗？
 
+
+*****
+
+####  a4ac7  
+##### 79#       发表于 2026-11-11 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494498&amp;ptid=2293702" target="_blank">月白天青 发表于 2026-11-11 10:41</a>
+我也完全不懂，用ai的有那么多对ai能力要求这么高的人吗？最近用dsh写了个自用的todo程序，几轮对话就好了 ...</blockquote>
+我以前设想的任务板，大中小任务动态拆解，安排时间，应急处理，甘特图燃尽图，自动追踪处理小任务
+
+我现在DSH两句话用的TODO，把一段话需求分解成子任务放进markdown保存进当天文件夹，任务结束追踪自己写三四个字概要，明天DSH读下历史任务，创建新的Markdown
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 80#       发表于 2026-11-11 12:03
+
+最牛逼的还是这个中国产品用户，理论上是不是mic都栓啊，泥煤还有人能活下来吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

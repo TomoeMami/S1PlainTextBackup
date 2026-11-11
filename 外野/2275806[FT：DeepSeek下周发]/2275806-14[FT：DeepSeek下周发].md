@@ -7964,3 +7964,47 @@ https://linux.do/t/topic/3123997
 
 用这个可以白嫖两年，不过要有一张能够支付外币的卡，需要扣一刀保证金，取消订阅之后当天可以退回
 
+
+*****
+
+####  qwased  
+##### 19932#       发表于 2026-11-11 12:00
+
+qwen4 max preview一坨屎，qwen还是别炼大馍了把卡给kimi吧
+
+
+*****
+
+####  moekyo  
+##### 19933#       发表于 2026-11-11 12:02
+
+ 本帖最后由 moekyo 于 2026-11-11 12:04 编辑 
+
+[https://frontierharness.org/](https://frontierharness.org/)
+
+这个要战一下吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/11/120139z10chzwo9cj3oe3i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (884.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 12:01 上传
+
+s1p-paste-1794369832429.png
+(559.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-11 12:03 上传
+
+<img src="https://img.stage1st.com/forum/202611/11/120352qnnnnffmg6goydlm.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 19934#       发表于 2026-11-11 12:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他国模厂实在不行就蒸kimi和ds吧
+
