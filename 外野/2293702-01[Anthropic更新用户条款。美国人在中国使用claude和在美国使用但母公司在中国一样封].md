@@ -827,3 +827,13 @@ dario是真在搞ai邪教，现身说法意识形态挂帅。以后和那些张�
 
 既然这样，那当然要继续狠狠的蹬啊。
 
+
+*****
+
+####  大智若愚琪露诺  
+##### 89#       发表于 2026-11-11 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495154&amp;ptid=2293702" target="_blank">御众师 发表于 2026-11-11 12:45</a>
+换个方式，让用户在本地生成黄图就行了。用户自建项目，ai只提供方案，原图和输出都不经过服务器。 ...</blockquote>
+那这个deepseek就能干啊，我现在就是dsh连comfy ui    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
