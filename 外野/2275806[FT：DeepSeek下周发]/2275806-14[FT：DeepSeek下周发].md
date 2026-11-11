@@ -8629,3 +8629,13 @@ seedream5.5的初步感想
 
 [论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  overflowal  
+##### 19986#       发表于 2026-11-11 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496567&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-11 17:43</a>
+如果真有50刀我也会升个来用用 前提是没有5小时限额，现在plus的5小时限制太恶心了 ...</blockquote>
+五小时限额太恶心了，Banked Reset因为有这玩意都不知道什么时候用，    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
