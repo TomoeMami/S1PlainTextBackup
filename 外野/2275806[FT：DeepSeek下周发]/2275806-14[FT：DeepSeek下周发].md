@@ -8306,3 +8306,11 @@ seedream用手上项目测试了一下意外的非常不错：
 
 <img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">可惜这玩意不开源
 
+
+*****
+
+####  omnitoken  
+##### 19959#       发表于 2026-11-11 14:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer"> 要怎样才能用到seedream 5.5 啊我还是火山付费用户都没见到
+
