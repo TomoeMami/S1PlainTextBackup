@@ -4961,3 +4961,22 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 看到出了联机mod，要是能有谏言mod就好了，谏言真是能**缓解这类游戏劝退点的设计
 
+
+*****
+
+####  h33  
+##### 386#       发表于 2026-11-11 21:38
+
+在第一张图逛的时候进了一个洞出不去，然后跟着骷髅的手开了个隐藏墙，刮了半天把一个圣堂武士杀了之后顺手存档了。
+存档之后突然感觉事情有点不对<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vidomina  
+##### 387#         楼主| 发表于 2026-11-11 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497315&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-11 20:46</a>
+
+我认为唯一不好用的就是短剑，长矛次之但是人家有dot，而且刺锤那个特殊攻击黄尿喷溅（自动缓回）也是aoe ...</blockquote>
+直接给你送回出生海滩，让你完成条件再来，太人性化了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

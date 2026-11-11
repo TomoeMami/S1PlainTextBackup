@@ -8791,3 +8791,15 @@ google ai ultra 5x下的gemini argon用量对比gpt plus下的astra或者sol用�
 
 顺便拿下20000楼<img src="https://static.stage1st.com/image/smiley/face2017/067.png">属实没想到这楼能盖这么高，堪比管人痴了
 
+
+*****
+
+####  千千千千鸟  
+##### 20001#       发表于 2026-11-11 21:46
+
+最近感觉6.1降智并且额度消耗大幅上升了，有办法测试嘛。
+
+任务是一样的：几百人工资文件税社保身份信息保险blabla的计算、制表，上个月做的时候，效率感觉比这个月高多了，消耗也明显更少，上个月做完中途连一次重置都没用做了上百个表，这次做用了2周的额度还没全弄好<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+甚至上个月还更复杂，是第一次从人工转向AI辅助，按说本月重复这些工作，直接从上个月的项目会话里交接过来的，应该消耗更少速度更快才对吧，是我交接的方式不对吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
