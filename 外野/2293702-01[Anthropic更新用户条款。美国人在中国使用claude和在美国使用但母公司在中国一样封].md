@@ -520,3 +520,46 @@ Re:Sourc ...</blockquote>
 
 —— 来自 HUAWEI VYG-AL30, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  acropolis  
+##### 58#       发表于 2026-11-11 11:10
+
+<blockquote>云卷花开 发表于 2026-11-10 19:57
+我只知道我手底下十个开发，水平越烂的越依赖那几个慢的跟龟爬一样的强模型，几个主力老伙计都等着公司把 ...</blockquote>
+需求描述清楚之后干活的agent模型到了一定智力之后边际效应肯定明显一点，我也只有不到一小半的问题需要中间使用到fable作为对照或者指导模型。但强智力的需求是一定只会越来越多，你说现在那么关注前沿模型的能力边界没任何意义那我是不同意的
+
+*****
+
+####  btn5754  
+##### 59#       发表于 2026-11-11 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494259&amp;ptid=2293702" target="_blank">acropolis 发表于 2026-11-11 09:57</a>
+说deepseek比claude快也是搞笑来了</blockquote>
+狗汉奸您来啦
+
+—— 来自 OPPO PHY110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  a4ac7  
+##### 60#       发表于 2026-11-11 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494282&amp;ptid=2293702" target="_blank">云卷花开 发表于 2026-11-11 10:00</a>
+你的工作要能离手让 ai 全负责那反人类家的模型确实比 ds 快，可惜现实需求能那么搞的还真不多
+
+Re:Sourc ...</blockquote>
+把手里工作全交给ai，那说明也没把手里的活当个事<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zypyong  
+##### 61#       发表于 2026-11-11 11:16
+
+不做探索性的研究，只需要做一些自动化的确实对前沿模型没有刚需
+
