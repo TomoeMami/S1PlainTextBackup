@@ -5033,3 +5033,13 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 感觉好像是加经验？</blockquote>
 想多了...没想到主线后期才发这种练级道具<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">...
 
+
+*****
+
+####  Kaornao  
+##### 393#       发表于 2026-11-12 01:23
+
+跑图跑的有点迷路好折磨，隐藏门也好难找，用codex做内置地图的mod，目前是有内置的小地图和大地图，外加拾取物密门怪物高亮（可开关），试了试好像还可以，这游戏本身有内置透视感觉也能做进来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
