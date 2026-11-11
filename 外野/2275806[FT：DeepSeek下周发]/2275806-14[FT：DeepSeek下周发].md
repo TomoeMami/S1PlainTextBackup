@@ -8078,3 +8078,58 @@ X上有之前拿到qwen4 27B/FLASH预览测试权限的人说qwen4 max甚至得�
 
 max团队到底在干什么啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 19940#       发表于 2026-11-11 12:36
+
+X上有之前拿到qwen4 27B/FLASH预览测试权限的人说qwen4 max甚至得分显著低于27b
+
+max团队到底在干什么啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 19941#       发表于 2026-11-11 12:40
+
+如果是这样为啥不把27b放出来<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">完全可以像ds先发flash啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qwased  
+##### 19942#       发表于 2026-11-11 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495071&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-11-11 12:24</a>
+
+感觉还是kimi比deepseek好用多了，体积还是很重要，平时跟Kimi沟通能在90%的很顺畅，跟Deepseek就是有40%的 ...</blockquote>
+K31P一轮工具差不多等于1017的10轮，而且返工少
+
+让肥鱼给K31P做只读子代理的话，K31P做复杂一点的任务，成本未必比全用肥鱼高多少<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 19943#       发表于 2026-11-11 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495113&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-11 12:36</a>
+X上有之前拿到qwen4 27B/FLASH预览测试权限的人说qwen4 max甚至得分显著低于27b
+
+max团队到底在干什么啊 ...</blockquote>
+兵法有云，骄兵必败，败兵必哀，哀兵必胜。阿里先派出qwen4max，此时qwen已成哀兵，而接下来的27b就必胜了
+
+
+*****
+
+####  qwased  
+##### 19944#       发表于 2026-11-11 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495124&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-11-11 12:40</a>
+
+如果是这样为啥不把27b放出来完全可以像ds先发flash啊
+
+论坛助手,iPhone</blockquote>
+肯定又是什么内部宫斗，猫老板不还说大馍团队不想让高层给KIMI算力嘛
+

@@ -789,3 +789,41 @@ A/公司里的中国籍员工在条款范围里吗？<img src="https://static.st
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  发呆的龙虾  
+##### 85#       发表于 2026-11-11 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70494899&amp;ptid=2293702" target="_blank">御众师 发表于 2026-11-11 11:47</a>
+怎么可能，搞个用户协议就行了，不然用photoshop出黄图，photoshop会被告到破产吗 ...</blockquote>
+性质差多了。grok一开始就是随便上传图随便搞黄色，后来发觉不对赶紧做出各种限制。
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  兔灾2号  
+##### 86#       发表于 2026-11-11 12:44
+
+dario是真在搞ai邪教，现身说法意识形态挂帅。以后和那些张嘴批判特殊年代意识形态的人大战，我的材料又多一条。
+
+
+*****
+
+####  御众师  
+##### 87#       发表于 2026-11-11 12:45
+
+<blockquote>发呆的龙虾 发表于 2026-11-11 12:41
+性质差多了。grok一开始就是随便上传图随便搞黄色，后来发觉不对赶紧做出各种限制。
+
+—— 来自 HUAWEI T ...</blockquote>
+换个方式，让用户在本地生成黄图就行了。用户自建项目，ai只提供方案，原图和输出都不经过服务器。
+
+*****
+
+####  大韩李明博  
+##### 88#       发表于 2026-11-11 12:46
+
+既然这样，那当然要继续狠狠的蹬啊。
+
