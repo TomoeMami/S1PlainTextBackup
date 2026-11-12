@@ -109,3 +109,26 @@
 
 2D传说最难的都是小游戏
 
+
+*****
+
+####  iou90  
+##### 377#       发表于 2026-11-12 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70498530&amp;ptid=2280008" target="_blank">plusfive 发表于 2026-11-12 08:39</a>
+为了刷图鉴里元老头的偷盗物品栏，打了无数次，没觉得特别难呢</blockquote>
+boss 后面还能再打吗
+老头比较逆天的是那个自动井 中了就倒 倒了就连发陨石全灭
+
+
+*****
+
+####  plusfive  
+##### 378#       发表于 2026-11-12 08:50
+
+<blockquote>iou90 发表于 2026-11-12 08:48
+boss 后面还能再打吗
+
+老头比较逆天的是那个自动井 中了就倒 倒了就连发陨石全灭 ...</blockquote>
+Sorry，太久了，忘记了
+
