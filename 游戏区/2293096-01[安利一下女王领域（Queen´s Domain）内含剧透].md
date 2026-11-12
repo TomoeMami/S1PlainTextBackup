@@ -5284,3 +5284,14 @@ steam版应该是好的 认识的几个都没碰到这些问题
 
 黑钻爪刃和拳套的技能都是升龙拳，连着用能实现三段跳
 
+
+*****
+
+####  zzf111  
+##### 419#       发表于 2026-11-12 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500780&amp;ptid=2293096" target="_blank">borowski 发表于 2026-11-12 16:08</a>
+
+请问这个mod哪里装？</blockquote><blockquote>https://www.nexusmods.com/queensdomain/mods/52?tab=description</blockquote>
+nexus上昨晚出的新mod
+
