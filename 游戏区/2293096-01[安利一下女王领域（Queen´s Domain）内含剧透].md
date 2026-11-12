@@ -5390,3 +5390,28 @@ nexus上昨晚出的新mod
 
 2个地下地图去了就跑酷模式，剧情打到墓地<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">还好都开了传送
 
+
+*****
+
+####  28201  
+##### 429#       发表于 2026-11-12 21:53
+
+它让你摸黑的区域就很阴间，古墓后半段那个大坑里放个灯<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">应该会有人出打光mod吧
+
+*****
+
+####  christiny  
+##### 430#       发表于 2026-11-12 21:53
+
+今天大更新，修了各种BUG。
+
+然后，有个重大利好，三叉戟不用练满级，我升到第四级时就提示武器被破坏，枪头就掉下来了。我看之前说是要练满级……
+
+
+*****
+
+####  28201  
+##### 431#       发表于 2026-11-12 21:55
+
+我记得三叉戟之前就是5级掉吧
+
