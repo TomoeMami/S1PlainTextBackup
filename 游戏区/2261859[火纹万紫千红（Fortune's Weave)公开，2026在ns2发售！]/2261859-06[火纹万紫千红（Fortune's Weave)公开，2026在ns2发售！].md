@@ -12602,3 +12602,14 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 —— 来自 HUAWEI VOL-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  Jabeck  
+##### 8598#       发表于 2026-11-12 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501160&amp;ptid=2261859" target="_blank">喵咪咪格勒 发表于 2026-11-12 17:16</a>
+
+打过的外传别的线还有必要打吗</blockquote>
+有些外传送的道具挺不错的。
+
