@@ -10026,3 +10026,32 @@ mythos 5.2和 fable 5.2是一样的 就 model 3。至于 model 4，你猜为什�
 之前我在X上看过一个帖子：Gemini 4 Argon usage on Pro plan compared to Opus 5.5 and GPT-6 Astra</blockquote>
 那个倍数是指 gemini 池的倍数，而 Pro 订阅不能通过 gemini 池的额度使用 gemini 4 argon/carbon，只能通过独立的 gemini 4 试用额度池来用，基本上干一两个小时活周限就没了。 
 
+
+*****
+
+####  xsummer  
+##### 20103#       发表于 2026-11-12 19:28
+
+最近workbuddy的deepseek积分是不是跑的太快了？
+
+
+*****
+
+####  很久就在那边l  
+##### 20104#       发表于 2026-11-12 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501677&amp;ptid=2275806" target="_blank">xsummer 发表于 2026-11-12 19:28</a>
+最近workbuddy的deepseek积分是不是跑的太快了？</blockquote>
+五折优惠期过了
+
+*****
+
+####  cody198879  
+##### 20105#       发表于 2026-11-12 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501677&amp;ptid=2275806" target="_blank">xsummer 发表于 2026-11-12 19:28</a>
+最近workbuddy的deepseek积分是不是跑的太快了？</blockquote>
+没有50% off了，跑起来飞快，堪比api原价
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
