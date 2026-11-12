@@ -9574,3 +9574,31 @@ codebase memory是必须的
 未订阅的claude是不会被封是吗？我的号，好几年了，一直还能用。好几次想冲动付费都忍住了 ...</blockquote>
 注册即封的都有
 
+
+*****
+
+####  奈落的孤火花  
+##### 20066#       发表于 2026-11-12 12:44
+
+用Deepseek被气死了啊啊啊  
+
+换kimi，用kimi被气死了啊啊啊  
+
+换sol，用sol被气死了啊啊啊  
+
+换astra，用astra被气死了啊啊啊  
+
+总有能被气死的方法
+
+*****
+
+####  mitzvah  
+##### 20067#       发表于 2026-11-12 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70499723&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-11-12 12:08</a>
+
+装了codebase memory mcp尝试在C++项目里建数据库，发现类外方法实现一个都没扫进去，难绷
+
+—— 来自 Xiao ...</blockquote>
+你这一个都扫不出来是坏了吧？我这里用手上的老版立刻建索扫了一遍，对于嵌套和重载还有条件编译这类的可能会有点问题，但是绝大多数的类外实现都没有问题。缺口主要在指导调试断点设置上，典型的ai编程错误诸如幻觉调用的排错是问题不大的，你可以看看这个mcp项目的主页
+
