@@ -9634,3 +9634,14 @@ codebase memory是必须的
 
 2026-11-12 14:14 上传
 
+
+*****
+
+####  jinuzuktII  
+##### 20071#       发表于 2026-11-12 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500214&amp;ptid=2275806" target="_blank">酱豆腐 发表于 2026-11-12 14:12</a>
+
+现在有啥给gpt 充值的方法，除了代充……</blockquote>
+ios 设备走 app 内购
+
