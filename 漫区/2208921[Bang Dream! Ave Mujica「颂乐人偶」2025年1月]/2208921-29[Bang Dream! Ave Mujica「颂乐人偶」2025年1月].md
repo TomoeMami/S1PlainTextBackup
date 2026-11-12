@@ -679,3 +679,23 @@ Responsum iam est.——答案已定</blockquote>
 
        [https://comic-growl.com/episodes/c087fd2cf8def](https://comic-growl.com/episodes/c087fd2cf8def)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42212#       发表于 2026-11-12 12:08
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/12/120802yztw1b4y1nwcacbb.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-12_12-06-24.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 12:08 上传
+
+       [https://x.com/bang_dream_info/status/2120713442558640151](https://x.com/bang_dream_info/status/2120713442558640151)
+
+       [https://bang-dream.com/discographies/4239](https://bang-dream.com/discographies/4239)
+

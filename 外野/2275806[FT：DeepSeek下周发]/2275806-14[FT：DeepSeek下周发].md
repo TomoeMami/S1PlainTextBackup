@@ -9506,3 +9506,13 @@ codebase memory是必须的
 论坛助手,iPhone</blockquote>
 我也进 kyc 了，只能祝 tibo 明天武运昌隆了。
 
+
+*****
+
+####  BarricadeMKXX  
+##### 20059#       发表于 2026-11-12 12:08
+
+装了codebase memory mcp尝试在项目里建数据库，发现类外方法声明一个都没扫进去，难绷<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

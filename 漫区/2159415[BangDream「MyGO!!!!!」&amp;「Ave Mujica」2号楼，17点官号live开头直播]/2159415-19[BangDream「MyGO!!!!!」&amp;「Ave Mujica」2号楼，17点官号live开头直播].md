@@ -30,3 +30,15 @@
 
        [https://comic-growl.com/episodes/c087fd2cf8def](https://comic-growl.com/episodes/c087fd2cf8def)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27669#       发表于 2026-11-12 12:08
+
+       <img src="https://img.stage1st.com/forum/202611/12/120802yztw1b4y1nwcacbb.png" referrerpolicy="no-referrer">
+
+       [https://x.com/bang_dream_info/status/2120713442558640151](https://x.com/bang_dream_info/status/2120713442558640151)
+
+       [https://bang-dream.com/discographies/4239](https://bang-dream.com/discographies/4239)
+
