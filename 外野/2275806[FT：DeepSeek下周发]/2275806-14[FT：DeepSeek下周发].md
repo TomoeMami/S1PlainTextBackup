@@ -9516,3 +9516,24 @@ codebase memory是必须的
 
 —— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  bartholo4  
+##### 20060#       发表于 2026-11-12 12:20
+
+公司发了豆包工作的订阅
+
+用起来大概和1017前的DSF差不多
+
+
+*****
+
+####  zack1999  
+##### 20061#       发表于 2026-11-12 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70499549&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-12 11:35</a>
+
+我也进 kyc 了，只能祝 tibo 明天武运昌隆了。</blockquote>
+未订阅的claude是不会被封是吗？我的号，好几年了，一直还能用。好几次想冲动付费都忍住了
+
