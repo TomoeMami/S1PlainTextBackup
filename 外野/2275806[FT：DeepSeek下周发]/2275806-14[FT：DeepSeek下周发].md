@@ -10112,3 +10112,13 @@ mythos和fable是同一个预训练，内部代号是同样的
 
 — from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 20111#       发表于 2026-11-12 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501402&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-12 18:08</a>
+之前我在X上看过一个帖子：Gemini 4 Argon usage on Pro plan compared to Opus 5.5 and GPT-6 Astra</blockquote>
+ultra以上的argon和carbon是跟flash一个池子的，pro-ultra的Gemini4跨度得是上百倍<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
