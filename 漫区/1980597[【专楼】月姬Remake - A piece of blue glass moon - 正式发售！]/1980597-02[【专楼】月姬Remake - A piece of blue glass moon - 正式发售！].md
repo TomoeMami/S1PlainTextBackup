@@ -111,3 +111,12 @@ FGO死了月姬R活了？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  vvingdora  
+##### 1671#       发表于 2026-11-12 20:51
+
+有人做了月姬R的网页版，图片压成avif格式把游戏从20g变成2.7g了。还有pc和安卓的下载版。这么搞会不会被法务部找上啊<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+[https://arcueid.date/](https://arcueid.date/)
+
