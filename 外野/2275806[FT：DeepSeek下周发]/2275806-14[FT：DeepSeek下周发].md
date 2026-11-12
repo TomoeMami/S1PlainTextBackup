@@ -10055,3 +10055,13 @@ mythos 5.2和 fable 5.2是一样的 就 model 3。至于 model 4，你猜为什�
 
 —— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  andychen  
+##### 20106#       发表于 2026-11-12 19:54
+
+Google今天要发Gemini4 Hydrogen了，Vertex的后台已经接上了服务
+
+我比较期待这模型，今年发的便宜模型全都是代码特化，有点没意思
+
