@@ -5371,3 +5371,14 @@ nexus上昨晚出的新mod
 18小时到城堡了，几个地下地图都没去是不是直奔boss就结局了，会有新周目吗 ...</blockquote>
 目前应该是没NG+的 触发结局后会把你丢到沙滩上一切进度保留
 
+
+*****
+
+####  zzf111  
+##### 427#       发表于 2026-11-12 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501816&amp;ptid=2293096" target="_blank">kevinausting 发表于 2026-11-12 20:10</a>
+
+我已经快二十小时了，感觉我就算玩到结局1也肯定不止25小时了吧</blockquote>
+我打得慢，玩到结局1都已经40h了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

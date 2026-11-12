@@ -10122,3 +10122,16 @@ mythos和fable是同一个预训练，内部代号是同样的
 之前我在X上看过一个帖子：Gemini 4 Argon usage on Pro plan compared to Opus 5.5 and GPT-6 Astra</blockquote>
 ultra以上的argon和carbon是跟flash一个池子的，pro-ultra的Gemini4跨度得是上百倍<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zack1999  
+##### 20112#       发表于 2026-11-12 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500720&amp;ptid=2275806" target="_blank">clawdbot 发表于 2026-11-12 15:58</a>
+
+我是楼主，这个号是当初openclaw火之前弄的。
+
+这个站的确没有任何利益相关，甚至推广链接我都是特意去掉了 ...</blockquote>
+那这楼标题90天不能改，都只能挂着qwen4了吗，qwen这得打钱吧？
+
