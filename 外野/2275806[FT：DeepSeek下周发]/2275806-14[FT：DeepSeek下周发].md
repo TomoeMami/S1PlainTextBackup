@@ -9736,3 +9736,56 @@ ios 设备走 app 内购
 
 然后就无了
 
+
+*****
+
+####  clawdbot  
+##### 20080#       发表于 2026-11-12 15:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是楼主，这个号是当初openclaw火之前弄的。
+
+这个站的确没有任何利益相关，甚至推广链接我都是特意去掉了只发域名的。被封之前也确实未收到任何警告……
+
+但错了要认，90天后见
+
+这块灰色内容的确不该反复提及并贴链接的，请各位楼友慎之戒之
+
+
+*****
+
+####  德尔惠净水器  
+##### 20081#       发表于 2026-11-12 15:58
+
+hy4有没有什么强项
+
+
+*****
+
+####  Promeus  
+##### 20082#       发表于 2026-11-12 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500722&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-11-12 15:58</a>
+hy4有没有什么强项</blockquote>
+免费(暂时)
+
+*****
+
+####  zzy516232108  
+##### 20083#       发表于 2026-11-12 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500722&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-11-12 15:58</a>
+
+hy4有没有什么强项</blockquote>
+可以免费蹬到15号（
+
+
+*****
+
+####  blackll7  
+##### 20084#       发表于 2026-11-12 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70499849&amp;ptid=2275806" target="_blank">justwul 发表于 2026-11-12 12:34</a>
+
+佬们，现在dsf1017版权甲怎么破啊，让他下个游戏ROM都不肯</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">简单的很，你下个dsh purege 镜像就行。如果装了炸DSH就切workbuudy让DS让HY或者DS给他修好。
+

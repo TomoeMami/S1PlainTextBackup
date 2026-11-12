@@ -79,3 +79,15 @@
 
 —— 来自 HUAWEI HBN-AL80, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸波白野  
+##### 1669#       发表于 2026-11-12 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500580&amp;ptid=1980597" target="_blank">远野四季 发表于 2026-11-12 15:28</a>
+FGO死了月姬R活了？
+
+—— 来自 HUAWEI HBN-AL80, Android 12, 鹅球 v3.5.99</blockquote>
+没死，只是大概去年主线完结年赚得让菌子在a爹面前能硬气点，加之今年离了菌子废狗的营收flop也在可接受范围内，所以菌子就去忙忙其他活了吧（但也不知道是不是还是被a爹拿着皮鞭抽出来的，前阵子还有流言说a爹还戳戳月球加码搞主机游戏呢）
+
