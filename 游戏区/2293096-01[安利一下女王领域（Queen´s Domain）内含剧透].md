@@ -5339,3 +5339,16 @@ nexus上昨晚出的新mod
 
 —— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  kevinausting  
+##### 424#       发表于 2026-11-12 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501059&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-12 17:02</a>
+
+打完陵墓见国王算中期，主线还剩两张大地图
+
+只打默认结局1主线流程的话 快一点25h就够了，但只打结局1有好 ...</blockquote>
+我已经快二十小时了，感觉我就算玩到结局1也肯定不止25小时了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

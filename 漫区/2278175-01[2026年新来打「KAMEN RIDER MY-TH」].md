@@ -278,3 +278,11 @@
 
 一直等待的联动终于来了<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 299#       发表于 2026-11-12 20:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">EXAID正式宣布出新作了
+
