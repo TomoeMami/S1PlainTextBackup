@@ -9931,3 +9931,17 @@ rsi使用的模型肯定不是面向公众服务的，至少是类似Mythos和Fa
 
 现在面向公众服务的模型和实验室内部使用的模型差别越来越大了
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 20095#       发表于 2026-11-12 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501428&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-12 18:14</a>
+rsi使用的模型肯定不是面向公众服务的，至少是类似Mythos和Fable这样同一个预训练不同强化学习的版本
+
+现 ...</blockquote>
+你的意思是A\宁愿看着1亿美元估值流失也不愿意把最好模型的消息放出来吗 那很能忍了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
