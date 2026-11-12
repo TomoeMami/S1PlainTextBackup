@@ -10363,3 +10363,28 @@ Gemini4 Hydrogen发布了
 可以免费蹬到15号（</blockquote>
 只免费几次，我一个会话回复几次就要收费了
 
+
+*****
+
+####  紧那罗  
+##### 20132#       发表于 2026-11-13 07:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502991&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-13 00:52</a>
+只有网页能用</blockquote>
+我昨天晚上早些时候网页上用也是没反应卡在那里，我以为是jio用不了。
+不过后来晚点又调通了，所以我怀疑要么是Google的服务器资源有问题，要么是jio的资源做了限制？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  zzy516232108  
+##### 20133#       发表于 2026-11-13 07:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70503289&amp;ptid=2275806" target="_blank">艾诺琳 发表于 2026-11-13 07:13</a>
+只免费几次，我一个会话回复几次就要收费了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那没办法 要赚钱的嘛
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
