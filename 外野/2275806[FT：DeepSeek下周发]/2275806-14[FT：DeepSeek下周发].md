@@ -9653,3 +9653,25 @@ ios 设备走 app 内购
 
 百度的新flash模型好像挺厉害，280B跟ds1017互有胜负
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 20073#       发表于 2026-11-12 15:00
+
+公司的 harness 用起来还是太蠢了，最后还是把提供的模型服务接出来了，本着轻量快速的想法就接入了 pi
+
+好久没用 pi，现在居然都原生支持 mcp 了吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉好诡异啊
+
+
+*****
+
+####  紧那罗  
+##### 20074#       发表于 2026-11-12 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500214&amp;ptid=2275806" target="_blank">酱豆腐 发表于 2026-11-12 14:12</a>
+现在有啥给gpt 充值的方法，除了代充……</blockquote>
+推荐google play<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
