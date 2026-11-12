@@ -5484,3 +5484,14 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 然后，有个重大利好，三叉戟不用练满级，我升到第四级时就提示武器被破坏，枪 ...</blockquote>
 原本那个不就5级就掉钥匙嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  christiny  
+##### 435#       发表于 2026-11-12 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502351&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-12 22:26</a>
+
+原本那个不就5级就掉钥匙嘛</blockquote>
+我还以为要练到10级……
+
