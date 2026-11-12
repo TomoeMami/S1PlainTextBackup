@@ -5352,3 +5352,11 @@ nexus上昨晚出的新mod
 只打默认结局1主线流程的话 快一点25h就够了，但只打结局1有好 ...</blockquote>
 我已经快二十小时了，感觉我就算玩到结局1也肯定不止25小时了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kkk9233  
+##### 425#       发表于 2026-11-12 20:31
+
+18小时到城堡了，几个地下地图都没去是不是直奔boss就结局了，会有新周目吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

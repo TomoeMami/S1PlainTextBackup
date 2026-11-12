@@ -10087,3 +10087,13 @@ Google今天要发Gemini4 Hydrogen了，Vertex的后台已经接上了服务
 https://github.com/agegr/pi-web
 pi-web最佳，直接装就行，里面把pi本体打包好了，不用额外装一个tui原版（当然如果同时有tui需求是能都装，二者共享会话记录）
 
+
+*****
+
+####  紧那罗  
+##### 20109#       发表于 2026-11-12 20:31
+
+话说我的google pro蹭的jio
+
+能看到argon，但是发消息过去没反应，别的模型就没问题，这总不会是我网络问题吧？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
