@@ -10235,3 +10235,18 @@ workbuddy里如果deepseek积分快那kimi是什么<img src="https://static.stag
 
 现在有新的社区版本了：[https://github.com/kingcharleslzy-ai/dsh-purge](https://github.com/kingcharleslzy-ai/dsh-purge)
 
+
+*****
+
+####  tewaku  
+##### 20121#       发表于 2026-11-12 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502252&amp;ptid=2275806" target="_blank">浅夏晴雨 发表于 2026-11-12 22:13</a>
+
+都是真的
+
+频道的是原作者，他遇到了一些问题导致的。
+
+现在有新的社区版本了：https://github.com/kingcha ...</blockquote>
+请问这个是不用去频道找破限了吗？
+

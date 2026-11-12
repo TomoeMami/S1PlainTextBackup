@@ -5471,3 +5471,16 @@ nexus上昨晚出的新mod
 nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光钱就多捡了150多块 ...</blockquote>
 找到了谢谢
 
+
+*****
+
+####  vidomina  
+##### 434#         楼主| 发表于 2026-11-12 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502115&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-12 21:53</a>
+
+今天大更新，修了各种BUG。
+
+然后，有个重大利好，三叉戟不用练满级，我升到第四级时就提示武器被破坏，枪 ...</blockquote>
+原本那个不就5级就掉钥匙嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
