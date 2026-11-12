@@ -5130,3 +5130,14 @@ steam版，我确定5号时玩的时候打完钢铁蜥蜴后旁边箱子是空�
 
 顶楼那本死之书，应该是模仿死灵之书，玩了一套肉山克苏鲁。
 
+
+*****
+
+####  vidomina  
+##### 403#         楼主| 发表于 2026-11-12 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70498918&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-12 09:52</a>
+
+我看明白了，出身岛上，有很多个入口都可以下到地下。水井，知识塔底部，岛上传送祭坛旁边的山洞，海岛神庙 ...</blockquote>
+其实那个前期就能去的空谷算是后期的图了，而真正的地下世界则是中期图，但是要靠后才能到。
+
