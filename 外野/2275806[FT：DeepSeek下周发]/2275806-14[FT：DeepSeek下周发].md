@@ -10309,3 +10309,27 @@ Gemini4 Hydrogen发布了
 
 至于免费pro，我感觉google现在是把pixle会员直接算作付费会员，然后把jio会员全踢下车。jio说不定要3.8flash用到死了
 
+
+*****
+
+####  浅夏晴雨  
+##### 20127#       发表于 2026-11-13 02:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502300&amp;ptid=2275806" target="_blank">tewaku 发表于 2026-11-12 22:18</a>
+
+请问这个是不用去频道找破限了吗？</blockquote>
+不用了，我用这个社区版本的没啥问题
+
+
+*****
+
+####  qwased  
+##### 20128#       发表于 2026-11-13 02:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70503119&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-13 02:07</a>
+
+我怀疑成本很高，毕竟这模型在gemini上直接把3.8flash替了
+
+至于免费pro，我感觉google现在是把pixle会员 ...</blockquote>
+只有agent用途才会消耗大量token，jio都能在网页版用argon<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
