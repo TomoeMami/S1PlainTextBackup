@@ -9612,3 +9612,25 @@ codebase memory是必须的
 
 虽然gemini app和网页都能用，也填了解封表单，不过下个月我还是不订了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  酱豆腐  
+##### 20069#       发表于 2026-11-12 14:12
+
+现在有啥给gpt 充值的方法，除了代充……
+
+
+*****
+
+####  奈落的孤火花  
+##### 20070#       发表于 2026-11-12 14:14
+
+<img src="https://img.stage1st.com/forum/202611/12/141414njqtmtzqwet2h5t2.png" referrerpolicy="no-referrer">
+
+<strong>50044.png</strong> (25.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 14:14 上传
+
