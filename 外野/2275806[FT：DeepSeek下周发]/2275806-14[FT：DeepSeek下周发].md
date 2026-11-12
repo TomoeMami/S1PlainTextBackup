@@ -9967,3 +9967,15 @@ rsi使用的模型肯定不是面向公众服务的，至少是类似Mythos和Fa
 — from motorola X ...</blockquote>
 Anthropic内部最好模型的消息前两天放了啊，那个传闻中的model4。只是最近媒体被老黄的新闻刷版了，没多少人讨论
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 20098#       发表于 2026-11-12 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501529&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-12 18:44</a>
+Anthropic内部最好模型的消息前两天放了啊，那个传闻中的model4。只是最近媒体被老黄的新闻刷版了，没多 ...</blockquote>
+model4大概率就是mythos啊 model3就是fable5.2 这不是都发了
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
