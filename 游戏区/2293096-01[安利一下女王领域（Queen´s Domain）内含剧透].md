@@ -5303,3 +5303,27 @@ nexus上昨晚出的新mod
 
 这个游戏大概多久流程啊？我刚打完陵墓的那个大蜘蛛见到国王，没继续往下走，是不是只玩了一点点？不看攻略的话有些地方真的绕好久不知道要干嘛<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Emmerich  
+##### 421#       发表于 2026-11-12 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500926&amp;ptid=2293096" target="_blank">kevinausting 发表于 2026-11-12 16:42</a>
+
+这个游戏大概多久流程啊？我刚打完陵墓的那个大蜘蛛见到国王，没继续往下走，是不是只玩了一点点？不看攻略 ...</blockquote>
+正常体验的话30~35左右 结局3和结局4要做大量的小垃圾收集
+
+
+*****
+
+####  zzf111  
+##### 422#       发表于 2026-11-12 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500926&amp;ptid=2293096" target="_blank">kevinausting 发表于 2026-11-12 16:42</a>
+
+这个游戏大概多久流程啊？我刚打完陵墓的那个大蜘蛛见到国王，没继续往下走，是不是只玩了一点点？不看攻略 ...</blockquote>
+打完陵墓见国王算中期，主线还剩两张大地图
+
+只打默认结局1主线流程的话 快一点25h就够了，但只打结局1有好几张后期高级地图完全不需要去，很多道具武器和机制都不能拥有
+
