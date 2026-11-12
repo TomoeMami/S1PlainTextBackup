@@ -9537,3 +9537,40 @@ codebase memory是必须的
 我也进 kyc 了，只能祝 tibo 明天武运昌隆了。</blockquote>
 未订阅的claude是不会被封是吗？我的号，好几年了，一直还能用。好几次想冲动付费都忍住了
 
+
+*****
+
+####  overflowal  
+##### 20062#       发表于 2026-11-12 12:34
+
+金融口放出来的“专家访谈”基本上是可以当放屁的。
+很简单啊，如果是真干货它干嘛放出来？访谈不要钱啊？
+还有就是那些什么券商研报也是，都是实习生作业，可以说是没有任何鸟用    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  justwul  
+##### 20063#       发表于 2026-11-12 12:34
+
+佬们，现在dsf1017版权甲怎么破啊，让他下个游戏ROM都不肯
+
+*****
+
+####  BarricadeMKXX  
+##### 20064#       发表于 2026-11-12 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70499815&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-11-12 12:26</a>
+
+未订阅的claude是不会被封是吗？我的号，好几年了，一直还能用。好几次想冲动付费都忍住了 ...</blockquote>
+我的没充过钱放了俩月再看就suspend了
+
+
+*****
+
+####  startraveller  
+##### 20065#       发表于 2026-11-12 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70499815&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-11-12 12:26</a>
+未订阅的claude是不会被封是吗？我的号，好几年了，一直还能用。好几次想冲动付费都忍住了 ...</blockquote>
+注册即封的都有
+
