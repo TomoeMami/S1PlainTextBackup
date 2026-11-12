@@ -120,3 +120,13 @@ FGO死了月姬R活了？
 有人做了月姬R的网页版，图片压成avif格式把游戏从20g变成2.7g了。还有pc和安卓的下载版。这么搞会不会被法务部找上啊<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 [https://arcueid.date/](https://arcueid.date/)
 
+
+*****
+
+####  格林卡罗尔  
+##### 1672#       发表于 2026-11-13 01:47
+
+感觉是要进入月姬时代了，重制版这些设定都不是白加的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
