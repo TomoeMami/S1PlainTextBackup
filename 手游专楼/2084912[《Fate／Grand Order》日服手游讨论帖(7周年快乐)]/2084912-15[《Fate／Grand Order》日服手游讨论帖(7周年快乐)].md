@@ -1403,3 +1403,14 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 还差假发
 
+
+*****
+
+####  khxooo  
+##### 21838#       发表于 2026-11-12 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70499978&amp;ptid=2084912" target="_blank">yangun22 发表于 2026-11-12 13:02</a>
+
+今年年底的节目名字从fate系列改成typemoon了啊，然后节目名字后面的背景应该是月姬R特典版里送的那张月亮 ...</blockquote>
+月姬TV或者剧场版吧。
+
