@@ -667,3 +667,15 @@ Responsum iam est.——答案已定</blockquote>
 
        [https://avemujica.wiki/interview/index.html#M0XtVDMJWxX](https://avemujica.wiki/interview/index.html#M0XtVDMJWxX)  <strong>&lt;——唯鸡百科译文《Ave Mujica 声音制作人 Diggy-MO’ 眼中的乐队制作精髓（中篇）》</strong>
 
+
+*****
+
+####  堀内爱里衣  
+##### 42211#       发表于 2026-11-12 11:58
+
+       <img src="https://img.stage1st.com/forum/202611/12/115616f38cp98zktpvuxl8.png" referrerpolicy="no-referrer">
+
+       [https://x.com/comic_growl/status/2120713914149380227](https://x.com/comic_growl/status/2120713914149380227)
+
+       [https://comic-growl.com/episodes/c087fd2cf8def](https://comic-growl.com/episodes/c087fd2cf8def)
+
