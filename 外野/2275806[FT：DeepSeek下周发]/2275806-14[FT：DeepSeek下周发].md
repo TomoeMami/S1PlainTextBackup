@@ -9819,3 +9819,13 @@ gpt明天会重置吗今天周额度快用完了 怕惨案</blockquote>
 目前说的是 banked reset
  <blockquote>Thursday is feeling codexy to me. Perhaps also a good time for a banked reset.</blockquote>
 
+
+*****
+
+####  andychen  
+##### 20088#       发表于 2026-11-12 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70498256&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-12 06:18</a>
+考虑安全，才不能在非rl沙盒训练过程和预训练的，实际工作的工作流中引入门禁，我这两天测试下来，一旦引 ...</blockquote>
+这要看rl阶段的目标是怎么制定的，要是提升性能才会出现矛盾，如果要训练对齐行为反而会鼓励更多门禁和边界，当然代价是模型行为会变得更被动，能力也会下降
+
