@@ -5495,3 +5495,19 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 原本那个不就5级就掉钥匙嘛</blockquote>
 我还以为要练到10级……
 
+
+*****
+
+####  sahhhh6x  
+##### 436#       发表于 2026-11-12 23:11
+
+<img src="https://img.stage1st.com/forum/202611/12/231017v0vz1gr5c5dcg0ru.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (787.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 23:10 上传
+
+ 出生点教堂进门左手边这个栅栏是现在唯一能看到没开的地方了 都转烂了陵墓和地下墓穴
+
