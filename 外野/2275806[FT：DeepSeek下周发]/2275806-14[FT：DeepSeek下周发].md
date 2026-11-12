@@ -10192,3 +10192,46 @@ ultra以上的argon和carbon是跟flash一个池子的，pro-ultra的Gemini4跨�
 
 希望以后顶尖华人人才能够看透美国这种吃人不吐骨头的社会
 
+
+*****
+
+####  tewaku  
+##### 20117#       发表于 2026-11-12 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500770&amp;ptid=2275806" target="_blank">blackll7 发表于 2026-11-12 16:07</a>
+
+简单的很，你下个dsh purege 镜像就行。如果装了炸DSH就切workbuudy让DS让HY或者DS给他修好。 ...</blockquote>
+这个是不是还要进他的频道找破限词？还是我找到李鬼了？
+
+
+*****
+
+####  blackll7  
+##### 20118#       发表于 2026-11-12 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502214&amp;ptid=2275806" target="_blank">tewaku 发表于 2026-11-12 22:08</a>
+
+这个是不是还要进他的频道找破限词？还是我找到李鬼了？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">估计是你找到李鬼了
+
+*****
+
+####  口袋妖怪  
+##### 20119#       发表于 2026-11-12 22:13
+
+workbuddy里如果deepseek积分快那kimi是什么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我他妈服了
+
+*****
+
+####  浅夏晴雨  
+##### 20120#       发表于 2026-11-12 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502214&amp;ptid=2275806" target="_blank">tewaku 发表于 2026-11-12 22:08</a>
+
+这个是不是还要进他的频道找破限词？还是我找到李鬼了？</blockquote>
+都是真的
+
+频道的是原作者，他遇到了一些问题导致的。
+
+现在有新的社区版本了：[https://github.com/kingcharleslzy-ai/dsh-purge](https://github.com/kingcharleslzy-ai/dsh-purge)
+

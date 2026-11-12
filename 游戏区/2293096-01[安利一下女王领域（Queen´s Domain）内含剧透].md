@@ -5460,3 +5460,14 @@ nexus上昨晚出的新mod
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  borowski  
+##### 433#       发表于 2026-11-12 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500873&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-12 16:28</a>
+
+nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光钱就多捡了150多块 ...</blockquote>
+找到了谢谢
+
