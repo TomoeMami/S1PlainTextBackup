@@ -69,3 +69,13 @@
 
 2026-11-12 10:02 上传
 
+
+*****
+
+####  远野四季  
+##### 1668#       发表于 2026-11-12 15:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">FGO死了月姬R活了？
+
+—— 来自 HUAWEI HBN-AL80, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
