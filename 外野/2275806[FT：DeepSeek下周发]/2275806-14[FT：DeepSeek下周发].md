@@ -9797,3 +9797,13 @@ hy4有没有什么强项</blockquote>
 
 gpt明天会重置吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今天周额度快用完了 怕惨案
 
+
+*****
+
+####  qwased  
+##### 20086#       发表于 2026-11-12 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500407&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-11-12 14:51</a>
+百度的新flash模型好像挺厉害，280B跟ds1017互有胜负</blockquote>
+指令遵循很差，实际使用手感是听不懂人话的那种
+
