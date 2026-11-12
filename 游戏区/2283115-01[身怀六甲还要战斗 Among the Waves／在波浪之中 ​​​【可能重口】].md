@@ -889,3 +889,13 @@ Guro看得少，不能把小怪吸入淋逼，搞胎内回归那一套吗</block
 这么激进？对魔忍有没有带着孕肚战斗的剧情？</blockquote>
 对魔忍大肚子也不一定是怀的
 
+
+*****
+
+####  斯大林的拖拉机  
+##### 87#       发表于 2026-11-12 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70495546&amp;ptid=2283115" target="_blank">耶耶抛的岔 发表于 2026-11-11 14:31</a>
+这么激进？对魔忍有没有带着孕肚战斗的剧情？</blockquote>
+每年十月份会固定有怀孕卡池
+

@@ -9690,3 +9690,34 @@ ios 设备走 app 内购
 
 "具体来看，其代码水平大致也处于国产 Flash 模型的区间之内（除了 DeepSeek Flash）"
 
+
+*****
+
+####  love4aids  
+##### 20076#       发表于 2026-11-12 15:40
+
+楼主怎么死了
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 20077#       发表于 2026-11-12 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70499815&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-11-12 12:26</a>
+未订阅的claude是不会被封是吗？我的号，好几年了，一直还能用。好几次想冲动付费都忍住了 ...</blockquote>
+不是，我的号去年注册的今年就给封了，都没上过
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  谎称  
+##### 20078#       发表于 2026-11-12 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500629&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-12 15:40</a>
+楼主怎么死了</blockquote>
+        小黑屋信息，无视警告多次推广收费贩子站
+
+可能能是推那个中转站吧……
+
