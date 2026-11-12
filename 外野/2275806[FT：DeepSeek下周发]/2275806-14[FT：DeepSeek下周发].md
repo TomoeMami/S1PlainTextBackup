@@ -9465,3 +9465,22 @@ dap相关的契约也放进去了，现阶段这个手搓的dap还是有些问�
 
 codebase memory是必须的
 
+
+*****
+
+####  紧那罗  
+##### 20055#       发表于 2026-11-12 11:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">用了一年的Claude进kyc了，哦豁，再见了a÷，老实蹬astra了。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 20056#       发表于 2026-11-12 11:17
+
+模型编号都搞错了吧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这种访谈专家不是真的在一线干活的，意义都有限
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
