@@ -5244,3 +5244,11 @@ steam版应该是好的 认识的几个都没碰到这些问题
 
 潘多拉之刃这个5+300%意思就是35么？后期除了真圣剑 最好用的感觉还是雷神剑 锈蚀的巨剑升级的
 
+
+*****
+
+####  gogoex  
+##### 415#       发表于 2026-11-12 15:55
+
+这游戏差个地图和百分比显示<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
