@@ -9945,3 +9945,25 @@ rsi使用的模型肯定不是面向公众服务的，至少是类似Mythos和Fa
 
 — from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  mp5  
+##### 20096#       发表于 2026-11-12 18:37
+
+<blockquote>Jumbohard 发表于 2026-11-12 00:24
+目前 harness 环境用的是 opencode（openchamber），看楼里的讨论有点心痒痒想换 pi 了，问问 pi 有没有类 ...</blockquote>
+你可以pi agent再加一个pi-web试试，反正我用过之后就没法再退回去用tui了，全功能加所有端同步真的太方便
+
+
+*****
+
+####  andychen  
+##### 20097#       发表于 2026-11-12 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501468&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-11-12 18:27</a>
+你的意思是A\宁愿看着1亿美元估值流失也不愿意把最好模型的消息放出来吗 那很能忍了
+
+— from motorola X ...</blockquote>
+Anthropic内部最好模型的消息前两天放了啊，那个传闻中的model4。只是最近媒体被老黄的新闻刷版了，没多少人讨论
+
