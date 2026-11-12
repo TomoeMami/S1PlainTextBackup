@@ -1424,3 +1424,75 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 还差假发</blockquote>
 久坂玄瑞已经两套衣服了，据说还是望月画的，感觉下次咕哒咕哒就该像高杉晋作一样落地了吧。
 
+
+*****
+
+####  壳壳牛  
+##### 21840#       发表于 2026-11-12 10:47
+
+麻了...今年大出血<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">就剩200石给二期了
+会赢的.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  yangun22  
+##### 21841#       发表于 2026-11-12 13:02
+
+今年年底的节目名字从fate系列改成typemoon了啊，然后节目名字后面的背景应该是月姬R特典版里送的那张月亮，难道说<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  低调不圆滑  
+##### 21842#       发表于 2026-11-12 17:18
+
+<img src="https://img.stage1st.com/forum/202611/12/171749wqpkkj6bj76ttqzg.png" referrerpolicy="no-referrer">
+
+<strong>_HXL(Z{S`{HH)`P9)2$FL(R.png</strong> (107 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 17:17 上传
+
+还差假发
+
+*****
+
+####  khxooo  
+##### 21843#       发表于 2026-11-12 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70499978&amp;ptid=2084912" target="_blank">yangun22 发表于 2026-11-12 13:02</a>
+
+今年年底的节目名字从fate系列改成typemoon了啊，然后节目名字后面的背景应该是月姬R特典版里送的那张月亮 ...</blockquote>
+月姬TV或者剧场版吧。
+
+*****
+
+####  Jamaisvu  
+##### 21844#       发表于 2026-11-12 18:30
+
+ 本帖最后由 Jamaisvu 于 2026-11-12 18:34 编辑 
+<blockquote>低调不圆滑 发表于 2026-11-12 17:18
+还差假发</blockquote>
+
+久坂玄瑞已经两套衣服了，据说还是望月画的，感觉有望像高杉晋作一样在白情落地。
+
+*****
+
+####  森兰丸  
+##### 21845#       发表于 2026-11-13 07:06
+
+<img src="https://img.stage1st.com/forum/202611/13/070530h9dhl91tfkg1kvfz.png" referrerpolicy="no-referrer">
+
+<strong>421.png</strong> (1.67 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-13 07:05 上传
+
+2张护符直接出了.....上一次这么欧都是多久前的事了
+
+见好就收....杂贺就算了不抽了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
