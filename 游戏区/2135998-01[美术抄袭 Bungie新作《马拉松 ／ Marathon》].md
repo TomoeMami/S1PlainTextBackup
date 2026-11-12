@@ -3188,3 +3188,16 @@ s3延期到12月<img src="https://static.stage1st.com/image/smiley/carton2017/24
 泥潭射击游戏玩家少，cod的帖子都沉到几页后了，战地也就是这两天刚更新才有人回帖。
 新的pve竟然是组队rougelite模式，还以为是像塔科夫pve那样塞鸡哥疾行者呢。还要加入竞技场和社交大厅，怎么感觉要把马拉松做成新土命了（
 
+
+*****
+
+####  zzy516232108  
+##### 303#       发表于 2026-11-12 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500189&amp;ptid=2135998" target="_blank">WGTCorp 发表于 2026-11-12 14:03</a>
+
+泥潭射击游戏玩家少，cod的帖子都沉到几页后了，战地也就是这两天刚更新才有人回帖。
+
+新的pve竟然是组队rou ...</blockquote>
+哈哈，我再也不想被司马头泰坦拿着喷子追杀了
+

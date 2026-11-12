@@ -5295,3 +5295,11 @@ steam版应该是好的 认识的几个都没碰到这些问题
 请问这个mod哪里装？</blockquote><blockquote>https://www.nexusmods.com/queensdomain/mods/52?tab=description</blockquote>
 nexus上昨晚出的新mod
 
+
+*****
+
+####  kevinausting  
+##### 420#       发表于 2026-11-12 16:42
+
+这个游戏大概多久流程啊？我刚打完陵墓的那个大蜘蛛见到国王，没继续往下走，是不是只玩了一点点？不看攻略的话有些地方真的绕好久不知道要干嘛<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
