@@ -10341,3 +10341,15 @@ Gemini4 Hydrogen发布了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">奥特曼怎么回事，我货呢
 
+
+*****
+
+####  tewaku  
+##### 20130#       发表于 2026-11-13 03:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500720&amp;ptid=2275806" target="_blank">clawdbot 发表于 2026-11-12 15:58</a>
+我是楼主，这个号是当初openclaw火之前弄的。
+
+这个站的确没有任何利益相关，甚至推广链接我都是特意去掉了 ...</blockquote>
+90天算少了，之前我在手游楼聊了几句ai图被封半年<img src="https://static.stage1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
+
