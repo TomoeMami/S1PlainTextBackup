@@ -10135,3 +10135,48 @@ ultra以上的argon和carbon是跟flash一个池子的，pro-ultra的Gemini4跨�
 这个站的确没有任何利益相关，甚至推广链接我都是特意去掉了 ...</blockquote>
 那这楼标题90天不能改，都只能挂着qwen4了吗，qwen这得打钱吧？
 
+
+*****
+
+####  Quelaan  
+##### 20113#       发表于 2026-11-12 21:43
+
+拼了个gemini ultra，但是这反重力是真tm难用啊，还不能反代<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+谭友有什么好法子吗
+
+
+*****
+
+####  Quelaan  
+##### 20113#       发表于 2026-11-12 21:43
+
+拼了个gemini ultra，但是这反重力是真tm难用啊，还不能反代<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+谭友有什么好法子吗
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 20114#       发表于 2026-11-12 21:44
+
+搞科研的真得吹爆gemini 4 carbon，这模型比astra上限还高不少，手上有一个停滞的项目没想到它直接突破了<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 20114#       发表于 2026-11-12 21:44
+
+搞科研的真得吹爆gemini 4 carbon，这模型比astra上限还高不少，手上有一个停滞的项目没想到它直接突破了<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞剪号  
+##### 20115#       发表于 2026-11-12 21:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502063&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-11-12 21:37</a>
+
+那这楼标题90天不能改，都只能挂着qwen4了吗，qwen这得打钱吧？</blockquote>
+冲水就好了
+
