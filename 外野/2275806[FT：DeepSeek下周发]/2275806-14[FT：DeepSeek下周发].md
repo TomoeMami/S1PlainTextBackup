@@ -10065,3 +10065,14 @@ Google今天要发Gemini4 Hydrogen了，Vertex的后台已经接上了服务
 
 我比较期待这模型，今年发的便宜模型全都是代码特化，有点没意思
 
+
+*****
+
+####  wonderful259  
+##### 20107#       发表于 2026-11-12 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501402&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-12 18:08</a>
+
+之前我在X上看过一个帖子：Gemini 4 Argon usage on Pro plan compared to Opus 5.5 and GPT-6 Astra</blockquote>
+我恰巧两个会员的家庭组都有，体感用下来，ultra 很耐用，pro 很少。肯定不是 5x 的关系。
+
