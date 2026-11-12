@@ -10283,3 +10283,29 @@ workbuddy里如果deepseek积分快那kimi是什么<img src="https://static.stag
 
 Gemini4 Hydrogen发布了
 
+
+*****
+
+####  qwased  
+##### 20125#       发表于 2026-11-13 02:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70503060&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-13 01:23</a>
+
+Gemini4 Hydrogen发布了
+
+编辑：初步测试了一下，速度比3.8flash快不少。能力就不说了，现在终于有个能用的 ...</blockquote>
+整体能力应该和6.1sol差不多，不过参数量应该很大，成本高，只给付费pro以上开了
+
+
+*****
+
+####  andychen  
+##### 20126#       发表于 2026-11-13 02:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70503115&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-13 02:02</a>
+
+整体能力应该和6.1sol差不多，不过参数量应该很大，成本高，只给付费pro以上开了 ...</blockquote>
+我怀疑成本很高，毕竟这模型在gemini上直接把3.8flash替了
+
+至于免费pro，我感觉google现在是把pixle会员直接算作付费会员，然后把jio会员全踢下车。jio说不定要3.8flash用到死了
+
