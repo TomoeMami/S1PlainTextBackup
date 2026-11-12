@@ -10076,3 +10076,14 @@ Google今天要发Gemini4 Hydrogen了，Vertex的后台已经接上了服务
 之前我在X上看过一个帖子：Gemini 4 Argon usage on Pro plan compared to Opus 5.5 and GPT-6 Astra</blockquote>
 我恰巧两个会员的家庭组都有，体感用下来，ultra 很耐用，pro 很少。肯定不是 5x 的关系。
 
+
+*****
+
+####  serj005  
+##### 20108#       发表于 2026-11-12 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70497990&amp;ptid=2275806" target="_blank">Jumbohard 发表于 2026-11-12 00:24</a>
+目前 harness 环境用的是 opencode（openchamber），看楼里的讨论有点心痒痒想换 pi 了，问问 pi 有没有类 ...</blockquote>
+https://github.com/agegr/pi-web
+pi-web最佳，直接装就行，里面把pi本体打包好了，不用额外装一个tui原版（当然如果同时有tui需求是能都装，二者共享会话记录）
+
