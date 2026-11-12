@@ -9789,3 +9789,11 @@ hy4有没有什么强项</blockquote>
 佬们，现在dsf1017版权甲怎么破啊，让他下个游戏ROM都不肯</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">简单的很，你下个dsh purege 镜像就行。如果装了炸DSH就切workbuudy让DS让HY或者DS给他修好。
 
+
+*****
+
+####  ttoady  
+##### 20085#       发表于 2026-11-12 16:16
+
+gpt明天会重置吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今天周额度快用完了 怕惨案
+

@@ -5263,3 +5263,16 @@ steam版应该是好的 认识的几个都没碰到这些问题
 潘多拉之刃这个5+300%意思就是35么？后期除了真圣剑 最好用的感觉还是雷神剑 锈蚀的巨剑升级的 ...</blockquote>
 5+300%不是20吗？<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  borowski  
+##### 417#       发表于 2026-11-12 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70498132&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-12 02:06</a>
+
+开始全成就第一步就发现存档里没有魔像断臂锤
+
+大概在游戏时间前五个小时在我拿到第二颗风息石的时候就早早 ...</blockquote>
+请问这个mod哪里装？
+
