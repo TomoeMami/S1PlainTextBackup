@@ -12579,3 +12579,26 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 打过的外传别的线还有必要打吗
 
+
+*****
+
+####  纯夏  
+##### 8596#       发表于 2026-11-12 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501160&amp;ptid=2261859" target="_blank">喵咪咪格勒 发表于 2026-11-12 17:16</a>
+
+打过的外传别的线还有必要打吗</blockquote>
+4条线相同的外传只打一遍就行 
+
+
+*****
+
+####  逆城的风  
+##### 8597#       发表于 2026-11-12 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501160&amp;ptid=2261859" target="_blank">喵咪咪格勒 发表于 2026-11-12 17:16</a>
+打过的外传别的线还有必要打吗</blockquote>
+缺钱缺声望就打
+
+—— 来自 HUAWEI VOL-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
