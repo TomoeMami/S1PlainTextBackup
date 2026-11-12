@@ -5415,3 +5415,48 @@ nexus上昨晚出的新mod
 
 我记得三叉戟之前就是5级掉吧
 
+
+*****
+
+####  Kaornao  
+##### 432#       发表于 2026-11-12 22:01
+
+ 本帖最后由 Kaornao 于 2026-11-12 22:02 编辑 
+
+【《女王魔域》地图、槽位和倍率 Mod 更新，适配 1.01.06，附 2D／3D 地图册-哔哩哔哩】 https://b23.tv/qY89BgN
+个人最近做的mod，包含小地图、装备槽位、物品高亮和提前透视，感兴趣的坛友可以自取或者做些改进
+
+<img src="https://img.stage1st.com/forum/202611/12/220152azg14766s11ugw3c.jpg" referrerpolicy="no-referrer">
+
+<strong>c3ae3787-af49-420c-899d-b5620c4701e5.jpg</strong> (235.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 22:01 上传
+
+<img src="https://img.stage1st.com/forum/202611/12/220152eetsf0z7ltollo44.jpg" referrerpolicy="no-referrer">
+
+<strong>8f590c41-f4b7-4af3-92cd-21e0a5dc5fa9.jpg</strong> (191.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 22:01 上传
+
+<img src="https://img.stage1st.com/forum/202611/12/220152uzf58sfnnn3bc5f6.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1794483146722.jpg</strong> (933.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 22:01 上传
+
+<img src="https://img.stage1st.com/forum/202611/12/220152j0v30u4mgw50z8mm.jpg" referrerpolicy="no-referrer">
+
+<strong>c83c34d5-071a-444f-a09e-5ef7cdd3971d.jpg</strong> (272.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 22:01 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
