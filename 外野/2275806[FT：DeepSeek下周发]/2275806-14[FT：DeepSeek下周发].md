@@ -9994,3 +9994,35 @@ mythos和fable是同一个预训练，内部代号是同样的
 
 现在一般猜测fable5.2是和fable5一个预训练，如果是这样那只能算model2的一个checkpoint
 
+
+*****
+
+####  startraveller  
+##### 20100#       发表于 2026-11-12 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501393&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-12 18:06</a>
+之前我在X上看过一个帖子：Gemini 4 Argon usage on Pro plan compared to Opus 5.5 and GPT-6 Astra</blockquote>
+不准确， pro 的 gemini 4的池子是分开的，只有一点点的试用额度，gemini 额度只能用 flash。ultra 才是正式能用 gemini 4额度的。
+
+
+*****
+
+####  startraveller  
+##### 20101#       发表于 2026-11-12 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501580&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-11-12 18:58</a>
+model4大概率就是mythos啊 model3就是fable5.2 这不是都发了
+
+— from motorola XT2603-1, Android 17, S ...</blockquote>
+mythos 5.2和 fable 5.2是一样的 就 model 3。至于 model 4，你猜为什么 fable 不是5.5？
+
+
+*****
+
+####  startraveller  
+##### 20102#       发表于 2026-11-12 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501402&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-12 18:08</a>
+之前我在X上看过一个帖子：Gemini 4 Argon usage on Pro plan compared to Opus 5.5 and GPT-6 Astra</blockquote>
+那个倍数是指 gemini 池的倍数，而 Pro 订阅不能通过 gemini 池的额度使用 gemini 4 argon/carbon，只能通过独立的 gemini 4 试用额度池来用，基本上干一两个小时活周限就没了。 
+
