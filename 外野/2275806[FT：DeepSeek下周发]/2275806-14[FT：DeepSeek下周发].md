@@ -9893,3 +9893,41 @@ gpt明天会重置吗今天周额度快用完了 怕惨案</blockquote>
 
 那么，OpenAI的Plus订阅下的GPT-Astra的用量，大概相当于Google AI Ultra 5x下Gemini Argon用量的1.4倍
 
+
+*****
+
+####  pure_liquid  
+##### 20093#       发表于 2026-11-12 18:08
+
+<blockquote>andychen 发表于 2026-11-11 21:56
+ultra5x用量再少也不至于这么少，100刀套餐没人家20刀多还是太离谱了</blockquote>
+之前我在X上看过一个帖子：Gemini 4 Argon usage on Pro plan compared to Opus 5.5 and GPT-6 Astra
+
+<img src="https://img.stage1st.com/forum/202611/12/180814c25y2iaxaz556ypp.png" referrerpolicy="no-referrer">
+
+<strong>X_1794477789603.png</strong> (423.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 18:08 上传
+
+根据这个人的测算，GPT-Astra在GPT Plus订阅下的额度是Gemini Argon在Google AI Pro订阅下额度的七倍
+
+而从字面意思可知，Google AI Ultra 5x的用量是Google AI Pro的5倍
+
+换句话说，如果他的测算准确
+
+那么，OpenAI的Plus订阅下的GPT-Astra的用量，大概相当于Google AI Ultra 5x下Gemini Argon用量的1.4倍
+
+
+*****
+
+####  andychen  
+##### 20094#       发表于 2026-11-12 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501289&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-12 17:43</a>
+训练和预训练阶段引入沙盒与门禁没有问题，但是现在有一个问题，就是llm的门禁先验太厉害了，你要是让它 ...</blockquote>
+rsi使用的模型肯定不是面向公众服务的，至少是类似Mythos和Fable这样同一个预训练不同强化学习的版本
+
+现在面向公众服务的模型和实验室内部使用的模型差别越来越大了
+

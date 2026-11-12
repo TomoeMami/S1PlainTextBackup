@@ -699,3 +699,40 @@ Responsum iam est.——答案已定</blockquote>
 
        [https://bang-dream.com/discographies/4239](https://bang-dream.com/discographies/4239)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42213#       发表于 2026-11-12 18:08
+
+       <[strong>【LIVE剪辑版】Ave Mujica 0th LIVE「Primo die in scaena」</strong>](https://www.bilibili.com/video/BV1ZsWX6gEiB) <blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/12/180808jf278zfi70c8fpdc.png" referrerpolicy="no-referrer">
+
+<strong>783f8a303e87d38ed4c35094137020b614b3ee45.png</strong> (562.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 18:08 上传
+
+本视频为不定期推出的充电用户专属福利。
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+Ave Mujica 0th LIVE「Primo die in scaena」
+
+2023年6月4日(周日) 
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+◇ BanG Dream!
+
+官方网站：[https://bang-dream.com/](https://bang-dream.com/)
+
+官方bilibili：@BanGDream_CN
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+#BanGDream# #AveMujica#</blockquote>
+      [https://www.bilibili.com/video/BV1ZsWX6gEiB](https://www.bilibili.com/video/BV1ZsWX6gEiB)
+
