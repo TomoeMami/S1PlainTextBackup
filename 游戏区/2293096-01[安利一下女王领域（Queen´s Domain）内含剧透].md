@@ -5511,3 +5511,23 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 
  出生点教堂进门左手边这个栅栏是现在唯一能看到没开的地方了 都转烂了陵墓和地下墓穴
 
+
+*****
+
+####  tatara  
+##### 437#       发表于 2026-11-12 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502598&amp;ptid=2293096" target="_blank">sahhhh6x 发表于 2026-11-12 23:11</a>
+
+出生点教堂进门左手边这个栅栏是现在唯一能看到没开的地方了 都转烂了陵墓和地下墓穴 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/12/232131tqksx3izr9lxgill.bmp" id="aimg_2172092" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2026_11_12_23_21.06.bmp</strong> (627.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 23:21 上传
+
+这里，跳下去会被机械蜘蛛围殴，做好准备
+
