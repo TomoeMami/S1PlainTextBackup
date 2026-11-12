@@ -9675,3 +9675,18 @@ ios 设备走 app 内购
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  misuzu0723  
+##### 20075#       发表于 2026-11-12 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70500407&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-11-12 14:51</a>
+
+百度的新flash模型好像挺厉害，280B跟ds1017互有胜负</blockquote>
+怎么可能，最多就是个强化一点的V4F0731，猫榜上和GLM5.3F差不多
+
+猫老板的评语也是
+
+"具体来看，其代码水平大致也处于国产 Flash 模型的区间之内（除了 DeepSeek Flash）"
+
