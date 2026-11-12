@@ -10097,3 +10097,18 @@ pi-web最佳，直接装就行，里面把pi本体打包好了，不用额外装
 
 能看到argon，但是发消息过去没反应，别的模型就没问题，这总不会是我网络问题吧？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 20110#       发表于 2026-11-12 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501621&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-12 19:11</a>
+mythos和fable是同一个预训练，内部代号是同样的
+
+现在一般猜测fable5.2是和fable5一个预训练，如果是这 ...</blockquote>
+<[img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+然后不管model3直接做看一亿美元蒸发 那达里奥是大好人啊
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
