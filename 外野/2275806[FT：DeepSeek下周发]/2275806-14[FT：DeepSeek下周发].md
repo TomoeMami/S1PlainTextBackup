@@ -9979,3 +9979,18 @@ model4大概率就是mythos啊 model3就是fable5.2 这不是都发了
 
 — from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  andychen  
+##### 20099#       发表于 2026-11-12 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501580&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-11-12 18:58</a>
+
+model4大概率就是mythos啊 model3就是fable5.2 这不是都发了
+
+— from motorola XT2603-1, Android 17, S ...</blockquote>
+mythos和fable是同一个预训练，内部代号是同样的
+
+现在一般猜测fable5.2是和fable5一个预训练，如果是这样那只能算model2的一个checkpoint
+
