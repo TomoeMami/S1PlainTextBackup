@@ -5557,3 +5557,14 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 
 后悔之前看到黄色标记没有截图了，现在压根忘了之前地图的都在哪<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 441#       发表于 2026-11-13 04:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502966&amp;ptid=2293096" target="_blank">h33 发表于 2026-11-13 00:40</a>
+
+陵墓下面有个巨大雕像的地方，用飞镖开的机关是只有三个吗？我都敲了，但没有反馈完全不确定有没有触发成功 ...</blockquote>
+那三个机关需要用从初始岛第二个保存点小墓地方向的悬崖地洞里捡到的特殊投掷物扔中才会开
+
