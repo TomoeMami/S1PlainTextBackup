@@ -643,3 +643,27 @@ Responsum iam est.——答案已定</blockquote>
 
        [https://avemujica-movie.bang-dream.com/news/post-16](https://avemujica-movie.bang-dream.com/news/post-16)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42210#       发表于 2026-11-12 09:01
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/12/090123vvzppnnzur0e1n7l.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-12_09-00-15.png</strong> (364.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 09:01 上传
+
+       [https://x.com/bang_dream_info/status/2120456863385108578](https://x.com/bang_dream_info/status/2120456863385108578)
+
+       [https://x.com/Billboard_JAPAN/status/2120456766882460107](https://x.com/Billboard_JAPAN/status/2120456766882460107)
+
+       [https://www.billboard-japan.com/special/detail/5517](https://www.billboard-japan.com/special/detail/5517)  <strong>&lt;——原文链接</strong>
+
+       [https://avemujica.wiki/interview/index.html#M0XtVDMJWxX](https://avemujica.wiki/interview/index.html#M0XtVDMJWxX)  <strong>&lt;——唯鸡百科译文《Ave Mujica 声音制作人 Diggy-MO’ 眼中的乐队制作精髓（中篇）》</strong>
+
