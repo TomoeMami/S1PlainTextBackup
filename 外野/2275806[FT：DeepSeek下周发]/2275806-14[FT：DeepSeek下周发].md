@@ -9848,3 +9848,48 @@ gpt明天会重置吗今天周额度快用完了 怕惨案</blockquote>
 这要看rl阶段的目标是怎么制定的，要是提升性能才会出现矛盾，如果要训练对齐行为反而会鼓励更多门禁和边 ...</blockquote>
 训练和预训练阶段引入沙盒与门禁没有问题，但是现在有一个问题，就是llm的门禁先验太厉害了，你要是让它自己凭空写一个插件工作流，它劈头盖脸就是砸过来一堆门禁，这种门禁作用下的插件基本就没法如预期发挥作用尤其是单代理串行的情况，将来要是搞rsi，agi这自己写插件写成这样，怕是不大行
 
+
+*****
+
+####  BarricadeMKXX  
+##### 20091#       发表于 2026-11-12 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70499903&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-12 12:44</a>
+
+你这一个都扫不出来是坏了吧？我这里用手上的老版立刻建索扫了一遍，对于嵌套和重载还有条件编译这类的可 ...</blockquote>
+看了下感觉像是项目写法导致的
+
+<img src="https://img.stage1st.com/forum/202611/12/180322ukhqj3hf35jekh03.png" referrerpolicy="no-referrer">
+
+<strong>QQ20261112-180301.png</strong> (170.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 18:03 上传
+
+
+*****
+
+####  pure_liquid  
+##### 20092#       发表于 2026-11-12 18:06
+
+<blockquote>startraveller 发表于 2026-11-11 21:15
+那肯定多多了，用 carbon 感觉比 gpt 的 pro 100用 astra 还耐用一点</blockquote>
+之前我在X上看过一个帖子：Gemini 4 Argon usage on Pro plan compared to Opus 5.5 and GPT-6 Astra
+
+<img src="https://img.stage1st.com/forum/202611/12/180352wxm08am3l7m930l8.png" referrerpolicy="no-referrer">
+
+<strong>X_1794477789603.png</strong> (423.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-12 18:03 上传
+
+根据这个人的测算，GPT-Astra在GPT Plus订阅下的额度是Gemini Argon在Google AI Pro订阅下额度的七倍
+
+而从字面意思可知，Google AI Ultra 5x的用量是Google AI Pro的5倍
+
+换句话说，如果他的测算准确
+
+那么，OpenAI的Plus订阅下的GPT-Astra的用量，大概相当于Google AI Ultra 5x下Gemini Argon用量的1.4倍
+
