@@ -10250,3 +10250,14 @@ workbuddy里如果deepseek积分快那kimi是什么<img src="https://static.stag
 现在有新的社区版本了：https://github.com/kingcha ...</blockquote>
 请问这个是不用去频道找破限了吗？
 
+
+*****
+
+####  剑影若兰  
+##### 20122#       发表于 2026-11-13 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70496642&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-11 17:56</a>
+
+能接受每周用量不平衡的话可以试试我上面发的续费流玩法，配合重置卡 50 刀蹬个出100 刀的 token 量应该 ...</blockquote>
+何为续费流？
+

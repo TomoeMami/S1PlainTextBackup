@@ -42,3 +42,13 @@
 
        [https://bang-dream.com/discographies/4239](https://bang-dream.com/discographies/4239)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27670#       发表于 2026-11-13 00:39
+
+       <img src="https://img.stage1st.com/forum/202611/13/003823eppxngsixwwgnxsh.png" referrerpolicy="no-referrer">
+
+       [https://x.com/bushiroad_works/status/2120879362526589297](https://x.com/bushiroad_works/status/2120879362526589297)
+

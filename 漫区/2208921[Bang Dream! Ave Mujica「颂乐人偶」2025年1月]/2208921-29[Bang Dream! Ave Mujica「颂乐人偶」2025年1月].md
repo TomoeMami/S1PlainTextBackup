@@ -736,3 +736,21 @@ Ave Mujica 0th LIVE「Primo die in scaena」
 #BanGDream# #AveMujica#</blockquote>
       [https://www.bilibili.com/video/BV1ZsWX6gEiB](https://www.bilibili.com/video/BV1ZsWX6gEiB)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42214#       发表于 2026-11-13 00:38
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/13/003823eppxngsixwwgnxsh.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-13_00-36-54.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-13 00:38 上传
+
+       [https://x.com/bushiroad_works/status/2120879362526589297](https://x.com/bushiroad_works/status/2120879362526589297)
+
