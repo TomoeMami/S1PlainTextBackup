@@ -371,3 +371,11 @@ MuMu-20261108-023307-521.jpg
 
 —— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  khxooo  
+##### 48324#       发表于 2026-11-13 21:16
+
+两个号都打完认定战了，日服不懂机制用了三令咒，国服大号直接给你来个3T闪大王<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
