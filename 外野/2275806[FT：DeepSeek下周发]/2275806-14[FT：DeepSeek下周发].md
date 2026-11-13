@@ -10653,3 +10653,16 @@ antigravity内体感用量计算和3.8flash一样
 
 3.8flash现在的spi价格是优惠期，明年开始涨到和hydrogen一样
 
+
+*****
+
+####  clawdbot  
+##### 20158#       发表于 2026-11-13 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70505657&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-13 14:40</a>
+
+antigravity内体感用量计算和3.8flash一样
+
+3.8flash现在的spi价格是优惠期，明年开始涨到和hydrogen一样 ...</blockquote>
+仔细看了pricing确实是27年回复原价，hydrogen看来以后就是flash的上位替代了。但按现在的模型演进速度肯定到时候不会选它<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
