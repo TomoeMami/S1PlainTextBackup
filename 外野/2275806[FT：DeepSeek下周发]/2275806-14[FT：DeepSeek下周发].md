@@ -10787,3 +10787,23 @@ Jio后续能用Hydrogen，就是不知道啥时候
 
 说不定要等明年3.8flash恢复原价<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  匿名用户  
+##### 20171#       发表于 2026-11-13 17:08
+
+大家反代 Gemini 被封号，是什么使用场景下被封的？
+
+在 Orca / Herdr 这类 harness of harness 上，用 agy 去使用反代出来的 Gemini 也会封号吗
+
+
+*****
+
+####  Vneeto  
+##### 20172#       发表于 2026-11-13 17:15
+
+<blockquote>Kazuhira 发表于 2026-11-13 15:58
+应该压缩下上下文了，保存点有价值的东西下来</blockquote>
+还真是，2w楼，假设每楼评论50字，那就是百万上下文了。
+
