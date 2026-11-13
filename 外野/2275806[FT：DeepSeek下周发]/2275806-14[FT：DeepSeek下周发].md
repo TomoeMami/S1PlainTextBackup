@@ -10641,3 +10641,15 @@ outlook崩了三个小时还没修好，微软赤石去吧
 — from motorola XT2603-1, Andro ...</blockquote>
 3.8 Flash的2倍，没啥用了，之前新闻稿都吹免费<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 20157#       发表于 2026-11-13 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70505610&amp;ptid=2275806" target="_blank">clawdbot 发表于 2026-11-13 14:32</a>
+3.8 Flash的2倍，没啥用了，之前新闻稿都吹免费</blockquote>
+antigravity内体感用量计算和3.8flash一样
+
+3.8flash现在的spi价格是优惠期，明年开始涨到和hydrogen一样
+
