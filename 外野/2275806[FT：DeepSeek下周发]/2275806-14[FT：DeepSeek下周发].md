@@ -10574,3 +10574,26 @@ outlook崩了三个小时还没修好，微软赤石去吧
 
 让Opus 5.5 去优化运行速度两天了。刚刚问了下，它说每次更新代码要走等定时同步复制测试文件+新建清理仓库副本+重复辅助+各跑一次+重新打包+串行跑测试。最后2分钟的测试它花了2小时才能完成<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 20151#       发表于 2026-11-13 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70504960&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-13 12:26</a>
+趁着谷歌讨论热度高，我问个问题：
+
+有没有坛友是在Win10下使用Antigravity的？</blockquote>
+你听哈基米扯淡，就是反重力太垃圾了。
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 20152#       发表于 2026-11-13 13:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+我才发现牢g的hydrogen价格已经膨胀到10rmb input了 这玩啥啊抬走抬走
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+

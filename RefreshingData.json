@@ -9369,12 +9369,12 @@
     "update": false
   },
   "2194561": {
-    "totalreply": 13633,
+    "totalreply": 13643,
     "title": "[【#11】hololive综合讨论楼]",
     "newtitle": "[【#11】hololive综合讨论楼]",
-    "lastedit": 1793959806,
+    "lastedit": 1794546248,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2194673": {
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 20150,
+    "totalreply": 20152,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1794544447,
+    "lastedit": 1794546486,
     "category": "外野",
     "active": true,
     "update": false
@@ -13212,10 +13212,10 @@
     "update": false
   },
   "2283048": {
-    "totalreply": 568,
+    "totalreply": 569,
     "title": "[中二电波台真爱楼 3.0（招魂版）]",
     "newtitle": "[中二电波台真爱楼 3.0（招魂版）]",
-    "lastedit": 1794545645,
+    "lastedit": 1794546125,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13617,10 +13617,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 42331,
+    "totalreply": 42334,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1794545407,
+    "lastedit": 1794546486,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17901,10 +17901,10 @@
     "update": false
   },
   "2293762": {
-    "totalreply": 104,
+    "totalreply": 106,
     "title": "[NSFW来测测各家AI的衣品吧]",
     "newtitle": "[NSFW来测测各家AI的衣品吧（tifa汉服测试）]",
-    "lastedit": 1794545765,
+    "lastedit": 1794546365,
     "category": "外野",
     "active": true,
     "update": false
@@ -18162,19 +18162,19 @@
     "update": false
   },
   "2293779": {
-    "totalreply": 52,
+    "totalreply": 53,
     "title": "[哈基米新模型写作+玩梗无敌了]",
     "newtitle": "[哈基米新模型写作+玩梗无敌了]",
-    "lastedit": 1794535088,
+    "lastedit": 1794546247,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2293839": {
-    "totalreply": 341,
+    "totalreply": 343,
     "title": "[老黄辞职了]",
     "newtitle": "[老黄辞职了]",
-    "lastedit": 1794541206,
+    "lastedit": 1794546004,
     "category": "外野",
     "active": true,
     "update": false
@@ -18216,10 +18216,10 @@
     "update": false
   },
   "2293850": {
-    "totalreply": 126,
+    "totalreply": 127,
     "title": "[大家觉得皮衣黄最有可能的结局是哪个？]",
     "newtitle": "[大家觉得皮衣黄最有可能的结局是哪个？]",
-    "lastedit": 1794545407,
+    "lastedit": 1794546125,
     "category": "外野",
     "active": true,
     "update": false
@@ -18252,10 +18252,10 @@
     "update": false
   },
   "2293862": {
-    "totalreply": 101,
+    "totalreply": 105,
     "title": "[感觉我家终于告别了旧社会]",
     "newtitle": "[感觉我家终于告别了旧社会]",
-    "lastedit": 1794545885,
+    "lastedit": 1794546486,
     "category": "外野",
     "active": true,
     "update": false
@@ -18279,19 +18279,19 @@
     "update": false
   },
   "2293866": {
-    "totalreply": 145,
+    "totalreply": 147,
     "title": "[光刻机我们距离世界还有多少距离]",
     "newtitle": "[光刻机我们距离世界还有多少距离]",
-    "lastedit": 1794545646,
+    "lastedit": 1794546486,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2293855": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[感觉老黄被强行斗掉对游戏界来讲绝对是个坏消息，无论是业界还是玩家]",
     "newtitle": "[感觉老黄被强行斗掉对游戏界来讲绝对是个坏消息，无论是业界还是玩家]",
-    "lastedit": 1794544446,
+    "lastedit": 1794546247,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -18333,10 +18333,10 @@
     "update": false
   },
   "2293880": {
-    "totalreply": 96,
+    "totalreply": 97,
     "title": "[彭博：老黄辞职前几近崩溃]",
     "newtitle": "[彭博：老黄辞职前几近崩溃]",
-    "lastedit": 1794545885,
+    "lastedit": 1794546125,
     "category": "外野",
     "active": true,
     "update": false
@@ -18346,6 +18346,15 @@
     "title": "[老黄倒下，简单预测一下游戏显卡价格吧]",
     "newtitle": "[老黄倒下，简单预测一下游戏显卡价格吧]",
     "lastedit": 1794545526,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2293840": {
+    "totalreply": 41,
+    "title": "[新的超市战争开始了]",
+    "newtitle": "[新的超市战争开始了]",
+    "lastedit": 1794546126,
     "category": "外野",
     "active": true,
     "update": false
