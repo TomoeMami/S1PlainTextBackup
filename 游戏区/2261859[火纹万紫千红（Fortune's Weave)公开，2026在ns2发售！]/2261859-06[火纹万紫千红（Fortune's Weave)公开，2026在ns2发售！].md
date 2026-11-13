@@ -12632,3 +12632,16 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 顶号会恢复吗</blockquote>
 风花雪月是苏自己不想顶，无双是顶了后又马上被贝雷特自己抢回了操作控制权
 
+
+*****
+
+####  罐子  
+##### 8601#       发表于 2026-11-13 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70492019&amp;ptid=2261859" target="_blank">Losange 发表于 2026-11-10 17:27</a>
+
+一般就眼镜娘和蓝毛重女副官，一个是二格跳舞，一个是可以用仓库。但眼镜娘剑苦手，要特意练一下，并且太 ...</blockquote>
+纳尼，个体值计算器出来了？ 我去试一下
+
+说起来就幽默，现在火纹朱紫讲角色的视频都用种族值个体值了，挺贴切的，真朱.紫了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
