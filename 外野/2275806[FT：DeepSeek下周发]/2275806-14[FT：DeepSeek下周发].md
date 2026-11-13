@@ -10517,3 +10517,22 @@ outlook崩了三个小时还没修好，微软赤石去吧
 没想到Hydrogen能斩杀1017</blockquote>
 甚至还有个 Helix 在灰测了
 
+
+*****
+
+####  紧那罗  
+##### 20147#       发表于 2026-11-13 11:45
+
+推上看到的图
+
+看起来carbon的量还不错 <img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">想去开个ultra了（就是流量又要顶不住了
+
+0ECBCF30-C61F-4DF1-AADD-2707D7F26365.JPG
+(121.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-13 11:45 上传
+
+<img src="https://img.stage1st.com/forum/202611/13/114503dgwyrjmryd3yy5rm.jpg" referrerpolicy="no-referrer">
+
