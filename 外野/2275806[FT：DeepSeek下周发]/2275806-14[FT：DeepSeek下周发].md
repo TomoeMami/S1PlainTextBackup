@@ -10955,3 +10955,41 @@ v4.1f切换比预期早
 按照DeepSeek9月开源的那一波基础设施，底层算子之类的都tilelang重写了，估计这块确实没用pytorch的了。 ...</blockquote>
 伪随机数生成器这部分根本不需要重写，压根就不是性能热点
 
+
+*****
+
+####  Litccc  
+##### 20187#       发表于 2026-11-13 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70506877&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-11-13 18:13</a>
+
+谷歌最近出的几个模型有点晕，有大佬总结一下吗？按astra、6.1sol、opus5.5为参照物，体感使用能力上都是什 ...</blockquote>
+4h=flash
+
+4a=pro
+
+4c=ultra
+
+
+*****
+
+####  ycjiang1337  
+##### 20188#       发表于 2026-11-13 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70507325&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-11-13 20:08</a>
+
+回顾之前泄露的梁子融资讲话，整个链条早就有问题了，国内主要买家后路因该准备很久了。
+
+感觉肥鱼今年一整 ...</blockquote>
+现在应该是用950训练的4.1Pro在跑了，中间耽误的时间实际上是在测试新架构和950
+
+*****
+
+####  Azcarlo  
+##### 20189#       发表于 2026-11-13 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70507183&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-13 19:30</a>
+
+按照DeepSeek9月开源的那一波基础设施，底层算子之类的都tilelang重写了，估计这块确实没用pytorch的了。 ...</blockquote>
+你在说什么，tilelang只是个算子库，训练就是跑在torch上的
+
