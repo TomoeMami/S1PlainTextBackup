@@ -12688,3 +12688,11 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 我觉得应该第二部合流，剧情上本来就说得过去
 
+
+*****
+
+####  JunkoPureFuries  
+##### 8606#       发表于 2026-11-13 11:52
+
+凯伊这养成好多啊<strong>，</strong><img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">后悔先玩了，而且好多人都养废了，想重开了
+
