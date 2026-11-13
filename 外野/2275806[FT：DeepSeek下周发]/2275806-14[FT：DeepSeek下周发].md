@@ -10853,3 +10853,16 @@ ds防反代？要出plan？
 ds防反代？要出plan？</blockquote>
 拿免费桌面版反代api，0731时就搞过一次
 
+
+*****
+
+####  andychen  
+##### 20178#       发表于 2026-11-13 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70506956&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-13 18:29</a>
+
+Ds桌面版上限额了，应该是4.1p防反代？</blockquote>
+GLM也上了，国内厂现在免费都有配额
+
+算力紧张的体现而已，不用过度解读
+
