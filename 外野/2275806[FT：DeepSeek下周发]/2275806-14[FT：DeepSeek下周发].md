@@ -10815,3 +10815,16 @@ Jio后续能用Hydrogen，就是不知道啥时候
 
 谷歌最近出的几个模型有点晕，有大佬总结一下吗？按astra、6.1sol、opus5.5为参照物，体感使用能力上都是什么位置的水平？用量怎么样呢
 
+
+*****
+
+####  陈八尺  
+##### 20174#       发表于 2026-11-13 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70506537&amp;ptid=2275806" target="_blank">匿名用户 发表于 2026-11-13 17:08</a>
+
+大家反代 Gemini 被封号，是什么使用场景下被封的？
+
+在 Orca / Herdr 这类 harness of harness 上，用 agy ...</blockquote>
+被封原因挺多的，IP、账号风险、异常流量都有可能，但反代反重力里的opus5.5来用基本都会死，因为我的两号就这么光速被封的<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
