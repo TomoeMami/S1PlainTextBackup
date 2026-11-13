@@ -5641,3 +5641,14 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 
 开了上古界域的飞翼祭坛才发现我初始地图的飞翼祭坛前面的铁门还没开，这下有去无回了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。感觉漏了好多，这个铁门是怎么开的？
 
+
+*****
+
+####  zero4166  
+##### 450#       发表于 2026-11-13 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70505303&amp;ptid=2293096" target="_blank">h33 发表于 2026-11-13 13:30</a>
+
+开了上古界域的飞翼祭坛才发现我初始地图的飞翼祭坛前面的铁门还没开，这下有去无回了。感觉漏了好多，这个 ...</blockquote>
+任何一个飞翼祭坛都能传送到初始的飞翼祭坛，传过去就能开门
+
