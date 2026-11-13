@@ -1515,3 +1515,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 水魔总这什么弱智强化
 
+
+*****
+
+####  khxooo  
+##### 21848#       发表于 2026-11-13 17:50
+
+周回增伤毫无卵用，为什么魔总的强化这么保守<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
