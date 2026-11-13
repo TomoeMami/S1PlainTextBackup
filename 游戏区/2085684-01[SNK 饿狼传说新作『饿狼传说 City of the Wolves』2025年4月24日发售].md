@@ -41,3 +41,13 @@
 拉奥孔两气有点儿超模了，虽然要两气发动，但是能清空热力槽以后再回一气，等于一个一气的超级取消清热力再 ...</blockquote>
 不限时的杰米喝假酒罢了，而且不变身不光强度弱好像血量还比正常角色低。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  人生オワタ  
+##### 868#       发表于 2026-11-13 23:05
+
+【饿狼传说：群狼之城｜「拉奥·高迪亚姆斯 VS 克劳萨」开发人员对战演示-哔哩哔哩】 [https://b23.tv/cFggw3L](https://b23.tv/cFggw3L)
+
+【饿狼传说：群狼之城｜「拉奥·高迪亚姆斯 VS 不知火舞」开发人员对战演示-哔哩哔哩】 [https://b23.tv/RVUusFa](https://b23.tv/RVUusFa)
+
