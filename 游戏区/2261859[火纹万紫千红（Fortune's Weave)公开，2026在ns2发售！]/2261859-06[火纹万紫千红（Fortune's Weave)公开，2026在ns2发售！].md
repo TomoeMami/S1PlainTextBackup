@@ -12667,3 +12667,14 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 如果都打了最后第三章资金就很宽裕了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罐子  
+##### 8604#       发表于 2026-11-13 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70503734&amp;ptid=2261859" target="_blank">57042711 发表于 2026-11-13 09:26</a>
+
+如果都打了最后第三章资金就很宽裕了</blockquote>
+第三章分一队盗贼板凳角色去挖沉船，钱根本不缺<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
