@@ -12621,3 +12621,14 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 新娘和迪托的外传还是建议都打的，能拿小手枪
 
+
+*****
+
+####  lls2388  
+##### 8600#       发表于 2026-11-13 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70480796&amp;ptid=2261859" target="_blank">whzfjd 发表于 2026-11-7 17:14</a>
+
+顶号会恢复吗</blockquote>
+风花雪月是苏自己不想顶，无双是顶了后又马上被贝雷特自己抢回了操作控制权
+
