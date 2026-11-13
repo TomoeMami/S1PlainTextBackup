@@ -11063,3 +11063,30 @@ Vertex AI 上的 Gemini 4 各个模型都能走赠金扣吧？
 
 ds没活了,只能开源官网炒热度
 
+
+*****
+
+####  流缨  
+##### 20197#       发表于 2026-11-13 22:30
+
+DeepSeek 发布全家桶应用 API
+今天，我们正式发布 DeepSeek 全家桶应用 API。
+        
+- 本次更新将 DeepSeek App（含网页端）的各项交互能力直接整合进原有 API。开启对应参数后，相关工具调用与上下文拼接均由服务端自动完成。目前已支持的功能包括：联网搜索、深度思考搜索、文件输入、阅读链接、模型安全。
+- 为方便更灵活地接入自有工作流，上述底层能力及语音能力均支持作为独立接口单独调用，包括：Search、Fetch、OCR、ASR、TTS。
+        
+开发者可据此在自建应用中轻松实现复杂的对话功能，甚至 1:1 复刻出完整的 DeepSeek App。各项能力的详细调用方式与计费规则，请参阅官方 API 文档。
+欢迎使用 DeepSeek API，尽情创造。
+        
+#deepseek    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  流缨  
+##### 20198#       发表于 2026-11-13 22:33
+
+看来 deepseek 马上要出 plan 了，chat 前端已经有了额度相关的提示
+
+二游月卡逐渐人头税化<img src="https://static.stage1st.com/image/smiley/face/166.gif" referrerpolicy="no-referrer">
+
