@@ -11143,3 +11143,15 @@ DeepSeek 发布全家桶应用 API
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  流缨  
+##### 20204#       发表于 2026-11-13 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70507856&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-11-13 22:46</a>
+怎么整这种烂活，这是我认识的ds吗？</blockquote>
+不算烂活，就是方便调用原生 DS 接口，虽然有相关需求的早都有了自己的解决方案，但如果是公司采购或者单一项目，一个 API 搞定显然后续维护方便很多
+
+但 DS 的 ASR 和 TTS 也只能说能用，OCR 算是有点优势但也没比过这方面做的久的 paddle    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
