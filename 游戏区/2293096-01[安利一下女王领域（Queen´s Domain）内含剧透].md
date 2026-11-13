@@ -5625,3 +5625,11 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 
 —— 来自 vivo V2301A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  妄想中毒  
+##### 448#       发表于 2026-11-13 13:16
+
+我找到厨师了才告诉我每个食物下面还有个餐券，我一个都没捡过这不坑人吗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

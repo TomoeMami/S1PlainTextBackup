@@ -10597,3 +10597,23 @@ outlook崩了三个小时还没修好，微软赤石去吧
 
 — from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  白日依山尽  
+##### 20153#       发表于 2026-11-13 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70504960&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-13 12:26</a>
+
+趁着谷歌讨论热度高，我问个问题：
+
+有没有坛友是在Win10下使用Antigravity的？</blockquote>
+感觉就是逼人给它所有权限
+
+*****
+
+####  HazukiShion  
+##### 20154#       发表于 2026-11-13 13:10
+
+好久没用 Gemini，看到头三月优惠订阅用了下这个反重力，怎么感觉还不如 Kimi Work。。。。。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

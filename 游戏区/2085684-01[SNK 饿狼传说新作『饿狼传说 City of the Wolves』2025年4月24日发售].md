@@ -22,3 +22,11 @@
 
 【【4K60帧】《饿狼传说：群狼之城》拉奥·高迪亚姆斯 vs 特瑞 开发者对战演示 | 来源：SNK OFFICIAL-哔哩哔哩】 [https://b23.tv/wbSSfoC](https://b23.tv/wbSSfoC)
 
+
+*****
+
+####  蕾丝控  
+##### 866#       发表于 2026-11-13 13:15
+
+拉奥孔两气有点儿超模了，虽然要两气发动，但是能清空热力槽以后再回一气，等于一个一气的超级取消清热力再加buff。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
