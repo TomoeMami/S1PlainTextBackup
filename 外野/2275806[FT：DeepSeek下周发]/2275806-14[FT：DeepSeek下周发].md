@@ -10828,3 +10828,28 @@ Jio后续能用Hydrogen，就是不知道啥时候
 在 Orca / Herdr 这类 harness of harness 上，用 agy ...</blockquote>
 被封原因挺多的，IP、账号风险、异常流量都有可能，但反代反重力里的opus5.5来用基本都会死，因为我的两号就这么光速被封的<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 20175#       发表于 2026-11-13 18:29
+
+Ds桌面版上限额了，应该是4.1p防反代？
+
+
+*****
+
+####  白日依山尽  
+##### 20176#       发表于 2026-11-13 18:34
+
+ds防反代？要出plan？
+
+*****
+
+####  Promeus  
+##### 20177#       发表于 2026-11-13 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70506973&amp;ptid=2275806" target="_blank">白日依山尽 发表于 2026-11-13 18:34</a>
+ds防反代？要出plan？</blockquote>
+拿免费桌面版反代api，0731时就搞过一次
+
