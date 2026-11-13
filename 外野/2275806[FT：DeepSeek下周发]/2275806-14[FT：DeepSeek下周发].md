@@ -10714,3 +10714,23 @@ modelscope上基本没有无审查模型，这块很难找到hf替代品
 
 为了下载模型不烧梯子流量，还写了个hf skill——用梯子解析真实下载地址，然后跳过软路由透明代理直连hf的CDN（aws亚太很快，几十MB/s）
 
+
+*****
+
+####  Kazuhira  
+##### 20164#       发表于 2026-11-13 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70503504&amp;ptid=2275806" target="_blank">Vneeto 发表于 2026-11-13 08:38</a>
+附议，是该冲水了，2w楼了。</blockquote>
+应该压缩下上下文了，保存点有价值的东西下来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 20165#       发表于 2026-11-13 16:01
+
+国模一直没有新东西，大模型楼也没有之前的热度了<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
