@@ -10388,3 +10388,34 @@ Gemini4 Hydrogen发布了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  clawdbot  
+##### 20134#       发表于 2026-11-13 08:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502063&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-11-12 21:37</a>
+
+那这楼标题90天不能改，都只能挂着qwen4了吗，qwen这得打钱吧？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  故障机器人  
+##### 20135#       发表于 2026-11-13 08:35
+
+hydrogen性价比比3.8f高吗
+
+*****
+
+####  lubo  
+##### 20136#       发表于 2026-11-13 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70503298&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-13 07:23</a>
+
+我昨天晚上早些时候网页上用也是没反应卡在那里，我以为是jio用不了。
+
+不过后来晚点又调通了，所以我怀疑 ...</blockquote>
+部署argon的服务器有问题，昨天付费会员在反重力也用不了argon，还以为是用反代被封号了
+
