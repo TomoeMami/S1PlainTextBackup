@@ -11199,3 +11199,19 @@ Google算力不够呀是真不够
 
 gemini 4 h 干简单的活确实可以，当初买的pxiel烂了半年，还算值
 
+
+*****
+
+####  陈八尺  
+##### 20209#       发表于 2026-11-14 00:10
+
+反重力三哥说了JIO未来也有hydrogen用，只是这个未来有多久就不好说了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zypyong  
+##### 20210#       发表于 2026-11-14 00:16
+
+gemini现在好强啊
+
