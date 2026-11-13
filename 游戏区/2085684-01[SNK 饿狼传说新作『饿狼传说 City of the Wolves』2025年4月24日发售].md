@@ -30,3 +30,14 @@
 
 拉奥孔两气有点儿超模了，虽然要两气发动，但是能清空热力槽以后再回一气，等于一个一气的超级取消清热力再加buff。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  孙吧星人  
+##### 867#       发表于 2026-11-13 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70505238&amp;ptid=2085684" target="_blank">蕾丝控 发表于 2026-11-13 13:15</a>
+
+拉奥孔两气有点儿超模了，虽然要两气发动，但是能清空热力槽以后再回一气，等于一个一气的超级取消清热力再 ...</blockquote>
+不限时的杰米喝假酒罢了，而且不变身不光强度弱好像血量还比正常角色低。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
