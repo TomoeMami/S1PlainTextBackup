@@ -5613,3 +5613,15 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 那个钥匙似乎打完boss以后可以直接从商店买（不确定条件），我是没有用过叉子后来直接从店里买了一个钥匙。 ...</blockquote>
 忘了是陵墓还是地下墓穴有个门坏的宝库 进去后就可以触发商人卖你一个鲜血钥石
 
+
+*****
+
+####  MTDlnZc  
+##### 447#       发表于 2026-11-13 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70504811&amp;ptid=2293096" target="_blank">sahhhh6x 发表于 2026-11-13 12:02</a>
+忘了是陵墓还是地下墓穴有个门坏的宝库 进去后就可以触发商人卖你一个鲜血钥石 ...</blockquote>
+解锁红钥石的宝库在海神地图，从神殿骷髅堆前的上坡向右飞能找到一个船员，接着往下走就能找到门碎了的宝库，进门调查骷髅边上的纸条，即可在商店解锁红色钥石
+
+—— 来自 vivo V2301A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
