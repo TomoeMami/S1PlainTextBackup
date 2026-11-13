@@ -11191,3 +11191,11 @@ Google算力不够呀是真不够
 
 我看他们根本就是懒得维护官方前端罢了~ (来几个好心的开发者帮我们做个看起来牛逼的前端罢） <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 20208#       发表于 2026-11-13 23:57
+
+gemini 4 h 干简单的活确实可以，当初买的pxiel烂了半年，还算值
+
