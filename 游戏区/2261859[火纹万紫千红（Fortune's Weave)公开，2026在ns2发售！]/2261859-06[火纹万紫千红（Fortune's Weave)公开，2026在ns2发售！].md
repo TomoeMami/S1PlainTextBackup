@@ -12645,3 +12645,17 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 说起来就幽默，现在火纹朱紫讲角色的视频都用种族值个体值了，挺贴切的，真朱.紫了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Losange  
+##### 8602#       发表于 2026-11-13 09:11
+
+<blockquote>罐子 发表于 2026-11-13 08:55
+纳尼，个体值计算器出来了？ 我去试一下
+
+说起来就幽默，现在火纹朱紫讲角色的视频都用种族值个体值了， ...</blockquote>
+出来有一阵了，可惜是我打完之后才有
+
+拆包其实还拆出了固定加点模式，就是不知道什么时候跟超难一起来了
+

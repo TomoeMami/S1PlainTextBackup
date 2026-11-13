@@ -10445,3 +10445,36 @@ hydrogen性价比比3.8f高吗
 
 outlook崩了三个小时还没修好，微软赤石去吧
 
+
+*****
+
+####  紧那罗  
+##### 20140#       发表于 2026-11-13 09:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502967&amp;ptid=2275806" target="_blank">剑影若兰 发表于 2026-11-13 00:40</a>
+何为续费流？</blockquote>
+仅限Google play的一个玩法。ChatGPT的订阅支持这样一种模式，比如我先按月订阅plus，然后在plus还剩比如5天的时候升级到PRO 20x。此时第一个订阅周期不会变，也就是5天后到期，同时费用也只需要补这5天的差额。
+听起来好像也没赚多少？但是因为GPT会发重置卡，所以如果你在剩余5天里用掉3张重置卡，那就相当于用了4个20x的周额度<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只适合短时间爆蹬，但确实能薅很多token的羊毛
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ttoady  
+##### 20141#       发表于 2026-11-13 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70503622&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-13 09:09</a>
+
+仅限Google play的一个玩法。ChatGPT的订阅支持这样一种模式，比如我先按月订阅plus，然后在plus还剩比如 ...</blockquote>
+草，我看了一下我18号到期，还有3张重置卡
+
+不过短时间没这么大需求
+
+*****
+
+####  陈八尺  
+##### 20142#       发表于 2026-11-13 09:13
+
+看来JIO用户在反重力得用3.8用到死了，Hydrogen都提示付费用户才能用<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
