@@ -11269,3 +11269,34 @@ Google算力不够呀是真不够
 
 这是用模型整理过的结果吧，吐出来的内容怕不是直接就进DS的训练语料库了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紧那罗  
+##### 20215#       发表于 2026-11-14 06:50
+
+<img src="https://img.stage1st.com/forum/202611/14/064925q7896770dydbk468.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_4278.jpeg</strong> (401.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-14 06:49 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">是时候狠狠整治GPT带来的歪风邪气了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  mitzvah  
+##### 20216#       发表于 2026-11-14 06:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70508372&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-14 06:50</a>
+
+是时候狠狠整治GPT带来的歪风邪气了
+
+论坛助手,iPhone</blockquote>
+hash不是蛮好的，现在下载文件被篡改得那么多，不查hash很危险的
+
