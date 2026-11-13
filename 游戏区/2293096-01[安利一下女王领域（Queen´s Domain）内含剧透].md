@@ -5710,3 +5710,14 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 
 这蝎尾狮什么b数值啊，在大伙都是几百血的地图就你一个两千多血，合适吗，都赶上半个boss了
 
+
+*****
+
+####  zero4166  
+##### 457#       发表于 2026-11-13 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70507010&amp;ptid=2293096" target="_blank">Algie 发表于 2026-11-13 18:44</a>
+
+这蝎尾狮什么b数值啊，在大伙都是几百血的地图就你一个两千多血，合适吗，都赶上半个boss了 ...</blockquote>
+吸血弯刀的放血斩两刀搞定
+

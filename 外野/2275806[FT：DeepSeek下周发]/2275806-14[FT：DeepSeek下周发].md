@@ -11155,3 +11155,18 @@ DeepSeek 发布全家桶应用 API
 
 但 DS 的 ASR 和 TTS 也只能说能用，OCR 算是有点优势但也没比过这方面做的久的 paddle    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  andychen  
+##### 20205#       发表于 2026-11-13 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70507854&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-13 22:45</a>
+
+麻了 谷歌这acp做的一堆问题 还得给它单独配个传声筒
+
+我说要不别做算了 直接开放第三方agent登陆认证有啥问 ...</blockquote>
+Google算力不够呀是真不够
+
+我今天调Google模型发现奇慢无比，怀疑是反代问题直接开Antigravity试了下，发现还是一样的慢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
