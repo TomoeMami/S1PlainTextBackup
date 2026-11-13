@@ -10507,3 +10507,13 @@ outlook崩了三个小时还没修好，微软赤石去吧
 
 今天正经用来工作制图，5.5非常听指令，图面稳定奇佳，以前要靠边骂骂咧咧边抽卡的事现在一个指令一步拆解好了很顺利（唯一的问题是我用的平台经常连接失败）
 
+
+*****
+
+####  startraveller  
+##### 20146#       发表于 2026-11-13 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70504181&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-11-13 10:34</a>
+没想到Hydrogen能斩杀1017</blockquote>
+甚至还有个 Helix 在灰测了
+
