@@ -10617,3 +10617,14 @@ outlook崩了三个小时还没修好，微软赤石去吧
 
 好久没用 Gemini，看到头三月优惠订阅用了下这个反重力，怎么感觉还不如 Kimi Work。。。。。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jyj256  
+##### 20155#       发表于 2026-11-13 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70505200&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-11-13 13:10</a>
+
+好久没用 Gemini，看到头三月优惠订阅用了下这个反重力，怎么感觉还不如 Kimi Work。。。。。。 ...</blockquote>
+前几天有人发现谷歌ais的漏洞 每个免费的谷歌ai key可以大锅饭用200次的Gemini4c 可以只爽了一天就被封了
+
