@@ -10993,3 +10993,13 @@ v4.1f切换比预期早
 按照DeepSeek9月开源的那一波基础设施，底层算子之类的都tilelang重写了，估计这块确实没用pytorch的了。 ...</blockquote>
 你在说什么，tilelang只是个算子库，训练就是跑在torch上的
 
+
+*****
+
+####  纸皮  
+##### 20190#       发表于 2026-11-13 20:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">蹬了一天难受死了，seedream生图牛逼，但我用的这平台不知道是被蹬炸了还是适配的不行，一直失败，一整天说最多的提示词就是重试
+
+中途受不了用回GPT立刻不爽得直接回来继续陪着炸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再也受不了banana的笨和GPT的不懂建筑了
+
