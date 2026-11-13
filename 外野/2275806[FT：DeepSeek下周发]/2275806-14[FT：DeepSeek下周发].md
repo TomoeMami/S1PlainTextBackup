@@ -11170,3 +11170,24 @@ Google算力不够呀是真不够
 
 我今天调Google模型发现奇慢无比，怀疑是反代问题直接开Antigravity试了下，发现还是一样的慢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lambl  
+##### 20206#       发表于 2026-11-13 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70507823&amp;ptid=2275806" target="_blank">流缨 发表于 2026-11-13 22:33</a>
+
+看来 deepseek 马上要出 plan 了，chat 前端已经有了额度相关的提示
+
+二游月卡逐渐人头税化    Re:Source ...</blockquote>
+是集美老是反代来RP，所以开限额了。
+
+
+*****
+
+####  一般市民  
+##### 20207#       发表于 2026-11-13 23:54
+
+我看他们根本就是懒得维护官方前端罢了~ (来几个好心的开发者帮我们做个看起来牛逼的前端罢） <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
