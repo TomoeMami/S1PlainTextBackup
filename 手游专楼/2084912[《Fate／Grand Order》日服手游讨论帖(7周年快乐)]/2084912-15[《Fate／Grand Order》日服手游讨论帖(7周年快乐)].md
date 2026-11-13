@@ -1523,3 +1523,14 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 周回增伤毫无卵用，为什么魔总的强化这么保守<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 21849#       发表于 2026-11-13 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70506790&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-11-13 17:50</a>
+
+周回增伤毫无卵用，为什么魔总的强化这么保守</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是绿卡 WYS还没有原谅绿卡
+

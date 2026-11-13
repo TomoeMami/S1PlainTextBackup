@@ -754,3 +754,43 @@ Ave Mujica 0th LIVE「Primo die in scaena」
 
        [https://x.com/bushiroad_works/status/2120879362526589297](https://x.com/bushiroad_works/status/2120879362526589297)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42215#       发表于 2026-11-13 19:38
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/13/193838sh1ldkcxkj5ckkdu.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-13_19-36-25.png</strong> (624.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-13 19:38 上传
+
+       [https://x.com/bang_dream_info/status/2121166196204880013](https://x.com/bang_dream_info/status/2121166196204880013)
+
+       [https://bang-dream.com/discographies/4295](https://bang-dream.com/discographies/4295)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42216#       发表于 2026-11-13 19:40
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/13/194006c7l7un7q1l9po35u.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-13_19-39-19.png</strong> (1 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-13 19:40 上传
+
+       [https://x.com/bang_dream_info/status/2121166427772293390](https://x.com/bang_dream_info/status/2121166427772293390)
+
+       [https://bang-dream.com/events/avemujica_anima-incorrupta](https://bang-dream.com/events/avemujica_anima-incorrupta)
+
