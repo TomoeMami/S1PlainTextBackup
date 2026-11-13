@@ -10754,3 +10754,15 @@ modelscope上基本没有无审查模型，这块很难找到hf替代品
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  nxmonitor  
+##### 20168#       发表于 2026-11-13 16:29
+
+<blockquote>cscbzcbz 发表于 2026-11-13 16:21
+这么大的事梁圣都不宣传一下还是太克制了
+
+论坛助手,iPhone</blockquote>
+要么是用950训练的，要么是他们不再用pytorch了，哪个都是好事，当然950训练是个大消息…
+
