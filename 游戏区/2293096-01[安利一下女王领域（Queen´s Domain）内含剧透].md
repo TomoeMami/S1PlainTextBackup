@@ -5779,3 +5779,14 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 知识之塔上层有个食物的小房间怎么开啊，开对面的房间的放两本书的机关也试了，血肉脸也清了，到底是哪个机 ...</blockquote>
 分散在两层，楼上书架还有个空的位置
 
+
+*****
+
+####  darkfall  
+##### 464#       发表于 2026-11-14 02:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70504676&amp;ptid=2293096" target="_blank">Algie 发表于 2026-11-13 11:41</a>
+
+翠谷反走知识塔没成，反走去遗忘监牢了，坐牢爽</blockquote>
+反走知识塔是要过监牢到一个有存档的洞穴，三格冲刺的时候利用拳套能跳到对面的一个洞，然后反过来继续跳跳
+
