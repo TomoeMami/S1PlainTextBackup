@@ -11034,3 +11034,24 @@ Vertex AI 上的 Gemini 4 各个模型都能走赠金扣吧？
 
 先问问，怕被反薅了
 
+
+*****
+
+####  zhanglei1943  
+##### 20194#       发表于 2026-11-13 22:17
+
+<img src="https://img.stage1st.com/forum/202611/13/221719yxaa03jn8ae7q3jl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (303.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-13 22:17 上传
+
+*****
+
+####  fzlong  
+##### 20195#       发表于 2026-11-13 22:17
+
+6.2sol的速度怎么这么快不适应了
+
