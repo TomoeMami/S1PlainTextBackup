@@ -10866,3 +10866,13 @@ GLM也上了，国内厂现在免费都有配额
 
 算力紧张的体现而已，不用过度解读
 
+
+*****
+
+####  startraveller  
+##### 20179#       发表于 2026-11-13 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70506299&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-11-13 16:29</a>
+要么是用950训练的，要么是他们不再用pytorch了，哪个都是好事，当然950训练是个大消息… ...</blockquote>
+应该既不用 n 卡训也不用 pytorch 了吧。Qwen4据说也切到真武了。
+
