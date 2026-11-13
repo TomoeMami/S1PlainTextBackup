@@ -10914,3 +10914,13 @@ Herdr就纯粹是个界面 我觉得不至于
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  med  
+##### 20183#       发表于 2026-11-13 19:52
+
+也就是说v4.1f和美团的longcat已经是在华为卡上炼出来的了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+v4.1f切换比预期早
+
