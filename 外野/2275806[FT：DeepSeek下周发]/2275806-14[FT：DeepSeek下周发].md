@@ -10887,3 +10887,18 @@ GLM也上了，国内厂现在免费都有配额
 要么是用950训练的，要么是他们不再用pytorch了，哪个都是好事，当然950训练是个大消息… ...</blockquote>
 不用pytorch是完全不可能的，换框架风险极高而收益几乎没有，等于连华为的生态大部分都没法用（现在华为也基本迁移到pytorch了），而且V4到V4.1F中间只隔了几个月，根本来不及
 
+
+*****
+
+####  紧那罗  
+##### 20181#       发表于 2026-11-13 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70506537&amp;ptid=2275806" target="_blank">匿名用户 发表于 2026-11-13 17:08</a>
+
+大家反代 Gemini 被封号，是什么使用场景下被封的？
+
+在 Orca / Herdr 这类 harness of harness 上，用 agy ...</blockquote>
+Herdr就纯粹是个界面 我觉得不至于
+
+扩展来说，走acp的应该都不构成异常。（a/不支持acp倒是个例外）
+
