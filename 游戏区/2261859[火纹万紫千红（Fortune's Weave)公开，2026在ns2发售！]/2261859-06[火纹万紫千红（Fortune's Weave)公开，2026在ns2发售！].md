@@ -12752,3 +12752,22 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  chiefshi  
+##### 8612#       发表于 2026-11-13 21:21
+
+莱拉都不锁血的吗，还以为一管血转移一下，亏了好多经验
+
+
+*****
+
+####  真田源次郎信繁  
+##### 8613#       发表于 2026-11-13 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70504754&amp;ptid=2261859" target="_blank">JunkoPureFuries 发表于 2026-11-13 11:52</a>
+
+凯伊这养成好多啊，后悔先玩了，而且好多人都养废了，想重开了</blockquote>
+我重开了一次凯伊线，然后出了给妮涅加了几点属性之外别人第三部基本都不用，因为第三部人物完全过剩，强度完全过剩，这难度完全没必要重开，等开超难再说吧
+
