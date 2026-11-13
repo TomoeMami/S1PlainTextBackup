@@ -5652,3 +5652,15 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 开了上古界域的飞翼祭坛才发现我初始地图的飞翼祭坛前面的铁门还没开，这下有去无回了。感觉漏了好多，这个 ...</blockquote>
 任何一个飞翼祭坛都能传送到初始的飞翼祭坛，传过去就能开门
 
+
+*****
+
+####  Kaornao  
+##### 451#       发表于 2026-11-13 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70503213&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-13 04:19</a>
+那三个机关需要用从初始岛第二个保存点小墓地方向的悬崖地洞里捡到的特殊投掷物扔中才会开 ...</blockquote>
+感谢，我还以为是要找拉杆，找了半天（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

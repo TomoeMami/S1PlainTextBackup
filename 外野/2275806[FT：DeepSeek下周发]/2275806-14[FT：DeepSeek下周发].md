@@ -10628,3 +10628,16 @@ outlook崩了三个小时还没修好，微软赤石去吧
 好久没用 Gemini，看到头三月优惠订阅用了下这个反重力，怎么感觉还不如 Kimi Work。。。。。。 ...</blockquote>
 前几天有人发现谷歌ais的漏洞 每个免费的谷歌ai key可以大锅饭用200次的Gemini4c 可以只爽了一天就被封了
 
+
+*****
+
+####  clawdbot  
+##### 20156#       发表于 2026-11-13 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70505180&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-11-13 13:07</a>
+
+我才发现牢g的hydrogen价格已经膨胀到10rmb input了 这玩啥啊抬走抬走
+
+— from motorola XT2603-1, Andro ...</blockquote>
+3.8 Flash的2倍，没啥用了，之前新闻稿都吹免费<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
