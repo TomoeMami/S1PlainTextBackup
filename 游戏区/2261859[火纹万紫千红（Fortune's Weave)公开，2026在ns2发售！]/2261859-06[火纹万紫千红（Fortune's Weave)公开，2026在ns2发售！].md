@@ -12659,3 +12659,11 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 拆包其实还拆出了固定加点模式，就是不知道什么时候跟超难一起来了
 
+
+*****
+
+####  57042711  
+##### 8603#       发表于 2026-11-13 09:26
+
+如果都打了最后第三章资金就很宽裕了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
