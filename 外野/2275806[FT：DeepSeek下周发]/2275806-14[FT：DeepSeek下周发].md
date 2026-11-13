@@ -10478,3 +10478,22 @@ outlook崩了三个小时还没修好，微软赤石去吧
 
 看来JIO用户在反重力得用3.8用到死了，Hydrogen都提示付费用户才能用<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  剑影若兰  
+##### 20143#       发表于 2026-11-13 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70503622&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-13 09:09</a>
+
+仅限Google play的一个玩法。ChatGPT的订阅支持这样一种模式，比如我先按月订阅plus，然后在plus还剩比如 ...</blockquote>
+薅点资本主义羊毛真是费劲啊<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 20144#       发表于 2026-11-13 10:34
+
+没想到Hydrogen能斩杀1017
+
