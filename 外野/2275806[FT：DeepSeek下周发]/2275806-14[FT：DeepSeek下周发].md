@@ -10674,3 +10674,33 @@ antigravity内体感用量计算和3.8flash一样
 
 24小时内连挂谷歌和A/的订阅，所幸额度都是用了个七七八八的，还是指望大肥鱼吧（
 
+
+*****
+
+####  jyj256  
+##### 20160#       发表于 2026-11-13 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70505763&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-11-13 15:02</a>
+
+24小时内连挂谷歌和A/的订阅，所幸额度都是用了个七七八八的，还是指望大肥鱼吧（ ...</blockquote>
+我的pg反代也被封了 正在申诉，不知道能不能解封
+
+
+*****
+
+####  moekyo  
+##### 20161#       发表于 2026-11-13 15:39
+
+前段时间 hugging face 被英伟达收购了，然后现在出了这事，感觉利好 modelscope 啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  奥柏伦亲王  
+##### 20162#       发表于 2026-11-13 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70505966&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-11-13 15:37</a>
+
+我的pg反代也被封了 正在申诉，不知道能不能解封</blockquote>
+我反重力反代被封，交了悔过书之后恢复了，这下只能-p了
+
