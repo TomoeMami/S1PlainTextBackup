@@ -11090,3 +11090,28 @@ DeepSeek 发布全家桶应用 API
 
 二游月卡逐渐人头税化<img src="https://static.stage1st.com/image/smiley/face/166.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novem  
+##### 20199#       发表于 2026-11-13 22:42
+
+估计PRO上了网页端就开始收费了
+
+*****
+
+####  紧那罗  
+##### 20200#       发表于 2026-11-13 22:45
+
+麻了 谷歌这acp做的一堆问题<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 还得给它单独配个传声筒
+
+我说要不别做算了 直接开放第三方agent登陆认证有啥问题吗 隔壁gpt也开了呀
+
+
+*****
+
+####  飞剪号  
+##### 20201#       发表于 2026-11-13 22:46
+
+怎么整这种烂活，这是我认识的ds吗？
+
