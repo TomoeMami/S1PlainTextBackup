@@ -12678,3 +12678,13 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 如果都打了最后第三章资金就很宽裕了</blockquote>
 第三章分一队盗贼板凳角色去挖沉船，钱根本不缺<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bsdlxy  
+##### 8605#       发表于 2026-11-13 11:15
+
+第三部的自由行动时间其实也还行，就是这个编队不太灵活，初期队少了点，出击数少了点
+
+我觉得应该第二部合流，剧情上本来就说得过去
+
