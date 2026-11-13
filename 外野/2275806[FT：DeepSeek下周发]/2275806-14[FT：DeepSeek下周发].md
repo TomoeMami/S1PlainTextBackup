@@ -11115,3 +11115,31 @@ DeepSeek 发布全家桶应用 API
 
 怎么整这种烂活，这是我认识的ds吗？
 
+
+*****
+
+####  qwased  
+##### 20202#       发表于 2026-11-13 22:48
+
+<img src="https://img.stage1st.com/forum/202611/13/224831uh3ifzalhfsh6i4s.jpg" referrerpolicy="no-referrer">
+
+<strong>195ACD20D4B9D25EA66592FCA1951C30.jpg</strong> (50.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-13 22:48 上传
+
+现在是购买GLM订阅的最好时机.jpg
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 20203#       发表于 2026-11-13 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70507862&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-13 22:48</a>
+现在是购买GLM订阅的最好时机.jpg</blockquote>
+唐圣活了！唐圣活了！
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
