@@ -10766,3 +10766,24 @@ modelscope上基本没有无审查模型，这块很难找到hf替代品
 论坛助手,iPhone</blockquote>
 要么是用950训练的，要么是他们不再用pytorch了，哪个都是好事，当然950训练是个大消息…
 
+
+*****
+
+####  HazukiShion  
+##### 20169#       发表于 2026-11-13 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70506299&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-11-13 16:29</a>
+
+要么是用950训练的，要么是他们不再用pytorch了，哪个都是好事，当然950训练是个大消息… ...</blockquote>
+训练肯定验证过了把，我记得之前开源 TileLang 那批里不就有反向传播的相关内容吗？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andychen  
+##### 20170#       发表于 2026-11-13 16:55
+
+Jio后续能用Hydrogen，就是不知道啥时候
+
+说不定要等明年3.8flash恢复原价<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

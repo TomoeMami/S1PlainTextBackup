@@ -5672,3 +5672,14 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 
 遗忘监牢纯靠吃辉光果和拍照模式能坚持多远？
 
+
+*****
+
+####  vidomina  
+##### 453#         楼主| 发表于 2026-11-13 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70506273&amp;ptid=2293096" target="_blank">Algie 发表于 2026-11-13 16:25</a>
+
+遗忘监牢纯靠吃辉光果和拍照模式能坚持多远？</blockquote>
+作者有心的，监牢其实并不大，绕下就到苍炎祭坛背面了。
+
