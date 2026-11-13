@@ -10902,3 +10902,15 @@ Herdr就纯粹是个界面 我觉得不至于
 
 扩展来说，走acp的应该都不构成异常。（a/不支持acp倒是个例外）
 
+
+*****
+
+####  startraveller  
+##### 20182#       发表于 2026-11-13 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70507089&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-11-13 19:05</a>
+不用pytorch是完全不可能的，换框架风险极高而收益几乎没有，等于连华为的生态大部分都没法用（现在华为 ...</blockquote>
+按照DeepSeek9月开源的那一波基础设施，底层算子之类的都tilelang重写了，估计这块确实没用pytorch的了。所以没有pytorch的指纹也是可能的。
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
