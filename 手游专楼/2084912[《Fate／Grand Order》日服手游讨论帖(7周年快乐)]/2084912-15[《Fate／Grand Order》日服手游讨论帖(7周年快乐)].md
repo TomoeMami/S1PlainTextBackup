@@ -1496,3 +1496,14 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 见好就收....杂贺就算了不抽了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21846#       发表于 2026-11-13 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70506561&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-11-13 17:11</a>
+
+可是今年非洲人出的5星数量还是不到萌新的3分之1啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但你石多 萌新现在2石 3000石够豹豹出20个5星绰绰有余
+
