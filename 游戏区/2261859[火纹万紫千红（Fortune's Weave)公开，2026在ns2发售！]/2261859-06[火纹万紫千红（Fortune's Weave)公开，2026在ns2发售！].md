@@ -12719,3 +12719,16 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 凯伊这养成好多啊，后悔先玩了，而且好多人都养废了，想重开了</blockquote>
 你不管先开哪个线都会交学费 后面都得重新玩
 
+
+*****
+
+####  JunkoPureFuries  
+##### 8609#       发表于 2026-11-13 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70505128&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-11-13 12:56</a>
+
+先玩凯伊线其实在剧情体验上看是比较合适的
+
+至于养废，反正你不管选哪个主角第一次玩肯定要牺牲不少，之 ...</blockquote>
+主要凹点工具出来后现在看几个角色的点数开始有点牙痒痒了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
