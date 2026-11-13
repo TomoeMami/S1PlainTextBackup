@@ -11003,3 +11003,24 @@ v4.1f切换比预期早
 
 中途受不了用回GPT立刻不爽得直接回来继续陪着炸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再也受不了banana的笨和GPT的不懂建筑了
 
+
+*****
+
+####  紧那罗  
+##### 20191#       发表于 2026-11-13 20:55
+
+配好gemini的acp，再让codex给这位新同事迁移好环境，正式让它上岗干活。
+
+给carbon分的第一个活以后吭哧吭哧干了一个小时给我看楞了 于是后头让astra又回检了下carbon干的事情
+
+想不到astra分析了一通还给carbon说好话<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说一个是它刚来确实环境不熟悉 二个是它干活的时候发现了几个过去我遗留的小问题 顺便给修了
+
+*****
+
+####  startraveller  
+##### 20192#       发表于 2026-11-13 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70507348&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-11-13 20:17</a>
+伪随机数生成器这部分根本不需要重写，压根就不是性能热点</blockquote>
+这倒也确实
+
