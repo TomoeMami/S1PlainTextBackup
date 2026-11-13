@@ -12708,3 +12708,14 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 至于养废，反正你不管选哪个主角第一次玩肯定要牺牲不少，之后打个二周目补上去就好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maojiashu  
+##### 8608#       发表于 2026-11-13 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70504754&amp;ptid=2261859" target="_blank">JunkoPureFuries 发表于 2026-11-13 11:52</a>
+
+凯伊这养成好多啊，后悔先玩了，而且好多人都养废了，想重开了</blockquote>
+你不管先开哪个线都会交学费 后面都得重新玩
+
