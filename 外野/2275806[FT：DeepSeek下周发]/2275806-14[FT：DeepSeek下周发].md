@@ -11300,3 +11300,25 @@ Google算力不够呀是真不够
 论坛助手,iPhone</blockquote>
 hash不是蛮好的，现在下载文件被篡改得那么多，不查hash很危险的
 
+
+*****
+
+####  warlock228  
+##### 20217#       发表于 2026-11-14 06:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">用不上6.2sol好急啊，O你到底要等爆菊时机等到啥时候
+<img src="https://picui.ogmua.cn/s1/2026/11/14/6af795de26523.webp" referrerpolicy="no-referrer">
+
+
+*****
+
+####  紧那罗  
+##### 20218#       发表于 2026-11-14 07:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70508375&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-14 06:53</a>
+hash不是蛮好的，现在下载文件被篡改得那么多，不查hash很危险的</blockquote>
+GPT会做很多无用hash。上面我让他写个自用的脚本发出来它都要额外带一份sha256，这特么有何意义<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">。
+我所以我说GPT干活像个不粘锅同事，这就好像你随手找他要一份文件，他都要递给你一个签字表签收。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
