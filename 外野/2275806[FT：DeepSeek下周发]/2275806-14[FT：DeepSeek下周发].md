@@ -10734,3 +10734,23 @@ modelscope上基本没有无审查模型，这块很难找到hf替代品
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  nxmonitor  
+##### 20166#       发表于 2026-11-13 16:17
+
+今天的重要消息是openai前研究员为了抓英伟达偷偷卖卡，结果疑似证明4.1F是950训练的…
+
+
+*****
+
+####  cscbzcbz  
+##### 20167#       发表于 2026-11-13 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70506218&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-11-13 16:17</a>
+今天的重要消息是openai前研究员为了抓英伟达偷偷卖卡，结果疑似证明4.1F是950训练的… ...</blockquote>
+这么大的事梁圣都不宣传一下<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是太克制了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
