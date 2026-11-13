@@ -11240,3 +11240,32 @@ Google算力不够呀是真不够
 是集美老是反代来RP，所以开限额了。</blockquote>
 集美没那个脑子反代，防的是中转站
 
+
+*****
+
+####  andychen  
+##### 20213#       发表于 2026-11-14 02:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70508143&amp;ptid=2275806" target="_blank">匿名用户 发表于 2026-11-14 00:49</a>
+
+我这首字时间看下来，实际只有 hydrogen 可用。</blockquote>
+和我的体验差不多，推理速度还可以，预填充速度慢得离谱
+
+
+*****
+
+####  andychen  
+##### 20214#       发表于 2026-11-14 02:15
+
+花了点时间把DS搜索部署成主力搜索服务了，运行测试时carbon来了句
+
+<img src="https://img.stage1st.com/forum/202611/14/021443pfkeletxihtzteit.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-14 02:14 上传
+
+这是用模型整理过的结果吧，吐出来的内容怕不是直接就进DS的训练语料库了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
