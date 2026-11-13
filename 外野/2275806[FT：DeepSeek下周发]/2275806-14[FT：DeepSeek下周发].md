@@ -10924,3 +10924,34 @@ Herdr就纯粹是个界面 我觉得不至于
 
 v4.1f切换比预期早
 
+
+*****
+
+####  一般市民  
+##### 20184#       发表于 2026-11-13 20:08
+
+回顾之前泄露的梁子融资讲话，整个链条早就有问题了，国内主要买家后路因该准备很久了。
+
+感觉肥鱼今年一整年都挺折腾，V4春季才堪堪扔个预览版出来，然后是0731-0813，8月底紧急扔个缝了视觉的测试版，9月就是全新的4.1，隔一个月扔了1017。剩下一个半月没有大肥鱼也有小肥鱼新检查点吧？
+
+
+*****
+
+####  ycjiang1337  
+##### 20185#       发表于 2026-11-13 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70507183&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-13 19:30</a>
+
+按照DeepSeek9月开源的那一波基础设施，底层算子之类的都tilelang重写了，估计这块确实没用pytorch的了。 ...</blockquote>
+然而那一波基础设施本来就直接用vllm改的，最后vllm测出来吞吐量差不多（因为vllm自己把开源的算子都集成进去了）
+
+*****
+
+####  ycjiang1337  
+##### 20186#       发表于 2026-11-13 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70507183&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-13 19:30</a>
+
+按照DeepSeek9月开源的那一波基础设施，底层算子之类的都tilelang重写了，估计这块确实没用pytorch的了。 ...</blockquote>
+伪随机数生成器这部分根本不需要重写，压根就不是性能热点
+
