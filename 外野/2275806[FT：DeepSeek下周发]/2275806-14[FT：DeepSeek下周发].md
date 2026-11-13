@@ -10876,3 +10876,14 @@ GLM也上了，国内厂现在免费都有配额
 要么是用950训练的，要么是他们不再用pytorch了，哪个都是好事，当然950训练是个大消息… ...</blockquote>
 应该既不用 n 卡训也不用 pytorch 了吧。Qwen4据说也切到真武了。
 
+
+*****
+
+####  ycjiang1337  
+##### 20180#       发表于 2026-11-13 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70506299&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-11-13 16:29</a>
+
+要么是用950训练的，要么是他们不再用pytorch了，哪个都是好事，当然950训练是个大消息… ...</blockquote>
+不用pytorch是完全不可能的，换框架风险极高而收益几乎没有，等于连华为的生态大部分都没法用（现在华为也基本迁移到pytorch了），而且V4到V4.1F中间只隔了几个月，根本来不及
+
