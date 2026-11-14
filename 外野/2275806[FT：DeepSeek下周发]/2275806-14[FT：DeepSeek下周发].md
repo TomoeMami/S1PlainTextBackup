@@ -11996,3 +11996,11 @@ hy4更加雷霆，所有署名全部署deepseek-v4.1-flash，我查了思维记�
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  The_Ether_  
+##### 20275#       发表于 2026-11-14 16:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">在DeepSeek harness里面用ACP连Gemini，感觉跟直接在反重力里用差好多。一样的提示词围绕某个课题按照特定格式写综述，一边提示四五次还是一坨另一边一次成。
+
