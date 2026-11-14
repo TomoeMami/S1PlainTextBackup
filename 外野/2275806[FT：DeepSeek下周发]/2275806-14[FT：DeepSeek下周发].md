@@ -11694,3 +11694,91 @@ oa两家都有各种专家标注数据做强化学习和sft什么的，国模厂
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  andychen  
+##### 20249#       发表于 2026-11-14 12:58
+
+蒸馏的一大作用是让小参数模型具备接近大参数模型的能力，换句话说是一个缓解算力瓶颈的有效手段。不能蒸以后算力瓶颈的问题更突出了
+
+*****
+
+####  qz66618  
+##### 20250#       发表于 2026-11-14 12:59
+
+科研方面的提升我一直认为只是数据问题而不是训练能力问题，大参数模型的优势也正是体现在这些泛化性的领域的表现（老生常谈的世界知识和说人话等等），目前小模型更偏向于专精特定的几个领域，在面临一些范围更广更交叉的任务会不尽如人意，大模型+小模型应该是工作最忧解，dsh的agent team功能感觉也是朝着这个方向设计的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qwased  
+##### 20251#       发表于 2026-11-14 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509214&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-14 12:53</a>
+蒸馏应该早就不是主要提升性能的手段了
+
+现在主要还真是数据问题</blockquote>
+就是烧钱啊
+腾讯刚上了自己的数据标注打工平台，现在有进取心有资源的团队都会寻求自己的数据来源
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 20252#       发表于 2026-11-14 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509195&amp;ptid=2275806" target="_blank">小妻水亚美 发表于 2026-11-14 12:48</a>
+所以到底是a畜有独家秘笈还有因为国内算力或者是语料数据不足的原因拖累？蒸馏的话其实肯定互相蒸馏的，就 ...</blockquote>
+算力差距
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qz66618  
+##### 20253#       发表于 2026-11-14 13:03
+
+OA训练模型感觉都已经是合成数据占一定比重或者是大多数了，合成数据的前提就是模型要够强，然后用这些数据再训练新模型，这也是一种左脚踩右脚式的提升
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  andychen  
+##### 20254#       发表于 2026-11-14 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509214&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-14 12:53</a>
+
+蒸馏应该早就不是主要提升性能的手段了
+
+现在主要还真是数据问题</blockquote>
+<img src="https://substackcdn.com/image/fetch/$s_!U8e4!,w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F0327e1f0-2057-4961-b0ba-d7eb63abac64_1935x1212.png" referrerpolicy="no-referrer">
+
+前沿实验室的算力投入已经大幅偏向强化学习。不管对哪家，优质语料库在今年上半年就已经差不多耗尽了。OA今年才开始实质性对蒸馏动刀也有这方面的原因
+
+至于KIMI，我觉得他们更多是打算在产品端发力
+
+*****
+
+####  qwased  
+##### 20255#       发表于 2026-11-14 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509263&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-11-14 13:03</a>
+OA训练模型感觉都已经是合成数据占一定比重或者是大多数了，合成数据的前提就是模型要够强，然后用这些数据 ...</blockquote>
+合成数据也要人打标了才能用的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">归根结底就是烧钱烧人
+而且a/现在掉队了，gpt断层第一然后a/和g一个梯队的
+
+
+*****
+
+####  qz66618  
+##### 20256#       发表于 2026-11-14 13:07
+
+强化学习的路子我感觉是对的，但是怎么在万亿参数上进行强化学习是个难题，glm之前那个采访虽然不知道是不是真的，但是感觉他们没打算往这个方向走，还是想走监督微调和面向编程能力的提升，所以我对glm5.5也没报太大的希望
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -5857,3 +5857,13 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ku2154513  
+##### 472#       发表于 2026-11-14 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70508270&amp;ptid=2293096" target="_blank">darkfall 发表于 2026-11-14 02:47</a>
+编辑，看成要两本书的那个了，印象中如果是铁笼子房间都是边上的书架放书 ...</blockquote>
+我后来也找到了，经典眼瞎找机关找半小时，结果就在门口
+
