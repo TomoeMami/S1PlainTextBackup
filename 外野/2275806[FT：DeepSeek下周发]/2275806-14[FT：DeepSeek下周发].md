@@ -12220,3 +12220,25 @@ pro 那点额度，聊几句天都能超标，写代码得加钱上 ultra
 pro 那点额度，聊几句天都能超标，写代码得加钱上 ultra</blockquote>
 同20刀价位的6.1sol和opus5.5的额度比谷歌给的多不少吧，至少chat下一般是摸不到5小时限额
 
+
+*****
+
+####  HazukiShion  
+##### 20293#       发表于 2026-11-14 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510632&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-14 20:26</a>
+
+我一直觉得国内应该搞数据公司，就跟铁塔集团类似，就让央企牵头，把知网，社科文献中心之类的数据组织起来 ...</blockquote>
+不是有了吗？好像叫啥国家数据集团公司来着？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一般市民  
+##### 20294#       发表于 2026-11-14 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510632&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-14 20:26</a>
+
+我一直觉得国内应该搞数据公司，就跟铁塔集团类似，就让央企牵头，把知网，社科文献中心之类的数据组织起来 ...</blockquote>
+我怀疑已经有类似的组织了，从1017开始国模陆续更新看了一堆测试，大家好像都拿到了类似的前端训练用数据，3D建模啥的看起来基本都一个味，差别就是各家微调还有参数规模的影响了。
+
