@@ -12346,3 +12346,14 @@ pi install npm:pi-niubash-windows
 
 有兴趣的坛友可以试试
 
+
+*****
+
+####  jinuzuktII  
+##### 20303#       发表于 2026-11-15 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511220&amp;ptid=2275806" target="_blank">zxc786 发表于 2026-11-14 23:32</a>
+
+那其实最优解是租赁境外云服务器？</blockquote>
+我看推上的 AI 嘉豪有提过租微软的用来跑 claude
+
