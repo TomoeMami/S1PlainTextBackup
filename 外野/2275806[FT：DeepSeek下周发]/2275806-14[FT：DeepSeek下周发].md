@@ -12357,3 +12357,43 @@ pi install npm:pi-niubash-windows
 那其实最优解是租赁境外云服务器？</blockquote>
 我看推上的 AI 嘉豪有提过租微软的用来跑 claude
 
+
+*****
+
+####  冤枉呐  
+##### 20304#       发表于 2026-11-15 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510266&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-14 18:35</a>
+你是不是看错了，楼上说的云主机是当终端用的，用来多设备同步，还是要调API的，不是本地算力。
+
+论坛助 ...</blockquote>
+我的意思是，租个云主机自己部署模型
+与之相对的是调DeepSeek官方api这一种
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  冤枉呐  
+##### 20305#       发表于 2026-11-15 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510352&amp;ptid=2275806" target="_blank">我就再氪一单 发表于 2026-11-14 19:07</a>
+搞瑟瑟那只有海外的了吧
+别说运营商了，bat都肯定都要备案的</blockquote>
+所以
+海外有推荐不
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  冤枉呐  
+##### 20306#       发表于 2026-11-15 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510472&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-11-14 19:46</a>
+我是魔都电信299用户，最近去营业厅开了个天翼云电脑，8g/120g的，套餐里就有的额度，反正没收我钱。 ...</blockquote>
+我司发电话费只能消费话费，我一直买移动的套餐
+很贵，奈何发的电话费核销的
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
