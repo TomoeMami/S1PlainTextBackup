@@ -1566,3 +1566,14 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 2026-11-14 17:15 上传
 
+
+*****
+
+####  exiaexa  
+##### 21851#       发表于 2026-11-14 18:41
+
+这波喂饭太明显了草
+
+全都是光炮+ex一套，插个邪马台双人组能省不少事
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
