@@ -11851,3 +11851,23 @@ ai产业实质上是重工业，既重 ...</blockquote>
 每2、3步（这还是我勒令优化后的）截一次屏+OCR再审核
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">carbon说把这些全砍了应该10分钟就结束了
 
+
+*****
+
+####  hugosol  
+##### 20262#       发表于 2026-11-14 14:18
+
+dot就是看grokbot火了就跟进又没弄明白grokbot卖点在哪
+
+这玩意重点就不是什么持久化而是在agent上面再套一层壳让普通人用起来更方便，而且bot能互相分享把生态做起来
+
+大概是知识的诅咒吧，目前日常工作都已经跟agent深度绑定的人群反而很难想象一般人该从什么角度切入
+
+
+*****
+
+####  andychen  
+##### 20263#       发表于 2026-11-14 14:20
+
+Google更新了Antigravity的模型可用列表，白嫖的Pro会员应该马上有Hydrogen了
+
