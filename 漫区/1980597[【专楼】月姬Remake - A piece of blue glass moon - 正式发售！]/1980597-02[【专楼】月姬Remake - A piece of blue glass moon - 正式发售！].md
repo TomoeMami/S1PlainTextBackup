@@ -148,3 +148,13 @@ FGO死了月姬R活了？
 
 但我印象里澄空翻译的魔夜里面，青子独白说觉得告诉别人自己是魔法使是一件很浪漫的事情（太久了，不确定是不是曼德拉效应），要是考虑这一句，那就是开篇提醒读者注意青子的CP是志贵而不是草十郎<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  顾然  
+##### 1675#       发表于 2026-11-14 09:52
+
+安卓汉化b站有人做了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
