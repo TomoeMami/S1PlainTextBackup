@@ -379,3 +379,29 @@ MuMu-20261108-023307-521.jpg
 
 两个号都打完认定战了，日服不懂机制用了三令咒，国服大号直接给你来个3T闪大王<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 48325#       发表于 2026-11-14 08:23
+
+<img src="https://img.stage1st.com/forum/202611/14/082301jn97ecm7ipb7g7ag.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1794615779464_2.webp</strong> (287.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-14 08:23 上传
+
+<img src="https://img.stage1st.com/forum/202611/14/082301oyxgjf1wdh6k68bf.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1794615779779_3.webp</strong> (290.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-14 08:23 上传
+
+抽上头了，在水玉井了，明年完蛋
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
