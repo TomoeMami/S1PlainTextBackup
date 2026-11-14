@@ -12101,3 +12101,48 @@ Hydrogen 很慢是正常的吗？做个 PPT 已经等了快15分钟了一直显�
 
 —— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  冤枉呐  
+##### 20283#       发表于 2026-11-14 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509973&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-14 16:58</a>
+这个能选的面太广了，具体得依着你的需求和网络情况来
+
+总的来说国内的主机贵，海外的便宜，但是国内直连 ...</blockquote>
+首先上云了数据安全就算求了
+那么，国内云应该审查比较严格？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  冤枉呐  
+##### 20284#       发表于 2026-11-14 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510015&amp;ptid=2275806" target="_blank">我就再氪一单 发表于 2026-11-14 17:13</a>
+第一反应是三大运营商？
+看了一下2核4G内存默认系统盘默认带宽的价格
+移不动50块/月</blockquote>
+其实不调api的原因无非就是保密和nsfw
+无论如何保密在云主机上都是笑话
+所以nsfw就是云主机需求了
+那问题来了，运营商审查啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  紧那罗  
+##### 20285#       发表于 2026-11-14 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510256&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-14 18:29</a>
+其实不调api的原因无非就是保密和nsfw
+无论如何保密在云主机上都是笑话
+所以nsfw就是云主机需求了</blockquote>
+你是不是看错了，楼上说的云主机是当终端用的，用来多设备同步，还是要调API的，不是本地算力。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
