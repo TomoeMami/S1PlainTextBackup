@@ -12253,3 +12253,16 @@ pro 那点额度，聊几句天都能超标，写代码得加钱上 ultra</block
 咨询个小问题，比如dsh这种harness，实现在不同电脑实现多端同步，有什么好的方案? ...</blockquote>
 我用的是hermes，在一台24×7的mac mini上部署完，然后台式机PC，笔记本PC，macbook上的hermes都通过远程网关连到这台mac mini。设备在外网的时候通过tailscale组网，这样跟在内网环境一样。如果设备没有安装客户端的条件，hermes还可以通过web访问远程网关的desktop界面，这个似乎是最近的新功能。最后手机上也可能通过tailscale，安装hermex连接远程网关。
 
+
+*****
+
+####  zivilyn  
+##### 20296#       发表于 2026-11-14 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509877&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-14 16:23</a>
+
+那过去24小时数据对比了下速度，直观感觉ds/opus都比较快。
+
+carbon我直观感觉比astra还慢，但纯token效率 ...</blockquote>
+想问下这个速度是GPT的常态吗？最近几天刚开始用，感觉实在是有点慢……
+

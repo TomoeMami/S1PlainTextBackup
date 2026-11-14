@@ -6026,3 +6026,16 @@ i奥
 
 是更新的原因吗，刚在下斗程序崩溃了，头一次遇上。整自闭了，之前半小时左右的流程没存<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tatara  
+##### 488#       发表于 2026-11-14 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510908&amp;ptid=2293096" target="_blank">28201 发表于 2026-11-14 21:34</a>
+
+是更新的原因吗，刚在下斗程序崩溃了，头一次遇上。整自闭了，之前半小时左右的流程没存 ...</blockquote>
+别怕，这游戏其实有防崩溃的自动存档机制。之前我也崩溃过好几次，结果每次进游戏都没怎么掉进度。
+
+当然游戏里正常死亡那是不会有自动存档的，刻意复古这一块<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
