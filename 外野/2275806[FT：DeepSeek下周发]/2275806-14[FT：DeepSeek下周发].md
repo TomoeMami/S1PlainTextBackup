@@ -12242,3 +12242,14 @@ pro 那点额度，聊几句天都能超标，写代码得加钱上 ultra</block
 我一直觉得国内应该搞数据公司，就跟铁塔集团类似，就让央企牵头，把知网，社科文献中心之类的数据组织起来 ...</blockquote>
 我怀疑已经有类似的组织了，从1017开始国模陆续更新看了一堆测试，大家好像都拿到了类似的前端训练用数据，3D建模啥的看起来基本都一个味，差别就是各家微调还有参数规模的影响了。
 
+
+*****
+
+####  zivilyn  
+##### 20295#       发表于 2026-11-14 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509109&amp;ptid=2275806" target="_blank">zxc786 发表于 2026-11-14 12:24</a>
+
+咨询个小问题，比如dsh这种harness，实现在不同电脑实现多端同步，有什么好的方案? ...</blockquote>
+我用的是hermes，在一台24×7的mac mini上部署完，然后台式机PC，笔记本PC，macbook上的hermes都通过远程网关连到这台mac mini。设备在外网的时候通过tailscale组网，这样跟在内网环境一样。如果设备没有安装客户端的条件，hermes还可以通过web访问远程网关的desktop界面，这个似乎是最近的新功能。最后手机上也可能通过tailscale，安装hermex连接远程网关。
+
