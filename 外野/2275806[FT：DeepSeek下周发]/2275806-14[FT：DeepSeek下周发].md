@@ -12461,3 +12461,20 @@ Kimicode更新了个弱智功能，会把同一个用户回合里连续发起的
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  宅男的爱  
+##### 20313#       发表于 2026-11-15 04:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511220&amp;ptid=2275806" target="_blank">zxc786 发表于 2026-11-14 23:32</a>
+
+那其实最优解是租赁境外云服务器？</blockquote>
+看你要干嘛
+
+LLM最早的形态是Chatbox，所以给人一种AI天生上云的感觉。Agent时代会产生很多重资产，没法一键同步
+
+所以现在Workbuddy这类Agent的思路还是远程控制
+
+一旦玩云主机，相当于你自己给你开发了一个网络AI运用，这一路的运维，安全，存储成本不会因为AI时代就更便宜
+
