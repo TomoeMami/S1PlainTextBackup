@@ -5951,3 +5951,43 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 
 再不济就重开一下，顶多就20-30分钟拿2飞。上步枪的话更快一些。
 
+
+*****
+
+####  Sabbah  
+##### 481#       发表于 2026-11-14 19:00
+
+i奥
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510227&amp;ptid=2293096" target="_blank">Asukalangley33 发表于 2026-11-14 18:19</a>
+
+拿到2层冲刺的剑以后就去了井底，一路狂奔摸到一个篝火，现在回不去了怎么破
+
+怪打不过，死命跑到一个地下去 ...</blockquote>
+步行回去按2段跳的数值基本没辙吧，飞翼祭坛离一层篝火其实没那么远，但是被眼睛扫到估计就死了，展现身法的时候到了。
+
+
+*****
+
+####  Asukalangley33  
+##### 482#       发表于 2026-11-14 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510329&amp;ptid=2293096" target="_blank">Sabbah 发表于 2026-11-14 19:00</a>
+
+步行回去按2段跳的数值基本没辙吧，飞翼祭坛离一层篝火其实没那么远，但是被眼睛扫到估计就死了，展现身法 ...</blockquote>
+好不容易扭动回去了
+
+然后因为地下又黑路又窄
+
+直接给我干的晕3D了
+
+*****
+
+####  hkguty  
+##### 483#       发表于 2026-11-14 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510095&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-14 17:36</a>
+
+所以后面有官方透视高亮挂，然而还是很烦，结局34还要求全收集这些比玩意。 ...</blockquote>
+原来透视是这个意思····那我肯定得搞一个
+
