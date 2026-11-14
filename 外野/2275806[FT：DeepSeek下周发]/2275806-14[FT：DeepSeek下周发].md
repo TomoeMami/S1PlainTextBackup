@@ -12004,3 +12004,33 @@ hy4更加雷霆，所有署名全部署deepseek-v4.1-flash，我查了思维记�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">在DeepSeek harness里面用ACP连Gemini，感觉跟直接在反重力里用差好多。一样的提示词围绕某个课题按照特定格式写综述，一边提示四五次还是一坨另一边一次成。
 
+
+*****
+
+####  andychen  
+##### 20276#       发表于 2026-11-14 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509610&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-14 14:41</a>
+
+云主机有啥推荐不
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v4.0</blockquote>
+这个能选的面太广了，具体得依着你的需求和网络情况来
+
+总的来说国内的主机贵，海外的便宜，但是国内直连海外连接可能不稳定。硬件需要多好取决于你要运行的服务，如果要云端部署DSH这种Harness建议最低4G内存 2CPU 20G硬盘
+
+
+*****
+
+####  andychen  
+##### 20277#       发表于 2026-11-14 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509877&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-14 16:23</a>
+
+那过去24小时数据对比了下速度，直观感觉ds/opus都比较快。
+
+carbon我直观感觉比astra还慢，但纯token效率 ...</blockquote>
+Google后端的预填充速度有问题，所有模型大厂里最慢的，而且是数量级的差距
+
+感觉他们集中优化Agentic Coding场景了。因为这个场景下缓存命中率高，第一次请求以后速度还能接受。但是其他用途就有点惨了
+
