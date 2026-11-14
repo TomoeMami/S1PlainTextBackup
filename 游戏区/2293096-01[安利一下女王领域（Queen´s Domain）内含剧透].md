@@ -5905,3 +5905,15 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 前面砍怪有点无聊啊，这游戏的收集物视力不好的话真不容易找到</blockquote>
 所以后面有官方透视高亮挂<img src="https://static.stage1st.com/image/smiley/face2017/049.png">，然而还是很烦，结局34还要求全收集这些比玩意。
 
+
+*****
+
+####  tatara  
+##### 477#       发表于 2026-11-14 18:02
+
+接近50个小时达成全成就，拿到一刀999的倪克斯荆棘剑了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+其实结局3对我这个喜欢舔图的来讲都算是还好的程度，过程还是蛮有乐子的。但结局4哪怕是我都有点受不住了，这些个头骨位置是人能想出来的吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且最让我无力的是，等头骨齐了门开了，里面隧道里能捡到个功能是自由传送水晶的鸽子化石，我真是差点爆粗<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
