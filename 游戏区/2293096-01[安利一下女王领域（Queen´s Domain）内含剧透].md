@@ -5936,3 +5936,18 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 
 重型步枪这玩意的弹道偏右啊，不是对着准星中间的，得往左瞄一点
 
+
+*****
+
+####  christiny  
+##### 480#       发表于 2026-11-14 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510227&amp;ptid=2293096" target="_blank">Asukalangley33 发表于 2026-11-14 18:19</a>
+
+拿到2层冲刺的剑以后就去了井底，一路狂奔摸到一个篝火，现在回不去了怎么破
+
+怪打不过，死命跑到一个地下去 ...</blockquote>
+可以去B站搜一下误入地底的视频....
+
+再不济就重开一下，顶多就20-30分钟拿2飞。上步枪的话更快一些。
+

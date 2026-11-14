@@ -1577,3 +1577,19 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 全都是光炮+ex一套，插个邪马台双人组能省不少事
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 21852#       发表于 2026-11-14 18:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我用一杯水弹正梅林挂机打
+
+
+*****
+
+####  angelooo  
+##### 21853#       发表于 2026-11-14 18:54
+
+这柱子掉的材料好无趣啊
+
