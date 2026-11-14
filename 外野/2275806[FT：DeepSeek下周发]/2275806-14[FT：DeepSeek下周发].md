@@ -12266,3 +12266,16 @@ pro 那点额度，聊几句天都能超标，写代码得加钱上 ultra</block
 carbon我直观感觉比astra还慢，但纯token效率 ...</blockquote>
 想问下这个速度是GPT的常态吗？最近几天刚开始用，感觉实在是有点慢……
 
+
+*****
+
+####  紧那罗  
+##### 20297#       发表于 2026-11-14 22:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510936&amp;ptid=2275806" target="_blank">zivilyn 发表于 2026-11-14 21:42</a>
+想问下这个速度是GPT的常态吗？最近几天刚开始用，感觉实在是有点慢…… ...</blockquote>
+基本上是的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+不过我这是astra，用sol的话应该还是要快不少
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
