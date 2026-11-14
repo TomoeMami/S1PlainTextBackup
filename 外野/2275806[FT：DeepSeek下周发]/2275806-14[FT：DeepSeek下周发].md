@@ -12068,3 +12068,13 @@ dot 这东西，反正挺难想象在 o÷ 这里的实际意义，完全想不�
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 20280#       发表于 2026-11-14 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509876&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-11-14 16:23</a>
+Hydrogen 很慢是正常的吗？做个 PPT 已经等了快15分钟了一直显示 Working。。。。。 ...</blockquote>
+有时候是网络问题
+
