@@ -11558,3 +11558,139 @@ agent刚开始时国模根本不行的
 
 要我说的话去年底的 4.5 和现在 5.5 已经感受到边际效益递减，那时候真的惊为天人。现在都没有这个感觉了
 
+
+*****
+
+####  小妻水亚美  
+##### 20240#       发表于 2026-11-14 12:48
+
+所以到底是a畜有独家秘笈还有因为国内算力或者是语料数据不足的原因拖累？蒸馏的话其实肯定互相蒸馏的，就算隐藏了思维链还是有其他办法的。
+
+—— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  andychen  
+##### 20241#       发表于 2026-11-14 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509180&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-14 12:44</a>
+
+我觉得差距最大的时候恰恰是gemini pro最强的时候，就是25年下半年
+
+那个时候都说谷歌tpu一统江湖了，比赛 ...</blockquote>
+gemini pro的问题是google当时的很多宣传是纯吹牛，模型端出来发现根本做不到
+
+*****
+
+####  qz66618  
+##### 20242#       发表于 2026-11-14 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509118&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-14 12:28</a>
+1017还不新啊，从训练硬件到模型架构全面翻新到这种程度了你还觉得不够新？
+
+倒是kimi那推理效率价格才是 ...</blockquote>
+1017本质是在0910的基础上进行后训练的，0910才是结构上的创新，4.1pro也会是这个架构，但是目前看来最快至少要等到12月才可能练好。目前国模对大参数模型的训练方式明显是在摸索阶段，同时也有算力不足的原因。
+我觉得蒸馏技术在大参数模型上训练效果可能不会有小模型参数好，虽然说蒸馏技术可以较快的拉进与前沿的距离，但是对于大参数模型的训练一定是要有自己的一套行之有效的流程和方法的，我感觉DS自己应该跑通了这套流程，但是GLM和千问目前看来明显是没有很好的结果，kimi更像是强行顶上去的。
+所以说目前4.1pro的结果其实是很重要的，这关系到下一阶段大参数模型的发展路线，目前看来国外御三家是已经走通了自己的训练流程的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  mitzvah  
+##### 20243#       发表于 2026-11-14 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509183&amp;ptid=2275806" target="_blank">赤星ビスコ 发表于 2026-11-14 12:45</a>
+
+要我说的话去年底的 4.5 和现在 5.5 已经感受到边际效益递减，那时候真的惊为天人。现在都没有这个感觉了 ...</blockquote>
+现在惊艳也就主要是视觉创作的相关能力了，这方面其实1017也已经上路了，看不出现在有啥瓶就这两天1017在我的任务上的表现，吹的牛皮哄哄的涌现也不见得能比这强多少
+
+*****
+
+####  紧那罗  
+##### 20244#       发表于 2026-11-14 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509164&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-14 12:40</a>
+现在的1017聪明到什么程度？前几天重构我的漫画阅读器时，我就在启动prompt中说了一句这某个功能实现有问题 ...</blockquote>
+这个例子应该算不上涌现，单纯训练数据里就有性能调优相关的操作案例，听下来倒是很常规的做法。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  lactone  
+##### 20245#       发表于 2026-11-14 12:53
+
+蒸馏应该早就不是主要提升性能的手段了
+
+现在主要还真是数据问题
+
+oa两家都有各种专家标注数据做强化学习和sft什么的，国模厂商基本没有
+所以现在aa榜倾向科研了国模分就往下掉
+
+实际单纯编程能力真的差距有限
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qz66618  
+##### 20246#       发表于 2026-11-14 12:53
+
+我也看到过猫老板那个大模型交流群里发的一些观点，目前万亿级以上的模型训练流程感觉国模还在摸索，算力限制导致试错成本太大，进而进度变慢也是有可能的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  mitzvah  
+##### 20247#       发表于 2026-11-14 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509208&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-14 12:51</a>
+
+这个例子应该算不上涌现，单纯训练数据里就有性能调优相关的操作案例，听下来倒是很常规的做法。
+
+论坛助 ...</blockquote><blockquote>**过程中解决的真实障碍**：
+
+- 编译失败：`ProxyFileDescriptorCallback` 少实现 `onRelease()`，按实际 API 签名修正；
+
+- 安装被魅族拦截：`INSTALL_FAILED_USER_RESTRICTED`，通过 `settings put secure usb_install_item_com.pdfprobe` + `pm install /data/local/tmp/...` 绕过；
+
+- `adb push` 找不到中文路径的 `63卷.pdf`，改用 `exec-out cat` 拉回本地再 push；
+
+- 测完主动卸载探针、删除 secure setting、清理 `/tmp`，没有污染仓库。
+
+**三组夹具、两组模式（DIRECT vs PROXY）的原始数字**：
+
+|| 夹具 | 页数 | DIRECT | PROXY | 读放大 ||
+||---|---|---|---|---||
+|| 1.4KB 微型 PDF | 3 | open 27ms | open 1ms，1 次读/1483B | — ||
+|| 99MB 漫画 PDF | 194 | open 32ms，total 213ms | open 2ms，32 次读/2.23MB，p0 117ms | ≈2.3% ||
+|| 47MB 文本 PDF | 246 | open 25ms，total 770ms | open 4ms，330 次读/24.7MB，p0 365ms，p245 521ms | ≈50% ||
+
+它还做了 **P0 v2**：给每次读加计数器、按页统计读取字节、模拟 10ms 的 SMB 往返延迟、加 400px 封面渲染。结果直接改变了设计：
+
+- 99MB 漫画：封面 61ms/12 次读/1.19MB，page0 115ms，p97 20ms/10 次读，p193 9ms/2 次读；
+
+- 47MB 文本：封面 334ms/101 次读/11.5MB，p245 362ms/121 次读/12MB；
+
+- 加 10ms 延迟后，47MB 文本的 PROXY total 从 1.3s 涨到 5.9s——这直接暴露了“每次小读都吃一次 SMB 往返”的问题，才引出后面的 1MB read-ahead 和 P0b（native callback 复测）。
+
+这不是走流程，这是**自己造实验装置、自己选夹具、自己发现新变量**。用时约 20:31–20:50，19 分钟，发生在 S2/S3 计划阶段，不是实现阶段。</blockquote>
+
+这个过程没有任何报告，没有任何提示，完全是自主跑出来的——————而且是纯粹的设计阶段，压根没有落码的情况下，自主验证计划，自我迭代！！
+
+
+*****
+
+####  lactone  
+##### 20248#       发表于 2026-11-14 12:57
+
+我觉得glm5.5分数应该不低，看规模有多大
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

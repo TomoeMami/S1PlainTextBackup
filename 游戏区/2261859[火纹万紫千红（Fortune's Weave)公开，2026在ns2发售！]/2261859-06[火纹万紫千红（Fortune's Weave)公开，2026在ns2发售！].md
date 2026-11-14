@@ -12829,3 +12829,15 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 黑马肯定强于汗血马，后面攻击力是超的    Re:Source</blockquote>
 玩到第十章才发现<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">凹速技确实比力量好，这武器攻击力都挺高的
 
+
+*****
+
+####  Jabeck  
+##### 8620#       发表于 2026-11-14 12:56
+
+ 本帖最后由 Jabeck 于 2026-11-14 12:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509165&amp;ptid=2261859" target="_blank">JunkoPureFuries 发表于 2026-11-14 12:40</a>
+
+玩到第十章才发现凹速技确实比力量好，这武器攻击力都挺高的</blockquote>
+是的，重点是别拿肌无力硬去打斗士和重甲这种高防御角色。这作除了斗士和重甲其他都是脆皮。
+
