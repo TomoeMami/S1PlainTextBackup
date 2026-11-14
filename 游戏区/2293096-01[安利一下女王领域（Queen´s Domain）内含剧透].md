@@ -6039,3 +6039,15 @@ i奥
 
 当然游戏里正常死亡那是不会有自动存档的，刻意复古这一块<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  28201  
+##### 489#       发表于 2026-11-14 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510948&amp;ptid=2293096" target="_blank">tatara 发表于 2026-11-14 21:44</a>
+别怕，这游戏其实有防崩溃的自动存档机制。之前我也崩溃过好几次，结果每次进游戏都没怎么掉进度。
+
+当然 ...</blockquote>
+竟然还有这种操作？！回头我看看<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
