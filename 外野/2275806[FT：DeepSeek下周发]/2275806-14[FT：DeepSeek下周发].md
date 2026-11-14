@@ -12332,3 +12332,17 @@ carbon我直观感觉比astra还慢，但纯token效率 ...</blockquote>
 
 2026-11-14 23:39 上传
 
+
+*****
+
+####  qwased  
+##### 20302#       发表于 2026-11-15 00:04
+
+[https://github.com/qwased/pi-niubash-windows](https://github.com/qwased/pi-niubash-windows)
+
+pi install npm:pi-niubash-windows
+
+给pi windows接入了niubash，和pwsh7共存，体感大肥鱼抱怨git bash吞符号的问题消失了
+
+有兴趣的坛友可以试试
+

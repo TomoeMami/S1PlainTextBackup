@@ -6080,3 +6080,16 @@ i奥
 
 —— 来自 vivo V2301A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Shu-Stella  
+##### 493#       发表于 2026-11-15 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511147&amp;ptid=2293096" target="_blank">wcorvo 发表于 2026-11-14 23:03</a>
+
+推到上古界域了，给我整麻了，逛了一个半小时没见到第二个火，要出门了逃回第一个火了
+
+最远是跑到一个黑乎 ...</blockquote>
+这图前面全是线性流程几乎没岔路，所以中途没有设置存档点，不过其实跑熟悉了也不是很长，第一次跑大部分时候都在打怪上。
+
