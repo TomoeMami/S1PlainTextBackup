@@ -12930,3 +12930,19 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 188小时第一部四线通关，这游戏到底还要吞噬掉多少时间<img src="https://static.stage1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JunkoPureFuries  
+##### 8629#       发表于 2026-11-14 23:21
+
+<img src="https://img.stage1st.com/forum/202611/14/232011g000s0ww60zzmop4.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20261114-231851.jpg</strong> (619.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-14 23:20 上传
+
+真记仇啊，凯伊。<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
