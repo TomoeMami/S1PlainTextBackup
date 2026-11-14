@@ -12841,3 +12841,14 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 玩到第十章才发现凹速技确实比力量好，这武器攻击力都挺高的</blockquote>
 是的，重点是别拿肌无力硬去打斗士和重甲这种高防御角色。这作除了斗士和重甲其他都是脆皮。
 
+
+*****
+
+####  Losange  
+##### 8621#       发表于 2026-11-14 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509048&amp;ptid=2261859" target="_blank">JunkoPureFuries 发表于 2026-11-14 12:05</a>
+
+黑马是不是比汗血马好啊？感觉得速技比力量要重要点？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但黑马第三部才能抓，前面的话其实野生马野生鸵鸟都不算一个坏选择，不过说到底现在有加点工具，勤凹点的话坐骑的影响没之前那么大了
+

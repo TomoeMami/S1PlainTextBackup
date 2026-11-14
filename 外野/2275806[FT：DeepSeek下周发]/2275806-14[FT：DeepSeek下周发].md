@@ -11782,3 +11782,72 @@ OA训练模型感觉都已经是合成数据占一定比重或者是大多数了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qz66618  
+##### 20257#       发表于 2026-11-14 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509270&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-14 13:05</a>
+合成数据也要人打标了才能用的归根结底就是烧钱烧人
+而且a/现在掉队了，gpt断层第一然后a/和g一个梯队的 ...</blockquote>
+打标其实大模型也能代替做一部分了，本质还是一个较强的模型也能够反哺到下一代的模型训练中去
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lactone  
+##### 20258#       发表于 2026-11-14 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509255&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-14 13:00</a>
+就是烧钱啊
+腾讯刚上了自己的数据标注打工平台，现在有进取心有资源的团队都会寻求自己的数据来源 ...</blockquote>
+现在才开始弄是不是有点晚了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">a%现在规模大几千人，多数实际上是高级数据民工
+
+ai产业实质上是重工业，既重资产，还重人工<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ycjiang1337  
+##### 20259#       发表于 2026-11-14 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509200&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-11-14 12:49</a>
+1017本质是在0910的基础上进行后训练的，0910才是结构上的创新，4.1pro也会是这个架构，但是目前看来最快 ...</blockquote>
+其实0910意义更大，也解释了为什么今年DS速度变慢，因为又要换架构又要在昇腾上跑通
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  andychen  
+##### 20260#       发表于 2026-11-14 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509287&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-14 13:08</a>
+
+现在才开始弄是不是有点晚了a%现在规模大几千人，多数实际上是高级数据民工
+
+ai产业实质上是重工业，既重 ...</blockquote>
+这还真不是，OA两家现在摊子铺得大是因为他们不仅有模型训练，还开了很多其他领域的团队。公开的就有生物，机器人，数学，物理学等等。他们是真笃信AGI的，做这些东西是为未来的智力爆发做准备
+
+数据标注这种活他们不会放在自己公司的，一方面现在有价值的新数据已经不多，更重要的是要隔离法律风险。毕竟大家都知道很多数据来源经不起仔细推敲
+
+*****
+
+####  紧那罗  
+##### 20261#       发表于 2026-11-14 13:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我说o\就不适合搞什么dot
+
+前几天让astra写了一套作业每天自动指挥手机处理手游日常
+
+第一天给我跑了80分钟 跟它掰头两天方案好说歹说承诺可以优化到40分钟以内
+
+今天让carbon去扫了一遍 一轮正常流程要过18个gate  每次页面偏离都要重算SHA-256
+
+每2、3步（这还是我勒令优化后的）截一次屏+OCR再审核
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">carbon说把这些全砍了应该10分钟就结束了
+
