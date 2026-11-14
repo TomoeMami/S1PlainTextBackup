@@ -11366,3 +11366,15 @@ Gemini重置了，可惜没用多少。也没重置它的claude额度
 
 但是现在能看到workbuddy和trae的一年期有减价，qoder却一点不减
 
+
+*****
+
+####  艾诺琳  
+##### 20224#       发表于 2026-11-14 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70508903&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-11-14 11:12</a>
+用了几个月国产大厂harness，感觉还是qoder用得最舒服，分支显示随时更新，子任务和后台任务能随时看到，也 ...</blockquote>
+WorkBuddy胜在免费，其他一言难尽
+
+还是dsh装修好了舒服
+
