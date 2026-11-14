@@ -6113,3 +6113,18 @@ i奥
 
 什么都够得到胜利就在眼前的时候一看成就列表发现密门宝箱都有十几个没开 差点晕过去<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 496#       发表于 2026-11-15 06:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511147&amp;ptid=2293096" target="_blank">wcorvo 发表于 2026-11-14 23:03</a>
+推到上古界域了，给我整麻了，逛了一个半小时没见到第二个火，要出门了逃回第一个火了
+
+最远是跑到一个黑乎 ...</blockquote>
+那是第三个存盘点。
+拿了第五块飞翔石才过得去
+
+—— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
