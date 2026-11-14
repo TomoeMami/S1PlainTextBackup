@@ -11503,3 +11503,58 @@ agent刚开始时国模根本不行的
 
 那时候国内用Agentic Coding的人还很少，除了圈内没太多水花
 
+
+*****
+
+####  紧那罗  
+##### 20235#       发表于 2026-11-14 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509109&amp;ptid=2275806" target="_blank">zxc786 发表于 2026-11-14 12:24</a>
+咨询个小问题，比如dsh这种harness，实现在不同电脑实现多端同步，有什么好的方案? ...</blockquote>
+正经做法就是云主机或者自己家里配置一台不关的电脑，虚拟组网啥的让ai弄弄也很容易。
+我再说个邪门的做法，如果能做到任务全都文件留痕不依赖特定对话记录的话，给每个设备配置好同一套网盘读写数据，也可以达成类似的效果。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  mitzvah  
+##### 20236#       发表于 2026-11-14 12:40
+
+现在的1017聪明到什么程度？前几天重构我的漫画阅读器时，我就在启动prompt中说了一句这某个功能实现有问题，性能差封面墙封面出不来，就不管了，让他连着手机自己跑，结果他在计划阶段规划了一堆实验在手机上编写了一个最小app应用验证关键主要阻塞，详细对比候选方案性能修改原始方案迭代到最优计划，然后一波流推进到底构建跑通任务，中间没有任何干预————这种近乎涌现的操作自我学习掌握环境的能力能在一个实际近内存只有300的模型上跑通。
+
+中间使用的技术让我大开眼界，以前想都不敢想，做到这份上了还能再出多少花哨玩意？现在就是视觉先验还不够，但是也已经上路了
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 20237#       发表于 2026-11-14 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509151&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-14 12:35</a>
+我觉得能力差距最大的时候差不多是去年底，那时候的opus4.8在编程能力上差不多相当于4.1f，而同期的国产 ...</blockquote>
+去年底的opus 4.8？您是从哪个位面来的
+
+— from Xiaomi 23049PCD8G, Android 13, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  lactone  
+##### 20238#       发表于 2026-11-14 12:44
+
+我觉得差距最大的时候恰恰是gemini pro最强的时候，就是25年下半年
+
+那个时候都说谷歌tpu一统江湖了，比赛结束了
+
+谁知道后来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  赤星ビスコ  
+##### 20239#       发表于 2026-11-14 12:45
+
+要我说的话去年底的 4.5 和现在 5.5 已经感受到边际效益递减，那时候真的惊为天人。现在都没有这个感觉了
+
