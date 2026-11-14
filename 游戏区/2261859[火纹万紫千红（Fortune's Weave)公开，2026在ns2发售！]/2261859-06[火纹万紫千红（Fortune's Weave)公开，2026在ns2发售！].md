@@ -12852,3 +12852,24 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 黑马是不是比汗血马好啊？感觉得速技比力量要重要点？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但黑马第三部才能抓，前面的话其实野生马野生鸵鸟都不算一个坏选择，不过说到底现在有加点工具，勤凹点的话坐骑的影响没之前那么大了
 
+
+*****
+
+####  lbzlxx  
+##### 8622#       发表于 2026-11-14 16:31
+
+刚打完一条线开第二条线，请教一下，人物都初始化了又要重新培养？那挖角有什么意义，出场名额就几个要这么多人也没用，直接忽略对后面有什么影响吗，外传打过的部分也可以跳过吗？如果打完4条线，培养4次？那后面章节人物属性是取决于什么
+
+
+*****
+
+####  Jabeck  
+##### 8623#       发表于 2026-11-14 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509899&amp;ptid=2261859" target="_blank">lbzlxx 发表于 2026-11-14 16:31</a>
+
+刚打完一条线开第二条线，请教一下，人物都初始化了又要重新培养？那挖角有什么意义，出场名额就几个要这么 ...</blockquote>
+同一个路线打通第一二章人物会取最高数据融合，包括LV。
+
+现在少了DLC的四条线，理论上这作绝大部分人物都能从1级开始养，挖角来的角色因为系统固定升级会缺不少属性。
+
