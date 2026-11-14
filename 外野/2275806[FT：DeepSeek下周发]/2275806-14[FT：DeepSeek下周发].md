@@ -12177,3 +12177,16 @@ Hydrogen 很慢是正常的吗？做个 PPT 已经等了快15分钟了一直显�
 
 pro 那点额度，聊几句天都能超标，写代码得加钱上 ultra
 
+
+*****
+
+####  zack1999  
+##### 20289#       发表于 2026-11-14 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509610&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-14 14:41</a>
+
+云主机有啥推荐不
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v4.0</blockquote>
+我是魔都电信299用户，最近去营业厅开了个天翼云电脑，8g/120g的，套餐里就有的额度，反正没收我钱。
+
