@@ -5867,3 +5867,14 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 编辑，看成要两本书的那个了，印象中如果是铁笼子房间都是边上的书架放书 ...</blockquote>
 我后来也找到了，经典眼瞎找机关找半小时，结果就在门口
 
+
+*****
+
+####  Algie  
+##### 473#       发表于 2026-11-14 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70507970&amp;ptid=2293096" target="_blank">zero4166 发表于 2026-11-13 23:29</a>
+
+吸血弯刀的放血斩两刀搞定</blockquote>
+头铁没按一般流程走，还没有吸血刀
+

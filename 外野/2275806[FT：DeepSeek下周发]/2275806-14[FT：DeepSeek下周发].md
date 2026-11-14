@@ -11923,3 +11923,23 @@ oai的自我否定人格，即使是审核也会**卡住用户的任务
 
 如果审核和本地任务一样丝滑，其实还是不错的
 
+
+*****
+
+####  紧那罗  
+##### 20269#       发表于 2026-11-14 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509733&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-11-14 15:32</a>
+ChatGPT APP更新后Dot被拉到最前面和最顶端了。试着用了下还不错，尤其是是那个电话功能。之前的Chatgpt li ...</blockquote>
+国外这几家最大的问题是语音说中文一股子abc味， 实在顶不住多聊几句。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  神必迷你龙  
+##### 20270#       发表于 2026-11-14 16:11
+
+dot在我实际使用的额度多到不行，但是它也是很保守的，我暂且看作一个大的目标模式<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
