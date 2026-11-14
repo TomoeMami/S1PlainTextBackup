@@ -12478,3 +12478,11 @@ LLM最早的形态是Chatbox，所以给人一种AI天生上云的感觉。Agent
 
 一旦玩云主机，相当于你自己给你开发了一个网络AI运用，这一路的运维，安全，存储成本不会因为AI时代就更便宜
 
+
+*****
+
+####  qwased  
+##### 20314#       发表于 2026-11-15 04:19
+
+话说要做的东西名字是脏token咋整，k3.1p和肥鱼1017拼写一直出错，提醒一下能反应过来，过一会又开始拼写错了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
