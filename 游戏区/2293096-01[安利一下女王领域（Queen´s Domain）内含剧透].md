@@ -5894,3 +5894,14 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 
 前面砍怪有点无聊啊，这游戏的收集物视力不好的话真不容易找到
 
+
+*****
+
+####  vidomina  
+##### 476#         楼主| 发表于 2026-11-14 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509901&amp;ptid=2293096" target="_blank">hkguty 发表于 2026-11-14 16:31</a>
+
+前面砍怪有点无聊啊，这游戏的收集物视力不好的话真不容易找到</blockquote>
+所以后面有官方透视高亮挂<img src="https://static.stage1st.com/image/smiley/face2017/049.png">，然而还是很烦，结局34还要求全收集这些比玩意。
+
