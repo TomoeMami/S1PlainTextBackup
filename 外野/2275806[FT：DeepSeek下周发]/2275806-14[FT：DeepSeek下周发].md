@@ -12439,3 +12439,14 @@ x上面看的吐槽基本都是claude做的项目做着做着项目就变成clau
 
 最火的赛博AI斗蛐蛐更新了，毫无意外的，claude又输了，颇有种既生瑜何生亮的感觉
 
+
+*****
+
+####  startraveller  
+##### 20311#       发表于 2026-11-15 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511392&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-15 00:37</a>
+所以
+海外有推荐不</blockquote>
+GCP 台湾
+
