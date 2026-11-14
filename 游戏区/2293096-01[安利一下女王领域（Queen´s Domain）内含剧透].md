@@ -6103,3 +6103,13 @@ i奥
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zzf111  
+##### 495#       发表于 2026-11-15 04:41
+
+拿了飞菇 以前过得都是什么苦日子
+
+什么都够得到胜利就在眼前的时候一看成就列表发现密门宝箱都有十几个没开 差点晕过去<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
