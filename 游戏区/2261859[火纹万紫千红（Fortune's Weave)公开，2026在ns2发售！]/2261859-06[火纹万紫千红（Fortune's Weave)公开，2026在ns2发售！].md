@@ -12779,3 +12779,32 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 卡塔尼亚骑马穿自己衣服下面是一团黑的，IS还不如弄安全裤呢<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JunkoPureFuries  
+##### 8615#       发表于 2026-11-14 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70508711&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-11-14 10:06</a>
+
+卡塔尼亚骑马穿自己衣服下面是一团黑的，IS还不如弄安全裤呢</blockquote>
+基本上所有小裙子底下全是黑<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 8616#       发表于 2026-11-14 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509037&amp;ptid=2261859" target="_blank">JunkoPureFuries 发表于 2026-11-14 12:02</a>
+
+基本上所有小裙子底下全是黑</blockquote>
+原皮这样，但有些职业还是能看到内裤的
+
+
+*****
+
+####  JunkoPureFuries  
+##### 8617#       发表于 2026-11-14 12:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黑马是不是比汗血马好啊？感觉得速技比力量要重要点？
+

@@ -11388,3 +11388,28 @@ WorkBuddy胜在免费，其他一言难尽
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  warlock228  
+##### 20226#       发表于 2026-11-14 12:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">嘎啦嘛5.5不会真的炼炸了吧，能拖这么久
+
+
+*****
+
+####  lactone  
+##### 20227#       发表于 2026-11-14 12:06
+
+我觉得还是得等ds
+国模追的最紧的时期都是范式转移的时候
+
+比如思维链时代刚开始，比如agent时代刚开始
+每个时代中后期国模差距都比较大
+比如25年下半年，和最近一两个月
+
+等下一次范式转移的时候就好
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
