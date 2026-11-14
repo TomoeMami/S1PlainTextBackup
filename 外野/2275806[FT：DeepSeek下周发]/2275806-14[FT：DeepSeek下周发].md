@@ -12295,3 +12295,16 @@ carbon我直观感觉比astra还慢，但纯token效率 ...</blockquote>
 
 那长任务的情况下这玩意会叠加到网速本身上，体验就是越~来~越~慢~
 
+
+*****
+
+####  zxc786  
+##### 20299#       发表于 2026-11-14 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511054&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-11-14 22:25</a>
+
+买云服务器的话有一个大厂会坑你的点：带宽
+
+实际上如果坛友有用过自建网关抓自己agent流量的话就会发现，10 ...</blockquote>
+那其实最优解是租赁境外云服务器？<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
