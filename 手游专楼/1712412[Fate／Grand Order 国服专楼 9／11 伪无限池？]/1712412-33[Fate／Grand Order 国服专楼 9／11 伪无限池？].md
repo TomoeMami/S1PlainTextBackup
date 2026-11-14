@@ -405,3 +405,16 @@ MuMu-20261108-023307-521.jpg
 
 —— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  khxooo  
+##### 48326#       发表于 2026-11-14 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70508491&amp;ptid=1712412" target="_blank">6030sylar 发表于 2026-11-14 08:23</a>
+
+抽上头了，在水玉井了，明年完蛋
+
+—— 来自 OnePlus PKG110, Android 15, 鹅球 v4.0-alpha ...</blockquote>
+马上就终章，将梦火全爆完就是了。
+

@@ -11435,3 +11435,71 @@ WorkBuddy胜在免费，其他一言难尽
 
 <img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">咨询个小问题，比如dsh这种harness，实现在不同电脑实现多端同步，有什么好的方案?
 
+
+*****
+
+####  mitzvah  
+##### 20230#       发表于 2026-11-14 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509014&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-11-14 11:54</a>
+
+国模这段时间是真没活了，千问这个预览版明明是新架构，但是到现在连个技术报告都没出来，说明他们对目前版 ...</blockquote>
+1017还不新啊，从训练硬件到模型架构全面翻新到这种程度了你还觉得不够新？
+
+倒是kimi那推理效率价格才是真的不行
+
+*****
+
+####  crow_wine  
+##### 20231#       发表于 2026-11-14 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509118&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-14 12:28</a>
+1017还不新啊，从训练硬件到模型架构全面翻新到这种程度了你还觉得不够新？
+
+倒是kimi那推理效率价格才是 ...</blockquote>
+dsh-full-remote之类的远程插件
+
+
+*****
+
+####  mitzvah  
+##### 20232#       发表于 2026-11-14 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509052&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-14 12:06</a>
+
+我觉得还是得等ds
+
+国模追的最紧的时期都是范式转移的时候</blockquote>
+agent刚开始时国模根本不行的
+
+那时qwen3 与 glm4的代理能力就是一坨啊
+
+deepseek更是废
+
+现在的差距主要还是视觉能力上比较大，大肥鱼这种的视觉推理效果上差的比较远，但是快啊，又不是不能用
+
+*****
+
+####  andychen  
+##### 20233#       发表于 2026-11-14 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509109&amp;ptid=2275806" target="_blank">zxc786 发表于 2026-11-14 12:24</a>
+咨询个小问题，比如dsh这种harness，实现在不同电脑实现多端同步，有什么好的方案? ...</blockquote>
+最简单和一劳永逸的方法是开一台云主机直接部署在云上
+
+如果是家用网络想远程访问相对就复杂一点，要安全主机和客户端都需要进行配置
+
+
+*****
+
+####  andychen  
+##### 20234#       发表于 2026-11-14 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509140&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-14 12:32</a>
+agent刚开始时国模根本不行的
+
+那时qwen3 与 glm4的代理能力就是一坨啊</blockquote>
+我觉得能力差距最大的时候差不多是去年底，那时候的opus4.8在编程能力上差不多相当于4.1f，而同期的国产模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那时候国内用Agentic Coding的人还很少，除了圈内没太多水花
+

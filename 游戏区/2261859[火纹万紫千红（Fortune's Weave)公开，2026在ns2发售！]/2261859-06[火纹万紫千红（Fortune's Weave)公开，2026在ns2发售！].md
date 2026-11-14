@@ -12808,3 +12808,13 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黑马是不是比汗血马好啊？感觉得速技比力量要重要点？
 
+
+*****
+
+####  damenda  
+##### 8618#       发表于 2026-11-14 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509048&amp;ptid=2261859" target="_blank">JunkoPureFuries 发表于 2026-11-14 12:05</a>
+黑马是不是比汗血马好啊？感觉得速技比力量要重要点？</blockquote>
+黑马肯定强于汗血马，后面攻击力是超的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
