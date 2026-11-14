@@ -11322,3 +11322,11 @@ GPT会做很多无用hash。上面我让他写个自用的脚本发出来它都�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  紧那罗  
+##### 20219#       发表于 2026-11-14 09:00
+
+我以为我已经习惯了gpt的龟速了 没想到这gemini carbon比gpt还龟<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
