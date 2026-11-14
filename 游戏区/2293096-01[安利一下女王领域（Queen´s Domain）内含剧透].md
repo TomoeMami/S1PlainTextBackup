@@ -6069,3 +6069,14 @@ i奥
 
 终于全成就了，有个成就要求把几乎所有武器练满级，，没想到比找东西还折磨<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MTDlnZc  
+##### 492#       发表于 2026-11-14 23:51
+
+打到最后一个头骨三个暗门时终于受不了找了mod，前面的体验还是很不错的。
+头骨收集完的动画有点瘆人，有什么解释吗？
+
+—— 来自 vivo V2301A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
