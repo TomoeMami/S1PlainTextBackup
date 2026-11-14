@@ -1685,3 +1685,13 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 新柱子好像反而简单了</blockquote>
 对宝具中概率闪避，无敌贯通都没用，要眩晕或者魅惑才能破，这次卖卡卖的太明显了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 21863#       发表于 2026-11-15 00:41
+
+魔王信灭世三红爽刷
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
