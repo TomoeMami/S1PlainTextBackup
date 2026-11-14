@@ -11943,3 +11943,31 @@ ChatGPT APP更新后Dot被拉到最前面和最顶端了。试着用了下还不
 
 dot在我实际使用的额度多到不行，但是它也是很保守的，我暂且看作一个大的目标模式<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HazukiShion  
+##### 20271#       发表于 2026-11-14 16:23
+
+Hydrogen 很慢是正常的吗？做个 PPT 已经等了快15分钟了一直显示 Working。。。。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紧那罗  
+##### 20272#       发表于 2026-11-14 16:23
+
+那过去24小时数据对比了下速度，直观感觉ds/opus都比较快。
+carbon我直观感觉比astra还慢，但纯token效率居然不低，看来还是等待时间太长+agy审核机制落后拉低了不少体验。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  unrealMeeSeeks  
+##### 20273#       发表于 2026-11-14 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509876&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-11-14 16:23</a>
+Hydrogen 很慢是正常的吗？做个 PPT 已经等了快15分钟了一直显示 Working。。。。。 ...</blockquote>
+反重力的首字超慢。然后是如果图片多的话更慢
+
