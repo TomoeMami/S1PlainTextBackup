@@ -1695,3 +1695,64 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  岸浪白野  
+##### 21864#       发表于 2026-11-14 20:01
+
+打完6个柱子还藏着最后一个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/14/200020kvueo5ldh3hldue4.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1794657620782_1.webp</strong> (13.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-14 20:00 上传
+
+*****
+
+####  khxooo  
+##### 21865#       发表于 2026-11-14 23:35
+
+福袋出来的超人熊有用武之地了
+
+*****
+
+####  jackyhuang  
+##### 21866#       发表于 2026-11-14 23:58
+
+一会不见已经死掉一半了
+新柱子好像反而简单了
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  khxooo  
+##### 21867#       发表于 2026-11-15 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511288&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2026-11-14 23:58</a>
+
+一会不见已经死掉一半了
+
+新柱子好像反而简单了</blockquote>
+对宝具中概率闪避，无敌贯通都没用，要眩晕或者魅惑才能破，这次卖卡卖的太明显了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 21868#       发表于 2026-11-15 00:41
+
+魔王信灭世三红爽刷
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  森兰丸  
+##### 21869#       发表于 2026-11-15 06:51
+
+用战斗服晕一下不就行了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
