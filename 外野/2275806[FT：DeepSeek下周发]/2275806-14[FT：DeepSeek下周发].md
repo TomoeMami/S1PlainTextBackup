@@ -12146,3 +12146,18 @@ Hydrogen 很慢是正常的吗？做个 PPT 已经等了快15分钟了一直显�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  我就再氪一单  
+##### 20286#       发表于 2026-11-14 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510256&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-14 18:29</a>
+其实不调api的原因无非就是保密和nsfw
+无论如何保密在云主机上都是笑话
+所以nsfw就是云主机需求了</blockquote>
+搞瑟瑟那只有海外的了吧
+别说运营商了，bat都肯定都要备案的
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
