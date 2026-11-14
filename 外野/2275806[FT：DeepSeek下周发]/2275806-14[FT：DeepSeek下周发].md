@@ -12486,3 +12486,11 @@ LLM最早的形态是Chatbox，所以给人一种AI天生上云的感觉。Agent
 
 话说要做的东西名字是脏token咋整，k3.1p和肥鱼1017拼写一直出错，提醒一下能反应过来，过一会又开始拼写错了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿虚家的三味  
+##### 20315#       发表于 2026-11-15 06:34
+
+这期斗蛐蛐为了塞广告用的这人设真平庸啊，能流传开的zip版本还是有道理的
+
