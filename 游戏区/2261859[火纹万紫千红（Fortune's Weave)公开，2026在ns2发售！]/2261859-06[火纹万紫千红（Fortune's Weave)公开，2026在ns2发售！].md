@@ -12946,3 +12946,15 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 真记仇啊，凯伊。<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Humpy  
+##### 8630#       发表于 2026-11-15 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511198&amp;ptid=2261859" target="_blank">JunkoPureFuries 发表于 2026-11-14 23:21</a>
+真记仇啊，凯伊。</blockquote>
+和蕾妲也记仇的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+凯伊这孩子就是看上去纯良实际上意外会毒舌讽刺人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
