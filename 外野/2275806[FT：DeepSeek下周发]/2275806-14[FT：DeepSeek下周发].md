@@ -12161,3 +12161,11 @@ Hydrogen 很慢是正常的吗？做个 PPT 已经等了快15分钟了一直显�
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 20287#       发表于 2026-11-14 19:24
+
+哈基米的搜索能力和世界知识还挺强的，但pro用户有5h limit的情况下应该没法用argon来做coding
+
