@@ -12922,3 +12922,11 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 另外伊欧和粉毛下马并且你有多条线挖角的话第三部还能看到仓库里多了罗西南的兄弟和布克法拉斯的孩子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  没取名啊  
+##### 8628#       发表于 2026-11-14 22:49
+
+188小时第一部四线通关，这游戏到底还要吞噬掉多少时间<img src="https://static.stage1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
