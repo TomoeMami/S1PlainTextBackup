@@ -12416,3 +12416,26 @@ deepseek的服务器又炸了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  warlock228  
+##### 20309#       发表于 2026-11-15 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510218&amp;ptid=2275806" target="_blank">ff2077 发表于 2026-11-14 18:17</a>
+感觉a÷无论啥模型是不是都是过于注重oneshot了 最近试了下，感觉第一轮结果之后如果继续修改效果不咋地 远 ...</blockquote>
+只用过gpt我是没感觉有什么国内网络的说的不适叫她做什么就做什么，蹬的挺爽的除了她做的前端界面真的好xp古早味还爱加一大堆说明小字在界面上，肥鱼做前端都比你时尚（
+x上面看的吐槽基本都是claude做的项目做着做着项目就变成claude自己的项目了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就是一股子我这个好听我的，后面容易拉不回来要跟大小姐互肘，看起来这不就是爹味
+
+
+*****
+
+####  莱茵哈鲁特  
+##### 20310#       发表于 2026-11-15 01:16
+
+，
+
+[https://www.bilibili.com/video/BV1wRsV6gEP4/](https://www.bilibili.com/video/BV1wRsV6gEP4/)
+
+最火的赛博AI斗蛐蛐更新了，毫无意外的，claude又输了，颇有种既生瑜何生亮的感觉
+
