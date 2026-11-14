@@ -12308,3 +12308,27 @@ carbon我直观感觉比astra还慢，但纯token效率 ...</blockquote>
 实际上如果坛友有用过自建网关抓自己agent流量的话就会发现，10 ...</blockquote>
 那其实最优解是租赁境外云服务器？<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  飞剪号  
+##### 20300#       发表于 2026-11-14 23:39
+
+大模型智力确实有明显的进步，我分别找kimi3.1和肥鱼pro讨论同一个剧情走向问题，Kimi能提出超乎我预期的思路，鱼就比较俗套了
+
+*****
+
+####  moekyo  
+##### 20301#       发表于 2026-11-14 23:39
+
+我的大肥鱼的 intelligent ui 更新了，现在支持了 artifact 编辑，欢迎使用<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+[https://github.com/Zephinel/dsh-intelligent-ui](https://github.com/Zephinel/dsh-intelligent-ui)
+
+<img src="https://img.stage1st.com/forum/202611/14/233948xn6nxx6vzl84bzau.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (127.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-14 23:39 上传
+
