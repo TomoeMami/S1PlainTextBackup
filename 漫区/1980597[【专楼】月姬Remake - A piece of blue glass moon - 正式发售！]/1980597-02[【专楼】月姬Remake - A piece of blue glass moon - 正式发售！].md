@@ -158,3 +158,13 @@ FGO死了月姬R活了？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lpzhg  
+##### 1676#       发表于 2026-11-14 10:41
+
+1671楼朋友发的安卓下载版，要怎么才能调成日语？
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
