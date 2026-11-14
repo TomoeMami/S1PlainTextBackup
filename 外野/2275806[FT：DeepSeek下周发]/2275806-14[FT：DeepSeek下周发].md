@@ -11871,3 +11871,25 @@ dot就是看grokbot火了就跟进又没弄明白grokbot卖点在哪
 
 Google更新了Antigravity的模型可用列表，白嫖的Pro会员应该马上有Hydrogen了
 
+
+*****
+
+####  冤枉呐  
+##### 20264#       发表于 2026-11-14 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509143&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-14 12:32</a>
+最简单和一劳永逸的方法是开一台云主机直接部署在云上
+
+如果是家用网络想远程访问相对就复杂一点，要安全 ...</blockquote>
+云主机有啥推荐不
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 20265#       发表于 2026-11-14 14:44
+
+现在百度5.5都斩杀1017了
+
