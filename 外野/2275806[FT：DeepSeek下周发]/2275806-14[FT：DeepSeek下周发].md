@@ -11427,3 +11427,11 @@ WorkBuddy胜在免费，其他一言难尽
 
 你们体感觉得国内慢，其实是因为今年海外发布的节奏加速了
 
+
+*****
+
+####  zxc786  
+##### 20229#       发表于 2026-11-14 12:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">咨询个小问题，比如dsh这种harness，实现在不同电脑实现多端同步，有什么好的方案?
+
