@@ -11971,3 +11971,28 @@ carbon我直观感觉比astra还慢，但纯token效率居然不低，看来还�
 Hydrogen 很慢是正常的吗？做个 PPT 已经等了快15分钟了一直显示 Working。。。。。 ...</blockquote>
 反重力的首字超慢。然后是如果图片多的话更慢
 
+
+*****
+
+####  我就再氪一单  
+##### 20274#       发表于 2026-11-14 16:40
+
+藤子的hy4新笑话<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+考试抄答案，连姓名一起抄了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+前情提要：
+我的项目我自己定的全局规则，每个协作者ai留changelog记录时要署名模型，还要留下思维草稿的署名+memory.md方便其他协作者参考。
+然后我趁着hy3和hy4还没取消免费前拉满思考强度和上下文让这俩捉一下虫。
+
+结果：
+hy3给我气笑了，给了一份阅读用静态代码，一份可执行的测试代码能跑，甚至还附上了打包说明，结果对可执行包视而不见，看完静态代码就给我捉虫报告了。
+hy4更加雷霆，所有署名全部署deepseek-v4.1-flash，我查了思维记录，他是知道这条规则的，还署名错误。我思考了一下，因为全局记忆给的范例就是deepseek-v4.1-flash<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+两份结果合起来34个虫，12个都证伪了。其他问题还有很多包括但不限于：
+打包里留着上周代码捉虫留下的的报告，傻逼hy4直接抄MiniMax上一轮代码审计的文档，直接拿过来就当自己的结论了；
+同一个问题，前面写中级缺陷，后面写取舍；
+给了测试环境，写结论一口一个在生产环境里跑过了；
+左右脑互搏，同一份报告，前面写这个可以删，后面写这个可以提升为共用常量；
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
