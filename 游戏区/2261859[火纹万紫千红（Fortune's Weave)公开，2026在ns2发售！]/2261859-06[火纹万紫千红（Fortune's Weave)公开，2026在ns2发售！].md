@@ -12771,3 +12771,11 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 凯伊这养成好多啊，后悔先玩了，而且好多人都养废了，想重开了</blockquote>
 我重开了一次凯伊线，然后出了给妮涅加了几点属性之外别人第三部基本都不用，因为第三部人物完全过剩，强度完全过剩，这难度完全没必要重开，等开超难再说吧
 
+
+*****
+
+####  Jabeck  
+##### 8614#       发表于 2026-11-14 10:06
+
+卡塔尼亚骑马穿自己衣服下面是一团黑的，IS还不如弄安全裤呢<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

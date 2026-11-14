@@ -5834,3 +5834,14 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 
 我靠，这游戏，你说他完全开放设计吧，其实细心安排，会得到很流畅的流程路线…… 合理安排，在过完海岛神殿后就可以拿到4个三叉戟和6本书，不用走回头路……
 
+
+*****
+
+####  shimotsuki14  
+##### 470#       发表于 2026-11-14 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70502158&amp;ptid=2293096" target="_blank">Kaornao 发表于 2026-11-12 22:01</a>
+
+【《女王魔域》地图、槽位和倍率 Mod 更新，适配 1.01.06，附 2D／3D 地图册-哔哩哔哩】 https://b23.tv/qY ...</blockquote>
+早上发现游戏有个升级补丁，装完再装的地图mod，发现进游戏的时候读不到存档，还原之后又出来了，这个是版本问题吗
+
