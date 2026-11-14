@@ -12091,3 +12091,13 @@ Hydrogen 很慢是正常的吗？做个 PPT 已经等了快15分钟了一直显�
 论坛助手,iPhone ...</blockquote>
 我记得我试过西班牙语的，说中文味道还可以
 
+
+*****
+
+####  ff2077  
+##### 20282#       发表于 2026-11-14 18:17
+
+感觉a÷无论啥模型是不是都是过于注重oneshot了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 最近试了下，感觉第一轮结果之后如果继续修改效果不咋地 远不如gpt
+
+—— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

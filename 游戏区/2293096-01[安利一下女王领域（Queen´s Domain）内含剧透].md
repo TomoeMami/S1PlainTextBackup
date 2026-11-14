@@ -5917,3 +5917,22 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 
 而且最让我无力的是，等头骨齐了门开了，里面隧道里能捡到个功能是自由传送水晶的鸽子化石，我真是差点爆粗<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Asukalangley33  
+##### 478#       发表于 2026-11-14 18:19
+
+拿到2层冲刺的剑以后就去了井底，一路狂奔摸到一个篝火，现在回不去了怎么破<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+怪打不过，死命跑到一个地下去，走到尽头就一个返回骨片
+
+回来以后依旧不知道去哪
+
+*****
+
+####  pzgr43  
+##### 479#       发表于 2026-11-14 18:20
+
+重型步枪这玩意的弹道偏右啊，不是对着准星中间的，得往左瞄一点
+
