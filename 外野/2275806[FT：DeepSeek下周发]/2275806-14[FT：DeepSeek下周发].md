@@ -11330,3 +11330,13 @@ GPT会做很多无用hash。上面我让他写个自用的脚本发出来它都�
 
 我以为我已经习惯了gpt的龟速了 没想到这gemini carbon比gpt还龟<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 20220#       发表于 2026-11-14 09:12
+
+最近拿qwen4做点科研项目，也每一步都算哈希，各种sha256，不知道跟谁学的
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
