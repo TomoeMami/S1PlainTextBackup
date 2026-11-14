@@ -1622,3 +1622,18 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  angelooo  
+##### 21857#       发表于 2026-11-14 19:56
+
+我擦这就死了一根了？
+
+*****
+
+####  qixinno1  
+##### 21858#       发表于 2026-11-14 19:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我以为只有我缺精灵根 原来都缺吗
+

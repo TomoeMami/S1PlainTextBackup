@@ -12190,3 +12190,13 @@ pro 那点额度，聊几句天都能超标，写代码得加钱上 ultra
 —— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v4.0</blockquote>
 我是魔都电信299用户，最近去营业厅开了个天翼云电脑，8g/120g的，套餐里就有的额度，反正没收我钱。
 
+
+*****
+
+####  魔法师lain  
+##### 20290#       发表于 2026-11-14 19:49
+
+看了一下国内那些token plan，好像千问ai和百度千帆都会禁止api调用？想用在自己写的应用上处理文本，到底检查得是否严格？还是说正规来说应该在应用上开mcp服务，然后通过tokenplan写着支持的harness来处理？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
