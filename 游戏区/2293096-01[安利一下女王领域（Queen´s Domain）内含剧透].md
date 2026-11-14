@@ -5999,3 +5999,14 @@ i奥
 
 上古界域这图不用远程真的受苦吧，没SVT的话太折磨了，捡到的几个远程武器都不如SVT
 
+
+*****
+
+####  tatara  
+##### 485#       发表于 2026-11-14 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510576&amp;ptid=2293096" target="_blank">妄想中毒 发表于 2026-11-14 20:17</a>
+
+上古界域这图不用远程真的受苦吧，没SVT的话太折磨了，捡到的几个远程武器都不如SVT ...</blockquote>
+那些个高科技远程也就电击步枪能和SVT比了，右键麻痹弹不仅能让天上乱飞的怪落地，近战给怪来一下定住也能有效增加容错
+

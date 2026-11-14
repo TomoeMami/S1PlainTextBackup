@@ -12905,3 +12905,20 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 这样啊，那这个下马是要在主线战斗前解除配属的意思？
 我凯伊线练到角色都是事先规划好要因果融合的，那直接骑着也没问题吧
 
+
+*****
+
+####  Losange  
+##### 8627#       发表于 2026-11-14 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510552&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-11-14 20:11</a>
+
+这样啊，那这个下马是要在主线战斗前解除配属的意思？
+
+我凯伊线练到角色都是事先规划好要因果融合的，那 ...</blockquote>
+是，战备阶段解除配属
+
+因果融合实在选择你要哪条线的角色之后，流程是在首都这里每个人都会站那然后你跟他对话，选择要拉哪条线的这个人过来，选完后才能去柜子那里因果融合，印象里一开始没选凯伊线的角色后续融合回凯伊线也不会把绑定的坐骑融合回来，你要打算融合的话记得凯伊线为主体就是
+
+另外伊欧和粉毛下马并且你有多条线挖角的话第三部还能看到仓库里多了罗西南的兄弟和布克法拉斯的孩子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

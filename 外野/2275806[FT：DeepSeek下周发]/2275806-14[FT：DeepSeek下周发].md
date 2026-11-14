@@ -12200,3 +12200,23 @@ pro 那点额度，聊几句天都能超标，写代码得加钱上 ultra
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lactone  
+##### 20291#       发表于 2026-11-14 20:26
+
+我一直觉得国内应该搞数据公司，就跟铁塔集团类似，就让央企牵头，把知网，社科文献中心之类的数据组织起来，然后让国内的模型厂商来用
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  拯救节操希灵宅  
+##### 20292#       发表于 2026-11-14 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510435&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-11-14 19:33</a>
+
+pro 那点额度，聊几句天都能超标，写代码得加钱上 ultra</blockquote>
+同20刀价位的6.1sol和opus5.5的额度比谷歌给的多不少吧，至少chat下一般是摸不到5小时限额
+
