@@ -182,3 +182,14 @@ FGO死了月姬R活了？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  ナルバレック  
+##### 1678#       发表于 2026-11-14 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70501945&amp;ptid=1980597" target="_blank">vvingdora 发表于 2026-11-12 20:51</a>
+
+有人做了月姬R的网页版，图片压成avif格式把游戏从20g变成2.7g了。还有pc和安卓的下载版。这么搞会不会被法 ...</blockquote>
+型月只有十几个人，没有法务部，要找也是菌菇的索索大亲友ANIPLEX老板来动手<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
