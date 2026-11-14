@@ -168,3 +168,17 @@ FGO死了月姬R活了？
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  顾然  
+##### 1677#       发表于 2026-11-14 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70508803&amp;ptid=1980597" target="_blank">lpzhg 发表于 2026-11-14 10:41</a>
+1671楼朋友发的安卓下载版，要怎么才能调成日语？
+
+—— 来自 OnePlus PJZ110, Android 16, 鹅球 v3.5.99-a ...</blockquote>
+建议直接下b站的汉化版<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">【【月姬remake】手机安卓原生（已加入中文汉化）-哔哩哔哩】 https://b23.tv/qKAIBgS
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

@@ -11413,3 +11413,17 @@ WorkBuddy胜在免费，其他一言难尽
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  andychen  
+##### 20228#       发表于 2026-11-14 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509014&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-11-14 11:54</a>
+国模这段时间是真没活了，千问这个预览版明明是新架构，但是到现在连个技术报告都没出来，说明他们对目前版 ...</blockquote>
+首先，算力瓶颈和反蒸馏对国内模型开发的影响是实打实的
+
+其次，Qwen大参数模型一直不咋地，深度求索和智谱今年的发布节奏和去年差不多
+
+你们体感觉得国内慢，其实是因为今年海外发布的节奏加速了
+
