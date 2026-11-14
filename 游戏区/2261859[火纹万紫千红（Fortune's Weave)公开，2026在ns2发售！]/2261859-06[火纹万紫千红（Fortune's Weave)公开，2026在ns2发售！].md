@@ -12894,3 +12894,14 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 这一步完了然后保险起见第二部直接先跳过一次，把仓库确定下来
 
+
+*****
+
+####  没取名啊  
+##### 8626#       发表于 2026-11-14 20:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510537&amp;ptid=2261859" target="_blank">Losange 发表于 2026-11-14 20:06</a>
+防止坐骑跟人绑定，第三部选人的时候要先选哪条线的，你如果坐骑跟这个人绑了那第三部不选凯伊线的这个角 ...</blockquote>
+这样啊，那这个下马是要在主线战斗前解除配属的意思？
+我凯伊线练到角色都是事先规划好要因果融合的，那直接骑着也没问题吧
+
