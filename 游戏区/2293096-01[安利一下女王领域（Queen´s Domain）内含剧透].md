@@ -6051,3 +6051,13 @@ i奥
 当然 ...</blockquote>
 竟然还有这种操作？！回头我看看<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wcorvo  
+##### 490#       发表于 2026-11-14 23:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">推到上古界域了，给我整麻了，逛了一个半小时没见到第二个火，要出门了逃回第一个火了
+
+最远是跑到一个黑乎乎的洞了远看有个存档点但四下+升龙都飞不过去，要怎么走呢
+
