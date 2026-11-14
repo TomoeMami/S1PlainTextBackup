@@ -5845,3 +5845,15 @@ nexus上昨晚出的新mod, 有了这个东西我把前期图重新舔一遍光�
 【《女王魔域》地图、槽位和倍率 Mod 更新，适配 1.01.06，附 2D／3D 地图册-哔哩哔哩】 https://b23.tv/qY ...</blockquote>
 早上发现游戏有个升级补丁，装完再装的地图mod，发现进游戏的时候读不到存档，还原之后又出来了，这个是版本问题吗
 
+
+*****
+
+####  Kaornao  
+##### 471#       发表于 2026-11-14 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70508715&amp;ptid=2293096" target="_blank">shimotsuki14 发表于 2026-11-14 10:07</a>
+早上发现游戏有个升级补丁，装完再装的地图mod，发现进游戏的时候读不到存档，还原之后又出来了，这个是 ...</blockquote>
+版本问题应该是，我到时候更新下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
