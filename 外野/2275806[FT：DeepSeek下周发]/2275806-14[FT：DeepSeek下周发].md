@@ -12078,3 +12078,16 @@ dot 这东西，反正挺难想象在 o÷ 这里的实际意义，完全想不�
 Hydrogen 很慢是正常的吗？做个 PPT 已经等了快15分钟了一直显示 Working。。。。。 ...</blockquote>
 有时候是网络问题
 
+
+*****
+
+####  bartholo4  
+##### 20281#       发表于 2026-11-14 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70509819&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-14 16:07</a>
+
+国外这几家最大的问题是语音说中文一股子abc味， 实在顶不住多聊几句。
+
+论坛助手,iPhone ...</blockquote>
+我记得我试过西班牙语的，说中文味道还可以
+
