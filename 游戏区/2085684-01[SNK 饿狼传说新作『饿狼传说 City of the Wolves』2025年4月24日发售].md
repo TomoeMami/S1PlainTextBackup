@@ -51,3 +51,35 @@
 
 【饿狼传说：群狼之城｜「拉奥·高迪亚姆斯 VS 不知火舞」开发人员对战演示-哔哩哔哩】 [https://b23.tv/RVUusFa](https://b23.tv/RVUusFa)
 
+
+*****
+
+####  大十字紅朔  
+##### 869#       发表于 2026-11-14 22:33
+
+<img src="https://img.stage1st.com/forum/202611/14/223259suszcdagxu0sqquj.png" referrerpolicy="no-referrer">
+
+<strong>HXDjDIkbAAE6fve.png</strong> (734.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-14 22:32 上传
+
+<img src="https://img.stage1st.com/forum/202611/14/223259hfz1g7mo4hqasfaf.png" referrerpolicy="no-referrer">
+
+<strong>HXDjhMqaUAEXwbr.png</strong> (575.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-14 22:32 上传
+
+<img src="https://img.stage1st.com/forum/202611/14/223305ouzqqbgpqaa969wl.png" referrerpolicy="no-referrer">
+
+<strong>HXDj6YhbsAAxv8t.png</strong> (530.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-14 22:33 上传
+
+未稀释，浓度100%的大张正已原液 
+
