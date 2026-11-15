@@ -13010,3 +13010,14 @@ terra我自己体感不太好 和1017有输有赢的感觉（也可能是思考�
 
 HY4好像是个弱智，但不要钱
 
+
+*****
+
+####  squallx2  
+##### 20358#       发表于 2026-11-16 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70510401&amp;ptid=2275806" target="_blank">拯救节操希灵宅 发表于 2026-11-14 19:24</a>
+
+哈基米的搜索能力和世界知识还挺强的，但pro用户有5h limit的情况下应该没法用argon来做coding ...</blockquote>
+argon是单独一个池子 5H里是4H
+

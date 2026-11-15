@@ -6331,3 +6331,13 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Asukalangley33  
+##### 517#       发表于 2026-11-16 01:05
+
+推了一个小时没存档游戏闪退了<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+难绷
+
