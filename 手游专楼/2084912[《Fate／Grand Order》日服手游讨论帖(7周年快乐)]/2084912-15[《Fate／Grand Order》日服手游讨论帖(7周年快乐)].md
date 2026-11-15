@@ -2037,3 +2037,22 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 醒醒啊....再怎么大内在还是个巨汉啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 21895#       发表于 2026-11-15 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514300&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-11-15 20:50</a>
+深海栖姬的话之前农神三破就很像了</blockquote>
+神农三破是陆基单位配色但没有相应色调的外装
+这个千利休自带俩大鬼手已经完美还原深海的外装了<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plok201  
+##### 21896#       发表于 2026-11-15 21:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有种AI图看多了，脑子里已经变成，无论什么词条什么人物，先输出两个大木瓜再说
+
