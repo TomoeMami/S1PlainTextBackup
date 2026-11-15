@@ -12987,3 +12987,18 @@ terra我自己体感不太好 和1017有输有赢的感觉（也可能是思考�
 否则物理位置在哪没区别，只要服务商卖给你的服 ...</blockquote>
 试了下用dsh-anywhere-sync同步插件、配置+google drive 本地同步对话。轻度使用勉强够用，先不折腾了。
 
+
+*****
+
+####  御坂MKII  
+##### 20356#       发表于 2026-11-15 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70512695&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-15 12:02</a>
+
+把AA野榜  猫榜 arena 综合搞了个图
+
+智能、费用与耗时</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> antigravity 里的 carbon 好像是按当前推广价格的三倍计算的（之后标准价格的 1.5 倍）
+
+不知道是不是他们有人把代码写错了
+

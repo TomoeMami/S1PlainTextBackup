@@ -6290,3 +6290,24 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 最远是跑到一个黑乎 ...</blockquote>
 那个洞第二次层上去升龙能过去第二个存档点，但是到了第二个存档点我也找不到路该去哪了
 
+
+*****
+
+####  Triangle  
+##### 513#       发表于 2026-11-15 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514604&amp;ptid=2293096" target="_blank">ddsafvbw 发表于 2026-11-15 22:45</a>
+
+那个洞第二次层上去升龙能过去第二个存档点，但是到了第二个存档点我也找不到路该去哪了 ...</blockquote>
+那个应该是第三个存档点了，从黑色洞里面出来，往左边冲，有个断掉的铁桥，往前走进到一个小屋子里面，然后坐电梯往下，在里面拿到紫色破印器，然后从那个存档点一路往上用紫色破印器进到一个塔里面，跳到上层就可以关掉其中一个开关了
+
+*****
+
+####  kkk9233  
+##### 514#       发表于 2026-11-15 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514448&amp;ptid=2293096" target="_blank">Triangle 发表于 2026-11-15 21:50</a>
+
+打完上古界域了，感觉要缓缓，各种被怪围殴，下一张图就是城堡吗？感觉好像漏了很多东西 ...</blockquote>
+打完上古界域估计收集率30%左右，后面还有好几个图一堆隐藏通道
+
