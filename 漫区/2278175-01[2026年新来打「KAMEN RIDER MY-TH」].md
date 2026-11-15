@@ -396,3 +396,15 @@
 龟壳空洞挂在钻头上转着抽也太好笑了，我喜欢</blockquote>
 讲真这剧我比较喜欢的几场打戏都是对这个龟壳盾的使用，可以开出空洞简直玩出花了
 
+
+*****
+
+####  duo_wolf  
+##### 309#       发表于 2026-11-15 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514217&amp;ptid=2278175" target="_blank">洛克萨斯 发表于 2026-11-15 20:23</a>
+虎大哥人真好啊，能活过圣诞节么</blockquote>
+但是这是狗哥<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
