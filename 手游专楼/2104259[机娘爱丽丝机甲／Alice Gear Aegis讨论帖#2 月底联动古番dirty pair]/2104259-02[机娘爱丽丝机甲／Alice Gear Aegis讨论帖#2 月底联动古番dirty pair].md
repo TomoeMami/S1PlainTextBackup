@@ -99,3 +99,15 @@
 
 话说忽然有一种想法，阿金是不是开始拥抱AI了，竟然三连新活动+连续3连复刻旧活动，因为我记得以前他们说过老活动复刻都要手动调一下演出来着的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 2173#       发表于 2026-11-15 17:17
+
++999太恐怖了，挂着脚本刷调查才能刷出来吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+复刻能不能复刻DOA，我馋那几套泳装好久了
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
