@@ -12842,3 +12842,11 @@ Pi 用户要改系统提示词了。 ...</blockquote>
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  qwased  
+##### 20343#       发表于 2026-11-15 18:03
+
+原来WSL3也没修好稀疏磁盘吗，前几天想省一点体积就设置了一下，今天就疯狂报错，救了一下午的数据<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

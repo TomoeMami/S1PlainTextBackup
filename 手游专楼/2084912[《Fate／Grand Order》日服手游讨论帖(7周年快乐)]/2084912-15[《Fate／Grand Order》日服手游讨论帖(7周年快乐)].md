@@ -1831,3 +1831,30 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 现在各种脚本最大的问题还是更新速度，柱子战借不到水一杯我好难受<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 21878#       发表于 2026-11-15 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70513544&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2026-11-15 17:03</a>
+
+现在各种脚本最大的问题还是更新速度，柱子战借不到水一杯我好难受</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">比起借不如自己抽一个
+
+<img src="https://img.stage1st.com/forum/202611/15/180525unkfdkkb8k4nifno.jpg" referrerpolicy="no-referrer">
+
+<strong>[2(X83G0QD0(KXF~H8D[U(1.jpg</strong> (39.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-15 18:05 上传
+
+<img src="https://img.stage1st.com/forum/202611/15/180531hzdv8kzpn1kko111.jpg" referrerpolicy="no-referrer">
+
+<strong>DA~QKNYY9Q(8{FTI89S0910.jpg</strong> (22.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-15 18:05 上传
+
