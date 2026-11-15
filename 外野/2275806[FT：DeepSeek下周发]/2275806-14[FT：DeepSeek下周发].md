@@ -12819,3 +12819,16 @@ Google 开始限制第三方 agent 接入，手段竟然是过滤系统提示词
 
 Pi 用户要改系统提示词了。
 
+
+*****
+
+####  squallx2  
+##### 20341#       发表于 2026-11-15 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70513469&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-11-15 16:40</a>
+
+Google 开始限制第三方 agent 接入，手段竟然是过滤系统提示词。
+
+Pi 用户要改系统提示词了。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">靠 还真是这样吗 我让sol排查了半天429问题感觉原因也是如此
+
