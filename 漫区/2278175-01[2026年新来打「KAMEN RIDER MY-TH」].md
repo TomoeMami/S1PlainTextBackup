@@ -344,3 +344,21 @@
 
 不对，预告里下集鼠被抓了，包留下来了，那看来是驱动器和蛋都是男主手上的，虎剧照也在，那就是看代扣是龙给的还是虎给的
 
+
+*****
+
+####  zakki  
+##### 305#       发表于 2026-11-15 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70485817&amp;ptid=2278175" target="_blank">風卷豹 发表于 2026-11-9 08:28</a>
+实际上虎高情商的做法就该是先帮收头加鼠鼠好感顺便可以验证被吞掉的人是否能救出来，现在这种嘉豪式出场和 ...</blockquote>
+天意？人设如此罢了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/15/140940ryt3negcytoo731n.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1794722979522_1.webp</strong> (79.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-15 14:09 上传
+
