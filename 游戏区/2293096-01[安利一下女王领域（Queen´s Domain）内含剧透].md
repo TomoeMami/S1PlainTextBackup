@@ -6244,3 +6244,17 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">后期结局3跟4要来回跑几遍地图太麻烦了
 
+
+*****
+
+####  christiny  
+##### 509#       发表于 2026-11-15 21:46
+
+<blockquote>はちたや 发表于 2026-11-15 18:53
+一管耐力才能蓄一次 感觉不是很行的样子</blockquote>
+核心是满体力才有伤害，有条件再蓄力。
+
+空窗期就丢远程。
+
+受够了繁文缛节，就直接上步枪😤
+
