@@ -12916,3 +12916,25 @@ terra我自己体感不太好 和1017有输有赢的感觉（也可能是思考�
 
 开到max基本和sol xhigh打得有来有回而且还更便宜
 
+
+*****
+
+####  赤星ビスコ  
+##### 20350#       发表于 2026-11-15 19:48
+
+我用antigravity argon试着把某个galgame转成web形式，感觉又慢，效果也就这样。不如用workbuddy和ds flash做的
+
+
+*****
+
+####  紧那罗  
+##### 20351#       发表于 2026-11-15 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514013&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-15 19:27</a>
+6.1 Terra必须要开max，开xhigh都是消极怠工
+
+开到max基本和sol xhigh打得有来有回而且还更便宜 ...</blockquote>
+确实，我本来有些比较简单的事情想干得快一点就开terra medium，结果它分析了一通压根没干就说干完了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

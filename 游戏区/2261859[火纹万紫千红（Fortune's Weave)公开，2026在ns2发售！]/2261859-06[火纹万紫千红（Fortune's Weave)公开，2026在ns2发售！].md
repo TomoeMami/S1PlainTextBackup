@@ -12994,3 +12994,15 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  沙发果冻  
+##### 8635#       发表于 2026-11-15 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70513869&amp;ptid=2261859" target="_blank">燃烧的石头 发表于 2026-11-15 18:47</a>
+可以
+
+—— 来自 鹅球 v4.0</blockquote>
+多谢，这下搞懂了，这种角色发出惨叫才是真的被打死，不然就是溜了
+
