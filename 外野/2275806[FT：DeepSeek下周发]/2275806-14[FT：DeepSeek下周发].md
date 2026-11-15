@@ -12777,3 +12777,14 @@ API太贵了。。
 
 用deepseek4.1f 1017版的时候，思考一般选极致是吗？比如做平台项目、数据处理、编程什么的<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 20337#       发表于 2026-11-15 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70513127&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-15 14:33</a>
+
+用deepseek4.1f 1017版的时候，思考一般选极致是吗？比如做平台项目、数据处理、编程什么的 ...</blockquote>
+max就行了，低思考省不了钱的
+
