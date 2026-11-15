@@ -1946,3 +1946,37 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 2026-11-15 20:19 上传
 
+
+*****
+
+####  exiaexa  
+##### 21886#       发表于 2026-11-15 20:28
+
+笑死，谁能想到咕哒咕哒size最大的是千利休
+
+这下跟色卡没关系，得下体抽卡了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 21887#       发表于 2026-11-15 20:30
+
+这利休变化有点“大”啊<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  都谷捻柏  
+##### 21888#       发表于 2026-11-15 20:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514235&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-11-15 20:28</a>
+
+笑死，谁能想到咕哒咕哒size最大的是千利休
+
+这下跟色卡没关系，得下体抽卡了
+
+ ...</blockquote>
+怎么和色卡没关系，不是纯色卡吗
+

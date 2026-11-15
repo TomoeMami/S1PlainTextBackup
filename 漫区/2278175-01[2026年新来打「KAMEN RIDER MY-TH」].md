@@ -378,3 +378,11 @@
 
 虎大哥人真好啊，能活过圣诞节么
 
+
+*****
+
+####  王七的弟弟  
+##### 307#       发表于 2026-11-15 20:37
+
+龟壳空洞挂在钻头上转着抽也太好笑了，我喜欢<img src="https://static.stage1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
