@@ -13075,3 +13075,45 @@ HY4好慢还不太聪明，但不要钱</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zephyrus99  
+##### 20364#       发表于 2026-11-16 07:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515007&amp;ptid=2275806" target="_blank">我就再氪一单 发表于 2026-11-16 07:02</a>
+
+今天凌晨应该就要钱了，混元纯花钱吃屎，还不保证会不会被藤子偷数据拿去训练
+
+礼拜六晚上蹬大肥鱼被藤子 ...</blockquote>
+workbuddy有企业版，区别最大的不是功能，是可以签一个数据协议，就是保证数据不会用于大模型训练
+
+那么，个人版的，你还用说”不保证会不会被偷数据拿去训练“吗？
+
+
+*****
+
+####  我就再氪一单  
+##### 20365#       发表于 2026-11-16 07:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515007&amp;ptid=2275806" target="_blank">我就再氪一单 发表于 2026-11-16 07:02</a>
+今天凌晨应该就要钱了，混元纯花钱吃屎，还不保证会不会被藤子偷数据拿去训练
+
+礼拜六晚上蹬大肥鱼被藤子 ...</blockquote>
+选均衡模式赌一次roll到glm5.3，我才想明白，wb你领到的积分都不是你的，赌路由就是网游里的抽箱子，抽到个非flash就是金币回收机制启动<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">以后我还是老老实实ds撞墙限额换MiniMax，我再也不赌路由了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  我就再氪一单  
+##### 20366#       发表于 2026-11-16 07:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515010&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-11-16 07:10</a>
+workbuddy有企业版，区别最大的不是功能，是可以签一个数据协议，就是保证数据不会用于大模型训练
+
+那么， ...</blockquote>
+那就是必然会被拿去训练咯<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">那这练了个勾八，怎么还这么蠢
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
