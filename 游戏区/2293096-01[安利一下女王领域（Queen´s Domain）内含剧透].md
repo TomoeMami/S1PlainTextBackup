@@ -6225,3 +6225,14 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 这游戏攻击是蓄力才有伤害的</blockquote>
 一管耐力才能蓄一次 感觉不是很行的样子
 
+
+*****
+
+####  28201  
+##### 507#       发表于 2026-11-15 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70513890&amp;ptid=2293096" target="_blank">はちたや 发表于 2026-11-15 18:53</a>
+
+一管耐力才能蓄一次 感觉不是很行的样子</blockquote>
+等黄槽满的时间是让你射各种东西的，实质fps<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
