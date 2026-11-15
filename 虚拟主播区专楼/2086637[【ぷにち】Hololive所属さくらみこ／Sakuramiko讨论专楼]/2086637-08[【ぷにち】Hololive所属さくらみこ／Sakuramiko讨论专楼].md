@@ -117,3 +117,33 @@ hololive RECORDS @hololiveRECORDS (2026/11/11 00:00:04)
 
 亲方的性癖怎么这么AV风，什么盗摄爱好
 
+
+*****
+
+####  holofan  
+##### 11763#       发表于 2026-11-15 19:19
+
+有人评论 9年不太对吧岂不是从v出道前就开始推了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11764#       发表于 2026-11-15 19:22
+
+搞不好从一开始就没有什么盗摄视频，今天的企划就是为了放这个VCR
+
+*****
+
+####  holofan  
+##### 11765#       发表于 2026-11-15 19:23
+
+不会吧我说中了
+
+<img src="https://img.stage1st.com/forum/202611/15/192314y5mpq3ktjqtq2hpj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (114.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-15 19:23 上传
+
