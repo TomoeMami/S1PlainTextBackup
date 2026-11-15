@@ -12938,3 +12938,26 @@ terra我自己体感不太好 和1017有输有赢的感觉（也可能是思考�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  CCauchy  
+##### 20352#       发表于 2026-11-15 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514080&amp;ptid=2275806" target="_blank">赤星ビスコ 发表于 2026-11-15 19:48</a>
+我用antigravity argon试着把某个galgame转成web形式，感觉又慢，效果也就这样。不如用workbuddy和ds flash ...</blockquote>
+这个我很需要，wine能跑的galgame还是太少，有什么要注意的吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ov_efly  
+##### 20353#       发表于 2026-11-15 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70513127&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-15 14:33</a>
+
+用deepseek4.1f 1017版的时候，思考一般选极致是吗？比如做平台项目、数据处理、编程什么的 ...</blockquote>
+我一直是 high ，max 之前有雷霆思考卡死的问题，目前用下来，high 其实基本也够，排查 bug 几轮也可以渐进，本身 flash 快可以弥补很多
+

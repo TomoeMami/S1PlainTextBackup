@@ -6236,3 +6236,11 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 一管耐力才能蓄一次 感觉不是很行的样子</blockquote>
 等黄槽满的时间是让你射各种东西的，实质fps<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kkk9233  
+##### 508#       发表于 2026-11-15 20:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">后期结局3跟4要来回跑几遍地图太麻烦了
+
