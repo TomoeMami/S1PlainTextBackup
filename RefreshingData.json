@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 23310,
+    "totalreply": 23311,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「丹青渡」版本现已开放]",
-    "lastedit": 1794780847,
+    "lastedit": 1794785653,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 22994,
+    "totalreply": 22995,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼11月]",
-    "lastedit": 1794780734,
+    "lastedit": 1794785655,
     "category": "外野",
     "active": true,
     "update": false
@@ -13626,10 +13626,10 @@
     "update": false
   },
   "2288933": {
-    "totalreply": 999,
+    "totalreply": 1000,
     "title": "[俄乌9月楼]",
     "newtitle": "[俄乌11月楼]",
-    "lastedit": 1794752528,
+    "lastedit": 1794785770,
     "category": "外野",
     "active": true,
     "update": false
@@ -14193,10 +14193,10 @@
     "update": false
   },
   "2292541": {
-    "totalreply": 158,
+    "totalreply": 159,
     "title": "[这个性转马尔福系列视频应该是迄今为止单人AI视频制作的巅峰了吧]",
     "newtitle": "[这个性转马尔福系列视频应该是迄今为止单人AI视频制作的巅峰了吧]",
-    "lastedit": 1794766329,
+    "lastedit": 1794785770,
     "category": "外野",
     "active": true,
     "update": false
@@ -18302,6 +18302,15 @@
     "newtitle": "[3D平台跳跃游戏专楼]",
     "lastedit": 1794763451,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2294075": {
+    "totalreply": 41,
+    "title": "[deepseek的算力已经完蛋了吗]",
+    "newtitle": "[deepseek的算力已经完蛋了吗]",
+    "lastedit": 1794785411,
+    "category": "外野",
     "active": true,
     "update": false
   }
