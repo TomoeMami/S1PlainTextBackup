@@ -2029,3 +2029,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 感觉信长会是圣诞或者新年从者</blockquote>
 应该是其中之一了，而且听了听，声优好像还是钉宫。
 
+
+*****
+
+####  森兰丸  
+##### 21894#       发表于 2026-11-15 21:18
+
+醒醒啊....再怎么大内在还是个巨汉啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
