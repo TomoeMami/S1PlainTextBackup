@@ -901,3 +901,27 @@ BanGDream! bilibili官方：@BanGDream_CN
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">GO团也要爆了
 
+
+*****
+
+####  堀内爱里衣  
+##### 42219#       发表于 2026-11-16 02:02
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/16/020208vtpp4s7ggykk64ps.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-16_02-00-10.png</strong> (372.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-16 02:02 上传
+
+       [https://x.com/bang_dream_info/status/2121181719458119983](https://x.com/bang_dream_info/status/2121181719458119983)
+
+       [https://x.com/Billboard_JAPAN/status/2121181537458962432](https://x.com/Billboard_JAPAN/status/2121181537458962432)
+
+       [https://www.billboard-japan.com/special/detail/5518](https://www.billboard-japan.com/special/detail/5518)  <strong>&lt;——原文链接</strong>
+
+       [https://avemujica.wiki/interview/index.html#lIscTomQZxA](https://avemujica.wiki/interview/index.html#lIscTomQZxA)  <strong>&lt;——唯鸡百科译文《Ave Mujica 音乐制作人 Diggy-MO’眼中的乐队制作精髓（后篇）》</strong>
+
