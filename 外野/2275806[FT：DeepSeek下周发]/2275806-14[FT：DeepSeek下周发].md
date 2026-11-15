@@ -12832,3 +12832,13 @@ Google 开始限制第三方 agent 接入，手段竟然是过滤系统提示词
 Pi 用户要改系统提示词了。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">靠 还真是这样吗 我让sol排查了半天429问题感觉原因也是如此
 
+
+*****
+
+####  umamusume  
+##### 20342#       发表于 2026-11-15 17:34
+
+反重力简直是大便中的大便
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
