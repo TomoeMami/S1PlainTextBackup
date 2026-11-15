@@ -13016,3 +13016,13 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  chiefshi  
+##### 8637#       发表于 2026-11-15 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70513804&amp;ptid=2261859" target="_blank">沙发果冻 发表于 2026-11-15 18:26</a>
+打完凯伊的第二部，先问下蕾达篇要收小红小绿的话，第二章能把小红打死么，他那一路有把净化剑，这东西我还 ...</blockquote>
+净化剑很多啊，左上角欧什么什么村每章都可以买一把
+

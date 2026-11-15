@@ -421,3 +421,13 @@
 —— 来自 Sony XQ-DQ72, Android 15, 鹅球 v3.5.99-alpha</blockquote>
 我知道，刚好猫鼠队梗图而已
 
+
+*****
+
+####  iceddd  
+##### 311#       发表于 2026-11-15 23:17
+
+奥加形态打戏还挺有想象力的 就是这个badcg<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虎大哥人这么好 狗大哥人也这么好按照上面说的场外消息30集还没人退场 不会两边矛盾全在红猫不说人话的误会吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
