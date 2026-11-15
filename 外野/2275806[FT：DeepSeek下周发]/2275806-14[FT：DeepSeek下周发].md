@@ -12584,3 +12584,19 @@ CC-BY-NC都还不够自由吗？</blockquote><blockquote>自由软件 可以 是
 
 [https://www.gnu.org/licenses/license-list.html#CC-BY-NC](https://www.gnu.org/licenses/license-list.html#CC-BY-NC)
 
+
+*****
+
+####  冤枉呐  
+##### 20323#       发表于 2026-11-15 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70512328&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-11-15 09:59</a>
+错了，我的是229套餐。
+
+发票上就是显示话费，没有其他条目的。</blockquote>
+一样啊，我们这也可以
+我们一个月充的钱挺多，可是我之前办了个无限期的29流量卡，单位充值账户是8块保号……
+这个钱就只能花在话费上，我现在就用移动的plan用k3写材料……
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
