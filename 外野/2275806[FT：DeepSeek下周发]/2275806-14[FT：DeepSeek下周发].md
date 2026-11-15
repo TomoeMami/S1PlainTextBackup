@@ -12878,3 +12878,13 @@ Pi 用户要改系统提示词了。 ...</blockquote>
 用deepseek4.1f 1017版的时候，思考一般选极致是吗？比如做平台项目、数据处理、编程什么的 ...</blockquote>
 高和max区别不大，走常规任务我甚至设置成low
 
+
+*****
+
+####  GJRstone  
+##### 20347#       发表于 2026-11-15 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70512353&amp;ptid=2275806" target="_blank">白日依山尽 发表于 2026-11-15 10:07</a>
+https://www.gnu.org/licenses/license-list.html#CC-BY-NC</blockquote>
+第一次知道cc by nc是歧视性对待创作者本身和受权使用者的商业化使用权也算不自由。相比于gpl实现的生产工具共有确实是不自由了
+

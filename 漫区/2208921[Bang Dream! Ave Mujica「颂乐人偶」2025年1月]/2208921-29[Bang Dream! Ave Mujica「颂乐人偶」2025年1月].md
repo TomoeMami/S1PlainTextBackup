@@ -893,3 +893,11 @@ BanGDream! bilibili官方：@BanGDream_CN
 ✦・━━━━━━━━━━━━━━━ ・✦⁡⁡"</blockquote>
        [https://www.bilibili.com/video/BV1GysJ63Eed](https://www.bilibili.com/video/BV1GysJ63Eed)
 
+
+*****
+
+####  客服少女小祥  
+##### 42218#       发表于 2026-11-15 18:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">GO团也要爆了
+
