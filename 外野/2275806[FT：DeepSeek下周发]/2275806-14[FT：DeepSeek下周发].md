@@ -13029,3 +13029,14 @@ argon是单独一个池子 5H里是4H
 
 GLM小道消息又来了，本周发布
 
+
+*****
+
+####  来都来了  
+##### 20360#       发表于 2026-11-16 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511389&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-15 00:36</a>
+我的意思是，租个云主机自己部署模型
+与之相对的是调DeepSeek官方api这一种</blockquote>
+能部署Deepseek的云主机一年要花多少钱<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
