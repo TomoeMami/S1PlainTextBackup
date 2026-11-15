@@ -13040,3 +13040,13 @@ GLM小道消息又来了，本周发布
 与之相对的是调DeepSeek官方api这一种</blockquote>
 能部署Deepseek的云主机一年要花多少钱<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月海的秋鸟  
+##### 20361#       发表于 2026-11-16 01:42
+
+新的斗蛐蛐还不错啊，  sol是不是太聪明了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">唯一一个像人类在玩的
+
+【当你把9个ai叫来玩全面战争模拟器...｜AI 算法对抗大赛 第 10 集 纸上谈兵】 [https://www.bilibili.com/video/B ... 1111cc0aaae301ecc90](https://www.bilibili.com/video/BV1wRsV6gEP4/?share_source=copy_web&amp;vd_source=5213a463bab681111cc0aaae301ecc90)
+
