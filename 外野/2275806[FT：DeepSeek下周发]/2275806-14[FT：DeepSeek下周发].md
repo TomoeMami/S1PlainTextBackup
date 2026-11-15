@@ -12494,3 +12494,17 @@ LLM最早的形态是Chatbox，所以给人一种AI天生上云的感觉。Agent
 
 这期斗蛐蛐为了塞广告用的这人设真平庸啊，能流传开的zip版本还是有道理的
 
+
+*****
+
+####  紧那罗  
+##### 20316#       发表于 2026-11-15 08:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511389&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-15 00:36</a>
+我的意思是，租个云主机自己部署模型
+与之相对的是调DeepSeek官方api这一种</blockquote>
+就llm来说，一般没人这么干，租云主机的显卡你本质上就是在拿大厂API轮次收费的价格包时长。
+人家模型厂自己部署的API半年就能把计算卡的钱赚回来。你租个云主机半年花掉一张本地显卡的钱你压力大不<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
