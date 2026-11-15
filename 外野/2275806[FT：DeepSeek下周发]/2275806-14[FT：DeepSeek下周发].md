@@ -12698,3 +12698,11 @@ CC-BY-NC都还不够自由吗？</blockquote><blockquote>自由软件 可以 是
 智能、费用与耗时</blockquote>
 请教下Gemini carbon要怎么买才能用API？
 
+
+*****
+
+####  四氧化三铅  
+##### 20330#       发表于 2026-11-15 12:17
+
+啥笔殖乎又开始团建唱衰国产大模型了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
