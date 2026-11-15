@@ -1756,3 +1756,62 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 用战斗服晕一下不就行了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 21870#       发表于 2026-11-15 07:06
+
+<img src="https://img.stage1st.com/forum/202611/15/070623hqxmcrsmzsrxxmrx.jpg" referrerpolicy="no-referrer">
+
+<strong>1000051429.jpg</strong> (307.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-15 07:06 上传
+
+杂贺还没出……
+
+*****
+
+####  都谷捻柏  
+##### 21871#       发表于 2026-11-15 08:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511295&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-11-15 00:01</a>
+对宝具中概率闪避，无敌贯通都没用，要眩晕或者魅惑才能破，这次卖卡卖的太明显了 ...</blockquote>
+不算强行卖卡，只能算教玩家这个卡的一个用法，毕竟这是日服，一堆玩家队伍辣眼睛的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  壳壳牛  
+##### 21872#       发表于 2026-11-15 09:09
+
+狂柱子续杯了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  白金口袋  
+##### 21873#       发表于 2026-11-15 09:22
+
+金nobu，全村唯一的独苗还在苦撑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 21874#       发表于 2026-11-15 09:54
+
+非得弄个池子在打完柱子之后才开，神经病设计
+
+*****
+
+####  angelooo  
+##### 21875#       发表于 2026-11-15 11:08
+
+<blockquote>quanlix 发表于 2026-11-15 09:54
+非得弄个池子在打完柱子之后才开，神经病设计</blockquote>
+尺上杉：你好，看来这是我们咕哒咕哒的传统
+
