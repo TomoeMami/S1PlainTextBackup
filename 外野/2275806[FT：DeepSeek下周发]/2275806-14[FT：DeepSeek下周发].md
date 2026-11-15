@@ -12903,3 +12903,16 @@ terra我自己体感不太好 和1017有输有赢的感觉（也可能是思考�
 
 同样是开订阅爽蹬 100美元蹬Hydrogen感觉会更好 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">而且谷家还有羊毛 实际开5x都用不到50刀
 
+
+*****
+
+####  bartholo4  
+##### 20349#       发表于 2026-11-15 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70513905&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-15 18:58</a>
+
+terra我自己体感不太好 和1017有输有赢的感觉（也可能是思考深度没开太高的关系？我看这个high和max分数 ...</blockquote>
+6.1 Terra必须要开max，开xhigh都是消极怠工
+
+开到max基本和sol xhigh打得有来有回而且还更便宜
+
