@@ -12685,3 +12685,16 @@ CC-BY-NC都还不够自由吗？</blockquote><blockquote>自由软件 可以 是
 
 —— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  UncleDracula  
+##### 20329#       发表于 2026-11-15 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70512695&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-15 12:02</a>
+
+把野榜 AA 猫榜 arena 综合搞了个对比图
+
+智能、费用与耗时</blockquote>
+请教下Gemini carbon要怎么买才能用API？
+
