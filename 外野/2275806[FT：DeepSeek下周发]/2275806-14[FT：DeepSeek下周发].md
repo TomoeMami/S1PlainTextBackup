@@ -12565,3 +12565,22 @@ CC-BY-NC都还不够自由吗？
 话说要做的东西名字是脏token咋整，k3.1p和肥鱼1017拼写一直出错，提醒一下能反应过来，过一会又开始拼写错 ...</blockquote>
 加点分隔符试试？也相当于改名了
 
+
+*****
+
+####  白日依山尽  
+##### 20322#       发表于 2026-11-15 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70512310&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-11-15 09:54</a>
+
+CC-BY-NC都还不够自由吗？</blockquote><blockquote>自由软件 可以 是商业软件
+
+“自由软件” 不表示 “非商业化”。与之相反，自由软件必须可以商用、可以商业开发、可以商业发布。这个政策非常重要—缺乏这样的政策，自由软件将无法实现自己的目标。 </blockquote>
+<blockquote>Creative Commons NonCommercial，所有版本 (#CC-BY-NC)
+
+    这不是一个自由文档许可证，因为它限制对拷贝收费。所以，我们不建议你对自己的文档使用该许可证。
+
+    此外，它有一个弱点：如果修改版有许多作者，那么为了商用要获得所有人的许可是不现实的。</blockquote>
+
+[https://www.gnu.org/licenses/license-list.html#CC-BY-NC](https://www.gnu.org/licenses/license-list.html#CC-BY-NC)
+
