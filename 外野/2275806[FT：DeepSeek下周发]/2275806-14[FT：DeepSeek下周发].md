@@ -12508,3 +12508,14 @@ LLM最早的形态是Chatbox，所以给人一种AI天生上云的感觉。Agent
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  白日依山尽  
+##### 20317#       发表于 2026-11-15 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511767&amp;ptid=2275806" target="_blank">阿虚家的三味 发表于 2026-11-15 06:34</a>
+
+这期斗蛐蛐为了塞广告用的这人设真平庸啊，能流传开的zip版本还是有道理的 ...</blockquote>
+作为原教旨自由许可支持者，觉得换掉 #CC-BY-NC 相关的东西是好事
+
