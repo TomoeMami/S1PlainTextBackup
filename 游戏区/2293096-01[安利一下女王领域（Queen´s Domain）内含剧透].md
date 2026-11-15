@@ -6266,3 +6266,27 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打完上古界域了，感觉要缓缓，各种被怪围殴，下一张图就是城堡吗？感觉好像漏了很多东西
 
+
+*****
+
+####  shimotsuki14  
+##### 511#       发表于 2026-11-15 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514448&amp;ptid=2293096" target="_blank">Triangle 发表于 2026-11-15 21:50</a>
+打完上古界域了，感觉要缓缓，各种被怪围殴，下一张图就是城堡吗？感觉好像漏了很多东西 ...</blockquote>
+还有好几张图呢。直接进城堡打完就是结局1。
+
+—— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  ddsafvbw  
+##### 512#       发表于 2026-11-15 22:45
+
+<blockquote>wcorvo 发表于 2026-11-14 23:03
+推到上古界域了，给我整麻了，逛了一个半小时没见到第二个火，要出门了逃回第一个火了
+
+最远是跑到一个黑乎 ...</blockquote>
+那个洞第二次层上去升龙能过去第二个存档点，但是到了第二个存档点我也找不到路该去哪了
+
