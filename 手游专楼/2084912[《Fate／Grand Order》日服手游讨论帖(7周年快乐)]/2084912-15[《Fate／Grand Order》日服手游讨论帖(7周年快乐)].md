@@ -1823,3 +1823,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">点数毕业了懒得刷了
 
+
+*****
+
+####  格林卡罗尔  
+##### 21877#       发表于 2026-11-15 17:03
+
+现在各种脚本最大的问题还是更新速度，柱子战借不到水一杯我好难受<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
