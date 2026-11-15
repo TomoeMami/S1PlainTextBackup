@@ -119,3 +119,16 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">乌友活动内容量也不大吧（
 
+
+*****
+
+####  wilkyway  
+##### 2175#       发表于 2026-11-16 04:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70513587&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2026-11-15 17:17</a>
++999太恐怖了，挂着脚本刷调查才能刷出来吧
+
+复刻能不能复刻DOA，我馋那几套泳装好久了</blockquote>
+其实...也不用
+氪得够多差不多能把饰品池抽空的水平拿到的那些票每期出新人硬刷装备扫荡过去的调查差不多也能弄出来不止一队了
+
