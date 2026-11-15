@@ -2008,3 +2008,13 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">感觉信长会是圣诞或者新年从者
 
+
+*****
+
+####  angelooo  
+##### 21892#       发表于 2026-11-15 20:50
+
+<blockquote>克苏鲁系青骑士 发表于 2026-11-15 20:38
+感觉像深海栖姬或者妮姬异端者…</blockquote>
+深海栖姬的话之前农神三破就很像了
+
