@@ -1915,3 +1915,34 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 虽然是红卡，但是数据还是给的有点低。
 
+
+*****
+
+####  qixinno1  
+##### 21884#       发表于 2026-11-15 20:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">刚看到 这是去过舰B进修过吗 怎么大那么多
+
+<img src="https://img.stage1st.com/forum/202611/15/201943yf1rjg3vgsnrsa1g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.61 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-15 20:19 上传
+
+*****
+
+####  Jamaisvu  
+##### 21885#       发表于 2026-11-15 20:19
+
+水利休这是正经卡吗，感觉在其他平台发图会被夹...：
+
+<img src="https://img.stage1st.com/forum/202611/15/201931mk78bfgs36ycfz1t.png" referrerpolicy="no-referrer">
+
+<strong>ee161ab96a0b7a76378410ae9d0280eb_ad3546873ea46de7cf9d252bca0fb478472227710.png</strong> (515.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-15 20:19 上传
+
