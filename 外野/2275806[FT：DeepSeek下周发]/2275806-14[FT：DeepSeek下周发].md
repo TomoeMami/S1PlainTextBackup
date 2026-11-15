@@ -12519,3 +12519,24 @@ LLM最早的形态是Chatbox，所以给人一种AI天生上云的感觉。Agent
 这期斗蛐蛐为了塞广告用的这人设真平庸啊，能流传开的zip版本还是有道理的 ...</blockquote>
 作为原教旨自由许可支持者，觉得换掉 #CC-BY-NC 相关的东西是好事
 
+
+*****
+
+####  GLYSDSB  
+##### 20318#       发表于 2026-11-15 09:51
+
+有什么能增强大肥鱼编程自检能力的插件，我现在只能给WorkBuddy改完后帮他检查，否则这大肥鱼，天天说改了，然后实际就吃白饭，改都没改
+
+—— 来自 vivo V2464A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  飞剪号  
+##### 20319#       发表于 2026-11-15 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70512245&amp;ptid=2275806" target="_blank">白日依山尽 发表于 2026-11-15 09:27</a>
+
+作为原教旨自由许可支持者，觉得换掉 #CC-BY-NC 相关的东西是好事</blockquote>
+CC-BY-NC都还不够自由吗？
+
