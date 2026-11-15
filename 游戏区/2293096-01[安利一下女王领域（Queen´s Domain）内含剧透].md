@@ -6319,3 +6319,15 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 现在用着的最轮椅武器是锈斧进化，蓝火百分比伤害还是太权威了，而且很早就能拿到陵墓就可以拿到了
 
+
+*****
+
+####  Kaornao  
+##### 516#       发表于 2026-11-15 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514448&amp;ptid=2293096" target="_blank">Triangle 发表于 2026-11-15 21:50</a>
+打完上古界域了，感觉要缓缓，各种被怪围殴，下一张图就是城堡吗？感觉好像漏了很多东西 ...</blockquote>
+飞翼传送到时候走出去等一会可以到石化花园，三叉戟解密完石化花园可以去林地，然后林地能去大多数地方，我昨天推完上古界域好奇传送走出去会怎么样，才发现居然还可以这样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -13036,3 +13036,17 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 救世主大人再也不用送死了，刚实验了一下，四主角的升级乱数表也可以用开关支援表的方式改，不过是要开关因 ...</blockquote>
 主角的怎么改？
 
+
+*****
+
+####  南宫月汐  
+##### 8639#       发表于 2026-11-15 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514689&amp;ptid=2261859" target="_blank">chiefshi 发表于 2026-11-15 23:17</a>
+净化剑很多啊，左上角欧什么什么村每章都可以买一把</blockquote>
+第二部那把是+1的净化剑
+
+顺便问下第二部每章开头是都选升级还是全员35以后就训练比较好？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
