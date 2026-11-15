@@ -12746,3 +12746,16 @@ API太贵了。。
 最后还是用的agy，现在agy更新了下其实 ...</blockquote>
 我买的是jio的会员，现在一直没有领送的10刀，能绑国内的信用卡吗？
 
+
+*****
+
+####  bartholo4  
+##### 20334#       发表于 2026-11-15 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70512842&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-15 12:52</a>
+
+我买的是jio的会员，现在一直没有领送的10刀，能绑国内的信用卡吗？</blockquote>
+我是招行的JCB信用卡，是在10来年前政策还松的时候
+
+不过Google付款一直都挺松的
+
