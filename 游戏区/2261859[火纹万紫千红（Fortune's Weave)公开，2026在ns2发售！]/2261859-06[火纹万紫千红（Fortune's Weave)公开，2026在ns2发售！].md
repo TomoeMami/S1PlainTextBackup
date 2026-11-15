@@ -13080,3 +13080,13 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 论坛助手,iPhone ...</blockquote>
 可以去弄点饮料能继承到第三部，那个减移动消耗的很不错<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangchunsiyue  
+##### 8642#       发表于 2026-11-16 02:14
+
+迪雅各和救世主在第三部为什么有支援锁啊？要怎么解锁啊，已经打到第五区分了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
