@@ -12731,3 +12731,18 @@ API太贵了。。
 
 而且AI pro 送的API额度其实也可以应急一些需要外链的的场景
 
+
+*****
+
+####  UncleDracula  
+##### 20333#       发表于 2026-11-15 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70512826&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-15 12:45</a>
+
+API太贵了。。
+
+中转站又因为Google的奇怪格式，基本没找到好用的
+
+最后还是用的agy，现在agy更新了下其实 ...</blockquote>
+我买的是jio的会员，现在一直没有领送的10刀，能绑国内的信用卡吗？
+
