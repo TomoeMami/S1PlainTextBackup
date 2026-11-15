@@ -4725,3 +4725,233 @@ MONOMOON
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Algie  
+##### 342#       发表于 2026-11-16 03:11
+
+Thinky Awards 2026 提名
+
+年度游戏
+
+- 868-BACK
+
+- Big Walk
+
+- Emuurom
+
+- He Who Watches
+
+- Order of the Sinking Star
+
+- The Artisan of Glimmith
+
+- The Incident at Galley House
+
+- The Message from Deep Space
+
+最佳易上手游戏
+
+- 20 More, Somehow Even Smaller, Mazes
+
+- Big Walk
+
+- Chomp Garden
+
+- Colorbound
+
+- Deductopia
+
+- Rita
+
+- Schrodinger's Cat Burglar
+
+- The Mermaid Mask
+
+最佳挑战性游戏
+
+- Derelict Star
+
+- He Who Watches
+
+- Order of the Sinking Star
+
+- Pull Chain
+
+- The Artisan of Glimmith
+
+- The Message from Deep Space
+
+- Theta and Paralldox on Worldlines
+
+- Where's My Egg?
+
+最佳谜题设计
+
+- A Little Perspective
+
+- Clover's Quadrants
+
+- E9uations
+
+- Hamstermind
+
+- He Who Watches
+
+- Order of the Sinking Star
+
+- The Artisan of Glimmith
+
+- Theta and Paralldox on Worldlines
+
+最具创新游戏
+
+- Big Walk
+
+- Emuurom
+
+- Horse Magnifier: The Full Horse
+
+- Map Map - A Game About Maps
+
+- The Art of Reflection
+
+- The Message from Deep Space
+
+- The Remake of the End of the Greatest RPG of All Time
+
+- TR-49
+
+最佳艺术指导
+
+- Big Walk
+
+- Burn With Me
+
+- Clover's Quadrants
+
+- Emuurom
+
+- Helix: Descent N Ascent
+
+- Phonopolis
+
+- The Mermaid Mask
+
+- Wax Heads
+
+最佳策略游戏
+
+- 868-BACK
+
+- Burn With Me
+
+- Dicevaders
+
+- Mewgenics
+
+- Shroom and Gloom
+
+- Slay the Spire 2
+
+- Titanium Court
+
+最佳纸笔谜题
+
+- Cut Up!
+
+- Herd
+
+- Lost Speech
+
+- Murdoku Vol. 2-3
+
+- Rorschach's River
+
+- The Initiating
+
+最佳移动游戏
+
+- Club Soko
+
+- Humbug 2
+
+- Servant of the Lake
+
+- Titanium Court
+
+- TR-49
+
+- Ultrapool
+
+最佳免费游戏
+
+- 20 More, Somehow Even Smaller, Mazes
+
+- Carrot Kingdom!
+
+- Pull Chain
+
+- Rorschach's River
+
+- Sudokuvania 2: Lineage of Logic
+
+- The Archives of Trevosa (Jam Version)
+
+- The Red Pearls of Borneo
+
+最佳扩展内容
+
+- Gentoo Rescue - Anniversary Update
+
+- Opus Magnum: De Re Metallica
+
+- Portal: Alive &amp; Kicking
+
+- Shape
+
+- The Incident at Galley House
+
+- The Talos Principle 2 - Puzzle Editor
+
+最受期待游戏
+
+- DEG
+
+- Dittori
+
+- Inkblood
+
+- Machinarium 2
+
+- Nonolith
+
+- The Archives of Trevosa
+
+- The Talos Principle 3
+
+- Tiling Town
+
+- Trifolium: The Adventures of Gary Pretzelneck
+
+最佳内容创作者
+
+- Aliensrock
+
+- Cracking the Cryptic
+
+- Draknek &amp; Friends Official Podcast
+
+- GamesWithMorgan
+
+- Icely Puzzles
+
+- NinaStruggles
+
+- Olexa
+
+- That Design Feel
+
+monomoon差一点就能赶上今年的提名了
+
