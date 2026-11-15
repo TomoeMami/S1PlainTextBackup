@@ -2056,3 +2056,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有种AI图看多了，脑子里已经变成，无论什么词条什么人物，先输出两个大木瓜再说
 
+
+*****
+
+####  壳壳牛  
+##### 21897#       发表于 2026-11-15 21:48
+
+哪来的八尺大人<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

@@ -6258,3 +6258,11 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 受够了繁文缛节，就直接上步枪😤
 
+
+*****
+
+####  Triangle  
+##### 510#       发表于 2026-11-15 21:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打完上古界域了，感觉要缓缓，各种被怪围殴，下一张图就是城堡吗？感觉好像漏了很多东西
+
