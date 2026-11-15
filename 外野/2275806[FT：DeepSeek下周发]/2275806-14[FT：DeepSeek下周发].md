@@ -12961,3 +12961,16 @@ terra我自己体感不太好 和1017有输有赢的感觉（也可能是思考�
 用deepseek4.1f 1017版的时候，思考一般选极致是吗？比如做平台项目、数据处理、编程什么的 ...</blockquote>
 我一直是 high ，max 之前有雷霆思考卡死的问题，目前用下来，high 其实基本也够，排查 bug 几轮也可以渐进，本身 flash 快可以弥补很多
 
+
+*****
+
+####  赤星ビスコ  
+##### 20354#       发表于 2026-11-15 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514136&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-11-15 20:03</a>
+这个我很需要，wine能跑的galgame还是太少，有什么要注意的吗
+
+论坛助手,iPhone ...</blockquote>
+你直接把原本的硬盘版作为工作区然后许愿，让agent提取中文脚本/声音/cg/背景/立绘，使用WebGAL引擎还原<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然实际上经常玩着玩着就发现有bug，再让agent改bug就是了
+
