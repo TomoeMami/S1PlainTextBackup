@@ -12888,3 +12888,18 @@ Pi 用户要改系统提示词了。 ...</blockquote>
 https://www.gnu.org/licenses/license-list.html#CC-BY-NC</blockquote>
 第一次知道cc by nc是歧视性对待创作者本身和受权使用者的商业化使用权也算不自由。相比于gpl实现的生产工具共有确实是不自由了
 
+
+*****
+
+####  紧那罗  
+##### 20348#       发表于 2026-11-15 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70512695&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-15 12:02</a>
+
+把AA野榜  猫榜 arena 综合搞了个图
+
+智能、费用与耗时</blockquote>
+terra我自己体感不太好 和1017有输有赢的感觉（也可能是思考深度没开太高的关系？我看这个high和max分数差的还挺多 有点意外）
+
+同样是开订阅爽蹬 100美元蹬Hydrogen感觉会更好 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">而且谷家还有羊毛 实际开5x都用不到50刀
+
