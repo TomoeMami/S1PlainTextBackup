@@ -13006,3 +13006,13 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 —— 来自 鹅球 v4.0</blockquote>
 多谢，这下搞懂了，这种角色发出惨叫才是真的被打死，不然就是溜了
 
+
+*****
+
+####  u2deack  
+##### 8636#       发表于 2026-11-15 22:52
+
+其他线开过图了玩蕾达到中后期地图上真的除了捡捡素材真的没事干
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
