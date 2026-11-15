@@ -12540,3 +12540,28 @@ LLM最早的形态是Chatbox，所以给人一种AI天生上云的感觉。Agent
 作为原教旨自由许可支持者，觉得换掉 #CC-BY-NC 相关的东西是好事</blockquote>
 CC-BY-NC都还不够自由吗？
 
+
+*****
+
+####  zack1999  
+##### 20320#       发表于 2026-11-15 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511394&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-15 00:37</a>
+
+我司发电话费只能消费话费，我一直买移动的套餐
+
+很贵，奈何发的电话费核销的</blockquote>
+错了，我的是229套餐。
+
+发票上就是显示话费，没有其他条目的。
+
+
+*****
+
+####  unrealMeeSeeks  
+##### 20321#       发表于 2026-11-15 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511641&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-15 04:19</a>
+话说要做的东西名字是脏token咋整，k3.1p和肥鱼1017拼写一直出错，提醒一下能反应过来，过一会又开始拼写错 ...</blockquote>
+加点分隔符试试？也相当于改名了
+
