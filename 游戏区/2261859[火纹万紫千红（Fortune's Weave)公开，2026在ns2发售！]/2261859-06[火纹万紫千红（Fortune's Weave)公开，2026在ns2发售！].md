@@ -13068,3 +13068,15 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 8641#       发表于 2026-11-16 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514622&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-11-15 22:52</a>
+其他线开过图了玩蕾达到中后期地图上真的除了捡捡素材真的没事干
+
+论坛助手,iPhone ...</blockquote>
+可以去弄点饮料能继承到第三部，那个减移动消耗的很不错<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
