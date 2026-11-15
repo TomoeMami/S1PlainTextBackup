@@ -6128,3 +6128,16 @@ i奥
 
 —— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  christiny  
+##### 497#       发表于 2026-11-15 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511227&amp;ptid=2293096" target="_blank">zero4166 发表于 2026-11-14 23:35</a>
+
+终于全成就了，有个成就要求把几乎所有武器练满级，，没想到比找东西还折磨 ...</blockquote>
+说是后面可以买圣油，这玩意吃给武器直接升级。
+
+配合60餐卷之后的厨师奖励，武器升级就能吃大餐，后期属性要爆炸……
+
