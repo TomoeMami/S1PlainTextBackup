@@ -408,3 +408,16 @@
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  洛克萨斯  
+##### 310#       发表于 2026-11-15 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514520&amp;ptid=2278175" target="_blank">duo_wolf 发表于 2026-11-15 22:16</a>
+
+但是这是狗哥
+
+—— 来自 Sony XQ-DQ72, Android 15, 鹅球 v3.5.99-alpha</blockquote>
+我知道，刚好猫鼠队梗图而已
+
