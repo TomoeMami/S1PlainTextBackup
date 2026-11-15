@@ -12600,3 +12600,21 @@ CC-BY-NC都还不够自由吗？</blockquote><blockquote>自由软件 可以 是
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  fifibear  
+##### 20324#       发表于 2026-11-15 11:51
+
+不需要用云服务器跑agent，我是把本地机器反代到云端，然后在任何地方手机连接分派任务
+
+—— 来自 Xiaomi 2308CPXD0C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  warlock228  
+##### 20325#       发表于 2026-11-15 11:57
+
+现在opencodego是不是老是426？
+
