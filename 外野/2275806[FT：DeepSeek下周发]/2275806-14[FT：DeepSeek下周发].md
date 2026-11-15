@@ -12788,3 +12788,16 @@ API太贵了。。
 用deepseek4.1f 1017版的时候，思考一般选极致是吗？比如做平台项目、数据处理、编程什么的 ...</blockquote>
 max就行了，低思考省不了钱的
 
+
+*****
+
+####  冤枉呐  
+##### 20338#       发表于 2026-11-15 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70512015&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-15 08:15</a>
+就llm来说，一般没人这么干，租云主机的显卡你本质上就是在拿大厂API轮次收费的价格包时长。
+人家模型厂 ...</blockquote>
+这么贵的吗，我看都说块把钱一小时嘛
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
