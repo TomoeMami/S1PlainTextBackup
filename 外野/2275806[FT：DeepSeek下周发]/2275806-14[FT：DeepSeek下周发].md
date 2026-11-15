@@ -12850,3 +12850,21 @@ Pi 用户要改系统提示词了。 ...</blockquote>
 
 原来WSL3也没修好稀疏磁盘吗，前几天想省一点体积就设置了一下，今天就疯狂报错，救了一下午的数据<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宅男的爱  
+##### 20344#       发表于 2026-11-15 18:08
+
+狗叔有开子版的考虑么？或者S1有这个专楼的群吗？
+
+
+*****
+
+####  lactone  
+##### 20345#       发表于 2026-11-15 18:12
+
+用qwen4搞了一个项目，感觉多模态视觉上比1017还是强一些，不比k3.1差
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

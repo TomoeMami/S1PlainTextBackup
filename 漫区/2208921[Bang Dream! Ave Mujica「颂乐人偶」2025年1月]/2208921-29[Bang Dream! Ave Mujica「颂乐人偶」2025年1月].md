@@ -794,3 +794,102 @@ Ave Mujica 0th LIVE「Primo die in scaena」
 
        [https://bang-dream.com/events/avemujica_anima-incorrupta](https://bang-dream.com/events/avemujica_anima-incorrupta)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42217#       发表于 2026-11-15 18:11
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/15/181058fevj6d6vsffjld6v.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-15_18-05-35.png</strong> (480.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-15 18:10 上传
+
+       [https://x.com/bang_dream_info/status/2121899104238469163](https://x.com/bang_dream_info/status/2121899104238469163)
+
+       [https://www.youtube.com/watch?v=6JQ2YoFV0IM](https://www.youtube.com/watch?v=6JQ2YoFV0IM)
+
+       
+
+       <[strong>TV动画「BanG Dream! MyGO!!!!! // Ave Mujica」先导PV第2弹 Side MyGO!!!!!</strong>](https://www.bilibili.com/video/BV1GysJ63Eed) <blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/15/181058espizct5cm5ioz57.png" referrerpolicy="no-referrer">
+
+<strong>3d5ab52191ae146bf16019ab7c40a827e16905f7.png</strong> (959.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-15 18:10 上传
+
+私の叫び、無くなっちゃった
+
+TV动画「BanG Dream! MyGO!!!!! // Ave Mujica」先导PV第2弹 Side MyGO!!!!! 公开。
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+TV动画「BanG Dream! MyGO!!!!! // Ave Mujica」
+
+日本电视台「FRIDAY ANIME NIGHT（フラアニ）」时段
+
+2027/1/8(周五)日本时间23:30正式播出📺
+
+详情：[https://anime.bang-dream.com/mygo-avemujica/](https://anime.bang-dream.com/mygo-avemujica/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+MyGO!!!!! 10th LIVE「僕たちのいまを越えて」
+
+2027年4月29日(周四)･30日(周五)＠Kアリーナ横浜
+
+MyGO!!!!!5周年的纪念日，2DAYS单独LIVE将于Kアリーナ横浜举行。
+
+最速先行抽选
+
+抽选期间：2026年11月15日(周日) 19:00 ～ 12月20日(周日) 22:59 （※北京时间）
+
+详情：[https://bang-dream.com/events/mygo_10th/](https://bang-dream.com/events/mygo_10th/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+MyGO!!!!! 9th Single「世点彩」
+
+好评发售中！
+
+「Blu-ray付生産限定盤」收录了2026年7月举行的MyGO!!!!! 9th LIVE「つなぎ目の向こうに」两日的影像。
+
+详情：[https://bang-dream.com/discographies/4236/](https://bang-dream.com/discographies/4236/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+MyGO!!!!!「世点彩」
+
+Official Music Video公开中！
+
+[https://www.bilibili.com/video/BV1vWs36XEtm](https://www.bilibili.com/video/BV1vWs36XEtm)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+新手游「BanG Dream! Our Notes」
+
+正式上线！
+
+详情：[https://bdon.biligames.com/?lang=zh-cn](https://bdon.biligames.com/?lang=zh-cn)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+✦・━━━━━━━━━━━━━━━ ・✦⁡⁡
+
+◇BanG Dream!
+
+官方网站：[https://bang-dream.com/](https://bang-dream.com/)
+
+BanGDream! bilibili官方：@BanGDream_CN
+
+✦・━━━━━━━━━━━━━━━ ・✦⁡⁡"</blockquote>
+       [https://www.bilibili.com/video/BV1GysJ63Eed](https://www.bilibili.com/video/BV1GysJ63Eed)
+
