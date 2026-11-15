@@ -12706,3 +12706,28 @@ CC-BY-NC都还不够自由吗？</blockquote><blockquote>自由软件 可以 是
 
 啥笔殖乎又开始团建唱衰国产大模型了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 20331#       发表于 2026-11-15 12:40
+
+国模的分词器都一样吗，我发现我这个脏token对国模都有效<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1017 k3.1p qwen4max都会拼错，哈基米就没事
+
+
+*****
+
+####  bartholo4  
+##### 20332#       发表于 2026-11-15 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70512733&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-15 12:13</a>
+
+请教下Gemini carbon要怎么买才能用API？</blockquote>
+API太贵了。。
+
+中转站又因为Google的奇怪格式，基本没找到好用的
+
+最后还是用的agy，现在agy更新了下其实已经能用了
+
+而且AI pro 送的API额度其实也可以应急一些需要外链的的场景
+
