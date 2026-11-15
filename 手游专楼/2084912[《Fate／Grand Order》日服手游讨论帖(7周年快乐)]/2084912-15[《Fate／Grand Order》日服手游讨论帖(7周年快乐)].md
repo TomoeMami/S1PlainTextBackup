@@ -2018,3 +2018,14 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 感觉像深海栖姬或者妮姬异端者…</blockquote>
 深海栖姬的话之前农神三破就很像了
 
+
+*****
+
+####  khxooo  
+##### 21893#       发表于 2026-11-15 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514281&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-11-15 20:45</a>
+
+感觉信长会是圣诞或者新年从者</blockquote>
+应该是其中之一了，而且听了听，声优好像还是钉宫。
+
