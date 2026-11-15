@@ -12868,3 +12868,13 @@ Pi 用户要改系统提示词了。 ...</blockquote>
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  艾诺琳  
+##### 20346#       发表于 2026-11-15 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70513127&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-15 14:33</a>
+用deepseek4.1f 1017版的时候，思考一般选极致是吗？比如做平台项目、数据处理、编程什么的 ...</blockquote>
+高和max区别不大，走常规任务我甚至设置成low
+
