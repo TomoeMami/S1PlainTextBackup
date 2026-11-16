@@ -13442,3 +13442,23 @@ glm5.5还没消息吗
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">OAI这周还不端点好东西上来看就要风雨飘摇了，跑去看了一下tibo，哥们感觉精神不太好像AI（
 
+
+*****
+
+####  frankCC  
+##### 20395#       发表于 2026-11-16 13:19
+
+哈基米清一色的好评，搞得我想跳车了。然后登了一下 AGY，发现印度老铁的会员还续着，竟然没掉，我看说18号JIO也会更新氢基米，这下搞得左右为难，不知道要不要上ultra了。
+
+*****
+
+####  一牧月  
+##### 20396#       发表于 2026-11-16 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516443&amp;ptid=2275806" target="_blank">frankCC 发表于 2026-11-16 13:19</a>
+哈基米清一色的好评，搞得我想跳车了。然后登了一下 AGY，发现印度老铁的会员还续着，竟然没掉，我看说18号 ...</blockquote>
+先看看一个月后降智到啥样再说
+我年初用3pro惊为天人订了一年pro，结果从4月开始就流口水，5月份上下文连128k都没有，死活不联网搜索，7月以后就基本不怎么用了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
