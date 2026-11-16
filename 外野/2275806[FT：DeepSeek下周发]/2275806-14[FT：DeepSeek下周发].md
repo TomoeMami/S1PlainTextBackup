@@ -13561,3 +13561,43 @@ hy4 flash跑常见的前端测试介于0731和0910之间，价格不错，如果
 不过我确实有几个很old的对话，网页端转豆包算了 ...</blockquote>
 最主要处理的是反代，文爱集美顺手处理了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 20405#       发表于 2026-11-16 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516450&amp;ptid=2275806" target="_blank">一牧月 发表于 2026-11-16 13:21</a>
+先看看一个月后降智到啥样再说
+我年初用3pro惊为天人订了一年pro，结果从4月开始就流口水，5月份上下文连 ...</blockquote>
+按 google 现在下饺子的速度，一个月后就是 krypton 和 oxygen 了
+
+*****
+
+####  紧那罗  
+##### 20406#       发表于 2026-11-16 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516450&amp;ptid=2275806" target="_blank">一牧月 发表于 2026-11-16 13:21</a>
+
+先看看一个月后降智到啥样再说
+
+我年初用3pro惊为天人订了一年pro，结果从4月开始就流口水，5月份上下文连 ...</blockquote>
+冲动了 现在这几家都是包月随时跳车最合适<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空き地卯木  
+##### 20407#       发表于 2026-11-16 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516600&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-16 14:02</a>
+最主要处理的是反代，文爱集美顺手处理了</blockquote>
+这俩也有合流的，只能说被杀不冤
+
+*****
+
+####  泰坦失足  
+##### 20408#       发表于 2026-11-16 14:16
+
+几个月前还懊恼过看到X会员（Grok会员+Cursor会员）bug价1000刀/年，迟疑了下就没了。现在这会员已经路边一条了
+
