@@ -2145,3 +2145,29 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新all in无事发生 连杂贺都没有 谁又在黑萌新
 
+
+*****
+
+####  angelooo  
+##### 21908#       发表于 2026-11-16 17:59
+
+糟了我真的太喜欢炸弹人了，虽然我对他最早印象来源于某个战国泡面番还有大河剧，不论是老版的大恶人和新版的苦逼老头都很有意思，但现在她变成辣妹了……还是一样很棒啊混蛋
+
+社长你抓着那个苍月叫他别再画卡面了，只负责当油漆桶好了，这样的美少女求更多
+
+
+*****
+
+####  exiaexa  
+##### 21909#       发表于 2026-11-16 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517615&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-11-16 17:59</a>
+
+糟了我真的太喜欢炸弹人了，虽然我对他最早印象来源于某个战国泡面番还有大河剧，不论是老版的大恶人和新版 ...</blockquote>
+主要是各种作品里他都这么颠
+
+导致型月这个看起来居然眉清目秀的
+
+某种意义上算是负负得正了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

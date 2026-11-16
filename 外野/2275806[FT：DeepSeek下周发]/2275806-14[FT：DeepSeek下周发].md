@@ -14219,3 +14219,17 @@ dsh是指harness吗，我该跟d老师说啥？是不是能把思考过程也让
 
 —— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  我就再氪一单  
+##### 20455#       发表于 2026-11-16 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517586&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-16 17:53</a>
+话说hy4flash泥漏一点讨论都没有啊
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+我在qq群和楼里骂到现在了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
