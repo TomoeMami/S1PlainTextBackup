@@ -13193,3 +13193,11 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 进第二部后开了蕾达和丹缇的支援对话，看完之后感觉这蕾达怕是早就看开了吧，她甚至认真读过斗技场的白发鬼 ...</blockquote>
 你可以理解为这个是天意侵蚀后的雷达，没有自捏干涉时间线的话第二部第一章对面四个两管血的大众脸就是凯伊眼镜娘雷达巴卡尼亚，凯伊为了救爸爸，雷达则是过来杀白发鬼的，但最后都被车过去了
 
+
+*****
+
+####  JunkoPureFuries  
+##### 8652#       发表于 2026-11-17 00:50
+
+打完凯伊线第一部了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
