@@ -14774,3 +14774,27 @@ Ultra100，opus周额度是两个五小时额度，一共四千万出头，大�
 
 会暗改，之前jio给的4.6刚开始是周限=三管子5小时，后面就是两管子了。后面基本没法用，一个任务跑不完，就连切也懒得切了。
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 20504#       发表于 2026-11-17 00:38
+
+好像我都可以稳定灰度6.2了吧，还不发布，整它那个安全。算起来pro200应该能用15亿的Astra了。
+
+<img src="https://img.stage1st.com/forum/202611/17/002637z99qvn69ktne9p9e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-17 00:26 上传
+
+<img src="https://img.stage1st.com/forum/202611/17/002813fao8ncx4asac5s5f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-17 00:28 上传
+
