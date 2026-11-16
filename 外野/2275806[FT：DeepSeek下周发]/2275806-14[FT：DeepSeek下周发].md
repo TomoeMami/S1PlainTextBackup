@@ -14070,3 +14070,19 @@ opencode go 有哈基米4a的30刀额度
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wakakaka0679  
+##### 20444#       发表于 2026-11-16 16:53
+
+ 本帖最后由 wakakaka0679 于 2026-11-16 16:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70511389&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-15 00:36</a>
+我的意思是，租个云主机自己部署模型
+与之相对的是调DeepSeek官方api这一种</blockquote>
+问AI呗
+
+抱脸上主流开源模型有按小时搭建的，也有租显卡的服务商，甚至有人租GB200和GB300。就算问大肥鱼免费版它也能算大概成本。
+
+我有个朋友就是部署了qwen 3.8某个彻底破甲版蹬了两天破解软件的。
+
