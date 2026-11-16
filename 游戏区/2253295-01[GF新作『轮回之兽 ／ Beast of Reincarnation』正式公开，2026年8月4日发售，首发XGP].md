@@ -41,3 +41,11 @@
 美公布过，但预计销量不超过50W.</blockquote>
 PSN 欧美区 八月排20名五十万那还是轻松破的
 
+
+*****
+
+####  秋月孝三  
+##### 585#       发表于 2026-11-16 18:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽时间打完了优化了114514次后的最新版本。其他问题都能忍，跑步震手柄把我左手震出暗伤了。
+

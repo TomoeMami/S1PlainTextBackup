@@ -47,3 +47,17 @@
 
 纯萌新 有没有入坑指导视频 看了b战介绍感觉还是云里雾里 感觉太硬核了
 
+
+*****
+
+####  琉歌  
+##### 957#       发表于 2026-11-16 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517589&amp;ptid=2249235" target="_blank">zhwpjy 发表于 2026-11-16 17:53</a>
+纯萌新 有没有入坑指导视频 看了b战介绍感觉还是云里雾里 感觉太硬核了</blockquote>
+啊？你游真有萌新吗，丑旧们等第五章都等到天荒地老了。不知道二周年奖励过了没，没有可以领一下。
+你游系统是挺复杂的，只能碰到哪方面问题再去了解。视频的话可以看油/管的赤峰，文字资料推荐巴哈精华区跟灰机wiki巫术达芙妮区。
+现在的卡池至少搞一个异装夏莉莉妮雅吧，其他的对开荒来说不是必需。总之可以先打完前两章试试，看能不能坚持下来<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 來自 realme RMX5200, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v4.0
+
