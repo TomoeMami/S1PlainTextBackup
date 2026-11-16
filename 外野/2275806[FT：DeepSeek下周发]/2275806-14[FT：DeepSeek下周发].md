@@ -13472,3 +13472,46 @@ glm5.5还没消息吗
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  月海的秋鸟  
+##### 20398#       发表于 2026-11-16 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515773&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-11-16 10:59</a>
+
+所以现在白嫖的话建议是用什么harness和什么模型？
+
+上周楼U说的豆包工作（还是trae）行不行</blockquote>
+下个dsh， 我看到有那种插件 点一下领好多家平台的积分<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 白嫖怪插件来的
+
+最近免费的应该是百度文心最强
+
+
+*****
+
+####  zzy516232108  
+##### 20399#       发表于 2026-11-16 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516505&amp;ptid=2275806" target="_blank">月海的秋鸟 发表于 2026-11-16 13:38</a>
+
+下个dsh， 我看到有那种插件 点一下领好多家平台的积分 白嫖怪插件来的
+
+最近免费的应该是百度文心最强 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这种东西属于是灰色地带，反代用其他家把我号封了就没意思了（
+
+况且我免费白嫖也就上班用用，回家做自己的东西也用dsh（
+
+
+*****
+
+####  zzy516232108  
+##### 20400#       发表于 2026-11-16 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516489&amp;ptid=2275806" target="_blank">我就再氪一单 发表于 2026-11-16 13:33</a>
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99</blockquote>
+我实在没搞懂谁会在网页和APP聊那么多
+
+不过我确实有几个很old的对话，网页端转豆包算了
+
