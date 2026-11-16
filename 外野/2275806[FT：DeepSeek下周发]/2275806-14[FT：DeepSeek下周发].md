@@ -13424,3 +13424,13 @@ Codex已经慢到不可思议了。足够我下了一个小任务后，预期半
 
 agy的内存优化真的一坨，开几个subagent我32内存就炸了
 
+
+*****
+
+####  便秘的猫  
+##### 20393#       发表于 2026-11-16 12:30
+
+glm5.5还没消息吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
