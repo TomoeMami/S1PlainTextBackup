@@ -13201,3 +13201,14 @@ HY4好慢还不太聪明，但不要钱</blockquote>
 
 甚至更严格一点 不带ZDR的 都默认数据留存了 会不会拿去训练谁也说不准……
 
+
+*****
+
+####  冤枉呐  
+##### 20374#       发表于 2026-11-16 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514901&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-11-16 01:31</a>
+
+能部署Deepseek的云主机一年要花多少钱</blockquote>
+这不是想搞生图嘛，文字的问题不大，没啥需求
+
