@@ -13523,3 +13523,41 @@ glm5.5还没消息吗
 
 hy4 flash跑常见的前端测试介于0731和0910之间，价格不错，如果真实日常工作没有奇奇怪怪的毛病那就可以当成qwen3.8fn的替代品了
 
+
+*****
+
+####  qqwliao  
+##### 20402#       发表于 2026-11-16 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516559&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-16 13:51</a>
+hy4 flash跑常见的前端测试介于0731和0910之间，价格不错，如果真实日常工作没有奇奇怪怪的毛病那就可以当 ...</blockquote>
+但是qwen3.8-fn可以本地strata部署啊，这个优势太大了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  qwased  
+##### 20403#       发表于 2026-11-16 14:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516588&amp;ptid=2275806" target="_blank">qqwliao 发表于 2026-11-16 13:59</a>
+
+但是qwen3.8-fn可以本地strata部署啊，这个优势太大了
+
+—— 来自 鹅球 v4.0</blockquote>
+这两个模型的参数量和架构都差不多的，strata要适配估计也就两天的事情
+
+只讨论API价格，还是hy4f便宜
+
+*****
+
+####  Promeus  
+##### 20404#       发表于 2026-11-16 14:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516532&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-11-16 13:44</a>
+我实在没搞懂谁会在网页和APP聊那么多
+
+不过我确实有几个很old的对话，网页端转豆包算了 ...</blockquote>
+最主要处理的是反代，文爱集美顺手处理了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
