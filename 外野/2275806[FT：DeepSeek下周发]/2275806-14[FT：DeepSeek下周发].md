@@ -13256,3 +13256,43 @@ HY4好慢还不太聪明，但不要钱</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  zzy516232108  
+##### 20379#       发表于 2026-11-16 10:59
+
+ 本帖最后由 zzy516232108 于 2026-11-16 11:02 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以现在白嫖的话建议是用什么harness和什么模型？
+
+上周楼U说的豆包工作（还是trae）行不行
+
+主要wb确实降智+掺水
+
+
+*****
+
+####  洛拉斯  
+##### 20380#       发表于 2026-11-16 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515707&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-11-16 10:48</a>
+
+千问4正式版已经上线，看跑分可以做到平替Astra
+
+—— 来自 鹅球 v3.5.99</blockquote>
+看跑分hy4还能平替大肥鱼呢
+
+跑分就图一乐，自己用几次就知道真假了
+
+*****
+
+####  lactone  
+##### 20381#       发表于 2026-11-16 11:05
+
+没有啊，我觉得qwen4真的还行
+
+都说炸了，我最近做个科研项目感觉和3.1不相上下吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
