@@ -13652,3 +13652,64 @@ dsh里调API还是有个100左右的TPS
 按 google 现在下饺子的速度，一个月后就是 krypton 和 oxygen 了</blockquote>
 谷歌用元素周期表给模型命名吗？
 
+
+*****
+
+####  warlock228  
+##### 20413#       发表于 2026-11-16 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516731&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-16 14:34</a>
+
+谷歌用元素周期表给模型命名吗？</blockquote>
+argon是氩 carbon是碳 hydrogen是氢
+
+
+*****
+
+####  lactone  
+##### 20414#       发表于 2026-11-16 15:00
+
+ai发展到现在，最重要的教训就是别把一刻当永久<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在看，除了openai技术储备一直相对以来领先外，真没有别的什么永久
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Promeus  
+##### 20415#       发表于 2026-11-16 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516839&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-16 15:00</a>
+ai发展到现在，最重要的教训就是别把一刻当永久
+
+现在看，除了openai技术储备一直相对以来领先外，真没有别 ...</blockquote>
+Oai不也在5.0系列招笑了很久<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外谷谷歌歌这个算是背水一战了，3.5系列炸了的时候不是哈萨比斯都差点离职了
+
+
+*****
+
+####  startraveller  
+##### 20416#       发表于 2026-11-16 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516839&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-16 15:00</a>
+ai发展到现在，最重要的教训就是别把一刻当永久
+
+现在看，除了openai技术储备一直相对以来领先外，真没有别 ...</blockquote>
+其实 Astra 后端还是强的
+
+*****
+
+####  warlock228  
+##### 20417#       发表于 2026-11-16 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516839&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-16 15:00</a>
+
+ai发展到现在，最重要的教训就是别把一刻当永久
+
+现在看，除了openai技术储备一直相对以来领先外，真没有别 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">应该是超过一个月的就算是老模型了，该更新了
+
+OAI已经70多天没更新了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
