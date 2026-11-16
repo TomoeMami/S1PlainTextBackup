@@ -14701,3 +14701,14 @@ V4p换指纹了？</blockquote>
 谷歌colab送的额度还算挺慷慨</blockquote>
 O家以前还能用Sora，现在只有dots了。A的话产品稍微多点，但是要在大陆用风险很高
 
+
+*****
+
+####  紧那罗  
+##### 20497#       发表于 2026-11-16 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518482&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-16 22:46</a>
+
+感觉同样100刀，用 orchestrator（carbon），用量还是比 GPT 纯用 Astra 多不少，但比纯用 Sol 少。比 cl ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">gpt的用量优势是靠重置堆起来的 没重置真不行
+
