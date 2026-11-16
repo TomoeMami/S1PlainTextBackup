@@ -14102,3 +14102,30 @@ opencode go 有哈基米4a的30刀额度
 
 做出来的页面也不会自己主动截图验证了，各种元素重叠遮挡
 
+
+*****
+
+####  frankCC  
+##### 20446#       发表于 2026-11-16 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517115&amp;ptid=2275806" target="_blank">我就再氪一单 发表于 2026-11-16 15:58</a>
+
+dsh是指harness吗，我该跟d老师说啥？是不是能把思考过程也让d老师改成中文？
+
+—— 来自 Xiaomi 23049RA ...</blockquote>
+最新的dsh  插件-更多-思考过程机器翻译，可以改中文，不过只是思考过程机翻，而不是真的中文思考。
+
+
+*****
+
+####  一牧月  
+##### 20447#       发表于 2026-11-16 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517295&amp;ptid=2275806" target="_blank">squallx2 发表于 2026-11-16 16:37</a>
+碳基米什么时候能进pro 正价也行 反正主要处理前端任务也不算多
+
+—— 来自 OnePlus PJZ110, Android 16,  ...</blockquote>
+进了pro，但5小时额度也就四五轮对话
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
