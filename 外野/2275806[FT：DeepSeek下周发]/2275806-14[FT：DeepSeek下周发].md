@@ -14417,3 +14417,32 @@ hy4发布的时候可是把内部bench里和ao两家差距巨大的都列出来�
 
 未成年不让打网游反而不限在社媒共振<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clawdbot  
+##### 20472#       发表于 2026-11-16 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518141&amp;ptid=2275806" target="_blank">CR2 发表于 2026-11-16 20:55</a>
+
+绕指流光        禁止发言        2027-2-10 15:04        2026-11-12 15:04        无视警告多次推广收费贩子站
+
+我还说楼主怎么没了 ...</blockquote>
+在20080楼回了……
+
+是我没注意，灰色地带不应该宣传的，认了
+
+*****
+
+####  andychen  
+##### 20473#       发表于 2026-11-16 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518143&amp;ptid=2275806" target="_blank">clawdbot 发表于 2026-11-16 20:55</a>
+
+小红书上声讨DS的帖子越来越多看的我心里发毛
+
+未成年不让打网游反而不限在社媒共振 ...</blockquote>
+欧美那边已经开始着手限制未成年人上短视频和社交平台了
+
+虽然这发言显得很爹味，我觉得这么做确实是有必要。不过国内进行限制的可能性恐怕不大
+
