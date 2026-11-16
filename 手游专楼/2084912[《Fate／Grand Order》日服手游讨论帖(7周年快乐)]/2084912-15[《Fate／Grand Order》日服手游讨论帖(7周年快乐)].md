@@ -2121,3 +2121,19 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 醒醒啊....再怎么大内在还是个巨汉啊</blockquote>
 利Q好歹还借了驹姬的皮，这个大雷形态某种程度上也可以说是驹姬未来可期<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 21905#       发表于 2026-11-16 17:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">小头占领高地了
+
+
+*****
+
+####  khxooo  
+##### 21906#       发表于 2026-11-16 17:41
+
+150石头3个杂贺孙一，不过这也正常，不像某狗萌新，每次都出货。
+

@@ -14155,3 +14155,34 @@ dsh是指harness吗，我该跟d老师说啥？是不是能把思考过程也让
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pure_liquid  
+##### 20450#       发表于 2026-11-16 17:39
+
+<blockquote>2017.05.04 发表于 2026-11-16 17:29
+开个新会话试试吧
+
+有可能是上下文太长或者缓存失效的影响
+</blockquote>
+出错的会话下，54%的上下文窗口使用量，另外也没触发过自动压缩
+
+我觉得应该不是这个问题
+
+
+*****
+
+####  qwased  
+##### 20451#       发表于 2026-11-16 17:46
+
+测试集加入训练集.jpg
+
+<img src="https://img.stage1st.com/forum/202611/16/174625aejk63sscxeuf6fs.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1794822384382_1.webp</strong> (96.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-16 17:46 上传
+
