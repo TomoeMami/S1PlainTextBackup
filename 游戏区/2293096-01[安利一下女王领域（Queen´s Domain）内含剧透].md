@@ -6602,3 +6602,15 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 别提了，罪录有本书在图书馆6书开起来的房间，我已经去过而且都点过，居然没触发。再去发现就是没点中，这判定怎么做的，不应该只要点在书上无论哪儿都算吗
 
+
+*****
+
+####  MTDlnZc  
+##### 540#       发表于 2026-11-16 23:30
+
+发现一个很不错的wiki网站   [https://queens-domain.pure-data.wiki/zh-Hans/](https://queens-domain.pure-data.wiki/zh-Hans/)
+
+可以显示各种收集品 npc的位置，点map可以看到3d地图，可以上传存档显示缺失的收集品，不想用mod的可以试试
+
+信息来源是  [https://www.bilibili.com/video/BV1KTsP6HEPy](https://www.bilibili.com/video/BV1KTsP6HEPy)
+

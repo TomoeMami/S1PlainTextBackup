@@ -14720,3 +14720,13 @@ O家以前还能用Sora，现在只有dots了。A的话产品稍微多点，但�
 
 Google出个新模型杀个渠道，再见土区人
 
+
+*****
+
+####  scroll  
+##### 20499#       发表于 2026-11-16 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70489806&amp;ptid=2275806" target="_blank">赤星ビスコ 发表于 2026-11-10 09:39</a>
+我感觉大模型能力超过某条线后，后续提升边际效益递减。fable 5 和一年前opus 4.5 比起来，实际干活起来的 ...</blockquote>
+按照梁文峰之前泄露讲话的技术路线指引是，CoT → Agent → 持续学习 → 奇点（自我迭代）→ 具身智能，基座模型能力仍在提升但不是主要或者说唯一问题了
+

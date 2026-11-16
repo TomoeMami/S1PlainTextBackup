@@ -2178,12 +2178,12 @@
     "update": false
   },
   "1997514": {
-    "totalreply": 1064,
+    "totalreply": 1065,
     "title": "[「龙幸伸」《超自然武装噹哒噹》（胆大党）「2022漫厉」No.4]",
     "newtitle": "[「龙幸伸」《超自然武装当哒当》（胆大党）「2022漫厉」No.4]",
-    "lastedit": 1794378247,
+    "lastedit": 1794843256,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1980597": {
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 83874,
+    "totalreply": 83875,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1794841331,
+    "lastedit": 1794843255,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8742,7 +8742,7 @@
     "totalreply": 7462,
     "title": "[灵游坊开发，影之刃0公布，确认登录ps5和pc]",
     "newtitle": "[影之刃0专楼，10／29登录ps5和pc！／72小时销量破400万！]",
-    "lastedit": 1794842890,
+    "lastedit": 1794842773,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11453,7 +11453,7 @@
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
     "lastedit": 1794583807,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2175757": {
@@ -12657,7 +12657,7 @@
     "totalreply": 666,
     "title": "[2026年推理游戏发售清单(更新至1.15)，2026推理游戏专楼]",
     "newtitle": "[2026年推理游戏发售清单(更新至11.15)，2026推理游戏专楼]",
-    "lastedit": 1794842895,
+    "lastedit": 1794843130,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 20498,
+    "totalreply": 20499,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1794842291,
+    "lastedit": 1794843368,
     "category": "外野",
     "active": true,
     "update": false
@@ -13068,10 +13068,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 45705,
+    "totalreply": 45706,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1794842410,
+    "lastedit": 1794843257,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13482,10 +13482,10 @@
     "update": false
   },
   "2286687": {
-    "totalreply": 2277,
+    "totalreply": 2279,
     "title": "[开个帖子，记录一下打海猫鸣泣之时的感想]",
     "newtitle": "[开个帖子，记录一下打海猫鸣泣之时的感想]",
-    "lastedit": 1794842411,
+    "lastedit": 1794843256,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13608,10 +13608,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 42943,
+    "totalreply": 42944,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1794841928,
+    "lastedit": 1794843133,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -15390,10 +15390,10 @@
     "update": false
   },
   "2293096": {
-    "totalreply": 539,
+    "totalreply": 540,
     "title": "[安利一下女王领域（Queen´s Domain）内含剧透]",
     "newtitle": "[安利一下女王魔域（Queen´s Domain）内含剧透]",
-    "lastedit": 1794840009,
+    "lastedit": 1794843133,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -18039,7 +18039,7 @@
     "totalreply": 121,
     "title": "[LTX超清去码已经这么强了]",
     "newtitle": "[LTX超清去码已经这么强了]",
-    "lastedit": 1794842890,
+    "lastedit": 1794843133,
     "category": "外野",
     "active": true,
     "update": false
@@ -18057,7 +18057,7 @@
     "totalreply": 54,
     "title": "[影之刃零武器痛投]",
     "newtitle": "[影之刃零武器痛投]",
-    "lastedit": 1794842889,
+    "lastedit": 1794843130,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -18149,6 +18149,15 @@
     "newtitle": "[微软Outlook故障导致德国一个泳池氯含量超标，变成毒气室]",
     "lastedit": 1794838092,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2152436": {
+    "totalreply": 192,
+    "title": "[你觉得 “时之笛” 依然值得 Metacritic 的 99 分最高分吗？]",
+    "newtitle": "[你觉得 “时之笛” 依然值得 Metacritic 的 99 分最高分吗？]",
+    "lastedit": 1794843136,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
