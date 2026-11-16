@@ -13369,3 +13369,16 @@ AA野榜目前应该是科学研究这类占比变大了，未来一段时间国
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  我就再氪一单  
+##### 20388#       发表于 2026-11-16 11:43
+
+ 本帖最后由 我就再氪一单 于 2026-11-16 11:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515924&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-16 11:19</a>
+那免费会员一点白嫖都不给吗？</blockquote>
+能免打包直接一键迁移吗？hy往我代码和约束规则文档里面掺屎，气死我了，我想换软件了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">还曲解我的话写进工作区memory里面，破坏力惊人
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
