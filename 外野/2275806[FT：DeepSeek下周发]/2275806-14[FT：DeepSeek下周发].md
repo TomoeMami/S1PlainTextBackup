@@ -14623,3 +14623,36 @@ V4p换指纹了？</blockquote>
 
 我本来想把个人项目的主力模型换成gemini，现在也不行了
 
+
+*****
+
+####  紧那罗  
+##### 20490#       发表于 2026-11-16 22:19
+
+土区低价没了吗 那有点可惜了
+
+看看后续的氪什么水平吧 如果能赶超fable 5.2的话正价订阅也算值了
+
+*****
+
+####  andychen  
+##### 20491#       发表于 2026-11-16 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518399&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-16 22:19</a>
+
+土区低价没了吗 那有点可惜了
+
+看看后续的氪什么水平吧 如果能赶超fable 5.2的话正价订阅也算值了 ...</blockquote>
+现在谷歌100刀套餐纯模型用量比不上OA，不过送的一堆其他权益如果都能利用起来还可以
+
+
+*****
+
+####  bartholo4  
+##### 20492#       发表于 2026-11-16 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518401&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-16 22:20</a>
+
+现在谷歌100刀套餐纯模型用量比不上OA，不过送的一堆其他权益如果都能利用起来还可以 ...</blockquote>
+我现在就是想哪天有空了，把 notebook 给接到 antigravity 里面去用
+
