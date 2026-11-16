@@ -2235,3 +2235,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 50连+10呼符1宝水利，这要是紧接着再出薇儿丹蒂就有点遭不住了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 21916#       发表于 2026-11-17 01:24
+
+爆了汇呆和莱妮丝的金币，可惜还是没出，看了看，还有仇龙娘、花嫁、R姐的金币可以爆一下，看看能不能抽到吧。不过大概率打水漂就是了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
