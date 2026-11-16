@@ -13112,3 +13112,13 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 希望DLC有法比奥女性真身，畢竟迪哥第一部最后一章和初音一起告白了，真身一定是女的
 
+
+*****
+
+####  u2deack  
+##### 8645#       发表于 2026-11-16 10:03
+
+迪特里希并不希望法比奥是个女的，法比奥要是变成个巨大怪物或者龙他应该更兴奋
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
