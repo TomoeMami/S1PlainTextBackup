@@ -13296,3 +13296,36 @@ HY4好慢还不太聪明，但不要钱</blockquote>
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qz66618  
+##### 20382#       发表于 2026-11-16 11:08
+
+AA野榜目前应该是科学研究这类占比变大了，未来一段时间国模在榜单上估计占不到啥便宜
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  洛拉斯  
+##### 20383#       发表于 2026-11-16 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515803&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-16 11:05</a>
+
+没有啊，我觉得qwen4真的还行
+
+都说炸了，我最近做个科研项目感觉和3.1不相上下吧</blockquote>
+那现在qwen4哪里可以白嫖，我去试试水
+
+
+*****
+
+####  qz66618  
+##### 20384#       发表于 2026-11-16 11:14
+
+不过目前发的国模也都在讲AI4S了，不知道DS到时候会不会也讲讲故事<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
