@@ -6614,3 +6614,11 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 信息来源是  [https://www.bilibili.com/video/BV1KTsP6HEPy](https://www.bilibili.com/video/BV1KTsP6HEPy)
 
+
+*****
+
+####  火红之眼  
+##### 541#       发表于 2026-11-16 23:47
+
+主机版补丁已出，可以补墓葬刃了，密门杯进游戏就解
+

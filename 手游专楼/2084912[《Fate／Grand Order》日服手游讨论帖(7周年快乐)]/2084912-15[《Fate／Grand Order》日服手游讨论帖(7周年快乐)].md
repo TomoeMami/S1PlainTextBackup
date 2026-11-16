@@ -2227,3 +2227,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 抽亚里亚170抽才出</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">今年四个大保底的我唯有梭哈
 
+
+*****
+
+####  白金口袋  
+##### 21915#       发表于 2026-11-16 23:53
+
+50连+10呼符1宝水利，这要是紧接着再出薇儿丹蒂就有点遭不住了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
