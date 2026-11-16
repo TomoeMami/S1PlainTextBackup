@@ -13382,3 +13382,37 @@ AA野榜目前应该是科学研究这类占比变大了，未来一段时间国
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  紧那罗  
+##### 20389#       发表于 2026-11-16 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515543&amp;ptid=2275806" target="_blank">小妻水亚美 发表于 2026-11-16 10:15</a>
+
+但是大模型的训练 数据又是必须的已经不可能两个都要了 又要隐私又要国模持续进步
+
+—— 来自 vivo V2454 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没必要一刀切嘛 多数任务场景其实无所谓的
+
+少数涉隐私的数据场景再考虑本地模型/ZDR啥的就好了
+
+*****
+
+####  泰坦失足  
+##### 20390#       发表于 2026-11-16 12:01
+
+Codex已经慢到不可思议了。足够我下了一个小任务后，预期半盘时间就能完成，我去摸鱼打完一局COD TDM，再兴致勃勃的再打一局，回来反正怎么还没好。让Cluade查了下Cluade code和codex这两天的速度。这也太tm慢了。
+
+最近两天的生成速度  ：Opus 5.5 111 tok/s，gpt-6.1-sol 33 tok/s，gpt-5.6-sol        58 tok/s。<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  umamusume  
+##### 20391#       发表于 2026-11-16 12:07
+
+33不是正常速度？ 坐和放宽
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
