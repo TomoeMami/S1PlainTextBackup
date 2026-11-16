@@ -6371,3 +6371,18 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 已经开了上古界域的别忘了找模组给老博士，能给满级武器再升级一下。
 
+
+*****
+
+####  vidomina  
+##### 521#         楼主| 发表于 2026-11-16 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515173&amp;ptid=2293096" target="_blank">shimotsuki14 发表于 2026-11-16 08:50</a>
+
+一直在练武器的路上，导致一路上打得都很费劲。好用的武器练满太快了
+
+—— 来自 OPPO PKJ110, Android 17, ...</blockquote>
+所以这游戏饰品位很紧张，练武器就得带训练装置，在加个面具，自由分配的就一个位置了，我一般是回血项链<img src="https://static.stage1st.com/image/smiley/face2017/049.png">
+
+当然，如果不练武器（油我记得没得卖)或者打了武器mod会好很多。
+
