@@ -14366,3 +14366,11 @@ hy4flash 拉中拉，拉完了，<img src="https://static.stage1st.com/image/smi
 
 hy4flash更像翻版的0731，能力不如v4.1f，看别人测试文风会好一些，受不了鲸八股的可以试试
 
+
+*****
+
+####  pure_liquid  
+##### 20467#       发表于 2026-11-16 19:56
+
+Qwen4 Max和之前很多人喷的Qoduck相比有改进吗？
+

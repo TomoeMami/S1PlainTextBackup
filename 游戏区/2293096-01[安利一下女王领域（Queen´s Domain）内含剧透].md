@@ -6557,3 +6557,16 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 玩了十几个小时了都
 
+
+*****
+
+####  Kaornao  
+##### 536#       发表于 2026-11-16 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517724&amp;ptid=2293096" target="_blank">妄想中毒 发表于 2026-11-16 18:26</a>
+这个游戏里其实有提示的，知识之塔BOSS前的存档点附近有个文件就暗示了传送的时候可以跳出去 ...</blockquote>
+（检查到一段文本）
+                          ➡️skip
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
