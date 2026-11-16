@@ -6654,3 +6654,20 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 之前看文本处处引导玩家上知识之塔敲钟，后面飞上去之后却是那个，这谁绷得住<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 544#       发表于 2026-11-17 03:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518852&amp;ptid=2293096" target="_blank">panandhao 发表于 2026-11-17 02:35</a>
+
+太想要奥怖绝的审判，所以打了第三结局……
+
+按我体感来说，打第二结局过程中，本来是想细细探索空谷周围 ...</blockquote>
+找齐所有犄角旮旯的隐藏要素才给四结局和全成就的难度还是太变态了
+
+前期多享受探索 后期就有多折磨
+
+感觉和手动存档一样都是作者追求硬核复古风味的某种坚持（贬义）<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
