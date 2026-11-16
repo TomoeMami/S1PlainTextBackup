@@ -13117,3 +13117,16 @@ workbuddy有企业版，区别最大的不是功能，是可以签一个数据�
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mitzvah  
+##### 20367#       发表于 2026-11-16 08:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515007&amp;ptid=2275806" target="_blank">我就再氪一单 发表于 2026-11-16 07:02</a>
+
+今天凌晨应该就要钱了，混元纯花钱吃屎，还不保证会不会被藤子偷数据拿去训练
+
+礼拜六晚上蹬大肥鱼被藤子 ...</blockquote>
+glm5.3官方api降智的都没法看了，wd那一坨狗屎提示词附魔下来怕是再强的模型都会变弱智吧
+
