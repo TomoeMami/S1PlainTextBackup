@@ -14591,3 +14591,35 @@ V4p换指纹了？</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lubo  
+##### 20487#       发表于 2026-11-16 22:10
+
+谷歌土区低价没了，已经上车的下个月续费后大概也显示新价格了
+
+
+*****
+
+####  wonderful259  
+##### 20488#       发表于 2026-11-16 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515924&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-16 11:19</a>
+
+那免费会员一点白嫖都不给吗？</blockquote>
+签到送的积分，用ds 4.1 flash 也够吧
+
+
+*****
+
+####  andychen  
+##### 20489#       发表于 2026-11-16 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518369&amp;ptid=2275806" target="_blank">lubo 发表于 2026-11-16 22:10</a>
+
+谷歌土区低价没了，已经上车的下个月续费后大概也显示新价格了</blockquote>
+唉，便宜token越来越难搞
+
+我本来想把个人项目的主力模型换成gemini，现在也不行了
+
