@@ -6420,3 +6420,63 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 —— 来自 vivo V2301A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  shimotsuki14  
+##### 525#       发表于 2026-11-16 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515378&amp;ptid=2293096" target="_blank">vidomina 发表于 2026-11-16 09:35</a>
+
+所以这游戏饰品位很紧张，练武器就得带训练装置，在加个面具，自由分配的就一个位置了，我一般是回血项链
+
+ ...</blockquote>
+我是回血项链+灵饰面具+银手镯，地洞里就只能把银手镯换成提灯了
+
+
+*****
+
+####  vidomina  
+##### 526#         楼主| 发表于 2026-11-16 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515508&amp;ptid=2293096" target="_blank">MTDlnZc 发表于 2026-11-16 10:07</a>
+
+狗粮商人会卖，15一瓶，没注意是什么时候解锁的
+
+—— 来自 vivo V2301A, Android 16, 鹅球 v4.0 ...</blockquote>
+真没注意耶，不过我已经练完全部武器了<img src="https://static.stage1st.com/image/smiley/face2017/068.png">，至于联动武器就算了吧
+
+
+*****
+
+####  vidomina  
+##### 527#         楼主| 发表于 2026-11-16 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515609&amp;ptid=2293096" target="_blank">shimotsuki14 发表于 2026-11-16 10:28</a>
+
+我是回血项链+灵饰面具+银手镯，地洞里就只能把银手镯换成提灯了</blockquote>
+对了，还有提灯呢，不过我都吃果子的。
+
+
+*****
+
+####  vidomina  
+##### 526#         楼主| 发表于 2026-11-16 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515508&amp;ptid=2293096" target="_blank">MTDlnZc 发表于 2026-11-16 10:07</a>
+
+狗粮商人会卖，15一瓶，没注意是什么时候解锁的
+
+—— 来自 vivo V2301A, Android 16, 鹅球 v4.0 ...</blockquote>
+真没注意耶，不过我已经练完全部武器了<img src="https://static.stage1st.com/image/smiley/face2017/068.png">，至于联动武器就算了吧
+
+*****
+
+####  vidomina  
+##### 527#         楼主| 发表于 2026-11-16 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515609&amp;ptid=2293096" target="_blank">shimotsuki14 发表于 2026-11-16 10:28</a>
+
+我是回血项链+灵饰面具+银手镯，地洞里就只能把银手镯换成提灯了</blockquote>
+对了，还有提灯呢，不过我都吃果子的。
+
