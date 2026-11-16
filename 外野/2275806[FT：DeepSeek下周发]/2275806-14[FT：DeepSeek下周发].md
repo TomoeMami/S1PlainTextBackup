@@ -13613,3 +13613,42 @@ hy4 flash跑常见的前端测试介于0731和0910之间，价格不错，如果
 —— 来自 samsung SM-S9480, Android 16, 鹅球 v4.0</blockquote>
 dsh里调API还是有个100左右的TPS
 
+
+*****
+
+####  zzy516232108  
+##### 20410#       发表于 2026-11-16 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516600&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-16 14:02</a>
+
+最主要处理的是反代，文爱集美顺手处理了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我也文爱啊（不是）
+
+反代太嚣张了 你做得好啊！
+
+
+*****
+
+####  洛拉斯  
+##### 20411#       发表于 2026-11-16 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516062&amp;ptid=2275806" target="_blank">我就再氪一单 发表于 2026-11-16 11:43</a>
+
+能免打包直接一键迁移吗？hy往我代码和约束规则文档里面掺屎，气死我了，我想换软件了还曲解我的话写进工 ...</blockquote>
+没必要，我告诉你，你开个DSH，让他帮你把workbuddy的系统提示词改了就可以了
+
+不过每次更新会改回去了，你记得更新以后让d老师再覆盖一次就行了。
+
+至于怎么改，你问d老师就行了
+
+
+*****
+
+####  洛拉斯  
+##### 20412#       发表于 2026-11-16 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516621&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-16 14:09</a>
+
+按 google 现在下饺子的速度，一个月后就是 krypton 和 oxygen 了</blockquote>
+谷歌用元素周期表给模型命名吗？
+
