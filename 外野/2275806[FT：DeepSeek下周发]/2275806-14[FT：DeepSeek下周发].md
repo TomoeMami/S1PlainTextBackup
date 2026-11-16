@@ -14129,3 +14129,29 @@ dsh是指harness吗，我该跟d老师说啥？是不是能把思考过程也让
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  2017.05.04  
+##### 20448#       发表于 2026-11-16 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517408&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-16 17:04</a>
+有没有坛友感觉今天DeepSeek 4.1f Max似乎有些降智？
+
+我是在dsh下直连官方api
+
+今天感觉在犯一些上周没有的 ...</blockquote>
+开个新会话试试吧
+有可能是上下文太长或者缓存失效的影响
+
+—— 来自 HUAWEI CMM-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  lactone  
+##### 20449#       发表于 2026-11-16 17:31
+
+我报名了腾讯的那个给数据打标的众包项目<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
