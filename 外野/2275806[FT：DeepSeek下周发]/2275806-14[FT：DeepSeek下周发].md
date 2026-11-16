@@ -13812,3 +13812,28 @@ gemini给的定位看起来是carbon高于argon的，我这边jio的会员在网
 
 发现现在一堆模型都不让关思考<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">比如hy4f，看这个价格确实便宜本来还想看网页翻译效果，结果不让关思考，翻译速度直接拉完了，开思考搞网页翻译这种粗活也没什么性价比，还是继续4.1f了。
 
+
+*****
+
+####  一牧月  
+##### 20427#       发表于 2026-11-16 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517048&amp;ptid=2275806" target="_blank">inpachi 发表于 2026-11-16 15:43</a>
+gemini给的定位看起来是carbon高于argon的，我这边jio的会员在网页端只开了hydrogen和argon。按前面有几 ...</blockquote>
+碳吉米肯定比氩吉米强，而且也没有过于谄媚用户的问题。我怀疑碳参数更大，氩是量化过了，碳吐首字非常慢。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  我就再氪一单  
+##### 20428#       发表于 2026-11-16 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516723&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-16 14:32</a>
+没必要，我告诉你，你开个DSH，让他帮你把workbuddy的系统提示词改了就可以了
+
+不过每次更新会改回去了， ...</blockquote>
+dsh是指harness吗，我该跟d老师说啥？是不是能把思考过程也让d老师改成中文？
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
