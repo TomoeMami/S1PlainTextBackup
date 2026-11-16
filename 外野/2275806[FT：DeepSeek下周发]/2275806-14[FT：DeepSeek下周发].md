@@ -14730,3 +14730,47 @@ Google出个新模型杀个渠道，再见土区人
 我感觉大模型能力超过某条线后，后续提升边际效益递减。fable 5 和一年前opus 4.5 比起来，实际干活起来的 ...</blockquote>
 按照梁文峰之前泄露讲话的技术路线指引是，CoT → Agent → 持续学习 → 奇点（自我迭代）→ 具身智能，基座模型能力仍在提升但不是主要或者说唯一问题了
 
+
+*****
+
+####  CCauchy  
+##### 20500#       发表于 2026-11-17 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514173&amp;ptid=2275806" target="_blank">赤星ビスコ 发表于 2026-11-15 20:12</a>
+
+你直接把原本的硬盘版作为工作区然后许愿，让agent提取中文脚本/声音/cg/背景/立绘，使用WebGAL引擎还原
+
+ ...</blockquote>
+2亿token一个游戏还不算特别完美这正常吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BarricadeMKXX  
+##### 20501#       发表于 2026-11-17 00:22
+
+订了谷歌的pro之后反重力里面的claude有啥说法吗，额度咋算的
+
+
+*****
+
+####  unrealMeeSeeks  
+##### 20502#       发表于 2026-11-17 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518710&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-11-17 00:22</a>
+订了谷歌的pro之后反重力里面的claude有啥说法吗，额度咋算的</blockquote>
+Ultra100，opus周额度是两个五小时额度，一共四千万出头，大概是正常claude pro20的五小时的一半多？
+和gemini独立，重置gemini也和它无关
+
+
+*****
+
+####  knnknn  
+##### 20503#       发表于 2026-11-17 00:27
+
+<blockquote>BarricadeMKXX 发表于 2026-11-17 00:22
+订了谷歌的pro之后反重力里面的claude有啥说法吗，额度咋算的</blockquote>
+少，额度也是周限5小时限，和Gemini一样。
+
+会暗改，之前jio给的4.6刚开始是周限=三管子5小时，后面就是两管子了。后面基本没法用，一个任务跑不完，就连切也懒得切了。
+
