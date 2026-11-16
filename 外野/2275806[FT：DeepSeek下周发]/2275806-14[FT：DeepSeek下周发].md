@@ -13867,3 +13867,84 @@ dsh是指harness吗，我该跟d老师说啥？是不是能把思考过程也让
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  BarricadeMKXX  
+##### 20431#       发表于 2026-11-16 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517107&amp;ptid=2275806" target="_blank">一牧月 发表于 2026-11-16 15:56</a>
+
+碳吉米肯定比氩吉米强，而且也没有过于谄媚用户的问题。我怀疑碳参数更大，氩是量化过了，碳吐首字非常慢 ...</blockquote>
+翻了下谷歌通稿
+
+这里提到carbo是基于argon做的：
+[https://deepmind.google/models/model-cards/gemini-4-carbon/](https://deepmind.google/models/model-cards/gemini-4-carbon/)
+
+这里强调了carbon的单轮思考相对argon更长，也承认了因此TTFT更大
+[https://aistudio.google.com/docs/whats-new-gemini-4-carbon](https://aistudio.google.com/docs/whats-new-gemini-4-carbon)
+
+*****
+
+####  lupu  
+##### 20432#       发表于 2026-11-16 16:09
+
+想问下不能翻墙，想用GEMINI的话，是不是只有用CHATBOX？
+
+我现在感觉他计费规则是不是有点太坑了，同一个对话里优化输出的文稿的话，点数一会儿就没了
+
+使用场景是写好大纲和写作提示，让AI输出文稿并优化，
+
+之前试了下把不满意的部分再让国模写，结果离预期差距有点大。
+
+*****
+
+####  洛拉斯  
+##### 20433#       发表于 2026-11-16 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517115&amp;ptid=2275806" target="_blank">我就再氪一单 发表于 2026-11-16 15:58</a>
+
+dsh是指harness吗，我该跟d老师说啥？是不是能把思考过程也让d老师改成中文？
+
+—— 来自 Xiaomi 23049RA ...</blockquote>
+思考过程别改成中文，因为编程工具和代码都是英文的，改成中文反而降低了效率
+
+你直接说，帮我整理下workbuddy的系统提示词，删除不合理和重复部分。
+
+
+*****
+
+####  我就再氪一单  
+##### 20434#       发表于 2026-11-16 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517168&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-16 16:09</a>
+思考过程别改成中文，因为编程工具和代码都是英文的，改成中文反而降低了效率
+
+你直接说，帮我整理下work ...</blockquote>
+OK感谢，我甚至想到可以写个守卫，发现变了就给他改回去<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  warlock228  
+##### 20435#       发表于 2026-11-16 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517107&amp;ptid=2275806" target="_blank">一牧月 发表于 2026-11-16 15:56</a>
+
+碳吉米肯定比氩吉米强，而且也没有过于谄媚用户的问题。我怀疑碳参数更大，氩是量化过了，碳吐首字非常慢 ...</blockquote>
+看抖音那边有用碳基米写文的人说甲厚的一比，大概就是大半的思考用来想用户要求合不合规则，不过其实谷谷歌歌本身也说过碳基米是网安方面世界最强<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蛋黄酱Release  
+##### 20436#       发表于 2026-11-16 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517162&amp;ptid=2275806" target="_blank">lupu 发表于 2026-11-16 16:09</a>
+想问下不能翻墙，想用GEMINI的话，是不是只有用CHATBOX？
+
+我现在感觉他计费规则是不是有点太坑了，同一个对 ...</blockquote>
+opencode go 有哈基米4a的30刀额度
+
