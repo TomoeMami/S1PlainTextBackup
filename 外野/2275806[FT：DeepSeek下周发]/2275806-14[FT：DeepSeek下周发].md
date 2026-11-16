@@ -14233,3 +14233,15 @@ dsh是指harness吗，我该跟d老师说啥？是不是能把思考过程也让
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pure_liquid  
+##### 20456#       发表于 2026-11-16 18:19
+
+<blockquote>我就再氪一单 发表于 2026-11-16 18:01
+我在qq群和楼里骂到现在了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99</blockquote>
+你前面骂的好像是hy4而不是hy4f吧？
+

@@ -2171,3 +2171,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 某种意义上算是负负得正了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 21910#       发表于 2026-11-16 18:23
+
+各种二次元作品里，松永久秀不是隐藏在三好家背后谋划全局的腹黑阴谋家，就是人间不值得，let the world burn的颠佬，从三好长庆单推人这个角度立人设的我还真是第一次看见，而且效果还意外的不错，看似狂犬，实则忠犬的辣妹，我吃了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
