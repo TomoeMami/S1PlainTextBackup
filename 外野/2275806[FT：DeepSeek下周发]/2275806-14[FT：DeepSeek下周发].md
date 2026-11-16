@@ -14020,3 +14020,53 @@ opencode go 有哈基米4a的30刀额度
 
 氢基本就是明示从碳蒸馏得来的，大幅优化效率。
 
+
+*****
+
+####  squallx2  
+##### 20440#       发表于 2026-11-16 16:37
+
+碳基米什么时候能进pro 正价也行 反正主要处理前端任务也不算多<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zhongjie  
+##### 20441#       发表于 2026-11-16 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517295&amp;ptid=2275806" target="_blank">squallx2 发表于 2026-11-16 16:37</a>
+碳基米什么时候能进pro 正价也行 反正主要处理前端任务也不算多
+
+—— 来自 OnePlus PJZ110, Android 16,  ...</blockquote>
+碳已经进入付费pro了吧
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  BarricadeMKXX  
+##### 20442#       发表于 2026-11-16 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517315&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-11-16 16:42</a>
+
+碳已经进入付费pro了吧
+
+—— 来自 HONOR WKL-AN80, Android 17, 鹅球 v4.0</blockquote>
+我昨天刚开的二五折促销pro还没给解锁
+
+*****
+
+####  squallx2  
+##### 20443#       发表于 2026-11-16 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517315&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-11-16 16:42</a>
+碳已经进入付费pro了吧
+
+—— 来自 HONOR WKL-AN80, Android 17, 鹅球 v4.0</blockquote>
+反重力还没吧
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

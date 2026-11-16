@@ -6511,3 +6511,11 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 去到那里提示说没有黄色的开门器卡住了，坑爹啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我默认你有黄色破印器了，黄色的在第二个存档点旁边，里面有个博士可以跟他对话拿
 
+
+*****
+
+####  zzf111  
+##### 531#       发表于 2026-11-16 16:46
+
+我武器用满一个换一个打完结局1没两天早早就练完发成就了都没怎么吃油，现在头疼的是十几个隐藏门有4神镜片透视挂件也相当恶心<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">居然有不少没有骷髅也没有4神封印的纯隐藏门
+
