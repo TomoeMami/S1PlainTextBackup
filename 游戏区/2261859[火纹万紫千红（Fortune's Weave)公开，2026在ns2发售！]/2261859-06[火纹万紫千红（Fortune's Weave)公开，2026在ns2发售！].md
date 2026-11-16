@@ -13122,3 +13122,13 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  chiefshi  
+##### 8646#       发表于 2026-11-16 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515341&amp;ptid=2261859" target="_blank">lbj5454 发表于 2026-11-16 09:25</a>
+希望DLC有法比奥女性真身，畢竟迪哥第一部最后一章和初音一起告白了，真身一定是女的 ...</blockquote>
+他那个真名是个男名吧
+

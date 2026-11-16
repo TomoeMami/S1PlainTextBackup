@@ -13212,3 +13212,17 @@ HY4好慢还不太聪明，但不要钱</blockquote>
 能部署Deepseek的云主机一年要花多少钱</blockquote>
 这不是想搞生图嘛，文字的问题不大，没啥需求
 
+
+*****
+
+####  小妻水亚美  
+##### 20375#       发表于 2026-11-16 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515403&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-16 09:41</a>
+凡是非原厂API直接付费的 我觉得都可以默认是数据会被收集用于训练……
+
+甚至更严格一点 不带ZDR的 都默认数 ...</blockquote>
+但是大模型的训练 数据又是必须的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经不可能两个都要了 又要隐私又要国模持续进步
+
+—— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
