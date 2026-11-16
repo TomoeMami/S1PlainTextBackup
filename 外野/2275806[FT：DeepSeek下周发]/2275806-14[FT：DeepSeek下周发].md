@@ -13178,3 +13178,16 @@ glm5.3官方api降智的都没法看了，wd那一坨狗屎提示词附魔下来
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛拉斯  
+##### 20372#       发表于 2026-11-16 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514768&amp;ptid=2275806" target="_blank">黄泉川此方 发表于 2026-11-15 23:59</a>
+
+HY4好慢还不太聪明，但不要钱</blockquote>
+不是限时免费，是限次免费
+
+我就被坑了，上次一个任务我想试试免费的hy4如何，结果对话4次以后就不免费了，然后我想换模型重读上下文也浪费，就继续用他做完吧，反正就最后一步了。结果吐血花了200多积分还没做好，最后还是用大肥鱼重读上下文返工才做完，而且只用了30多。
+
