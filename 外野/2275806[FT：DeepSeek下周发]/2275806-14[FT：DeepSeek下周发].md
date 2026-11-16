@@ -14656,3 +14656,26 @@ V4p换指纹了？</blockquote>
 现在谷歌100刀套餐纯模型用量比不上OA，不过送的一堆其他权益如果都能利用起来还可以 ...</blockquote>
 我现在就是想哪天有空了，把 notebook 给接到 antigravity 里面去用
 
+
+*****
+
+####  紧那罗  
+##### 20493#       发表于 2026-11-16 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518401&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-16 22:20</a>
+
+现在谷歌100刀套餐纯模型用量比不上OA，不过送的一堆其他权益如果都能利用起来还可以 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">是 权益其实OA两家也有 各有特色吧
+
+谷歌colab送的额度还算挺慷慨
+
+
+*****
+
+####  lactone  
+##### 20494#       发表于 2026-11-16 22:35
+
+前两天就在传glm5.5这周发，也不知道是真是假
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
