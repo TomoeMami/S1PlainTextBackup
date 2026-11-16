@@ -13226,3 +13226,33 @@ HY4好慢还不太聪明，但不要钱</blockquote>
 
 —— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  qz66618  
+##### 20376#       发表于 2026-11-16 10:48
+
+千问4正式版已经上线，看跑分可以做到平替Astra<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  tonyunreal  
+##### 20377#       发表于 2026-11-16 10:49
+
+千问还能看跑分的吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不出意外没有开放权重
+
+—— 来自 Xiaomi 25060RK16C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  cscbzcbz  
+##### 20378#       发表于 2026-11-16 10:51
+
+这么快的吗，上周还是预览版，这周就正式版了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
