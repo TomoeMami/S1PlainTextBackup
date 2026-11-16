@@ -132,3 +132,16 @@
 其实...也不用
 氪得够多差不多能把饰品池抽空的水平拿到的那些票每期出新人硬刷装备扫荡过去的调查差不多也能弄出来不止一队了
 
+
+*****
+
+####  冰风血羽  
+##### 2176#       发表于 2026-11-16 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514984&amp;ptid=2104259" target="_blank">wilkyway 发表于 2026-11-16 04:46</a>
+其实...也不用
+氪得够多差不多能把饰品池抽空的水平拿到的那些票每期出新人硬刷装备扫荡过去的调查差不多 ...</blockquote>
+确实忘了还有这一招
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

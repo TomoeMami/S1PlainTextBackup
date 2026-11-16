@@ -13434,3 +13434,11 @@ glm5.5还没消息吗
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  warlock228  
+##### 20394#       发表于 2026-11-16 12:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">OAI这周还不端点好东西上来看就要风雨飘摇了，跑去看了一下tibo，哥们感觉精神不太好像AI（
+
