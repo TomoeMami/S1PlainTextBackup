@@ -14245,3 +14245,39 @@ dsh是指harness吗，我该跟d老师说啥？是不是能把思考过程也让
 —— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99</blockquote>
 你前面骂的好像是hy4而不是hy4f吧？
 
+
+*****
+
+####  我就再氪一单  
+##### 20457#       发表于 2026-11-16 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517702&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-16 18:19</a>
+你前面骂的好像是hy4而不是hy4f吧？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那4等于是4Pro？
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  knnknn  
+##### 20458#       发表于 2026-11-16 18:33
+
+<blockquote>lactone 发表于 2026-11-16 17:31
+我报名了腾讯的那个给数据打标的众包项目
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99 ...</blockquote>
+是啥，有啥好处吗
+
+
+*****
+
+####  紧那罗  
+##### 20459#       发表于 2026-11-16 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517598&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-16 17:55</a>
+反重力的 Orchestrator（Carbon）还挺好用的，说是用 Carbon 做规划，hydrogen 做执行，但它是原生的，在模 ...</blockquote>
+原来是这样吗，我之前简单试用没用出区别就放弃了，看来后面还是应该再多试试。
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
