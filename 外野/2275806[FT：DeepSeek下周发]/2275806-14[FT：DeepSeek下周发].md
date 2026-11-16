@@ -14524,3 +14524,23 @@ hy4 刚出的时候随便试了几个简单的活都很蛆，我是真不知道�
 
 非元素例外 Helix（螺旋）对应超低成本的 Flash-Lite 定位
 
+
+*****
+
+####  startraveller  
+##### 20480#       发表于 2026-11-16 21:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518270&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-16 21:40</a>
+不是按原子序数，是化学特性：
+
+惰性气体代表稳健基座与重型推理（Argon 及更重的同族未官宣旗舰 Krypton ...</blockquote>
+现在看来 carbon 应该是 argon 的换代
+
+
+*****
+
+####  Promeus  
+##### 20481#       发表于 2026-11-16 21:51
+
+V4p换指纹了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
