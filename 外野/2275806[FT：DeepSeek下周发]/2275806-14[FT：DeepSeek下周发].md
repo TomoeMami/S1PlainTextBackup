@@ -14544,3 +14544,50 @@ hy4 刚出的时候随便试了几个简单的活都很蛆，我是真不知道�
 
 V4p换指纹了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 20482#       发表于 2026-11-16 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518303&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-16 21:51</a>
+V4p换指纹了？</blockquote>
+是的，换指纹了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  bartholo4  
+##### 20483#       发表于 2026-11-16 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518301&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-16 21:51</a>
+
+现在看来 carbon 应该是 argon 的换代</blockquote>
+应该是基于argon基座的后训练升级
+
+
+*****
+
+####  宅男的爱  
+##### 20484#       发表于 2026-11-16 22:01
+
+等Google玩元素周期表玩到Chrome
+
+
+*****
+
+####  一般市民  
+##### 20485#       发表于 2026-11-16 22:06
+
+老黄被搞，华子那边没产能，后续一段时间算力扩张难度不小吧？ 现在也算未雨绸缪了 <img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 20486#       发表于 2026-11-16 22:07
+
+指纹变了，大的要来了吗？能撞出来新指纹是啥吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
