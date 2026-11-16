@@ -13166,3 +13166,15 @@ glm5.3官方api降智的都没法看了，wd那一坨狗屎提示词附魔下来
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  我就再氪一单  
+##### 20371#       发表于 2026-11-16 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515091&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-16 08:16</a>
+glm5.3官方api降智的都没法看了，wd那一坨狗屎提示词附魔下来真的能用？</blockquote>
+也笨，但比hy好点，蹦首字等待时间hy够我去去倒杯水回来了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

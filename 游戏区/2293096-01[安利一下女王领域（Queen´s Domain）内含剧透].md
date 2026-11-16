@@ -6353,3 +6353,13 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 难绷</blockquote>
 闪退或自带即时存档，作者的怜悯。
 
+
+*****
+
+####  shimotsuki14  
+##### 519#       发表于 2026-11-16 08:50
+
+一直在练武器的路上，导致一路上打得都很费劲。好用的武器练满太快了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
