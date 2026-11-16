@@ -6490,3 +6490,13 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 那个应该是第三个存档点了，从黑色洞里面出来，往左边冲，有个断掉的铁桥，往前走进到一个小屋子里面，然 ...</blockquote>
 去到那里提示说没有黄色的开门器卡住了，坑爹啊
 
+
+*****
+
+####  28201  
+##### 529#       发表于 2026-11-16 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516878&amp;ptid=2293096" target="_blank">ddsafvbw 发表于 2026-11-16 15:06</a>
+去到那里提示说没有黄色的开门器卡住了，坑爹啊</blockquote>
+先去传送点旁边的第二个水晶找博士，他会给你
+
