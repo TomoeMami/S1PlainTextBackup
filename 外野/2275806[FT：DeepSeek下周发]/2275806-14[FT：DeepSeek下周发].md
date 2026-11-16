@@ -13721,3 +13721,60 @@ OAI已经70多天没更新了<img src="https://static.stage1st.com/image/smiley/
 
 2个小时前问了Dots一个问题。它解答的不错. 然后刚刚它主动跟我说它针对这个问题找到了更多信息，的确对我有用。有想象中的贾维斯/科塔娜的味道了。
 
+
+*****
+
+####  inpachi  
+##### 20419#       发表于 2026-11-16 15:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以谷谷歌歌这个元素命名有什么规律吗
+
+按定位来说大概是：小规模-hydrogen-氢；中等规模-argon-氩；大规模-carbon-碳
+
+从原子量和元素周期表的位置感觉都找不出什么规律啊
+
+*****
+
+####  tonyunreal  
+##### 20420#       发表于 2026-11-16 15:28
+
+这hy4 flash是不是新时代的mimo 2.5，干活一波莽完不测试 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛拉斯  
+##### 20421#       发表于 2026-11-16 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516888&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-11-16 15:08</a>
+
+2个小时前问了Dots一个问题。它解答的不错. 然后刚刚它主动跟我说它针对这个问题找到了更多信息，的确对我 ...</blockquote>
+提示词里面加一个，计划任务补充内容就是，这个不一定是模型能力，可能是harness的设置
+
+*****
+
+####  BarricadeMKXX  
+##### 20422#       发表于 2026-11-16 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516971&amp;ptid=2275806" target="_blank">inpachi 发表于 2026-11-16 15:25</a>
+所以谷谷歌歌这个元素命名有什么规律吗
+
+按定位来说大概是：小规模-hydrogen-氢；中等规模-argon-氩；大规模 ...</blockquote>
+之前不是有消息说argon和carbon是同一个基模不同的后训练？
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  一牧月  
+##### 20423#       发表于 2026-11-16 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516839&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-16 15:00</a>
+ai发展到现在，最重要的教训就是别把一刻当永久
+
+现在看，除了openai技术储备一直相对以来领先外，真没有别 ...</blockquote>
+Astra最近也明显降智了，我感觉跟5.6 Sol差不多了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
