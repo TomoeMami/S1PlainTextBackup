@@ -80,3 +80,14 @@ PSN 欧美区 八月排20名五十万那还是轻松破的，同月的瘟疫传�
 
 2026-11-16 19:03 上传
 
+
+*****
+
+####  Jabeck  
+##### 588#       发表于 2026-11-16 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517838&amp;ptid=2253295" target="_blank">卢迪克 发表于 2026-11-16 19:02</a>
+
+开发组9月还在推特感谢玩家呢不至于只有20w吧</blockquote>
+还入XGP啊，甚至连玩家数都不公布，肯定大褒姒了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看过直播，这游戏就纯纯的没任何亮点的游戏，除了画面好像漂亮点。
+
