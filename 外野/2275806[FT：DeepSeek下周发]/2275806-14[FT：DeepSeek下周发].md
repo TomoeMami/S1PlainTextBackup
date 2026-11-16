@@ -13416,3 +13416,11 @@ Codex已经慢到不可思议了。足够我下了一个小任务后，预期半
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 20392#       发表于 2026-11-16 12:14
+
+agy的内存优化真的一坨，开几个subagent我32内存就炸了
+
