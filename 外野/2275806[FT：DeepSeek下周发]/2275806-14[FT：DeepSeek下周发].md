@@ -13962,3 +13962,61 @@ opencode go 有哈基米4a的30刀额度
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  BarricadeMKXX  
+##### 20438#       发表于 2026-11-16 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517205&amp;ptid=2275806" target="_blank">一牧月 发表于 2026-11-16 16:18</a>
+
+也就是说参数一样，只是更雷霆思考？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+谷歌没明说全靠阅读理解
+
+我理解可能类似曾经的ds v3和ds r1的关系（只不过当时v3没思考能力）
+
+*****
+
+####  紧那罗  
+##### 20439#       发表于 2026-11-16 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517160&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-11-16 16:09</a>
+
+翻了下谷歌通稿
+
+这里提到carbo是基于argon做的，甚至后面架构懒得写了，放了一堆请参见argon</blockquote>
+我自己体感碳明显强于氩，应该是基于argon强化训练后的。
+
+氢基本就是明示从碳蒸馏得来的，大幅优化效率。
+
+
+*****
+
+####  BarricadeMKXX  
+##### 20438#       发表于 2026-11-16 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517205&amp;ptid=2275806" target="_blank">一牧月 发表于 2026-11-16 16:18</a>
+
+也就是说参数一样，只是更雷霆思考？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+谷歌没明说全靠阅读理解
+
+我理解可能类似曾经的ds v3和ds r1的关系（只不过当时v3没思考能力）
+
+*****
+
+####  紧那罗  
+##### 20439#       发表于 2026-11-16 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517160&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-11-16 16:09</a>
+
+翻了下谷歌通稿
+
+这里提到carbo是基于argon做的，甚至后面架构懒得写了，放了一堆请参见argon</blockquote>
+我自己体感碳明显强于氩，应该是基于argon强化训练后的。
+
+氢基本就是明示从碳蒸馏得来的，大幅优化效率。
+
