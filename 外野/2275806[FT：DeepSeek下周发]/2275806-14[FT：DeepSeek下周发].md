@@ -14345,3 +14345,16 @@ hy4flash 拉中拉，拉完了，<img src="https://static.stage1st.com/image/smi
 是啥，有啥好处吗</blockquote>
 相当于帝师。到时候天网了，说不定能供你养老自然老死。
 
+
+*****
+
+####  qz66618  
+##### 20465#       发表于 2026-11-16 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517545&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-16 17:39</a>
+
+出错的会话下，54%的上下文窗口使用量，另外也没触发过自动压缩
+
+我觉得应该不是这个问题 ...</blockquote>
+我一般用到25-30%都会开新会话，最多会在40%左右压缩文本，54%我都不敢直接用了<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

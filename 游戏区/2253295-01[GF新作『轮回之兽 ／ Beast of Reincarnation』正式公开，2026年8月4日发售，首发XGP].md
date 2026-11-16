@@ -99,3 +99,15 @@ PSN 欧美区 八月排20名五十万那还是轻松破的，同月的瘟疫传�
 
 轮回之兽销量不好都是XGP的锅<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 590#       发表于 2026-11-16 19:27
+
+ 本帖最后由 卢迪克 于 2026-11-16 19:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517885&amp;ptid=2253295" target="_blank">蚊仔蚊仔蚊仔 发表于 2026-11-16 19:19</a>
+
+轮回之兽销量不好都是XGP的锅</blockquote>
+采访制作人说超预期了，看推上gf最近在CEDEC演讲这游戏
+
