@@ -14482,3 +14482,26 @@ DS自己对RP需求一直比较支持，V4系列模型专门针对RP做了强化
 
 但是chat网站和app上搞又是另一回事了，这两者都是DS直接提供的产品服务，法律风险是很大的
 
+
+*****
+
+####  空き地卯木  
+##### 20477#       发表于 2026-11-16 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518143&amp;ptid=2275806" target="_blank">clawdbot 发表于 2026-11-16 20:55</a>
+小红书上声讨DS的帖子越来越多看的我心里发毛
+
+未成年不让打网游反而不限在社媒共振 ...</blockquote>
+这种狗叫属实毛用没有，有本事自己举报自己拿ds破甲搞黄吧
+哦梁叔叔上个月刚吃了友商刷的集美搞黄新闻稿，都是报应啊
+
+*****
+
+####  平昭·南宫司卿  
+##### 20478#       发表于 2026-11-16 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518128&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-11-16 20:48</a>
+
+怎么就不刷分了，hy4一样是刷了个洋人之下我第一的分，哦，超k3.1p过分了所以没有全部项目超。至于什么4.1f ...</blockquote>
+hy4 刚出的时候随便试了几个简单的活都很蛆，我是真不知道怎么有脸排在 k3.1 上面的。这比刷野榜恶心多了。
+
