@@ -14712,3 +14712,11 @@ O家以前还能用Sora，现在只有dots了。A的话产品稍微多点，但�
 感觉同样100刀，用 orchestrator（carbon），用量还是比 GPT 纯用 Astra 多不少，但比纯用 Sol 少。比 cl ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">gpt的用量优势是靠重置堆起来的 没重置真不行
 
+
+*****
+
+####  77BBC  
+##### 20498#       发表于 2026-11-16 23:15
+
+Google出个新模型杀个渠道，再见土区人
+
