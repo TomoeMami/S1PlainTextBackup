@@ -14358,3 +14358,11 @@ hy4flash 拉中拉，拉完了，<img src="https://static.stage1st.com/image/smi
 我觉得应该不是这个问题 ...</blockquote>
 我一般用到25-30%都会开新会话，最多会在40%左右压缩文本，54%我都不敢直接用了<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 20466#       发表于 2026-11-16 19:39
+
+hy4flash更像翻版的0731，能力不如v4.1f，看别人测试文风会好一些，受不了鲸八股的可以试试
+

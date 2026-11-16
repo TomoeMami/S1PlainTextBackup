@@ -2198,3 +2198,32 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 这期一水卑和利休2个1宝都是20抽就出，石头反而在想一水卑2宝前后浪费了130抽也没出控制自己收手了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正都扔了130 直接梭哈 
 
+
+*****
+
+####  岸浪白野  
+##### 21913#       发表于 2026-11-16 19:38
+
+ 本帖最后由 岸浪白野 于 2026-11-16 19:40 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517897&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-11-16 19:23</a>
+反正都扔了130 直接梭哈</blockquote>
+我上个月就是经历了想月批补宝浪费了110抽没有
+想黑花补宝浪费了140抽没有
+抽亚里亚170抽才出
+我都当这期2个能20抽就出是还债了，没有2宝的缘分还是不要补宝<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno1  
+##### 21914#       发表于 2026-11-16 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517946&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-11-16 19:38</a>
+
+我上个月就是经历了想月批补宝浪费了110抽没有
+
+想黑花补宝浪费了140抽没有
+
+抽亚里亚170抽才出</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">今年四个大保底的我唯有梭哈
+
