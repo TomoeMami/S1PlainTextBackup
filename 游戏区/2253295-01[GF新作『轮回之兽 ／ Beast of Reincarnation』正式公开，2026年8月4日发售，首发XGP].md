@@ -91,3 +91,11 @@ PSN 欧美区 八月排20名五十万那还是轻松破的，同月的瘟疫传�
 开发组9月还在推特感谢玩家呢不至于只有20w吧</blockquote>
 还入XGP啊，甚至连玩家数都不公布，肯定大褒姒了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看过直播，这游戏就纯纯的没任何亮点的游戏，除了画面好像漂亮点。
 
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 589#       发表于 2026-11-16 19:19
+
+轮回之兽销量不好都是XGP的锅<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
