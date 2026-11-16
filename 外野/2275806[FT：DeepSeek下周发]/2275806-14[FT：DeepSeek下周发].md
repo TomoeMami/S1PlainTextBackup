@@ -13142,3 +13142,27 @@ glm5.3官方api降智的都没法看了，wd那一坨狗屎提示词附魔下来
 礼拜六晚上蹬大肥鱼被藤子 ...</blockquote>
 署名这个事情其实是这么一回事，大模型是自己不知道自己是什么名字的，你让它署名，正常来说它自己要去查配置才能知道自己是什么模型。如果你不专门提这一点的话，它就可能被之前的文档误导，看之前的文档写的是Deepseek，自己也署Deepseek。
 
+
+*****
+
+####  profr  
+##### 20369#       发表于 2026-11-16 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70514912&amp;ptid=2275806" target="_blank">月海的秋鸟 发表于 2026-11-16 01:42</a>
+
+新的斗蛐蛐还不错啊，  sol是不是太聪明了唯一一个像人类在玩的
+
+【当你把9个ai叫来玩全面战争模拟器...｜AI ...</blockquote>
+有机场kimi这个表现怎么只能和文心对比了
+
+*****
+
+####  我就再氪一单  
+##### 20370#       发表于 2026-11-16 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515105&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-11-16 08:27</a>
+署名这个事情其实是这么一回事，大模型是自己不知道自己是什么名字的，你让它署名，正常来说它自己要去查 ...</blockquote>
+是的，发现这点了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
