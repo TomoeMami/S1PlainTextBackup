@@ -49,3 +49,14 @@ PSN 欧美区 八月排20名五十万那还是轻松破的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽时间打完了优化了114514次后的最新版本。其他问题都能忍，跑步震手柄把我左手震出暗伤了。
 
+
+*****
+
+####  Jabeck  
+##### 586#       发表于 2026-11-16 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517621&amp;ptid=2253295" target="_blank">卢迪克 发表于 2026-11-16 18:00</a>
+
+PSN 欧美区 八月排20名五十万那还是轻松破的，同月的瘟疫传说都没上榜如果他没50w瘟疫传说岂不是得大褒姒 ...</blockquote>
+你说得对，瘟疫传说我搜了下估算最高只有20W销量。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 首发还入XGP。
+

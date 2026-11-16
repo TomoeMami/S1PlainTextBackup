@@ -14281,3 +14281,56 @@ dsh是指harness吗，我该跟d老师说啥？是不是能把思考过程也让
 
 [论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  pure_liquid  
+##### 20460#       发表于 2026-11-16 18:48
+
+<blockquote>我就再氪一单 发表于 2026-11-16 18:30
+那4等于是4Pro？
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99</blockquote>
+从参数规模上来看，比起ds v4 pro
+
+hy4其实更接近glm 5.3吧（770B vs 743B）
+
+我记得前几页有坛友提出过这种观点来着
+
+
+*****
+
+####  我就再氪一单  
+##### 20461#       发表于 2026-11-16 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517790&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-16 18:48</a>
+从参数规模上来看，比起ds v4 pro
+
+hy4其实更接近glm 5.3吧（770B vs 743B）
+
+我记得前几页有坛友提出过这 ...</blockquote>
+拿来当翻译机试了一下，首字吐字确实快了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  口袋妖怪  
+##### 20462#       发表于 2026-11-16 18:52
+
+hy4flash 拉中拉，拉完了，<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BarricadeMKXX  
+##### 20463#       发表于 2026-11-16 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517747&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-11-16 18:33</a>
+是啥，有啥好处吗</blockquote>
+结合自己行业知识和经验，设计测评题目和打分方法交给腾讯训ai，一个任务给一百块到上千不等
+相当于外卖接单模式的兼职数据标注工作
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
