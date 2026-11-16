@@ -6646,3 +6646,11 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 —— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  h33  
+##### 543#       发表于 2026-11-17 02:42
+
+之前看文本处处引导玩家上知识之塔敲钟，后面飞上去之后却是那个，这谁绷得住<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
