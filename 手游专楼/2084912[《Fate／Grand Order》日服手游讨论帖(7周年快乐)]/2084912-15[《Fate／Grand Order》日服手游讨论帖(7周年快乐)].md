@@ -2137,3 +2137,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 150石头3个杂贺孙一，不过这也正常，不像某狗萌新，每次都出货。
 
+
+*****
+
+####  alucardcz  
+##### 21907#       发表于 2026-11-16 17:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新all in无事发生 连杂贺都没有 谁又在黑萌新
+

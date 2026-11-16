@@ -14186,3 +14186,36 @@ dsh是指harness吗，我该跟d老师说啥？是不是能把思考过程也让
 
 2026-11-16 17:46 上传
 
+
+*****
+
+####  lactone  
+##### 20452#       发表于 2026-11-16 17:53
+
+话说hy4flash泥漏一点讨论都没有啊
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qwased  
+##### 20453#       发表于 2026-11-16 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517408&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-16 17:04</a>
+有没有坛友感觉今天DeepSeek 4.1f Max似乎有些降智？
+
+我是在dsh下直连官方api
+
+今天感觉在犯一些上周没有的 ...</blockquote>
+点一下反馈把信息提交给官方看看
+
+*****
+
+####  bartholo4  
+##### 20454#       发表于 2026-11-16 17:55
+
+反重力的 Orchestrator（Carbon）还挺好用的，说是用 Carbon 做规划，hydrogen 做执行，但它是原生的，在模型端就做好路由
+
+—— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
