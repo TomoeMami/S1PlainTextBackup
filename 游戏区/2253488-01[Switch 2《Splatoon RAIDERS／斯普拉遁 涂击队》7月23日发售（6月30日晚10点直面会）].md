@@ -38,3 +38,45 @@
 
 2026-11-16 15:04 上传
 
+
+*****
+
+####  shirolin  
+##### 979#       发表于 2026-11-16 15:59
+
+官推又补了4张图：
+
+<img src="https://img.stage1st.com/forum/202611/16/155835xw0bd0bz4t3v8x00.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>(1)_X_上的_Splatoon（スプラトゥーン）：“「スプラトゥーン_レイダース_イカすアー.webp</strong> (429.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-16 15:58 上传
+
+<img src="https://img.stage1st.com/forum/202611/16/155837ywhzbww9iw7ewugr.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>(1)_X_上的_Splatoon（スプラトゥーン）：“「スプラトゥーン_レイダース_イカすアー.webp</strong> (398.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-16 15:58 上传
+
+<img src="https://img.stage1st.com/forum/202611/16/155839hyxezhzlkzdxvxv2.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>(1)_X_上的_Splatoon（スプラトゥーン）：“「スプラトゥーン_レイダース_イカすアー.webp</strong> (430.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-16 15:58 上传
+
+<img src="https://img.stage1st.com/forum/202611/16/155840mjo01dwfzjow1wok.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>(1)_X_上的_Splatoon（スプラトゥーン）：“「スプラトゥーン_レイダース_イカすアー.webp</strong> (301.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-16 15:58 上传
+
+——这不赶紧回家打涂击队？ · 来自 Windows 11 Pro 上的 [S1er 客户端](https://s1er.pages.dev)
+

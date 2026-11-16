@@ -13837,3 +13837,33 @@ dsh是指harness吗，我该跟d老师说啥？是不是能把思考过程也让
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  泰坦失足  
+##### 20429#       发表于 2026-11-16 16:00
+
+<img src="https://img.stage1st.com/forum/202611/16/155922jzye7ddskg7r7z6u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-16 15:59 上传
+
+原来这哥们改名了，我说怎么找不到它。
+
+
+*****
+
+####  我就再氪一单  
+##### 20430#       发表于 2026-11-16 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516971&amp;ptid=2275806" target="_blank">inpachi 发表于 2026-11-16 15:25</a>
+所以谷谷歌歌这个元素命名有什么规律吗
+
+按定位来说大概是：小规模-hydrogen-氢；中等规模-argon-氩；大规模 ...</blockquote>
+我甚至考虑过丰度，但似乎也不太符合
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
