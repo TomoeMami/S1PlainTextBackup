@@ -14390,3 +14390,30 @@ hy4发布的时候可是把内部bench里和ao两家差距巨大的都列出来�
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  tillnight  
+##### 20469#       发表于 2026-11-16 20:48
+
+怎么就不刷分了，hy4一样是刷了个洋人之下我第一的分，哦，超k3.1p过分了所以没有全部项目超。至于什么4.1f当然是被吊打了，你楼爱吹的猫老板直接在发布前在自己群里说了，比4.1f用起来好多了。没错，就是那个入职混元，自称不会再测混元模型以示避嫌的那位。
+
+
+*****
+
+####  CR2  
+##### 20470#       发表于 2026-11-16 20:55
+
+绕指流光        禁止发言        2027-2-10 15:04        2026-11-12 15:04        无视警告多次推广收费贩子站
+
+我还说楼主怎么没了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clawdbot  
+##### 20471#       发表于 2026-11-16 20:55
+
+小红书上声讨DS的帖子越来越多<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">看的我心里发毛
+
+未成年不让打网游反而不限在社媒共振<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
