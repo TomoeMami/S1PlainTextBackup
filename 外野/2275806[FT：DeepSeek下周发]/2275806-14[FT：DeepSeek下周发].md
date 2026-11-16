@@ -13329,3 +13329,43 @@ AA野榜目前应该是科学研究这类占比变大了，未来一段时间国
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lactone  
+##### 20385#       发表于 2026-11-16 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515847&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-16 11:11</a>
+那现在qwen4哪里可以白嫖，我去试试水</blockquote>
+我是qoder大会员<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在qwen4额度给的挺多
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  洛拉斯  
+##### 20386#       发表于 2026-11-16 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515908&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-16 11:18</a>
+
+我是qoder大会员现在qwen4额度给的挺多
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99 ...</blockquote>
+那免费会员一点白嫖都不给吗？
+
+
+*****
+
+####  lactone  
+##### 20387#       发表于 2026-11-16 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70515869&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-11-16 11:14</a>
+不过目前发的国模也都在讲AI4S了，不知道DS到时候会不会也讲讲故事
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+科研主要还是缺后训练和对齐，openai直接雇菲尔茨奖的，国模厂商还是没有这种，主要是和高校合作
+
+和高校合作就要发文章，发文章就要审稿，顶刊审稿半年，啥都没了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
