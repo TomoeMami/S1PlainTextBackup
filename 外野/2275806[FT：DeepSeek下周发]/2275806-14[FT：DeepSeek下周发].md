@@ -13601,3 +13601,15 @@ hy4 flash跑常见的前端测试介于0731和0910之间，价格不错，如果
 
 几个月前还懊恼过看到X会员（Grok会员+Cursor会员）bug价1000刀/年，迟疑了下就没了。现在这会员已经路边一条了
 
+
+*****
+
+####  空き地卯木  
+##### 20409#       发表于 2026-11-16 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516183&amp;ptid=2275806" target="_blank">umamusume 发表于 2026-11-16 12:07</a>
+33不是正常速度？ 坐和放宽
+
+—— 来自 samsung SM-S9480, Android 16, 鹅球 v4.0</blockquote>
+dsh里调API还是有个100左右的TPS
+
