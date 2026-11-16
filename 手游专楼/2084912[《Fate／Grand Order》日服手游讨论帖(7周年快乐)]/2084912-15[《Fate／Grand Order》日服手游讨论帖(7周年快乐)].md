@@ -2179,3 +2179,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 各种二次元作品里，松永久秀不是隐藏在三好家背后谋划全局的腹黑阴谋家，就是人间不值得，let the world burn的颠佬，从三好长庆单推人这个角度立人设的我还真是第一次看见，而且效果还意外的不错，看似狂犬，实则忠犬的辣妹，我吃了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 21911#       发表于 2026-11-16 18:59
+
+这期一水卑和利休2个1宝都是20抽就出，石头反而在一水卑2宝浪费了130抽也没出控制自己收手了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

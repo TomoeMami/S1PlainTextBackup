@@ -60,3 +60,23 @@ PSN 欧美区 八月排20名五十万那还是轻松破的
 PSN 欧美区 八月排20名五十万那还是轻松破的，同月的瘟疫传说都没上榜如果他没50w瘟疫传说岂不是得大褒姒 ...</blockquote>
 你说得对，瘟疫传说我搜了下估算最高只有20W销量。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 首发还入XGP。
 
+
+*****
+
+####  卢迪克  
+##### 587#       发表于 2026-11-16 19:02
+
+ 本帖最后由 卢迪克 于 2026-11-16 19:03 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517823&amp;ptid=2253295" target="_blank">Jabeck 发表于 2026-11-16 18:57</a>
+
+你说得对，瘟疫传说我搜了下估算最高只有20W销量。 首发还入XGP。</blockquote>
+开发组9月还在推特感觉玩家呢不至于只有20w吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/16/190321vsu79x7ue4uvfuuq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (242.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-16 19:03 上传
+

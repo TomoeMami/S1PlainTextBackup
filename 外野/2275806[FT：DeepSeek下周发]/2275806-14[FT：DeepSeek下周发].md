@@ -14334,3 +14334,14 @@ hy4flash 拉中拉，拉完了，<img src="https://static.stage1st.com/image/smi
 
 —— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  芜湖挨宰  
+##### 20464#       发表于 2026-11-16 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517747&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-11-16 18:33</a>
+
+是啥，有啥好处吗</blockquote>
+相当于帝师。到时候天网了，说不定能供你养老自然老死。
+
