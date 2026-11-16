@@ -14679,3 +14679,25 @@ V4p换指纹了？</blockquote>
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  startraveller  
+##### 20495#       发表于 2026-11-16 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518401&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-16 22:20</a>
+现在谷歌100刀套餐纯模型用量比不上OA，不过送的一堆其他权益如果都能利用起来还可以 ...</blockquote>
+感觉同样100刀，用 orchestrator（carbon），用量还是比 GPT 纯用 Astra 多不少，但比纯用 Sol 少。比 claude 那就肯定少了。 用得上 colab 和 cloud 的赠金，flow 的生视频点数，以及 YouTube 会员之类的话还是不错的。
+
+*****
+
+####  andychen  
+##### 20496#       发表于 2026-11-16 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518443&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-16 22:32</a>
+
+是 权益其实OA两家也有 各有特色吧
+
+谷歌colab送的额度还算挺慷慨</blockquote>
+O家以前还能用Sora，现在只有dots了。A的话产品稍微多点，但是要在大陆用风险很高
+
