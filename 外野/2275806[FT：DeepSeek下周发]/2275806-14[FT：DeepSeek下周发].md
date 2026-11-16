@@ -13948,3 +13948,17 @@ OK感谢，我甚至想到可以写个守卫，发现变了就给他改回去<im
 我现在感觉他计费规则是不是有点太坑了，同一个对 ...</blockquote>
 opencode go 有哈基米4a的30刀额度
 
+
+*****
+
+####  一牧月  
+##### 20437#       发表于 2026-11-16 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70517160&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-11-16 16:09</a>
+翻了下谷歌通稿
+
+这里提到carbo是基于argon做的，甚至后面架构懒得写了，放了一堆请参见argon</blockquote>
+也就是说参数一样，只是更雷霆思考？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

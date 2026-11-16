@@ -112,3 +112,41 @@ ummm我自己去听过她生娃之前在东京那个live，然后其他现场也
 
 就是我还没玩到小金篇怎么就先放ed了
 
+
+*****
+
+####  zzy516232108  
+##### 1464#       发表于 2026-11-16 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516757&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2026-11-16 14:40</a>
+
+据说换个外观投影可以跳过动画，提升DPS（误）
+
+楔子的问题就是机制上把黎明二人组当挂件了，为了自己的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那我多打映射战斗，争取多换那个投影线团！（搞了个惜春的皮除了中指没有玛玩了）
+
+关键黎明本身叠层少了黎明辛也慢（再加上黎明浮和楔子联动的是反击转的3，不是正经强化3，不给我P）
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">组队主要想拿来刷牢，AALC代刷，现在一把30分左右
+
+上版本那个黎明配大观园我还没养，纺线太少了（
+
+
+*****
+
+####  zzy516232108  
+##### 1464#       发表于 2026-11-16 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70516757&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2026-11-16 14:40</a>
+
+据说换个外观投影可以跳过动画，提升DPS（误）
+
+楔子的问题就是机制上把黎明二人组当挂件了，为了自己的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那我多打映射战斗，争取多换那个投影线团！（搞了个惜春的皮除了中指没有玛玩了）
+
+关键黎明本身叠层少了黎明辛也慢（再加上黎明浮和楔子联动的是反击转的3，不是正经强化3，不给我P）
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">组队主要想拿来刷牢，AALC代刷，现在一把30分左右
+
+上版本那个黎明配大观园我还没养，纺线太少了（
+
