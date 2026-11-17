@@ -13287,3 +13287,16 @@ twi:@cdgm000
 
 2026-11-17 10:34 上传
 
+
+*****
+
+####  纯夏  
+##### 8661#       发表于 2026-11-17 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70519363&amp;ptid=2261859" target="_blank">fireadol 发表于 2026-11-17 09:45</a>
+
+意思挖来的角色哪怕同一条线打了两次一二部也要花碎片融合吗</blockquote>
+可能我没表达清楚 如果只同线融合的话 挖的角是不用花碎片的 
+
+多线融合要花碎片 
+

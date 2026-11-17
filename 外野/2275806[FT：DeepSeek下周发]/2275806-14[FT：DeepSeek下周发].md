@@ -14914,3 +14914,17 @@ a\股价冲高失败对o后续ipo也没好处 所以这段时间大概不会发 
 反正现在tibo天天复读codex问想要什么改进不怎么提模型了
 codex反应也又卡又慢<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">逼的去用cli 速度快了一点点
 
+
+*****
+
+####  紧那罗  
+##### 20512#       发表于 2026-11-17 11:36
+
+今天全力蹬了一下astra 100刀的周额度只有5~6亿token 打不过价格可能只有1/10的opus……
+
+然后算了下google ultra 5x，carbon因为3倍计费的bug，实际可用token也只有大概5亿<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 换用Hydrogen倒是性价比还行 能有15亿+ 但是能力上限低一些
+
+感觉全蹬astra性价比也不高 唯一能和opus打的有来有回的carbon 因为计费问题也是性价比爆降
+
+只能等周四再看了
+
