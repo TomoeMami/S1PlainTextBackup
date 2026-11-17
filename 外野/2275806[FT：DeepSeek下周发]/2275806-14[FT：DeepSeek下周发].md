@@ -14928,3 +14928,20 @@ codex反应也又卡又慢<img src="https://static.stage1st.com/image/smiley/fac
 
 只能等周四再看了
 
+
+*****
+
+####  紧那罗  
+##### 20513#       发表于 2026-11-17 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70519788&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-17 11:20</a>
+
+反正现在tibo天天复读codex问想要什么改进不怎么提模型了
+
+codex反应也又卡又慢逼的去用cli 速度快了一点 ...</blockquote>
+codex我也受不了 换第三方前端丝滑多了
+
+可能是考虑到面向普通桌面用户 堆功能把屎山堆爆了
+
+企鹅：懂不懂小而美的含金量<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
