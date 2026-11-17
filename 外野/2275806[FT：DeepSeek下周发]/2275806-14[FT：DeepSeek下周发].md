@@ -15586,3 +15586,41 @@ o/每到重置的前后都卡得要命，只能滚去用kimi了
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  紧那罗  
+##### 20548#       发表于 2026-11-17 23:58
+
+<img src="https://img.stage1st.com/forum/202611/17/235716yz8od7o6r7aubaoj.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_4307.jpeg</strong> (528.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-17 23:57 上传
+
+https://x.com/0xraco/status/2122690481629155626?a=iXpoiBWxvhRJZV_2NZE&amp;s=46
+这羊毛有点吓人，但是我试了确实可以（能活多久就不知道了）。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  紧那罗  
+##### 20548#       发表于 2026-11-17 23:58
+
+<img src="https://img.stage1st.com/forum/202611/17/235716yz8od7o6r7aubaoj.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_4307.jpeg</strong> (528.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-17 23:57 上传
+
+https://x.com/0xraco/status/2122690481629155626?a=iXpoiBWxvhRJZV_2NZE&amp;s=46
+这羊毛有点吓人，但是我试了确实可以（能活多久就不知道了）。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
