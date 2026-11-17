@@ -15466,3 +15466,36 @@ https://support.huaweicloud.com/price-maas/price-maas-0035.html
 
 o/每到重置的前后都卡得要命，只能滚去用kimi了
 
+
+*****
+
+####  crow_wine  
+##### 20542#       发表于 2026-11-17 21:33
+
+一天就跑了ds flash 12亿，重度开发token真的不够用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  crow_wine  
+##### 20542#       发表于 2026-11-17 21:33
+
+一天就跑了ds flash 12亿，重度开发token真的不够用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  crow_wine  
+##### 20542#       发表于 2026-11-17 21:33
+
+一天就跑了ds flash 12亿，重度开发token真的不够用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 20543#       发表于 2026-11-17 21:37
+
+从昨天开始argon和carbon就时不时的崩，但是hydrogen速度明显变快了
+
+反代也能稳定运行，不知道是开发者牛逼还是google放松了限制
+
