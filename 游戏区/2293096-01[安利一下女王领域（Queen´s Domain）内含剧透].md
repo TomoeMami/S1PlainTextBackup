@@ -6872,3 +6872,17 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 本来房间就很小，动不动3,4个怪一起<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Asukalangley33  
+##### 557#       发表于 2026-11-18 00:24
+
+钻过通风道到高科技地图以后
+
+怪是不是太多了一点？
+
+打的人都晕了
+
+本来房间就很小，动不动3,4个怪一起<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
