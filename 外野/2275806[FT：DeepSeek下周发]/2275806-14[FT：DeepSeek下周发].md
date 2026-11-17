@@ -15071,3 +15071,11 @@ codex我也受不了 换第三方前端丝滑多了
 
 —— 来自 LENOVO TB320FC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  zypyong  
+##### 20523#       发表于 2026-11-17 13:55
+
+谷歌新模型有什么办法不在antigravity里使用吗，这个harness实在不好用，但是模型能力还是蛮强的。 以前用的反代工具一下就死了
+
