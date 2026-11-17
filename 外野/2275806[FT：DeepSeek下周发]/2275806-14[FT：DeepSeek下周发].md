@@ -15876,3 +15876,23 @@ X上一堆博主喷GPT6.2不行，强化学习翻车了？
 
 Opencode Go现在给200刀GLM 5.3的用量了，虽然这楼里没几个人用这模型
 
+
+*****
+
+####  紧那罗  
+##### 20566#       发表于 2026-11-18 05:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">被打脸了，半夜睡醒，GPT居然更新了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  紧那罗  
+##### 20566#       发表于 2026-11-18 05:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">被打脸了，半夜睡醒，GPT居然更新了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
