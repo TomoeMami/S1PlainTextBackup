@@ -8745,7 +8745,7 @@
     "lastedit": 1794907980,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2072996": {
     "totalreply": 1252,
@@ -12024,10 +12024,10 @@
     "update": false
   },
   "2261859": {
-    "totalreply": 8662,
+    "totalreply": 8663,
     "title": "[火纹万紫千红（Fortune's Weave)公开，2026在ns2发售！]",
     "newtitle": "[火纹万紫千红（Fortune's Weave)专楼，2026.9.17在ns2发售！／3弹dlc26～27推出]",
-    "lastedit": 1794903613,
+    "lastedit": 1794908653,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12279,7 +12279,7 @@
     "totalreply": 23375,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「丹青渡」版本现已开放]",
-    "lastedit": 1794904460,
+    "lastedit": 1794908460,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12375,13 +12375,13 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 23070,
+    "totalreply": 23072,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼11月]",
-    "lastedit": 1794908160,
+    "lastedit": 1794908653,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2268807": {
     "totalreply": 512,
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 20533,
+    "totalreply": 20534,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1794904452,
+    "lastedit": 1794908653,
     "category": "外野",
     "active": true,
     "update": false
@@ -13608,13 +13608,13 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 43012,
+    "totalreply": 43014,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1794908160,
+    "lastedit": 1794908718,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2288933": {
     "totalreply": 1036,
@@ -17051,7 +17051,7 @@
     "newtitle": "[之前那个揭露pdd各种低劣的贴纸在哪里]",
     "lastedit": 1794648966,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2293786": {
@@ -17667,10 +17667,10 @@
     "update": false
   },
   "2294018": {
-    "totalreply": 143,
+    "totalreply": 144,
     "title": "[美国华人不团结，到底是主观不行，还是客观上不让？]",
     "newtitle": "[美国华人不团结，到底是主观不行，还是客观上不让？]",
-    "lastedit": 1794906974,
+    "lastedit": 1794908656,
     "category": "外野",
     "active": true,
     "update": false
@@ -17928,13 +17928,13 @@
     "update": false
   },
   "2294100": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[每当你感觉无聊的时候就打开小红书搜索deepseek]",
     "newtitle": "[每当你感觉无聊的时候就打开小红书搜索deepseek]",
-    "lastedit": 1794907920,
+    "lastedit": 1794908296,
     "category": "手游战斗",
     "active": true,
-    "update": true
+    "update": false
   },
   "2294133": {
     "totalreply": 58,
@@ -18171,12 +18171,12 @@
     "update": false
   },
   "2294219": {
-    "totalreply": 0,
+    "totalreply": 48,
     "title": "[受邀进女同学小区，被保安拦住两次，还是没进去，会被他们误会吗]",
     "newtitle": "[受邀进女同学小区，被保安拦住两次，还是没进去，会被他们误会吗]",
-    "lastedit": 1794908100,
+    "lastedit": 1794908653,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }

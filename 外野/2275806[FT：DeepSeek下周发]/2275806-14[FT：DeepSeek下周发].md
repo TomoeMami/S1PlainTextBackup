@@ -15284,3 +15284,42 @@ google你作为SRE师祖这合理吗
 [https://support.huaweicloud.com/price-maas/price-maas-0035.html](https://support.huaweicloud.com/price-maas/price-maas-0035.html)
 这个token是一比一的吗，太夸张了吧
 
+
+*****
+
+####  lactone  
+##### 20534#       发表于 2026-11-17 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520839&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-17 16:33</a>
+https://support.huaweicloud.com/price-maas/price-maas-0035.html
+这个token是一比一的吗，太夸张了吧 ...</blockquote>
+这是华为自己部署的吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  lactone  
+##### 20534#       发表于 2026-11-17 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520839&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-17 16:33</a>
+https://support.huaweicloud.com/price-maas/price-maas-0035.html
+这个token是一比一的吗，太夸张了吧 ...</blockquote>
+这是华为自己部署的吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  lactone  
+##### 20534#       发表于 2026-11-17 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520839&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-17 16:33</a>
+https://support.huaweicloud.com/price-maas/price-maas-0035.html
+这个token是一比一的吗，太夸张了吧 ...</blockquote>
+这是华为自己部署的吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -13340,3 +13340,51 @@ twi:@cdgm000
 
 终于赶在gta之前通关了，因为小鸟跳舞环节非常无聊，结果最后主角居然完全没有配对，独自消失了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JunkoPureFuries  
+##### 8663#       发表于 2026-11-17 17:40
+
+<img src="https://img.stage1st.com/forum/202611/17/173935l31oz51u31mop43z.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20261117-172917.jpg</strong> (622.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-17 17:39 上传
+
+草WWWW，短短开局几分钟迪线一堆乐子
+
+
+*****
+
+####  JunkoPureFuries  
+##### 8663#       发表于 2026-11-17 17:40
+
+<img src="https://img.stage1st.com/forum/202611/17/173935l31oz51u31mop43z.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20261117-172917.jpg</strong> (622.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-17 17:39 上传
+
+草WWWW，短短开局几分钟迪线一堆乐子
+
+
+*****
+
+####  JunkoPureFuries  
+##### 8663#       发表于 2026-11-17 17:40
+
+<img src="https://img.stage1st.com/forum/202611/17/173935l31oz51u31mop43z.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20261117-172917.jpg</strong> (622.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-17 17:39 上传
+
+草WWWW，短短开局几分钟迪线一堆乐子
+
