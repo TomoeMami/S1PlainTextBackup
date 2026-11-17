@@ -12096,10 +12096,10 @@
     "update": false
   },
   "2262701": {
-    "totalreply": 1135,
+    "totalreply": 1136,
     "title": "[立一座赛博打卡碑]",
     "newtitle": "[立一座赛博打卡碑]",
-    "lastedit": 1794926440,
+    "lastedit": 1794928688,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 23090,
+    "totalreply": 23091,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼11月]",
-    "lastedit": 1794927250,
+    "lastedit": 1794928469,
     "category": "外野",
     "active": true,
     "update": false
@@ -13068,10 +13068,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 45767,
+    "totalreply": 45768,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1794927491,
+    "lastedit": 1794928214,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13482,10 +13482,10 @@
     "update": false
   },
   "2286687": {
-    "totalreply": 2280,
+    "totalreply": 2281,
     "title": "[开个帖子，记录一下打海猫鸣泣之时的感想]",
     "newtitle": "[开个帖子，记录一下打海猫鸣泣之时的感想]",
-    "lastedit": 1794885853,
+    "lastedit": 1794928330,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13959,21 +13959,21 @@
     "update": false
   },
   "2283078": {
-    "totalreply": 731,
+    "totalreply": 732,
     "title": "[时之笛重制来了！！2026年 11月 5 日 发售]",
     "newtitle": "[塞尔达传说：时之笛重制版专楼，2026年11月5日发售]",
-    "lastedit": 1794926779,
+    "lastedit": 1794928213,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2283081": {
-    "totalreply": 633,
+    "totalreply": 634,
     "title": "[FINAL FANTASY RESONANCE公开，hd2d风格，10.23发售]",
     "newtitle": "[FINAL FANTASY RESONANCE公开，hd2d风格，10.23发售]",
-    "lastedit": 1794401526,
+    "lastedit": 1794928213,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2291734": {
@@ -16056,12 +16056,12 @@
     "update": false
   },
   "2293542": {
-    "totalreply": 89,
+    "totalreply": 90,
     "title": "[双boss一定是粪设计吗？打影之刃的沐小葵有感]",
-    "newtitle": "[双boss一定是粪设计吗？打影之刃的沐小葵有感]",
-    "lastedit": 1794214691,
+    "newtitle": "[双boss一定是粪设计吗？打影之刃的少主护卫有感]",
+    "lastedit": 1794928471,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2293528": {
@@ -16938,10 +16938,10 @@
     "update": false
   },
   "2293774": {
-    "totalreply": 66,
+    "totalreply": 67,
     "title": "[全国3.35万座寺院、9000座道观正在同步开展财务大检查]",
     "newtitle": "[全国3.35万座寺院、9000座道观正在同步开展财务大检查]",
-    "lastedit": 1794837734,
+    "lastedit": 1794928214,
     "category": "外野",
     "active": true,
     "update": false
@@ -18149,6 +18149,24 @@
     "newtitle": "[《Star Savior》，未来战本家JRPG新作，国际服火热开服中，RTA在线高达100W人！]",
     "lastedit": 1794927137,
     "category": "手游专楼",
+    "active": true,
+    "update": false
+  },
+  "2282921": {
+    "totalreply": 346,
+    "title": "[《卧龙2：凤火连天》公开，2027年3月4日全平台发售（首发XGP），试玩Demo现已上线]",
+    "newtitle": "[《卧龙2：凤火连天》公开，2027年3月4日全平台发售（首发XGP），试玩Demo现已上线]",
+    "lastedit": 1794928371,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2294224": {
+    "totalreply": 42,
+    "title": "[腾讯内部发文称已到生死存亡时刻]",
+    "newtitle": "[腾讯内部发文称已到生死存亡时刻]",
+    "lastedit": 1794928694,
+    "category": "外野",
     "active": true,
     "update": false
   }
