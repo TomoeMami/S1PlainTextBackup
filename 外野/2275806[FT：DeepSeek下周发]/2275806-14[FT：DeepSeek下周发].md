@@ -15079,3 +15079,15 @@ codex我也受不了 换第三方前端丝滑多了
 
 谷歌新模型有什么办法不在antigravity里使用吗，这个harness实在不好用，但是模型能力还是蛮强的。 以前用的反代工具一下就死了
 
+
+*****
+
+####  umamusume  
+##### 20524#       发表于 2026-11-17 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520339&amp;ptid=2275806" target="_blank">zypyong 发表于 2026-11-17 13:55</a>
+谷歌新模型有什么办法不在antigravity里使用吗，这个harness实在不好用，但是模型能力还是蛮强的。 以前用 ...</blockquote>
+基于cli做一个agent
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
