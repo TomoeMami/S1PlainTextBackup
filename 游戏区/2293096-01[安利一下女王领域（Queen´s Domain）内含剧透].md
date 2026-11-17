@@ -6723,3 +6723,17 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 还剩几个骷髅和两道隐藏墙，有点难蚌
 
+
+*****
+
+####  christiny  
+##### 549#       发表于 2026-11-17 12:48
+
+【陵墓破序先开传送点Queen's Domain   2026-11-17 10-24-41】 [https://www.bilibili.com/video/B ... 0013675f31439d631cc](https://www.bilibili.com/video/BV1cssM6xEDe/?share_source=copy_web&amp;vd_source=8e9f2e742bfad0013675f31439d631cc)
+
+自产自销一下。
+
+陵墓传送点那堵石头墙可以用拳套跳过去，先开传送，从传送点反着走去拿面具，然后再从正面开始探索。 这样的话找符文就不需要走第二遍了。
+
+才到上古界域，风格变了，从箱庭变成了半开放区域探索。岔路看起来很多，实际上只有一条是正确的……就是去传送回廊小屋……<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">  第一次进去我就好奇，这房子外面没有管道啊……这管道通向哪里？
+
