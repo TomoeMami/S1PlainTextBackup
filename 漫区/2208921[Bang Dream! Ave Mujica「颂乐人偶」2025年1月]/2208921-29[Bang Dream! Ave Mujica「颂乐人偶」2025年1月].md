@@ -925,3 +925,13 @@ BanGDream! bilibili官方：@BanGDream_CN
 
        [https://avemujica.wiki/interview/index.html#lIscTomQZxA](https://avemujica.wiki/interview/index.html#lIscTomQZxA)  <strong>&lt;——唯鸡百科译文《Ave Mujica 音乐制作人 Diggy-MO’眼中的乐队制作精髓（后篇）》</strong>
 
+
+*****
+
+####  堀内爱里衣  
+##### 42220#       发表于 2026-11-17 22:34
+
+       <img src="https://p.sda1.dev/36/4a5ab4d1888814078d988377f4828bf8/2026-11-17_21-35-42.png" referrerpolicy="no-referrer">
+
+       [https://x.com/bang_dream_info/status/2122615734719369319](https://x.com/bang_dream_info/status/2122615734719369319)
+
