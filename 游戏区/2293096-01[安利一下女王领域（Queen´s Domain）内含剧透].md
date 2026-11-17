@@ -6820,3 +6820,33 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 —— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  zzf111  
+##### 555#       发表于 2026-11-17 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521191&amp;ptid=2293096" target="_blank">28201 发表于 2026-11-17 18:59</a>
+
+拿了9个银骷髅头，还以为离齐不远了，一查一共69个，玩我呢</blockquote>
+能靠五飞拿到的银骷髅头大概也就20个左右
+
+剩下的摆放位置藏得都又高又偏 需要去石化花园地下交20个骷髅头解锁飞菇（和上古鸭子商人解锁的透视挂件）才能拿
+
+不做全成就不建议找【
+
+
+*****
+
+####  zzf111  
+##### 555#       发表于 2026-11-17 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521191&amp;ptid=2293096" target="_blank">28201 发表于 2026-11-17 18:59</a>
+
+拿了9个银骷髅头，还以为离齐不远了，一查一共69个，玩我呢</blockquote>
+能靠五飞拿到的银骷髅头大概也就20个左右
+
+剩下的摆放位置藏得都又高又偏 需要去石化花园地下交20个骷髅头解锁飞菇（和上古鸭子商人解锁的透视挂件）才能拿
+
+不做全成就不建议找【
+
