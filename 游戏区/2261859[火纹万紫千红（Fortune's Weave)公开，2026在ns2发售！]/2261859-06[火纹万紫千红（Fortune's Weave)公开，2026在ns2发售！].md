@@ -13225,3 +13225,24 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 话说第三部练职业经验是不是直接丢在王都不要出来比较好？我要重开了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 8656#       发表于 2026-11-17 09:12
+
+既然出来这么一个奇葩人设官方肯定就没有打算让法比奥真身露面
+
+
+*****
+
+####  纯夏  
+##### 8657#       发表于 2026-11-17 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70519111&amp;ptid=2261859" target="_blank">fireadol 发表于 2026-11-17 08:40</a>
+
+打完第一条线一二部后重新降临再打一遍一二部人物属性能融合吗，还是只有一直打第一部才能融合 ...</blockquote>
+可以 4位主角线在各自的第2部战争篇通关后会自动进行因果融合
+
+但是主角以外的角色需要在因果祭坛选“同伴的因果融合”来合并培养结果
+
