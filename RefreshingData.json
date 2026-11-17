@@ -1580,7 +1580,7 @@
     "newtitle": "[《一人之下》漫画：最强魔界统一战！]",
     "lastedit": 1794621966,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1833229": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 49846,
+    "totalreply": 49847,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.12 莉经万难]",
-    "lastedit": 1794875168,
+    "lastedit": 1794880815,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -14552,15 +14552,6 @@
     "active": true,
     "update": false
   },
-  "2293036": {
-    "totalreply": 54,
-    "title": "[万圣节的思考]",
-    "newtitle": "[万圣节的思考]",
-    "lastedit": 1793671088,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2292955": {
     "totalreply": 43,
     "title": "[会怀念去了天国的无双系列吗]",
@@ -14773,15 +14764,6 @@
     "title": "[袁钧瑛：我今天还是上海人，血还是中国血，虽然以前加入美国国籍但依然还是中国人]",
     "newtitle": "[袁钧瑛：我今天还是上海人，血还是中国血，虽然以前加入美国国籍但依然还是中国人]",
     "lastedit": 1793773086,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2293045": {
-    "totalreply": 42,
-    "title": "[易拉罐应该怎么开啊]",
-    "newtitle": "[易拉罐应该怎么开啊]",
-    "lastedit": 1793671207,
     "category": "外野",
     "active": false,
     "update": false
@@ -15156,10 +15138,10 @@
     "update": false
   },
   "2293240": {
-    "totalreply": 192,
+    "totalreply": 193,
     "title": "[动作游戏的系统需不需要有深度]",
     "newtitle": "[动作游戏的系统需不需要有深度]",
-    "lastedit": 1794858609,
+    "lastedit": 1794881291,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17982,10 +17964,10 @@
     "update": false
   },
   "2294075": {
-    "totalreply": 112,
+    "totalreply": 113,
     "title": "[deepseek的算力已经完蛋了吗]",
     "newtitle": "[deepseek的算力已经完蛋了吗]",
-    "lastedit": 1794880213,
+    "lastedit": 1794880816,
     "category": "外野",
     "active": true,
     "update": false
@@ -18009,10 +17991,10 @@
     "update": false
   },
   "2294117": {
-    "totalreply": 129,
+    "totalreply": 130,
     "title": "[LTX超清去码已经这么强了]",
     "newtitle": "[LTX超清去码已经这么强了]",
-    "lastedit": 1794876731,
+    "lastedit": 1794881051,
     "category": "外野",
     "active": true,
     "update": false
@@ -18063,10 +18045,10 @@
     "update": false
   },
   "2294142": {
-    "totalreply": 113,
+    "totalreply": 114,
     "title": "[乌兰察布 72 小时，目睹 AI 时代的工业奇观]",
     "newtitle": "[乌兰察布 72 小时，目睹 AI 时代的工业奇观]",
-    "lastedit": 1794880457,
+    "lastedit": 1794880937,
     "category": "外野",
     "active": true,
     "update": false
