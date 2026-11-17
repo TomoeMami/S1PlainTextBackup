@@ -15249,3 +15249,29 @@ google你作为SRE师祖这合理吗
 
 google你作为SRE师祖这合理吗
 
+
+*****
+
+####  warlock228  
+##### 20532#       发表于 2026-11-17 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520339&amp;ptid=2275806" target="_blank">zypyong 发表于 2026-11-17 13:55</a>
+
+谷歌新模型有什么办法不在antigravity里使用吗，这个harness实在不好用，但是模型能力还是蛮强的。 以前用 ...</blockquote>
+之前就是太多人把哈基米抱出来塞进claude code里面用所以谷谷歌歌才大开杀戒的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+建议还是忍忍继续用反重力吧
+
+
+*****
+
+####  warlock228  
+##### 20532#       发表于 2026-11-17 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520339&amp;ptid=2275806" target="_blank">zypyong 发表于 2026-11-17 13:55</a>
+
+谷歌新模型有什么办法不在antigravity里使用吗，这个harness实在不好用，但是模型能力还是蛮强的。 以前用 ...</blockquote>
+之前就是太多人把哈基米抱出来塞进claude code里面用所以谷谷歌歌才大开杀戒的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+建议还是忍忍继续用反重力吧
+

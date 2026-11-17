@@ -13332,3 +13332,11 @@ twi:@cdgm000
 
 终于赶在gta之前通关了，因为小鸟跳舞环节非常无聊，结果最后主角居然完全没有配对，独自消失了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜_乌鸦  
+##### 8662#       发表于 2026-11-17 16:06
+
+终于赶在gta之前通关了，因为小鸟跳舞环节非常无聊，结果最后主角居然完全没有配对，独自消失了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
