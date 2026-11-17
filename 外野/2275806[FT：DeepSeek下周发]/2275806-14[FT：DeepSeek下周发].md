@@ -15913,3 +15913,13 @@ Opencode Go现在给200刀GLM 5.3的用量了，虽然这楼里没几个人用�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紧那罗  
+##### 20569#       发表于 2026-11-18 06:59
+
+sol这个位置感觉还是略尴尬 日常用肯定打不过opus5.5 不知道能不能比hydrogen好
+
+老实说我现在对Sol有点PTSD<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉打开就是在跟它对线的感觉
+
