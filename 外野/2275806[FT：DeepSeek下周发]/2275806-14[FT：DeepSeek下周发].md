@@ -15339,3 +15339,35 @@ https://support.huaweicloud.com/price-maas/price-maas-0035.html
 
 大肥鱼从昨天起就降智的不行<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  口袋妖怪  
+##### 20535#       发表于 2026-11-17 18:04
+
+大肥鱼从昨天起就降智的不行<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 20536#       发表于 2026-11-17 18:10
+
+本来以为肥鱼智力不太行，测评这个qwen4max preview我才知道真不行的模型是啥样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来干活像模像样的但是理解能力奇差
+
+
+*****
+
+####  qwased  
+##### 20536#       发表于 2026-11-17 18:10
+
+本来以为肥鱼智力不太行，测评这个qwen4max preview我才知道真不行的模型是啥样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来干活像模像样的但是理解能力奇差
+
+
+*****
+
+####  qwased  
+##### 20536#       发表于 2026-11-17 18:10
+
+本来以为肥鱼智力不太行，测评这个qwen4max preview我才知道真不行的模型是啥样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来干活像模像样的但是理解能力奇差
+
