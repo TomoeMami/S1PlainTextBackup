@@ -15275,3 +15275,12 @@ google你作为SRE师祖这合理吗
 
 建议还是忍忍继续用反重力吧
 
+
+*****
+
+####  很久就在那边l  
+##### 20533#       发表于 2026-11-17 16:33
+
+[https://support.huaweicloud.com/price-maas/price-maas-0035.html](https://support.huaweicloud.com/price-maas/price-maas-0035.html)
+这个token是一比一的吗，太夸张了吧
+
