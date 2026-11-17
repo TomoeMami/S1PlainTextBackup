@@ -13217,3 +13217,11 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 打完第一条线一二部后重新降临再打一遍一二部人物属性能融合吗，还是只有一直打第一部才能融合<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  偎  
+##### 8655#       发表于 2026-11-17 09:05
+
+话说第三部练职业经验是不是直接丢在王都不要出来比较好？我要重开了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
