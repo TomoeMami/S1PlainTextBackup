@@ -15204,3 +15204,48 @@ codex我也受不了 换第三方前端丝滑多了
 
 google你作为SRE师祖这合理吗
 
+
+*****
+
+####  lactone  
+##### 20530#       发表于 2026-11-17 15:44
+
+我感觉不太好，现在各家都有把模型绑定在自家harness上的趋势
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  紧那罗  
+##### 20531#       发表于 2026-11-17 15:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">难绷 carbon这几天炸了好几次了
+
+感觉O A都没这么容易崩
+
+google你作为SRE师祖这合理吗
+
+
+*****
+
+####  紧那罗  
+##### 20531#       发表于 2026-11-17 15:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">难绷 carbon这几天炸了好几次了
+
+感觉O A都没这么容易崩
+
+google你作为SRE师祖这合理吗
+
+
+*****
+
+####  紧那罗  
+##### 20531#       发表于 2026-11-17 15:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">难绷 carbon这几天炸了好几次了
+
+感觉O A都没这么容易崩
+
+google你作为SRE师祖这合理吗
+
