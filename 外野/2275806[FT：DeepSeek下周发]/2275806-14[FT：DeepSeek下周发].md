@@ -15529,3 +15529,18 @@ o/每到重置的前后都卡得要命，只能滚去用kimi了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  口袋妖怪  
+##### 20545#       发表于 2026-11-17 22:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（就是hp黑苹果上指点杆加两个独立按键的驱动）
+
+*****
+
+####  口袋妖怪  
+##### 20546#       发表于 2026-11-17 22:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（就是hp黑苹果上指点杆加两个独立按键的驱动）
+
