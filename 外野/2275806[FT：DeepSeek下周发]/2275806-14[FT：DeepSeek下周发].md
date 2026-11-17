@@ -15428,3 +15428,33 @@ gpt日常对话都叠甲，首月优惠1.99刀定了google ai pro，gemini理hyd
 
 现在模型起来了用户开始涌进来了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  phorcys02  
+##### 20540#       发表于 2026-11-17 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520839&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-17 16:33</a>
+
+https://support.huaweicloud.com/price-maas/price-maas-0035.html
+
+这个token是一比一的吗，太夸张了吧 ...</blockquote>
+不是给普通人用的
+
+是利用买办地位，从信创/国企/政府机关 狠狠爆米用的。
+
+
+*****
+
+####  phorcys02  
+##### 20540#       发表于 2026-11-17 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520839&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-17 16:33</a>
+
+https://support.huaweicloud.com/price-maas/price-maas-0035.html
+
+这个token是一比一的吗，太夸张了吧 ...</blockquote>
+不是给普通人用的
+
+是利用买办地位，从信创/国企/政府机关 狠狠爆米用的。
+
