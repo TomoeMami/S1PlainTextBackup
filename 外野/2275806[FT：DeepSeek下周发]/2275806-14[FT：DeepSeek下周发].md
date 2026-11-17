@@ -15701,3 +15701,50 @@ https://x.com/0xraco/status/2122690481629155626?a=iXpoiBWxvhRJZV_2NZE&amp;s=46
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 20554#       发表于 2026-11-18 01:50
+
+6.2在api出了，便宜了点
+<img src="https://p.sda1.dev/36/6695cd1531fc5bf9e469c51ab121b48c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  なるぼど  
+##### 20555#       发表于 2026-11-18 01:50
+
+ 本帖最后由 なるぼど 于 2026-11-18 01:52 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521845&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-18 01:34</a>
+哪俩文件啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v4.0</blockquote>
+五次重连报错502后，大概是自己先用的Codex++，然后现在用Codex显示的问题，我是这样解决的：官方的Codex先登录,然后退出 把Windows：C:\Users\你的用户名\.codex\ 下的config.toml 和 auth.json 两个文件 移除就可以了(备份一下) ，后续再进Codex需要自己登录账号，登上去就没问题了
+报的400我上面这个方法也解决了。     
+把这段发给gpt就好了，记得备份，别到时候出岔子了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  なるぼど  
+##### 20556#       发表于 2026-11-18 01:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521678&amp;ptid=2275806" target="_blank">squallx2 发表于 2026-11-17 23:31</a>
+我今天也第一次遇到 啥情况
+
+—— 来自 OnePlus PJZ110, Android 16, 鹅球 v3.5.99</blockquote><blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521845&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-11-18 01:34</a>
+哪俩文件啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v4.0</blockquote>
+应该是之前的配置跟更新后的有冲突。
+五次重连报错502后，大概是自己先用的Codex++，然后现在用Codex显示的问题，我是这样解决的：官方的Codex先登录,然后退出 把Windows：C:\Users\你的用户名\.codex\ 下的config.toml 和 auth.json 两个文件 移除就可以了(备份一下) ，后续再进Codex需要自己登录账号，登上去就没问题了
+报的400我上面这个方法也解决了。     
+把这段发给gpt就好了，记得备份，别到时候出岔子了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
