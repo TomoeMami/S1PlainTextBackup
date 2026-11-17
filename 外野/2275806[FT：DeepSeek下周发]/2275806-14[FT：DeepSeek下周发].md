@@ -15519,3 +15519,13 @@ o/每到重置的前后都卡得要命，只能滚去用kimi了
 
 反代也能稳定运行，不知道是开发者牛逼还是google放松了限制
 
+
+*****
+
+####  なるぼど  
+##### 20544#       发表于 2026-11-17 22:08
+
+{"detail":"Bad Request"}   楼里怎么解决codex这个问题的。真没招了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
