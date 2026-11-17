@@ -15121,3 +15121,26 @@ codex我也受不了 换第三方前端丝滑多了
 
 —— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  bartholo4  
+##### 20525#       发表于 2026-11-17 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520339&amp;ptid=2275806" target="_blank">zypyong 发表于 2026-11-17 13:55</a>
+谷歌新模型有什么办法不在antigravity里使用吗，这个harness实在不好用，但是模型能力还是蛮强的。 以前用 ...</blockquote>
+可以用 antigravity tools 代出来用
+但前面有楼友被封
+不敢弄
+还不如 antigravity 有什么用不惯的再改
+
+—— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  hugosol  
+##### 20526#       发表于 2026-11-17 14:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能在antigravity里用就一票否决了，这比A/还封闭的毒点根本不是人类脑子能想出来的，看来谷歌家现在已经没有有话语权的技术领导了
+
