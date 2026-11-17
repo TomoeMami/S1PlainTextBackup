@@ -30,3 +30,19 @@ X赛能2人组排了<img src="https://static.stage1st.com/image/smiley/face2017/
 
 泡那诡异的暴风居然没削，我看下赛季我也转生成泡使好了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 5944#       发表于 2026-11-17 21:51
+
+52的涂地半径削到了2代强化前的105%。
+
+
+*****
+
+####  秋月孝三  
+##### 5944#       发表于 2026-11-17 21:51
+
+52的涂地半径削到了2代强化前的105%。
+
