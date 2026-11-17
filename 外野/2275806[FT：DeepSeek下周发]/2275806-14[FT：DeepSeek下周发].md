@@ -15923,3 +15923,23 @@ sol这个位置感觉还是略尴尬 日常用肯定打不过opus5.5 不知道�
 
 老实说我现在对Sol有点PTSD<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉打开就是在跟它对线的感觉
 
+
+*****
+
+####  qwased  
+##### 20570#       发表于 2026-11-18 07:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521921&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-18 02:58</a>
+X上一堆博主喷GPT6.2不行，强化学习翻车了？</blockquote>
+更像是做安全对齐做翻车了，比灰测版本垃圾得多
+
+
+*****
+
+####  qwased  
+##### 20570#       发表于 2026-11-18 07:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521921&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-18 02:58</a>
+X上一堆博主喷GPT6.2不行，强化学习翻车了？</blockquote>
+更像是做安全对齐做翻车了，比灰测版本垃圾得多
+
