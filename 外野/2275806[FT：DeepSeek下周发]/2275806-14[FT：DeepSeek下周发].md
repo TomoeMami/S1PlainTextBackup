@@ -15371,3 +15371,48 @@ https://support.huaweicloud.com/price-maas/price-maas-0035.html
 
 本来以为肥鱼智力不太行，测评这个qwen4max preview我才知道真不行的模型是啥样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来干活像模像样的但是理解能力奇差
 
+
+*****
+
+####  hugosol  
+##### 20537#       发表于 2026-11-17 19:11
+
+妈耶，omp新版的git merge有问题，把我的工作流搞崩了，走开了一个小时回来看到worktree把我C盘撑爆了，救火救了半天才发现是这个原因<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KevinGraham  
+##### 20538#       发表于 2026-11-17 19:12
+
+gpt日常对话都叠甲，首月优惠1.99刀定了google ai pro，gemini理hydrogen感觉很好啊，速率快也说人话，想搞100刀ultra玩玩了，不过看楼里反重力这么蠢，等下试试看再说<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hugosol  
+##### 20537#       发表于 2026-11-17 19:11
+
+妈耶，omp新版的git merge有问题，把我的工作流搞崩了，走开了一个小时回来看到worktree把我C盘撑爆了，救火救了半天才发现是这个原因<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KevinGraham  
+##### 20538#       发表于 2026-11-17 19:12
+
+gpt日常对话都叠甲，首月优惠1.99刀定了google ai pro，gemini理hydrogen感觉很好啊，速率快也说人话，想搞100刀ultra玩玩了，不过看楼里反重力这么蠢，等下试试看再说<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hugosol  
+##### 20537#       发表于 2026-11-17 19:11
+
+妈耶，omp新版的git merge有问题，把我的工作流搞崩了，走开了一个小时回来看到worktree把我C盘撑爆了，救火救了半天才发现是这个原因<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KevinGraham  
+##### 20538#       发表于 2026-11-17 19:12
+
+gpt日常对话都叠甲，首月优惠1.99刀定了google ai pro，gemini理hydrogen感觉很好啊，速率快也说人话，想搞100刀ultra玩玩了，不过看楼里反重力这么蠢，等下试试看再说<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
