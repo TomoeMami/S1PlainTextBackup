@@ -15091,3 +15091,33 @@ codex我也受不了 换第三方前端丝滑多了
 
 —— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  bartholo4  
+##### 20525#       发表于 2026-11-17 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520339&amp;ptid=2275806" target="_blank">zypyong 发表于 2026-11-17 13:55</a>
+谷歌新模型有什么办法不在antigravity里使用吗，这个harness实在不好用，但是模型能力还是蛮强的。 以前用 ...</blockquote>
+可以用 antigravity tools 代出来用
+但前面有楼友被封
+不敢弄
+还不如 antigravity 有什么用不惯的再改
+
+—— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  bartholo4  
+##### 20525#       发表于 2026-11-17 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520339&amp;ptid=2275806" target="_blank">zypyong 发表于 2026-11-17 13:55</a>
+谷歌新模型有什么办法不在antigravity里使用吗，这个harness实在不好用，但是模型能力还是蛮强的。 以前用 ...</blockquote>
+可以用 antigravity tools 代出来用
+但前面有楼友被封
+不敢弄
+还不如 antigravity 有什么用不惯的再改
+
+—— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
