@@ -1157,7 +1157,7 @@
     "newtitle": "[塔防手游无期迷途8月11日公测]",
     "lastedit": 1794650405,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2015087": {
@@ -5088,10 +5088,10 @@
     "totalreply": 49890,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.12 莉经万难]",
-    "lastedit": 1794909273,
+    "lastedit": 1794910020,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1025935": {
     "totalreply": 2152,
@@ -12573,13 +12573,13 @@
     "update": false
   },
   "2271276": {
-    "totalreply": 11996,
+    "totalreply": 11997,
     "title": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
     "newtitle": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
-    "lastedit": 1794909420,
+    "lastedit": 1794909499,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2261856": {
     "totalreply": 574,
@@ -12900,10 +12900,10 @@
     "totalreply": 2132,
     "title": "[【寂寞的车】车迷俱乐部（2026年3月汽车讨论专楼）]",
     "newtitle": "[【寂寞的车】车迷俱乐部（汽车讨论专楼）]",
-    "lastedit": 1794902070,
+    "lastedit": 1794909720,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2276737": {
     "totalreply": 735,
@@ -12945,10 +12945,10 @@
     "totalreply": 20534,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1794908897,
+    "lastedit": 1794909840,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2245675": {
     "totalreply": 739,
@@ -13044,10 +13044,10 @@
     "totalreply": 1878,
     "title": "[皇牌空战系列新作《皇牌空战8：希孚之翼》正式公开！2026年发售]",
     "newtitle": "[皇牌空战系列新作《皇牌空战8：希孚之翼》正式公开！2026年发售]",
-    "lastedit": 1794896055,
+    "lastedit": 1794909420,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2190591": {
     "totalreply": 764,
@@ -13647,10 +13647,10 @@
     "totalreply": 1088,
     "title": "[《魔兽世界：永恒》讨论帖，2026年11月5日发售]",
     "newtitle": "[《魔兽世界：永恒／无限》讨论帖，2026年11月5日发售]",
-    "lastedit": 1794901211,
+    "lastedit": 1794909900,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2289805": {
     "totalreply": 470,
@@ -13962,10 +13962,10 @@
     "totalreply": 724,
     "title": "[时之笛重制来了！！2026年 11月 5 日 发售]",
     "newtitle": "[塞尔达传说：时之笛重制版专楼，2026年11月5日发售]",
-    "lastedit": 1794905653,
+    "lastedit": 1794909480,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2283081": {
     "totalreply": 633,
@@ -17946,13 +17946,13 @@
     "update": false
   },
   "2294142": {
-    "totalreply": 122,
+    "totalreply": 123,
     "title": "[乌兰察布 72 小时，目睹 AI 时代的工业奇观]",
     "newtitle": "[乌兰察布 72 小时，目睹 AI 时代的工业奇观]",
-    "lastedit": 1794909240,
+    "lastedit": 1794909491,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2294125": {
     "totalreply": 46,
@@ -18171,10 +18171,10 @@
     "update": false
   },
   "2294219": {
-    "totalreply": 50,
+    "totalreply": 52,
     "title": "[受邀进女同学小区，被保安拦住两次，还是没进去，会被他们误会吗]",
     "newtitle": "[受邀进女同学小区，被保安拦住两次，还是没进去，会被他们误会吗]",
-    "lastedit": 1794909420,
+    "lastedit": 1794909660,
     "category": "外野",
     "active": true,
     "update": true
