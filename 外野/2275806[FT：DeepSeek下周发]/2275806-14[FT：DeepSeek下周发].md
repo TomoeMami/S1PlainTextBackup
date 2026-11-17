@@ -15759,3 +15759,29 @@ O/闪击更新6.2
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  泰坦失足  
+##### 20558#       发表于 2026-11-18 02:08
+
+模型大一号就是强一号啊，Fable 5.1还是比Sol 6.1好用。Sol 6.1工作一晚来了句”哦吼，你搞错了，这方法压根没用。具体证据是blabla“让Fable二次检查时候，Fable直接指出了Sol 6.1结论里的核心缺陷。Astra太烧额度了，不知道它来会怎么样。
+
+
+*****
+
+####  The_Ether_  
+##### 20559#       发表于 2026-11-18 02:14
+
+6.2astra价格看着还挺低？不知道实际用起来咋样
+
+*****
+
+####  andychen  
+##### 20560#       发表于 2026-11-18 02:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521887&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-11-18 02:08</a>
+
+模型大一号就是强一号啊，Fable 5.1还是比Sol 6.1好用。Sol 6.1工作一晚来了句”哦吼，你搞错了，这方法压 ...</blockquote>
+Astra在能力上无疑是旗舰级模型，但是在风格上属于需要指导，主动性不强。使用方法和小模型比较接近
+
