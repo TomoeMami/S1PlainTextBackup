@@ -14901,3 +14901,16 @@ a\股价冲高失败对o后续ipo也没好处 所以这段时间大概不会发�
 
 2026-11-17 10:23 上传
 
+
+*****
+
+####  warlock228  
+##### 20511#       发表于 2026-11-17 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70519328&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-17 09:36</a>
+看到个说法 a\ ipo这段时间o应该不会发新模型
+
+a\股价冲高失败对o后续ipo也没好处 所以这段时间大概不会发 ...</blockquote>
+反正现在tibo天天复读codex问想要什么改进不怎么提模型了
+codex反应也又卡又慢<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">逼的去用cli 速度快了一点点
+
