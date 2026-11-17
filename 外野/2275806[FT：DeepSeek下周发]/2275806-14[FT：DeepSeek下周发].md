@@ -14974,3 +14974,36 @@ codex我也受不了 换第三方前端丝滑多了
 然后算了下google  ...</blockquote>
 什么是3倍计费bug？
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 20517#       发表于 2026-11-17 12:59
+
+加州要因为安全问题起诉OpenAI了，新模型发布遥遥无期了感觉。
+也许会一直偷偷路由呢
+
+
+*****
+
+####  紧那罗  
+##### 20518#       发表于 2026-11-17 13:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哈基米太难了，难得模型硬气了一回，自家 harness 狂拖后腿，说几个目前已知的问题。
+1. carbon 三倍开销 bug ，据说是优惠期本应该 x0.5，搞错变成 1.5 了，难崩。
+2. Orchestrator (Carbon)切模型会清缓存，导致长上下文开销比全用 carbon 还高。
+3. agy 还有其他缓存bug，我的综合缓存率（没用 orchestrator）只有 87%，远低于其他几家的平均值。
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  一牧月  
+##### 20519#       发表于 2026-11-17 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520101&amp;ptid=2275806" target="_blank">人畜无害沃特碧 发表于 2026-11-17 12:42</a>
+请问下漏油，单位环境只能上国产的，哪个干活好用些，藤子的codebuddy还是说dsh，还是说有其他的 ...</blockquote>
+最好是ai配专武，用哪个就用对应的harness，一般来说这样才是效率最高的
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
