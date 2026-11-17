@@ -6683,3 +6683,27 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 等到收集足够头骨拿到飞菇“喷气背包”，跑图又有新感觉。一些要绕很大一圈的路线得以大幅度简化，同时最后的隐藏区域也浮出水面。然而飞空带来的新鲜感很快被变态一般的巨量收集品、性能孱弱的**片和某些地图敌怪的超高数值和恶心机制（例如腐朽洞窟的骇人防空激光）给冲淡了，到最后我只能像打卡上班一样浑浑噩噩地在指引mod的帮助下完成全收集。
 
+
+*****
+
+####  vidomina  
+##### 546#         楼主| 发表于 2026-11-17 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518459&amp;ptid=2293096" target="_blank">28201 发表于 2026-11-16 22:39</a>
+
+别提了，罪录有本书在图书馆6书开起来的房间，我已经去过而且都点过，居然没触发。再去发现就是没点中，这 ...</blockquote>
+我第一次甚至没注意到那有本书。
+
+
+*****
+
+####  瑟莉亚  
+##### 547#       发表于 2026-11-17 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518593&amp;ptid=2293096" target="_blank">MTDlnZc 发表于 2026-11-16 23:30</a>
+
+发现一个很不错的wiki网站   https://queens-domain.pure-data.wiki/zh-Hans/
+
+可以显示各种收集品 npc的位 ...</blockquote>
+这个好啊。
+

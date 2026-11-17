@@ -14883,3 +14883,21 @@ a\股价冲高失败对o后续ipo也没好处 所以这段时间大概不会发�
 订了谷歌的pro之后反重力里面的claude有啥说法吗，额度咋算的</blockquote>
 额度很低。
 
+
+*****
+
+####  2035年  
+##### 20510#       发表于 2026-11-17 10:23
+
+笑死
+
+日本人来深圳 claude 账号被封了
+
+<img src="https://img.stage1st.com/forum/202611/17/102324ze2ca24ozoo2oe64.png" referrerpolicy="no-referrer">
+
+<strong>screenshot_20261117_102256_com.tencent.mqq.png</strong> (717.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-17 10:23 上传
+
