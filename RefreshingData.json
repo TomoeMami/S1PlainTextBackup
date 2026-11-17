@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 20538,
+    "totalreply": 20539,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1794914054,
+    "lastedit": 1794916574,
     "category": "外野",
     "active": true,
     "update": false
@@ -13041,10 +13041,10 @@
     "update": false
   },
   "2269426": {
-    "totalreply": 1880,
+    "totalreply": 1881,
     "title": "[皇牌空战系列新作《皇牌空战8：希孚之翼》正式公开！2026年发售]",
     "newtitle": "[皇牌空战系列新作《皇牌空战8：希孚之翼》正式公开！2026年发售]",
-    "lastedit": 1794912749,
+    "lastedit": 1794916460,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13608,10 +13608,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 43025,
+    "totalreply": 43026,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1794915751,
+    "lastedit": 1794916411,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14063,7 +14063,7 @@
     "newtitle": "[安利一下最近玩的独游测试《深空当铺，可能是偷的》 与讨论专楼]",
     "lastedit": 1794657490,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2292132": {
@@ -17456,7 +17456,7 @@
     "newtitle": "[每日邮报：黄仁勋辞职后宅在家里点炸鸡]",
     "lastedit": 1794657367,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2291206": {
@@ -18126,19 +18126,19 @@
     "update": false
   },
   "2294219": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[受邀进女同学小区，被保安拦住两次，还是没进去，会被他们误会吗]",
     "newtitle": "[受邀进女同学小区，被保安拦住两次，还是没进去，会被他们误会吗]",
-    "lastedit": 1794915403,
+    "lastedit": 1794916347,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2294210": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[毛子国师杜金：如今世界三分，三强三足鼎立]",
     "newtitle": "[毛子国师杜金：如今世界三分，三强三足鼎立]",
-    "lastedit": 1794912374,
+    "lastedit": 1794916462,
     "category": "外野",
     "active": true,
     "update": false
@@ -18158,6 +18158,15 @@
     "newtitle": "[迪士尼做梦都没想过复联AI抽象视频会在简中互联网走红吧]",
     "lastedit": 1794915402,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2002062": {
+    "totalreply": 368,
+    "title": "[沪上大公国唯一指定粉红app管人粉丝语录鉴赏专楼]",
+    "newtitle": "[沪上大公国唯一指定粉红app管人粉丝语录鉴赏专楼]",
+    "lastedit": 1794916725,
+    "category": "虚拟主播区专楼",
     "active": true,
     "update": false
   }

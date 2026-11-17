@@ -15416,3 +15416,15 @@ gpt日常对话都叠甲，首月优惠1.99刀定了google ai pro，gemini理hyd
 
 gpt日常对话都叠甲，首月优惠1.99刀定了google ai pro，gemini理hydrogen感觉很好啊，速率快也说人话，想搞100刀ultra玩玩了，不过看楼里反重力这么蠢，等下试试看再说<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紧那罗  
+##### 20539#       发表于 2026-11-17 19:55
+
+我怀疑google反重力这波人是不是躺了半年<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+上半年开始哈基米整天流口水这帮做harness的估计都是无所事事
+
+现在模型起来了用户开始涌进来了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
