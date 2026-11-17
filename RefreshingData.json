@@ -972,12 +972,12 @@
     "update": false
   },
   "1945365": {
-    "totalreply": 5788,
+    "totalreply": 5789,
     "title": "[【めあくあ】“MeAqua”综合讨论楼]",
     "newtitle": "[【めあくあ】“さくめあ”综合讨论楼]",
-    "lastedit": 1789507925,
+    "lastedit": 1794917534,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1914375": {
@@ -6924,7 +6924,7 @@
     "totalreply": 14990,
     "title": "[NIKKE胜利女神，你喜欢射击嘛？2号楼！]",
     "newtitle": "[NIKKE胜利女神，四周年大团圆结局你喜欢嘛？2号楼！]",
-    "lastedit": 1794916936,
+    "lastedit": 1794916813,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9399,10 +9399,10 @@
     "totalreply": 48052,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1794914787,
+    "lastedit": 1794917760,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2194780": {
     "totalreply": 453,
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 23081,
+    "totalreply": 23082,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼11月]",
-    "lastedit": 1794916980,
+    "lastedit": 1794917171,
     "category": "外野",
     "active": true,
     "update": false
@@ -12945,7 +12945,7 @@
     "totalreply": 20540,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1794916933,
+    "lastedit": 1794916814,
     "category": "外野",
     "active": true,
     "update": false
@@ -14602,15 +14602,6 @@
     "title": "[“因政治话题发生争吵” 日本高中女生涉嫌杀人未遂]",
     "newtitle": "[“因政治话题发生争吵” 日本高中女生涉嫌杀人未遂]",
     "lastedit": 1793782807,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2293108": {
-    "totalreply": 69,
-    "title": "[奶茶店时薪这么低，为什么不去工厂呢？]",
-    "newtitle": "[奶茶店时薪这么低，为什么不去工厂呢？]",
-    "lastedit": 1793708047,
     "category": "外野",
     "active": false,
     "update": false
@@ -16902,10 +16893,10 @@
     "update": false
   },
   "2293746": {
-    "totalreply": 96,
+    "totalreply": 97,
     "title": "[看看谭友最常用的网购平台]",
     "newtitle": "[看看谭友最常用的网购平台]",
-    "lastedit": 1794888987,
+    "lastedit": 1794917535,
     "category": "外野",
     "active": true,
     "update": false
@@ -17820,10 +17811,10 @@
     "update": false
   },
   "2294075": {
-    "totalreply": 171,
+    "totalreply": 172,
     "title": "[deepseek的算力已经完蛋了吗]",
     "newtitle": "[deepseek的算力已经完蛋了吗]",
-    "lastedit": 1794917070,
+    "lastedit": 1794917536,
     "category": "外野",
     "active": true,
     "update": false
@@ -17832,7 +17823,7 @@
     "totalreply": 53,
     "title": "[哪些“技能”彻底被ai取代了]",
     "newtitle": "[哪些“技能”彻底被ai取代了]",
-    "lastedit": 1794917071,
+    "lastedit": 1794917534,
     "category": "外野",
     "active": true,
     "update": false
@@ -18039,7 +18030,7 @@
     "totalreply": 78,
     "title": "[为啥中文网络上各家AI的拟人化造型高度统一？]",
     "newtitle": "[为啥中文网络上各家AI的拟人化造型高度统一？]",
-    "lastedit": 1794916934,
+    "lastedit": 1794917173,
     "category": "外野",
     "active": true,
     "update": false
@@ -18135,10 +18126,10 @@
     "update": false
   },
   "2294210": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[毛子国师杜金：如今世界三分，三强三足鼎立]",
     "newtitle": "[毛子国师杜金：如今世界三分，三强三足鼎立]",
-    "lastedit": 1794916462,
+    "lastedit": 1794917534,
     "category": "外野",
     "active": true,
     "update": false
@@ -18167,6 +18158,15 @@
     "newtitle": "[沪上大公国唯一指定粉红app管人粉丝语录鉴赏专楼]",
     "lastedit": 1794916725,
     "category": "虚拟主播区专楼",
+    "active": true,
+    "update": false
+  },
+  "2293758": {
+    "totalreply": 41,
+    "title": "[少年 Jump+《Noise Ring》，克苏鲁式科幻恐怖，节奏很快，又有瑟瑟]",
+    "newtitle": "[少年 Jump+《Noise Ring》，克苏鲁式科幻恐怖，节奏很快，又有瑟瑟]",
+    "lastedit": 1794917536,
+    "category": "漫区",
     "active": true,
     "update": false
   }
