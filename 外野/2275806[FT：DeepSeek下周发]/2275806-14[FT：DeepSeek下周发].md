@@ -15152,3 +15152,14 @@ codex我也受不了 换第三方前端丝滑多了
 
 难道是灰度6.2太多了，竟然已经出现capacity问题了
 
+
+*****
+
+####  赤星ビスコ  
+##### 20528#       发表于 2026-11-17 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518707&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-11-17 00:21</a>
+2亿token一个游戏还不算特别完美这正常吗</blockquote>
+这个取决于原来游戏是怎么样的，还有你对编程方面有没有经验吧
+干的事情是先逆向，然后再用另一种方式还原。最耗费token以及影响还原效果的就是第一步逆向，一般来说，许完愿agent吭哧吭哧完后，会给你些结论，比如未完成的工作，遇到的难点之类的。如果你有经验可以给些指导，如果没有，也能让agent去搜索，或者让它写交接文档，给更强力的模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
