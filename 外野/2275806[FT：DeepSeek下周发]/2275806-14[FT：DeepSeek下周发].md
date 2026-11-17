@@ -15019,3 +15019,55 @@ codex我也受不了 换第三方前端丝滑多了
 
 [论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  pure_liquid  
+##### 20521#       发表于 2026-11-17 13:30
+
+<blockquote>紧那罗 发表于 2026-11-17 13:22
+本来现在 carbon 应该属于优惠期半价，价格是氢的1.33倍，但实际在agy里计算的消耗额度翻了3倍，也就是氢 ...</blockquote>
+问题是，每个任务在Antigravity内消耗了多少token、每百万token对应额度的百分比，这两点都是不透明的吧？
+
+如此一来，如何估计“正常”情况下应该消耗的额度呢？
+
+
+*****
+
+####  pure_liquid  
+##### 20521#       发表于 2026-11-17 13:30
+
+<blockquote>紧那罗 发表于 2026-11-17 13:22
+本来现在 carbon 应该属于优惠期半价，价格是氢的1.33倍，但实际在agy里计算的消耗额度翻了3倍，也就是氢 ...</blockquote>
+问题是，每个任务在Antigravity内消耗了多少token、每百万token对应额度的百分比，这两点都是不透明的吧？
+
+如此一来，如何估计“正常”情况下应该消耗的额度呢？
+
+
+*****
+
+####  紧那罗  
+##### 20522#       发表于 2026-11-17 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520258&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-17 13:30</a>
+问题是，每个任务在Antigravity内消耗了多少token、每百万token对应额度的百分比，这两点都是不透明的吧 ...</blockquote>
+每个任务在Antigravity内消耗了多少token、每百万token对应额度的百分比
+
+这两个都可以自己统计
+
+—— 来自 LENOVO TB320FC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  紧那罗  
+##### 20522#       发表于 2026-11-17 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520258&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-17 13:30</a>
+问题是，每个任务在Antigravity内消耗了多少token、每百万token对应额度的百分比，这两点都是不透明的吧 ...</blockquote>
+每个任务在Antigravity内消耗了多少token、每百万token对应额度的百分比
+
+这两个都可以自己统计
+
+—— 来自 LENOVO TB320FC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -6737,3 +6737,33 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 才到上古界域，风格变了，从箱庭变成了半开放区域探索。岔路看起来很多，实际上只有一条是正确的……就是去传送回廊小屋……<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">  第一次进去我就好奇，这房子外面没有管道啊……这管道通向哪里？
 
+
+*****
+
+####  h33  
+##### 550#       发表于 2026-11-17 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520118&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-17 12:48</a>
+
+【陵墓破序先开传送点Queen's Domain   2026-11-17 10-24-41】 https://www.bilibili.com/video/BV1cssM6xE ...</blockquote>
+我初见就是这样走的。这样子和正着走唯一的区别好像就是你可以提前从石头下压着的士兵那拿到钥匙，这就会导致你到开宝箱那边直接就看到士兵变僵尸了，少了一段他活着之前的剧情。
+
+应该是不能反着走的，因为有大神雕像的房间必须要正着走才能开。
+
+不过这里好像可以通过隐藏墙直接跳到苍翠谷地这张图。
+
+
+*****
+
+####  h33  
+##### 550#       发表于 2026-11-17 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520118&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-17 12:48</a>
+
+【陵墓破序先开传送点Queen's Domain   2026-11-17 10-24-41】 https://www.bilibili.com/video/BV1cssM6xE ...</blockquote>
+我初见就是这样走的。这样子和正着走唯一的区别好像就是你可以提前从石头下压着的士兵那拿到钥匙，这就会导致你到开宝箱那边直接就看到士兵变僵尸了，少了一段他活着之前的剧情。
+
+应该是不能反着走的，因为有大神雕像的房间必须要正着走才能开。
+
+不过这里好像可以通过隐藏墙直接跳到苍翠谷地这张图。
+
