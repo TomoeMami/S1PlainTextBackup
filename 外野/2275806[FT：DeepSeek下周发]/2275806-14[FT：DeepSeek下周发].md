@@ -15558,3 +15558,31 @@ o/每到重置的前后都卡得要命，只能滚去用kimi了
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  squallx2  
+##### 20547#       发表于 2026-11-17 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521548&amp;ptid=2275806" target="_blank">なるぼど 发表于 2026-11-17 22:08</a>
+{"detail":"Bad Request"}   楼里怎么解决codex这个问题的。真没招了
+
+我靠，我解决了，把俩个文件移除就好 ...</blockquote>
+我今天也第一次遇到 啥情况
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  squallx2  
+##### 20547#       发表于 2026-11-17 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521548&amp;ptid=2275806" target="_blank">なるぼど 发表于 2026-11-17 22:08</a>
+{"detail":"Bad Request"}   楼里怎么解决codex这个问题的。真没招了
+
+我靠，我解决了，把俩个文件移除就好 ...</blockquote>
+我今天也第一次遇到 啥情况
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
