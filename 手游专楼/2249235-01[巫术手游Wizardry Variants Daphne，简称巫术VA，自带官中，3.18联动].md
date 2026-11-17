@@ -97,3 +97,15 @@
 你游 ...</blockquote>
 算了不用了 死档了bf3 岩石崩落的地方  没准备解毒剂 存档点在迷宫中间 走不到前面回城点也  也退不回去死档了
 
+
+*****
+
+####  琉歌  
+##### 961#       发表于 2026-11-17 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520167&amp;ptid=2249235" target="_blank">zhwpjy 发表于 2026-11-17 13:05</a>
+算了不用了 死档了bf3 岩石崩落的地方  没准备解毒剂 存档点在迷宫中间 走不到前面回城点队友页死玩了 也 ...</blockquote>
+以前是真有死档这事，现在进游戏界面设置里有强制复原了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 來自 realme RMX5200, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v4.0
+
