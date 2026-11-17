@@ -15007,3 +15007,15 @@ codex我也受不了 换第三方前端丝滑多了
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  紧那罗  
+##### 20520#       发表于 2026-11-17 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70520131&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-17 12:53</a>
+什么是3倍计费bug？</blockquote>
+本来现在 carbon 应该属于优惠期半价，价格是氢的1.33倍，但实际在agy里计算的消耗额度翻了3倍，也就是氢的4倍<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
