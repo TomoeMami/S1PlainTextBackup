@@ -15841,3 +15841,30 @@ ultrafast下放给pro200了
 
 ultrafast下放给pro200了
 
+
+*****
+
+####  久島鴎  
+##### 20563#       发表于 2026-11-18 02:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">谁发明的上周送重置这周发模型
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  久島鴎  
+##### 20563#       发表于 2026-11-18 02:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">谁发明的上周送重置这周发模型
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  andychen  
+##### 20564#       发表于 2026-11-18 02:58
+
+X上一堆博主喷GPT6.2不行，强化学习翻车了？
+
