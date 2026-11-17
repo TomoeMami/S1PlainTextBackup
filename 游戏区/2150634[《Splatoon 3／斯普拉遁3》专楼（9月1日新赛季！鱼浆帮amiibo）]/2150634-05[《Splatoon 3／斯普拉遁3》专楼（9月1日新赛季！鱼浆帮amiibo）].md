@@ -22,3 +22,11 @@ X赛能2人组排了<img src="https://static.stage1st.com/image/smiley/face2017/
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  R10th  
+##### 5943#       发表于 2026-11-17 10:08
+
+泡那诡异的暴风居然没削，我看下赛季我也转生成泡使好了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

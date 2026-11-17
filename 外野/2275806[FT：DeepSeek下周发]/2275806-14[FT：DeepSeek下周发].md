@@ -14872,3 +14872,14 @@ a\股价冲高失败对o后续ipo也没好处 所以这段时间大概不会发�
 a\股价冲高失败对o后续ipo也没好处 所以这段时间大概不会发了
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我的几张重置卡只能拿来蹬astra6了 哎
 
+
+*****
+
+####  zxc786  
+##### 20509#       发表于 2026-11-17 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518710&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-11-17 00:22</a>
+
+订了谷歌的pro之后反重力里面的claude有啥说法吗，额度咋算的</blockquote>
+额度很低。
+
