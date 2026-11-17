@@ -13209,3 +13209,11 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 编辑，点错了
 
+
+*****
+
+####  fireadol  
+##### 8654#       发表于 2026-11-17 08:40
+
+打完第一条线一二部后重新降临再打一遍一二部人物属性能融合吗，还是只有一直打第一部才能融合<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
