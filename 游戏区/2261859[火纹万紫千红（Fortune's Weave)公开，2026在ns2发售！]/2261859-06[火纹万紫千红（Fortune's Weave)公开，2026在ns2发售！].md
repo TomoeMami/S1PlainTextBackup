@@ -13259,3 +13259,31 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 但是主角以外的角色需要在因果祭坛选“同伴 ...</blockquote>
 意思挖来的角色哪怕同一条线打了两次一二部也要花碎片融合吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  燃烧的石头  
+##### 8659#       发表于 2026-11-17 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70519363&amp;ptid=2261859" target="_blank">fireadol 发表于 2026-11-17 09:45</a>
+意思挖来的角色哪怕同一条线打了两次一二部也要花碎片融合吗</blockquote>
+同一条线反复打挖来的人也能免费融合的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  鷹書たかしょ  
+##### 8660#       发表于 2026-11-17 10:35
+
+twi:@cdgm000
+
+<img src="https://img.stage1st.com/forum/202611/17/103449q95sz9mdaa88c8im.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (204.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-17 10:34 上传
+

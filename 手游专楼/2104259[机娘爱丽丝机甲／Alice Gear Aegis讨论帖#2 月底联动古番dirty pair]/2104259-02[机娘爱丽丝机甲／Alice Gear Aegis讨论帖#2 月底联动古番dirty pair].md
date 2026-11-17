@@ -145,3 +145,21 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  不灭的旋律  
+##### 2177#       发表于 2026-11-17 10:32
+
++999只要调查任务2直捣黄龙刷一年应该没问题的。有ST的女演员更占优势因为能对应全属性。
+
+顺便前几天公布的这个新角色真不像你游风格
+
+<img src="https://img.stage1st.com/forum/202611/17/103210rt9rc6zii13tum43.jpg" referrerpolicy="no-referrer">
+
+<strong>HXEW59cbkAA8Uvh.jpg</strong> (427.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-17 10:32 上传
+
