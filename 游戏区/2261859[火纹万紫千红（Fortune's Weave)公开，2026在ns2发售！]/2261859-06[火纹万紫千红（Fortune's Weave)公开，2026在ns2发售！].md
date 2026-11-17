@@ -13246,3 +13246,16 @@ https://jp.ign.com/fire-emblem-fortunes-weave/84586/
 
 但是主角以外的角色需要在因果祭坛选“同伴的因果融合”来合并培养结果
 
+
+*****
+
+####  fireadol  
+##### 8658#       发表于 2026-11-17 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70519255&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-11-17 09:16</a>
+
+可以 4位主角线在各自的第2部战争篇通关后会自动进行因果融合
+
+但是主角以外的角色需要在因果祭坛选“同伴 ...</blockquote>
+意思挖来的角色哪怕同一条线打了两次一二部也要花碎片融合吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

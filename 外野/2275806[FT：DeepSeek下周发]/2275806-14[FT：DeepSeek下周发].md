@@ -14824,3 +14824,51 @@ Ultra100，opus周额度是两个五小时额度，一共四千万出头，大�
 
 是不是重启了，昨天拼命流口水
 
+
+*****
+
+####  紧那罗  
+##### 20508#       发表于 2026-11-17 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518738&amp;ptid=2275806" target="_blank">unrealMeeSeeks 发表于 2026-11-17 00:38</a>
+
+好像我都可以稳定灰度6.2了吧，还不发布，整它那个安全。算起来pro200应该能用15亿的Astra了。
+
+ ...</blockquote>
+看到个说法 a\ ipo这段时间o应该不会发新模型
+
+a\股价冲高失败对o后续ipo也没好处 所以这段时间大概不会发了
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我的几张重置卡只能拿来蹬astra6了 哎
+
+
+*****
+
+####  紧那罗  
+##### 20508#       发表于 2026-11-17 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518738&amp;ptid=2275806" target="_blank">unrealMeeSeeks 发表于 2026-11-17 00:38</a>
+
+好像我都可以稳定灰度6.2了吧，还不发布，整它那个安全。算起来pro200应该能用15亿的Astra了。
+
+ ...</blockquote>
+看到个说法 a\ ipo这段时间o应该不会发新模型
+
+a\股价冲高失败对o后续ipo也没好处 所以这段时间大概不会发了
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我的几张重置卡只能拿来蹬astra6了 哎
+
+
+*****
+
+####  紧那罗  
+##### 20508#       发表于 2026-11-17 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70518738&amp;ptid=2275806" target="_blank">unrealMeeSeeks 发表于 2026-11-17 00:38</a>
+
+好像我都可以稳定灰度6.2了吧，还不发布，整它那个安全。算起来pro200应该能用15亿的Astra了。
+
+ ...</blockquote>
+看到个说法 a\ ipo这段时间o应该不会发新模型
+
+a\股价冲高失败对o后续ipo也没好处 所以这段时间大概不会发了
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我的几张重置卡只能拿来蹬astra6了 哎
+
