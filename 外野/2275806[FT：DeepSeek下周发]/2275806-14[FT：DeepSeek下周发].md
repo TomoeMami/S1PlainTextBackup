@@ -15896,3 +15896,20 @@ Opencode Go现在给200刀GLM 5.3的用量了，虽然这楼里没几个人用�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  warlock228  
+##### 20567#       发表于 2026-11-18 06:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">昨晚还用6.1sol蹬到1点才睡，一觉起来发新的了
+算了，原谅tibo了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  warlock228  
+##### 20568#       发表于 2026-11-18 06:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
