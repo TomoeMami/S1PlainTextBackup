@@ -15624,3 +15624,22 @@ https://x.com/0xraco/status/2122690481629155626?a=iXpoiBWxvhRJZV_2NZE&amp;s=46
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 20549#       发表于 2026-11-18 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521717&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-17 23:58</a>
+https://x.com/0xraco/status/2122690481629155626?a=iXpoiBWxvhRJZV_2NZE&amp;s=46
+这羊毛有点吓人，但是我 ...</blockquote>
+甚至还有一个领一年的
+
+
+*****
+
+####  andychen  
+##### 20550#       发表于 2026-11-18 00:14
+
+和之前pro那个一样的漏洞，能用一周就不错了
+
