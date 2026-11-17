@@ -15677,3 +15677,27 @@ https://x.com/0xraco/status/2122690481629155626?a=iXpoiBWxvhRJZV_2NZE&amp;s=46
 <img src="https://picui.ogmua.cn/s1/2026/11/17/6afc571b00f7a.webp" referrerpolicy="no-referrer">
 <img src="https://picui.ogmua.cn/s1/2026/11/17/6afc571aec696.webp" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陈八尺  
+##### 20552#       发表于 2026-11-18 01:30
+
+谷歌怎么总是出奇形怪状的问题呐，一年ultra 5x免费送，那个壮士敢开个小号试试死不死<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  冤枉呐  
+##### 20553#       发表于 2026-11-18 01:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521548&amp;ptid=2275806" target="_blank">なるぼど 发表于 2026-11-17 22:08</a>
+{"detail":"Bad Request"}   楼里怎么解决codex这个问题的。真没招了
+
+我靠，我解决了，把俩个文件移除就好 ...</blockquote>
+哪俩文件啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
