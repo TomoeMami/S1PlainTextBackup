@@ -16372,3 +16372,34 @@ gpt 6.2是不是还行，昨天试了下agy各种报奇怪的错，又不想用�
 
 这6.2-Astra感觉还是叫Astra-flash吧，输出变成了AI黑话风格，还便宜了不少（但还是比sol贵）
 
+
+*****
+
+####  奥柏伦亲王  
+##### 20602#       发表于 2026-11-18 12:43
+
+反重力太吃屎了，这真是人做出来的产品吗
+
+然而argon写法律文书实在太爽了，不仅one-shot效果不错，而且修改起来也很棒，眼一闭心一横，acp模式走起<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紧那罗  
+##### 20603#       发表于 2026-11-18 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523289&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-18 12:18</a>
+嗯，我 现在是用5090跑qwen27B搞点数据处理，从效率来看还是稍微慢点。也不方便携带，没法出差用 ...</blockquote>
+没有任何理由要带着运行LLM的机器跑，人大厂建数据中心都知道找个犄角旮旯的地方。
+真要隐私/安全考虑也是mba/mbp+远程主机跑LLM更合适，当然你纯粹想买高配MacBook那另说<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蛋黄酱Release  
+##### 20604#       发表于 2026-11-18 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523289&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-18 12:18</a>
+嗯，我 现在是用5090跑qwen27B搞点数据处理，从效率来看还是稍微慢点。也不方便携带，没法出差用 ...</blockquote>
+不如用Tailscale远程调用家里的电脑跑本地模型，笔记本弄个mba足够了
+
