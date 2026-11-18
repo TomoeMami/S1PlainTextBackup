@@ -5019,3 +5019,15 @@ monomoon差一点就能赶上今年的提名了
 
 反ai魔怔人已经发展脑死亡状态了，前段时间big walk因为用ai修了10行代码的bug就被差评轰炸
 
+
+*****
+
+####  BRAVADO  
+##### 348#       发表于 2026-11-18 18:37
+
+<blockquote>酒々井かんづめ 发表于 2026-11-18 15:05
+是茜塔用了AI，thinly game的discord群里还有人专门提这事</blockquote>
+抱歉确实是theta，我口误了，这里有点奇怪也指的是theta的英文翻译，有点奇怪我玩完开头就切中文了。
+
+是哪个server啊，thinky-puzzle-games还是ThinkyGames.com？
+

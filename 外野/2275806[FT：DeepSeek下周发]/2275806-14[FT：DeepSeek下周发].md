@@ -16914,3 +16914,38 @@ seedream5.5它本身听指令很好，效果佳，测试下来纯自己发挥的
 
 改进点主要是价格上，单个任务的token消耗量比起6又降低了很多。智能上我觉得和6没有明显区别
 
+
+*****
+
+####  pure_liquid  
+##### 20640#       发表于 2026-11-18 18:43
+
+看到一个热搜#WorkBuddy成中国使用量最高AI产品#
+
+让我突然联想起了Trae
+
+点进Trae看了看，感觉现在模型列表挺残缺的（对比WorkBuddy和Qoder）
+
+国产模型这边，没有K3.1，没有Hy4家族，没有Qwen4
+
+倒是有4个Seed系列模型
+
+不晓得字节是打算逐步放弃这个产品，还是打算专注推自家的Seed模型？
+
+如果是后者的话，和豆包工作有区别吗？
+
+
+*****
+
+####  Esoterica  
+##### 20641#       发表于 2026-11-18 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524677&amp;ptid=2275806" target="_blank">纸皮 发表于 2026-11-18 17:56</a>
+
+我做建筑外观，少量景观，民用建筑和工业建筑都做，没做高大上的投标
+
+偶尔帮忙做室内装修渲染
+
+室内方向我 ...</blockquote>
+谢谢佬，感觉对我来说如果真的手法很国内倒不一定是好事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是听指令加上好修改是确实帮助很大。
+
