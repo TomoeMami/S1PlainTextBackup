@@ -13522,3 +13522,16 @@ twi:@cdgm000
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  根正苗红  
+##### 8673#       发表于 2026-11-19 01:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525357&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-11-18 20:56</a>
+第二部选了综合实力最强的蕾达队玩，越看这个剧情越好奇如果是迪哥会是什么反应
+可惜迪哥线是我玩的第一条 ...</blockquote>
+迪哥一人就把战争篇砍翻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+哒咕渣砍王不是吹得。
+你要是把巴西初音练费了还可以考虑考虑
+

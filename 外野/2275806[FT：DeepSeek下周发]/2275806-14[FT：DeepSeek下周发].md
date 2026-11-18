@@ -17610,3 +17610,15 @@ F16 KV（原始）        32K        显存        10.3 GB  �
 
 mistral的计费我记得是固定峰价吧，不知道300刀能顶多久
 
+
+*****
+
+####  qwased  
+##### 20675#       发表于 2026-11-19 01:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525857&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-11-19 00:05</a>
+
+我是基于https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2288655&amp;highlight=27b帖子部署的，Qwen ...</blockquote>
+没调好啊，我用ninfer+27b iq3s可以跑110tps的，显卡5070ti
+[https://github.com/iamwavecut/ninfer-all](https://github.com/iamwavecut/ninfer-all)  把这个仓库贴给肥鱼让他帮你弄吧，转换好27b gsq iq3s就行了
+
