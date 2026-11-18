@@ -17521,3 +17521,26 @@ Gemini今晚要发Neon了，定位介于Argon和Carbon之间，似乎是给pro�
 27B量化模型在16g显存的卡、32gddr4内存跑还是心有余力不足，所有其他的显卡占用都要不关（哪怕占用率不高 ...</blockquote>
 不至于吧，我12g显卡跑27b的量化，有45ts
 
+
+*****
+
+####  zhongjie  
+##### 20667#       发表于 2026-11-18 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525786&amp;ptid=2275806" target="_blank">Litccc 发表于 2026-11-18 23:41</a>
+Gemini今晚要发Neon了，定位介于Argon和Carbon之间，似乎是给pro用户准备的旗舰模型 ...</blockquote>
+比argon便宜，是argon和hydrogen之间
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  chaoliu  
+##### 20668#       发表于 2026-11-19 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525834&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-18 23:57</a>
+
+不至于吧，我12g显卡跑27b的量化，有45ts</blockquote>
+我是基于[https://stage1st.com/2b/forum.ph ... 5&amp;highlight=27b](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2288655&amp;highlight=27b)帖子部署的，Qwen3.8 27B
+
