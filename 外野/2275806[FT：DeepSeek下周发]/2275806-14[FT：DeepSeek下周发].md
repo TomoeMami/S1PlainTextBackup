@@ -16334,3 +16334,24 @@ GPT-6.2真给我整无语了，真就戳一下动一下戳一下动一下
 
 Gpt最神的是那个tab补全挺好的，还能模拟我的语气。要是自动tab自动做，也是one shot神了吧。
 
+
+*****
+
+####  绯色日照  
+##### 20598#       发表于 2026-11-18 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523160&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-11-18 11:58</a>
+
+跑qwen27b不需要5090吧，有个16g显存都够了</blockquote>
+嗯，我 现在是用5090跑qwen27B搞点数据处理，从效率来看还是稍微慢点。也不方便携带，没法出差用
+
+
+*****
+
+####  qwased  
+##### 20599#       发表于 2026-11-18 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523150&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-18 11:57</a>
+请问各位大佬，我现在买MacBookPro M5 MAX 18+40核 128G，2T。可以跑什么样的本地模型，用于本地数据处理、 ...</blockquote>
+qwen3.8 flash ，mac新出了好几个高效率引擎，具体咋样不清楚
+
