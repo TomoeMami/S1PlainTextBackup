@@ -16403,3 +16403,33 @@ gpt 6.2是不是还行，昨天试了下agy各种报奇怪的错，又不想用�
 嗯，我 现在是用5090跑qwen27B搞点数据处理，从效率来看还是稍微慢点。也不方便携带，没法出差用 ...</blockquote>
 不如用Tailscale远程调用家里的电脑跑本地模型，笔记本弄个mba足够了
 
+
+*****
+
+####  qwased  
+##### 20605#       发表于 2026-11-18 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523416&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-11-18 12:43</a>
+
+反重力太吃屎了，这真是人做出来的产品吗
+
+然而argon写法律文书实在太爽了，不仅one-shot效果不错，而且修 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我把肥鱼弄出来完全不说人话的文档全丢给argon让他重构成说人话的版本，爽啊
+
+
+*****
+
+####  帕林马哲理  
+##### 20606#       发表于 2026-11-18 12:50
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/html.gif" referrerpolicy="no-referrer">
+
+解码哲学.html
+(118.61 KB, 下载次数: 1)
+
+2026-11-18 12:49 上传
+
+点击文件名下载附件
+
+感觉千问4还行啊，这玩意就是用免费聊天oneshot半小时出来的，我挺满意的。
+
