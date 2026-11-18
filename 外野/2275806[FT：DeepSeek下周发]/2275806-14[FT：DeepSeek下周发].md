@@ -16546,3 +16546,14 @@ glm 5.3 kimi k3.1都不这样
 
 glm 5.3 kimi k3.1都不这样
 
+
+*****
+
+####  warlock228  
+##### 20617#       发表于 2026-11-18 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523931&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-11-18 14:51</a>
+
+为什么deepseek flash说话好让我崩溃 和他沟通我感觉比GPT还费劲，就是不说人话，而且我特么还总结不出来他 ...</blockquote>
+鱼八股？说话风格可以用agents.md调教好，可以让别的网页模型给你出探讨一套规矩然后给安上，我的gpt就不怎么说防御的话
+
