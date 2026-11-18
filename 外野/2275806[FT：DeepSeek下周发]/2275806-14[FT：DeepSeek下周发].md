@@ -17502,3 +17502,22 @@ Gemini今晚要发Neon了，定位介于Argon和Carbon之间，似乎是给pro�
 
 Gemini今晚要发Neon了，定位介于Argon和Carbon之间，似乎是给pro用户准备的旗舰模型
 
+
+*****
+
+####  chaoliu  
+##### 20665#       发表于 2026-11-18 23:49
+
+27B量化模型在16g显存的卡、32gddr4内存跑还是心有余力不足<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，所有其他的显卡占用都要不关（哪怕占用率不高）token慢的只有9t/s
+
+
+*****
+
+####  洛拉斯  
+##### 20666#       发表于 2026-11-18 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525811&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-11-18 23:49</a>
+
+27B量化模型在16g显存的卡、32gddr4内存跑还是心有余力不足，所有其他的显卡占用都要不关（哪怕占用率不高 ...</blockquote>
+不至于吧，我12g显卡跑27b的量化，有45ts
+
