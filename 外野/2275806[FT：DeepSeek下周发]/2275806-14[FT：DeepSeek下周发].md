@@ -16727,3 +16727,15 @@ https://zhua ...</blockquote>
 
 自北京时间 2026 年 11 月 18 日 12:00 起，调用模型时触发的服务端搜索、网页抓取不再计费，仅按模型 Token 用量计费。使用以下接口时会触发服务端搜索：联网工具、Anthropic API 的 web_search 工具、Responses API 的 web_search 工具。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  紧那罗  
+##### 20626#       发表于 2026-11-18 16:27
+
+尊敬的用户：
+
+您好！我们将向您发放金额为 US$0.00 的退款。该笔退款的相应购买交易如下：所购商品：Google AI Ultra (30 TB),YouTube Premium Individual Add On；
+
+Google还是体面呐，就是单纯做了退款，也没有封号。
+
