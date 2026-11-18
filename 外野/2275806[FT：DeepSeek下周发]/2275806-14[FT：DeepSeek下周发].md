@@ -17323,3 +17323,33 @@ tibo承认了说话不太利索有点问题，我一天用下来还好，可以�
 
 不能免俗 15 刀整了 3 个月 AI Pro，尝一下咸淡<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紧那罗  
+##### 20659#       发表于 2026-11-18 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525434&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-18 21:18</a>
+
+我选择直接用6-Astra，虽然贵点但体验好多了</blockquote>
+那真不是贵了一点点 我昨天蹬Astra6只够半天 今天蹬6.2刚刚好<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+我也不太记得sol对比Astra差在哪 感觉防御力上更高一点？ 整得我现在对Sol有点ptsd
+
+要不是Astra大降价 我只能润去用哈基米了
+
+
+*****
+
+####  紧那罗  
+##### 20659#       发表于 2026-11-18 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525434&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-18 21:18</a>
+
+我选择直接用6-Astra，虽然贵点但体验好多了</blockquote>
+那真不是贵了一点点 我昨天蹬Astra6只够半天 今天蹬6.2刚刚好<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+我也不太记得sol对比Astra差在哪 感觉防御力上更高一点？ 整得我现在对Sol有点ptsd
+
+要不是Astra大降价 我只能润去用哈基米了
+
