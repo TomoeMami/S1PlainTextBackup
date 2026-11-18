@@ -17680,3 +17680,11 @@ neon看跑分有点夸张啊 部分场景超过carbon？google最近发的也太
 谷歌这几个模型定位出问题了吧？neon和carbon不打架？hydrogen开low也很垃圾，开max能打sonnet，开low打不 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">难道这就是饱和式训练 避免只练一锅再次翻车
 
+
+*****
+
+####  白日依山尽  
+##### 20682#       发表于 2026-11-19 06:56
+
+看官方说法，多数时候用氢；中端氖，等待时间合理特别是代码、法律、医学；高端用碳，需要长时间思考的情况下；氩退休了。
+
