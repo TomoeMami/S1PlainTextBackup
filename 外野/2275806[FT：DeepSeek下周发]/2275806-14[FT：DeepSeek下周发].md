@@ -16581,3 +16581,27 @@ glm 5.3 kimi k3.1都不这样
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Awanano  
+##### 20620#       发表于 2026-11-18 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523853&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-18 14:32</a>
+这是我这半年做的一个AI4S工作，分两篇发表，第一篇还在peer review，第二篇发SmartMat接收了
+
+https://zhua ...</blockquote>
+好厉害，果然 ai 时代自身底子够才是最重要的
+我 ai 套餐都是分给朋友用的，感觉他们正经接受过博士教育的科研转起来真的很快。因为自己有验证结果和挑选题的能力，能把 token 用在真正需要的地方，理论的朋友说 ds 和 oai 比就是参数不够大有些地方需要多说几句话，其他大差不差。我的推荐人也说现在深造能从导师身上学到选题品味现在是最重要的，其他的力工活 ai 都能做好    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  warlock228  
+##### 20621#       发表于 2026-11-18 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524052&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-11-18 15:24</a>
+
+我实在是总结不出来他的规律 但是就是读起来更费劲</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好久没蹬过大肥鱼了，印象中他的话也还好就是老喜欢认和记，不同人遇到的肥鱼难道不一样的
+
