@@ -17413,3 +17413,35 @@ tibo承认了说话不太利索有点问题，我一天用下来还好，可以�
 我自己的体感是Sol不讲人话更严重  Astra在我的场景下我感觉稍微调教一下还行？
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道是不是因为我这几天在让他和gemini组队干活 如果他不讲人话我会diss他 让他去看看人carbon是怎么干的
 
+
+*****
+
+####  紧那罗  
+##### 20661#       发表于 2026-11-18 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525639&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-18 22:31</a>
+
+我测出来6.2-Astra也是额度消耗是一半左右，但Sol要便宜太多了，长任务的场景还是成本更重要
+
+目前我Astra ...</blockquote>
+我对上下文长度不是很在意 一直用默认的272k就挺好的
+
+我自己的体感是Sol不讲人话更严重  Astra在我的场景下我感觉稍微调教一下还行？
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道是不是因为我这几天在让他和gemini组队干活 如果他不讲人话我会diss他 让他去看看人carbon是怎么干的
+
+
+*****
+
+####  紧那罗  
+##### 20661#       发表于 2026-11-18 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525639&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-18 22:31</a>
+
+我测出来6.2-Astra也是额度消耗是一半左右，但Sol要便宜太多了，长任务的场景还是成本更重要
+
+目前我Astra ...</blockquote>
+我对上下文长度不是很在意 一直用默认的272k就挺好的
+
+我自己的体感是Sol不讲人话更严重  Astra在我的场景下我感觉稍微调教一下还行？
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道是不是因为我这几天在让他和gemini组队干活 如果他不讲人话我会diss他 让他去看看人carbon是怎么干的
+
