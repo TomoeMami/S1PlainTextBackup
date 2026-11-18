@@ -17294,3 +17294,24 @@ tibo承认了说话不太利索有点问题，我一天用下来还好，可以�
  ...</blockquote>
 我选择直接用6-Astra，虽然贵点但体验好多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宅男的爱  
+##### 20657#       发表于 2026-11-18 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524839&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-18 18:43</a>
+
+看到一个热搜#WorkBuddy成中国使用量最高AI产品#
+
+让我突然联想起了Trae
+
+点进Trae看了看，感觉现在模型列表 ...</blockquote>
+参考Codebuddy呗，偏CLI习惯的Agent这种差分Agent用户还是需要的
+
+从业务上来说，Coze和小云雀反而应该各自弄自己的Agent
+
+字节现在不是Agent太多，是Agent太少
+
+在线模型库这个问题，呃，只能说历史遗留问题，Seed，Hy，Qwen这仨目前看起来还是老死不相往来
+
