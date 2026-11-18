@@ -16235,3 +16235,30 @@ Astra缓存降价太变态了吧，倒是sol一点没变
 
 glm5.3对比DS4.1F1017什么水平？OPCG的200刀太诱人了
 
+
+*****
+
+####  奈落的孤火花  
+##### 20588#       发表于 2026-11-18 11:48
+
+我试了试感觉说话比deepeek flash要强……我在想是不是即使用着感觉舒服glm的Coding plan是不是都没必要买了，多买几个go就行<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 20589#       发表于 2026-11-18 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523078&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-18 11:46</a>
+glm5.3对比DS4.1F1017什么水平？OPCG的200刀太诱人了</blockquote>
+5.3我记得没有图片识别
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  绯色日照  
+##### 20590#       发表于 2026-11-18 11:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">。
+
