@@ -16568,3 +16568,16 @@ glm 5.3 kimi k3.1都不这样
 鱼八股？说话风格可以用agents.md调教好，可以让别的网页模型给你出探讨一套规矩然后给安上，我的gpt就不 ...</blockquote>
 我实在是总结不出来他的规律 但是就是读起来更费劲
 
+
+*****
+
+####  紧那罗  
+##### 20619#       发表于 2026-11-18 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523931&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-11-18 14:51</a>
+为什么deepseek flash说话好让我崩溃 和他沟通我感觉比GPT还费劲，就是不说人话，而且我特么还总结不出来他 ...</blockquote>
+如果是丢三落四的问题，那只能说毕竟只是flash，注意力有限。
+其实最近半年模型迭代我觉得舒服的地方就是这里，一件事情说一遍就记住了，后面也很难丢。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
