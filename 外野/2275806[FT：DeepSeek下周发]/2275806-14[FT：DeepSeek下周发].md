@@ -16613,3 +16613,117 @@ https://zhua ...</blockquote>
 
 不行，6.2-Astra这鬼样子完全没法当主力模型用，我要用一句话许愿机还不如回去用肥鱼flash，定价又比Sol这种真正干活的模型贵不少，完全意义不明
 
+
+*****
+
+####  臭P遇上臭脚  
+##### 20623#       发表于 2026-11-18 16:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/18/161147p0cytazt9laazqv6.jpg" referrerpolicy="no-referrer">
+
+<strong>1000018276.jpg</strong> (153.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 16:11 上传
+
+<img src="https://img.stage1st.com/forum/202611/18/161147jh8ghjvu7cjnc7fs.jpg" referrerpolicy="no-referrer">
+
+<strong>1000018277.jpg</strong> (15.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 16:11 上传
+
+<img src="https://img.stage1st.com/forum/202611/18/161148d41ad5rbuaaahazx.jpg" referrerpolicy="no-referrer">
+
+<strong>1000018278.jpg</strong> (116.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 16:11 上传
+
+<img src="https://img.stage1st.com/forum/202611/18/161148p07bqzq0oq3t7qqh.jpg" referrerpolicy="no-referrer">
+
+<strong>1000018279.jpg</strong> (170.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 16:11 上传
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  臭P遇上臭脚  
+##### 20623#       发表于 2026-11-18 16:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/18/161147p0cytazt9laazqv6.jpg" referrerpolicy="no-referrer">
+
+<strong>1000018276.jpg</strong> (153.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 16:11 上传
+
+<img src="https://img.stage1st.com/forum/202611/18/161147jh8ghjvu7cjnc7fs.jpg" referrerpolicy="no-referrer">
+
+<strong>1000018277.jpg</strong> (15.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 16:11 上传
+
+<img src="https://img.stage1st.com/forum/202611/18/161148d41ad5rbuaaahazx.jpg" referrerpolicy="no-referrer">
+
+<strong>1000018278.jpg</strong> (116.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 16:11 上传
+
+<img src="https://img.stage1st.com/forum/202611/18/161148p07bqzq0oq3t7qqh.jpg" referrerpolicy="no-referrer">
+
+<strong>1000018279.jpg</strong> (170.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 16:11 上传
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  Milarvoz  
+##### 20624#       发表于 2026-11-18 16:12
+
+个人感觉dsv4输出的文字表面上看起来条条框框很工整，洋洋洒洒一大篇，但是读起来非常细碎，没有统一的逻辑思路，所以人读起来非常费劲，就感觉云山雾罩，抓不住重点。
+经常一看结果大肥鱼确实解决问题了，但是一看回复又读不懂它究竟想传达什么信息。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  Milarvoz  
+##### 20624#       发表于 2026-11-18 16:12
+
+个人感觉dsv4输出的文字表面上看起来条条框框很工整，洋洋洒洒一大篇，但是读起来非常细碎，没有统一的逻辑思路，所以人读起来非常费劲，就感觉云山雾罩，抓不住重点。
+经常一看结果大肥鱼确实解决问题了，但是一看回复又读不懂它究竟想传达什么信息。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  流缨  
+##### 20625#       发表于 2026-11-18 16:16
+
+大肥鱼搜索开始免费了
+
+自北京时间 2026 年 11 月 18 日 12:00 起，调用模型时触发的服务端搜索、网页抓取不再计费，仅按模型 Token 用量计费。使用以下接口时会触发服务端搜索：联网工具、Anthropic API 的 web_search 工具、Responses API 的 web_search 工具。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
