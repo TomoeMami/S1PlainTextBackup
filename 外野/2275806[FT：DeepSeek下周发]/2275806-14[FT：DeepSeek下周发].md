@@ -17544,3 +17544,37 @@ Gemini今晚要发Neon了，定位介于Argon和Carbon之间，似乎是给pro�
 不至于吧，我12g显卡跑27b的量化，有45ts</blockquote>
 我是基于[https://stage1st.com/2b/forum.ph ... 5&amp;highlight=27b](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2288655&amp;highlight=27b)帖子部署的，Qwen3.8 27B
 
+
+*****
+
+####  Vneeto  
+##### 20669#       发表于 2026-11-19 00:09
+
+gemini出了一堆化学元素，哪个用哪个真的能想用户分得清么
+
+*****
+
+####  洛拉斯  
+##### 20670#       发表于 2026-11-19 00:09
+
+b
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525857&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-11-19 00:05</a>
+
+我是基于[https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2288655&amp;highlight=27b](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2288655&amp;highlight=27b)帖子部署的，Qwen ...</blockquote>
+部署完了第一件事就是让你的ai根据你的硬件优化就是了，好多配置，术语完全不懂
+
+实测数据（你的 4070 12GB）
+
+配置        上下文        KV 放哪        显存        速度
+
+F16 KV（原始）        32K        显存        10.3 GB        46.8 tok/s
+
+4bit KV（新默认）        128K        显存        10.9 GB        45.1 tok/s ✅
+
+4bit KV        256K        显存        11.8 GB        7.0 tok/s ❌
+
+--no-kv-offload        256K        内存        8.6 GB        12.3 tok/s ❌
+
+--no-kv-offload        32K        内存        7.5 GB        12.8 tok/s ❌
+
