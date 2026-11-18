@@ -17315,3 +17315,11 @@ tibo承认了说话不太利索有点问题，我一天用下来还好，可以�
 
 在线模型库这个问题，呃，只能说历史遗留问题，Seed，Hy，Qwen这仨目前看起来还是老死不相往来
 
+
+*****
+
+####  moekyo  
+##### 20658#       发表于 2026-11-18 21:41
+
+不能免俗 15 刀整了 3 个月 AI Pro，尝一下咸淡<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
