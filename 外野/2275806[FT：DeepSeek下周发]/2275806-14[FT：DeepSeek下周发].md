@@ -16949,3 +16949,15 @@ seedream5.5它本身听指令很好，效果佳，测试下来纯自己发挥的
 室内方向我 ...</blockquote>
 谢谢佬，感觉对我来说如果真的手法很国内倒不一定是好事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是听指令加上好修改是确实帮助很大。
 
+
+*****
+
+####  纸皮  
+##### 20642#       发表于 2026-11-18 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524847&amp;ptid=2275806" target="_blank">Esoterica 发表于 2026-11-18 18:45</a>
+谢谢佬，感觉对我来说如果真的手法很国内倒不一定是好事但是听指令加上好修改是确实帮助很大。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你可以和笨蛋哈基米互相哈气，banana那味道还是可以的
+gpt我是真的受不了，只能用来小改，不知道室内设计行不行
+不过你如果需求比较长期，就买个建筑学长这种平台的会员呗（它家豆姐最近一直生成失败，可能蹬炸了，很难用），反正切换着用，主要是纯和哈基米沟通真的太折磨了，有个其他ai定型好多了
+
