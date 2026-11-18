@@ -1059,3 +1059,23 @@ BanGDream! bilibili官方：@BanGDream_CN
 #BanGDream# #AveMujica#</blockquote>
        [https://www.bilibili.com/video/BV1ADs16AEJa](https://www.bilibili.com/video/BV1ADs16AEJa)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42222#       发表于 2026-11-19 01:24
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/19/012412ke85dkffeaujtt4z.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-19_01-21-18.png</strong> (736.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 01:24 上传
+
+       [https://x.com/bang_dream_info/status/2122993228865499341](https://x.com/bang_dream_info/status/2122993228865499341)
+
+       [https://www.youtube.com/watch?v=a0gYZq75AbU](https://www.youtube.com/watch?v=a0gYZq75AbU)
+

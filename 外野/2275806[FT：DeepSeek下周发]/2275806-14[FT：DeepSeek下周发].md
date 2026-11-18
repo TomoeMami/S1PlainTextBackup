@@ -17594,3 +17594,11 @@ F16 KV（原始）        32K        显存        10.3 GB  �
 
 刚发现codex能开ultrafast了 试了下体验确实好很多 而且用sol xhigh额度消耗并没有预想的那么快
 
+
+*****
+
+####  qwased  
+##### 20673#       发表于 2026-11-19 01:26
+
+法棍500tps的1017 泪目<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">这才是1017啊
+
