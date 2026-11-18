@@ -13535,3 +13535,25 @@ twi:@cdgm000
 哒咕渣砍王不是吹得。
 你要是把巴西初音练费了还可以考虑考虑
 
+
+*****
+
+####  灰狼  
+##### 8674#       发表于 2026-11-19 04:15
+
+<blockquote>根正苗红 发表于 2026-11-19 01:39
+迪哥一人就把战争篇砍翻了
+
+哒咕渣砍王不是吹得。
+
+你要是把巴西初音练费了还可以考虑考虑 ...</blockquote>
+居然没人发这张图么，还是我看漏了
+
+<img src="https://img.stage1st.com/forum/202611/19/041514kx2zgvvggr9xvi99.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1121.jpeg</strong> (272.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 04:15 上传
+
