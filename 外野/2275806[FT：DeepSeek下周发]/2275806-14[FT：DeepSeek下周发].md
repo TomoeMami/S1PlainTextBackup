@@ -16148,3 +16148,37 @@ X上一堆博主喷GPT6.2不行，强化学习翻车了？</blockquote>
 五次重连报错502后，大概是自己先用的Codex++，然后现在用Codex显示的问题，我是这样解决的：官方的Codex ...</blockquote>
 谢谢
 
+
+*****
+
+####  lactone  
+##### 20580#       发表于 2026-11-18 10:55
+
+我一直怀疑，现在这个参数规模下，提高一个能力就必须牺牲另一个
+
+现在的前沿在coding上真没啥突破了
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  80后卢瑟  
+##### 20581#       发表于 2026-11-18 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70522341&amp;ptid=2275806" target="_blank">StrangerJ 发表于 2026-11-18 10:01</a>
+
+这senior benchmark，6.2sol还缩阳入腹了？
+
+—— 来自 OPPO PKU110, Android 17, 鹅球 v4.0 ...</blockquote>
+其他能力提升了呗
+
+*****
+
+####  warlock228  
+##### 20582#       发表于 2026-11-18 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70522689&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-11-18 10:55</a>
+
+其他能力提升了呗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看别的测试 貌似技能点全部点去3D建模去了，做的建模细致度max
+
