@@ -17622,3 +17622,18 @@ mistral的计费我记得是固定峰价吧，不知道300刀能顶多久
 没调好啊，我用ninfer+27b iq3s可以跑110tps的，显卡5070ti
 [https://github.com/iamwavecut/ninfer-all](https://github.com/iamwavecut/ninfer-all)  把这个仓库贴给肥鱼让他帮你弄吧，转换好27b gsq iq3s就行了
 
+
+*****
+
+####  紧那罗  
+##### 20676#       发表于 2026-11-19 06:03
+
+neon看跑分有点夸张啊 部分场景超过carbon？google最近发的也太密集了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">agy能不能更的勤一点啊
+
+*****
+
+####  御坂MKII  
+##### 20677#       发表于 2026-11-19 06:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">agy 真是屎吧 现在 carbon 推广期比 neon 便宜，但是 agy 里比 neon 贵
+
