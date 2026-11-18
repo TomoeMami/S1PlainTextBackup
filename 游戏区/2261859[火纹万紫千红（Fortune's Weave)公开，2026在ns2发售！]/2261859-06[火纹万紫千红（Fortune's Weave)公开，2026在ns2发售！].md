@@ -13496,3 +13496,16 @@ twi:@cdgm000
 第二部选了综合实力最强的蕾达队玩，越看这个剧情越好奇如果是迪哥会是什么反应
 可惜迪哥线是我玩的第一条线，整体练度差太大，想跟上第二部的强度的话至少得重玩一遍第一部的12章
 
+
+*****
+
+####  yangchunsiyue  
+##### 8672#       发表于 2026-11-18 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525357&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-11-18 20:56</a>
+第二部选了综合实力最强的蕾达队玩，越看这个剧情越好奇如果是迪哥会是什么反应
+可惜迪哥线是我玩的第一条 ...</blockquote>
+迪哥全程都在逸乐<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

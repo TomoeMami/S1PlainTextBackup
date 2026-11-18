@@ -17226,3 +17226,41 @@ C68630C1D3164AC1930AFB89D190280D.png
 
 <img src="https://img.stage1st.com/forum/202611/18/203639u5ofifninobno99b.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kzf  
+##### 20654#       发表于 2026-11-18 21:11
+
+体感ds网页端确实比较随机，让写脚本，昨天下午改了两轮，正准备让再改下就限制了，今天聊了一上午，到最后改完了也没报。不过倒是确认了识图数数确实不太行，雷霆大思考里一长串都在确认位数<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25102RK69C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  kzf  
+##### 20654#       发表于 2026-11-18 21:11
+
+体感ds网页端确实比较随机，让写脚本，昨天下午改了两轮，正准备让再改下就限制了，今天聊了一上午，到最后改完了也没报。不过倒是确认了识图数数确实不太行，雷霆大思考里一长串都在确认位数<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25102RK69C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  pure_liquid  
+##### 20655#       发表于 2026-11-18 21:16
+
+<blockquote>warlock228 发表于 2026-11-18 19:49
+tibo承认了说话不太利索有点问题，我一天用下来还好，可以试试他讲的方法
+
+ ...</blockquote>
+我问GPT，ELI5是什么意思？GPT回答说：
+
+ELI5 = Explain Like I'm 5，字面意思是「像给一个 5 岁小孩解释那样给我讲明白」。
+
+我进一步追问说：这让我觉得Tibo不像是在诚心的提供技术方案解决问题，而更像是在调侃。
+
+GPT回答说：他未必真的有这种轻视用户的意思，但这种表达确实容易产生喜剧效果。
+
