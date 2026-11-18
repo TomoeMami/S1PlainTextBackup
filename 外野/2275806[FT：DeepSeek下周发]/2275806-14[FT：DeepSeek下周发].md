@@ -16605,3 +16605,11 @@ https://zhua ...</blockquote>
 我实在是总结不出来他的规律 但是就是读起来更费劲</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好久没蹬过大肥鱼了，印象中他的话也还好就是老喜欢认和记，不同人遇到的肥鱼难道不一样的
 
+
+*****
+
+####  hugosol  
+##### 20622#       发表于 2026-11-18 16:04
+
+不行，6.2-Astra这鬼样子完全没法当主力模型用，我要用一句话许愿机还不如回去用肥鱼flash，定价又比Sol这种真正干活的模型贵不少，完全意义不明
+

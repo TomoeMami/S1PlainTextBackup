@@ -5612,7 +5612,7 @@
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "lastedit": 1794729970,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2125110": {
@@ -12276,13 +12276,13 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 23385,
+    "totalreply": 23386,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「丹青渡」版本现已开放]",
-    "lastedit": 1794981388,
+    "lastedit": 1794989220,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2266103": {
     "totalreply": 837,
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 20621,
+    "totalreply": 20622,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1794988697,
+    "lastedit": 1794989176,
     "category": "外野",
     "active": true,
     "update": false
@@ -13611,10 +13611,10 @@
     "totalreply": 43109,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1794988574,
+    "lastedit": 1794989220,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2288933": {
     "totalreply": 1049,
@@ -14800,15 +14800,6 @@
     "title": "[春登不考虑投入产出比的教育观是不是一大毒瘤思维]",
     "newtitle": "[春登不考虑投入产出比的教育观是不是一大毒瘤思维]",
     "lastedit": 1793863567,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2293242": {
-    "totalreply": 57,
-    "title": "[之前openai一口气解决了700多个数学猜想，好像没对现实产生一些实质的意义]",
-    "newtitle": "[之前openai一口气解决了700多个数学猜想，好像没对现实产生一些实质的意义]",
-    "lastedit": 1793779208,
     "category": "外野",
     "active": false,
     "update": false
@@ -17532,10 +17523,10 @@
     "update": false
   },
   "2273846": {
-    "totalreply": 104,
+    "totalreply": 105,
     "title": "[【TGA 2026】12月11日举行 ／ 各奖项提名11月18日凌晨一点揭晓]",
     "newtitle": "[【TGA 2026】12月11日举行 ／ 各奖项提名11月18日凌晨一点揭晓]",
-    "lastedit": 1794988452,
+    "lastedit": 1794988811,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17748,10 +17739,10 @@
     "update": false
   },
   "2294141": {
-    "totalreply": 99,
+    "totalreply": 100,
     "title": "[《在艾泽拉斯的中心讴歌孤独：WOW与后现代网游玩家》]",
     "newtitle": "[《在艾泽拉斯的中心讴歌孤独：WOW与后现代网游玩家》]",
-    "lastedit": 1794988452,
+    "lastedit": 1794988931,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17982,13 +17973,13 @@
     "update": false
   },
   "2294220": {
-    "totalreply": 258,
+    "totalreply": 267,
     "title": "[攻击辱骂邓世昌事件一窥皇汉劣性]",
     "newtitle": "[攻击辱骂邓世昌事件一窥皇汉劣性]",
-    "lastedit": 1794988695,
+    "lastedit": 1794989220,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2294239": {
     "totalreply": 78,
@@ -18057,19 +18048,19 @@
     "totalreply": 84,
     "title": "[空气质量佳+生活较便利，国内选择哪座城市生活合适]",
     "newtitle": "[空气质量佳+生活较便利，国内选择哪座城市生活合适]",
-    "lastedit": 1794988695,
+    "lastedit": 1794989160,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2294225": {
     "totalreply": 42,
     "title": "[用户在盒马下单 400 多次全部申请“仅退款”，被＊＊刑拘]",
     "newtitle": "[用户在盒马下单 400 多次全部申请“仅退款”，被＊＊刑拘]",
-    "lastedit": 1794981249,
+    "lastedit": 1794989160,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2294257": {
     "totalreply": 48,
