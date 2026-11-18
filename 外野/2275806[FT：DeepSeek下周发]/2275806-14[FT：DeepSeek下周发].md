@@ -15943,3 +15943,43 @@ X上一堆博主喷GPT6.2不行，强化学习翻车了？</blockquote>
 X上一堆博主喷GPT6.2不行，强化学习翻车了？</blockquote>
 更像是做安全对齐做翻车了，比灰测版本垃圾得多
 
+
+*****
+
+####  StrangerJ  
+##### 20571#       发表于 2026-11-18 09:00
+
+我更关心6.2防御性还是那么变态吗？  
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  StrangerJ  
+##### 20571#       发表于 2026-11-18 09:00
+
+我更关心6.2防御性还是那么变态吗？  
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  StrangerJ  
+##### 20571#       发表于 2026-11-18 09:00
+
+我更关心6.2防御性还是那么变态吗？  
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  StrangerJ  
+##### 20571#       发表于 2026-11-18 09:00
+
+我更关心6.2防御性还是那么变态吗？  
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
