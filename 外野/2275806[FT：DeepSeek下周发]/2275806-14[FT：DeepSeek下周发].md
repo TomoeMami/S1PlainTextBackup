@@ -17137,3 +17137,50 @@ tailscale，远程调家里电脑。
 
 模型列表里压根没有它们，而不是显示为灰色不可用
 
+
+*****
+
+####  warlock228  
+##### 20650#       发表于 2026-11-18 19:49
+
+<blockquote>hugosol 发表于 2026-11-18 19:07
+6.2-Astra太尴尬了，我对旗舰模型的要求就是一个大参数说人话的模型，6.2-Astra这鬼样子跟DeepSeek flash ...</blockquote>
+tibo承认了说话不太利索有点问题，我一天用下来还好，可以试试他讲的方法
+
+<img src="https://img.stage1st.com/forum/202611/18/194905laqkcrrvwgv37z33.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9081.jpeg</strong> (177.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-18 19:49 上传
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 20651#       发表于 2026-11-18 19:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+一方面是大家都在狂吹算力不够用 
+一方面是有几乎比电费都便宜的开源llm
+
+这亦是curse of dimensionality的一个侧面
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 20651#       发表于 2026-11-18 19:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+一方面是大家都在狂吹算力不够用 
+一方面是有几乎比电费都便宜的开源llm
+
+这亦是curse of dimensionality的一个侧面
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
