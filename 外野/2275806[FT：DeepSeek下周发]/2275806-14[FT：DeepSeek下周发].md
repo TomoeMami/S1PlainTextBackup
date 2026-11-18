@@ -17445,3 +17445,14 @@ tibo承认了说话不太利索有点问题，我一天用下来还好，可以�
 我自己的体感是Sol不讲人话更严重  Astra在我的场景下我感觉稍微调教一下还行？
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道是不是因为我这几天在让他和gemini组队干活 如果他不讲人话我会diss他 让他去看看人carbon是怎么干的
 
+
+*****
+
+####  warlock228  
+##### 20662#       发表于 2026-11-18 23:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">plus只能不停地蹬sol我觉得就还好，从6.1到现在6.2也能看懂他说的话，或许我跟她电波对得上？
+
+刚刚随便叫她铲个插件再问问，她是这样回复的，这些对话我都是加了ELI5回复之后说的
+<img src="https://picui.ogmua.cn/s1/2026/11/18/6afdbd60aeadd.webp" referrerpolicy="no-referrer">
+
