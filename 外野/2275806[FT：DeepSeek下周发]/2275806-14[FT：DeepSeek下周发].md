@@ -17602,3 +17602,11 @@ F16 KV（原始）        32K        显存        10.3 GB  �
 
 法棍500tps的1017 泪目<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">这才是1017啊
 
+
+*****
+
+####  andychen  
+##### 20674#       发表于 2026-11-19 01:29
+
+mistral的计费我记得是固定峰价吧，不知道300刀能顶多久
+
