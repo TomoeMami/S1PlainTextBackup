@@ -16218,3 +16218,20 @@ GPT-6.2真给我整无语了，真就戳一下动一下戳一下动一下
 
 —— 来自 OnePlus PJD110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 20586#       发表于 2026-11-18 11:41
+
+Astra缓存降价太变态了吧，倒是sol一点没变
+<img src="https://p.sda1.dev/36/4ef03aaa44a833e1ca88e0336028be6d/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UncleDracula  
+##### 20587#       发表于 2026-11-18 11:46
+
+glm5.3对比DS4.1F1017什么水平？OPCG的200刀太诱人了
+

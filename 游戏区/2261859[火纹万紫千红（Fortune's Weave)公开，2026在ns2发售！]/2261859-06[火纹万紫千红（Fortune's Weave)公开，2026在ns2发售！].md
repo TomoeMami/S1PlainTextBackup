@@ -13457,3 +13457,24 @@ twi:@cdgm000
 他们干嘛了？</blockquote>
 在模仿信仰虔诚的萨拉米斯人，通过这种扮演表达对火纹提名少的不满
 
+
+*****
+
+####  otakun  
+##### 8669#       发表于 2026-11-18 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70522004&amp;ptid=2261859" target="_blank">蓮華 发表于 2026-11-18 07:21</a>
+笑到</blockquote>
+可以等明年DLC发售再提名一次<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，献给真正的幽法斯
+
+
+*****
+
+####  Jabeck  
+##### 8670#       发表于 2026-11-18 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70522989&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-11-18 11:35</a>
+
+在模仿信仰虔诚的萨拉米斯人，通过这种扮演表达对火纹提名少的不满</blockquote>
+今年要是没时之笛可能提名会多点，时之笛一出给个提名就不错了。
+
