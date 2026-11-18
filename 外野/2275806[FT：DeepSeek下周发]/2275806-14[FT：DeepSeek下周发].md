@@ -16182,3 +16182,29 @@ X上一堆博主喷GPT6.2不行，强化学习翻车了？</blockquote>
 其他能力提升了呗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看别的测试 貌似技能点全部点去3D建模去了，做的建模细致度max
 
+
+*****
+
+####  紧那罗  
+##### 20583#       发表于 2026-11-18 11:07
+
+<img src="https://img.stage1st.com/forum/202611/18/110720uqxwkgpxjtrxvpxx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 11:07 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+坏了 让反重力团队偷到宝了
+
+
+*****
+
+####  Keiji  
+##### 20584#       发表于 2026-11-18 11:16
+
+反重力重置<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
