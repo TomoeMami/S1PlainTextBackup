@@ -16984,3 +16984,121 @@ tailscale，远程调家里电脑。
 用了一天gpt6.2系列，大概知道为啥被喷了。这模型的不说人话程度到了一个全新的高度，我甚至觉得除了智能体 ...</blockquote>
 6.2-Astra太尴尬了，我对旗舰模型的要求就是一个大参数说人话的模型，6.2-Astra这鬼样子跟DeepSeek flash一样只能丢去做长任务，但长任务成本也打不过自家的Sol，而且说实话Astra和Sol的能力差距也没大到有什么长任务只有它能做，反而要担心它自己埋头苦干走错方向把我额度烧完了，还不如丢给sol多跑两轮随便试错，我也能安心离开电脑
 
+
+*****
+
+####  冤枉呐  
+##### 20643#       发表于 2026-11-18 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523289&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-18 12:18</a>
+嗯，我 现在是用5090跑qwen27B搞点数据处理，从效率来看还是稍微慢点。也不方便携带，没法出差用 ...</blockquote>
+tailscale，远程调家里电脑。
+开机走拼多多买个开机器，就一远程遥控的小棍儿，要开机了戳一下
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  hugosol  
+##### 20644#       发表于 2026-11-18 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524812&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-18 18:36</a>
+
+用了一天gpt6.2系列，大概知道为啥被喷了。这模型的不说人话程度到了一个全新的高度，我甚至觉得除了智能体 ...</blockquote>
+6.2-Astra太尴尬了，我对旗舰模型的要求就是一个大参数说人话的模型，6.2-Astra这鬼样子跟DeepSeek flash一样只能丢去做长任务，但长任务成本也打不过自家的Sol，而且说实话Astra和Sol的能力差距也没大到有什么长任务只有它能做，反而要担心它自己埋头苦干走错方向把我额度烧完了，还不如丢给sol多跑两轮随便试错，我也能安心离开电脑
+
+
+*****
+
+####  冤枉呐  
+##### 20643#       发表于 2026-11-18 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523289&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-18 12:18</a>
+嗯，我 现在是用5090跑qwen27B搞点数据处理，从效率来看还是稍微慢点。也不方便携带，没法出差用 ...</blockquote>
+tailscale，远程调家里电脑。
+开机走拼多多买个开机器，就一远程遥控的小棍儿，要开机了戳一下
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  hugosol  
+##### 20644#       发表于 2026-11-18 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524812&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-18 18:36</a>
+
+用了一天gpt6.2系列，大概知道为啥被喷了。这模型的不说人话程度到了一个全新的高度，我甚至觉得除了智能体 ...</blockquote>
+6.2-Astra太尴尬了，我对旗舰模型的要求就是一个大参数说人话的模型，6.2-Astra这鬼样子跟DeepSeek flash一样只能丢去做长任务，但长任务成本也打不过自家的Sol，而且说实话Astra和Sol的能力差距也没大到有什么长任务只有它能做，反而要担心它自己埋头苦干走错方向把我额度烧完了，还不如丢给sol多跑两轮随便试错，我也能安心离开电脑
+
+*****
+
+####  奈落的孤火花  
+##### 20645#       发表于 2026-11-18 19:10
+
+我现在也不知道astra到底相比sol有什么独有的优势，实在是没太用处来两者的区别
+
+最多就是sol在上下文很长的时候思考非常非常慢，吐字要等十几分钟甚至半个小时。但是astra会反应快
+
+*****
+
+####  阿刚  
+##### 20646#       发表于 2026-11-18 19:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">你们都是怎么防止这大肥鱼钻兔子洞的，本来是一个很单纯的数据分析任务，他很容易就在改东西过程中反复改来改去丢失焦点，最后导致把原始数据打乱之后他自己对来对去对不出来了
+
+
+*****
+
+####  冤枉呐  
+##### 20643#       发表于 2026-11-18 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523289&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-18 12:18</a>
+嗯，我 现在是用5090跑qwen27B搞点数据处理，从效率来看还是稍微慢点。也不方便携带，没法出差用 ...</blockquote>
+tailscale，远程调家里电脑。
+开机走拼多多买个开机器，就一远程遥控的小棍儿，要开机了戳一下
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  hugosol  
+##### 20644#       发表于 2026-11-18 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524812&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-18 18:36</a>
+
+用了一天gpt6.2系列，大概知道为啥被喷了。这模型的不说人话程度到了一个全新的高度，我甚至觉得除了智能体 ...</blockquote>
+6.2-Astra太尴尬了，我对旗舰模型的要求就是一个大参数说人话的模型，6.2-Astra这鬼样子跟DeepSeek flash一样只能丢去做长任务，但长任务成本也打不过自家的Sol，而且说实话Astra和Sol的能力差距也没大到有什么长任务只有它能做，反而要担心它自己埋头苦干走错方向把我额度烧完了，还不如丢给sol多跑两轮随便试错，我也能安心离开电脑
+
+*****
+
+####  奈落的孤火花  
+##### 20645#       发表于 2026-11-18 19:10
+
+我现在也不知道astra到底相比sol有什么独有的优势，实在是没太用处来两者的区别
+
+最多就是sol在上下文很长的时候思考非常非常慢，吐字要等十几分钟甚至半个小时。但是astra会反应快
+
+*****
+
+####  阿刚  
+##### 20646#       发表于 2026-11-18 19:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">你们都是怎么防止这大肥鱼钻兔子洞的，本来是一个很单纯的数据分析任务，他很容易就在改东西过程中反复改来改去丢失焦点，最后导致把原始数据打乱之后他自己对来对去对不出来了
+
+
+*****
+
+####  奈落的孤火花  
+##### 20645#       发表于 2026-11-18 19:10
+
+我现在也不知道astra到底相比sol有什么独有的优势，实在是没太用处来两者的区别
+
+最多就是sol在上下文很长的时候思考非常非常慢，吐字要等十几分钟甚至半个小时。但是astra会反应快
+
+*****
+
+####  阿刚  
+##### 20646#       发表于 2026-11-18 19:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">你们都是怎么防止这大肥鱼钻兔子洞的，本来是一个很单纯的数据分析任务，他很容易就在改东西过程中反复改来改去丢失焦点，最后导致把原始数据打乱之后他自己对来对去对不出来了
+
