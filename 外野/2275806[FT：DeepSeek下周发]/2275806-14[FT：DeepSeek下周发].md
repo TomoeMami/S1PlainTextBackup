@@ -17586,3 +17586,11 @@ F16 KV（原始）        32K        显存        10.3 GB  �
 
 法棍送pro了，一个月300刀的1017，超级鸡蛋<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stanzgy  
+##### 20672#       发表于 2026-11-19 00:38
+
+刚发现codex能开ultrafast了 试了下体验确实好很多 而且用sol xhigh额度消耗并没有预想的那么快
+
