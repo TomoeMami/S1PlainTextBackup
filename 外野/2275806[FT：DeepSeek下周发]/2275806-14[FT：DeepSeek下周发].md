@@ -16511,3 +16511,18 @@ qwen4本来就还行，最近做科研任务，可以说比大肥鱼强太多了
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  lactone  
+##### 20615#       发表于 2026-11-18 14:32
+
+这是我这半年做的一个AI4S工作，分两篇发表，第一篇还在peer review，第二篇发SmartMat接收了
+[https://zhuanlan.zhihu.com/p/2105722080515843962](https://zhuanlan.zhihu.com/p/2105722080515843962)
+
+也没用什么前沿闭源模型，就一个当时的大国模一个小国模配合
+
+现在几乎用Qwen4搞一切了
+
+我不知道说国模不能做严肃科研的话是谁说的，难道许愿科研是严肃科研？
+
