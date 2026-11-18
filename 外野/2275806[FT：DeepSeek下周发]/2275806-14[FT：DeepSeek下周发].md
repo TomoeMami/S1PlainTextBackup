@@ -17688,3 +17688,13 @@ neon看跑分有点夸张啊 部分场景超过carbon？google最近发的也太
 
 看官方说法，多数时候用氢；中端氖，等待时间合理特别是代码、法律、医学；高端用碳，需要长时间思考的情况下；氩退休了。
 
+
+*****
+
+####  lactone  
+##### 20683#       发表于 2026-11-19 07:07
+
+谷歌现在还是不太会刀法，你看a%，fable opus sonnet haiku等级分明，横跨sota和不如大肥鱼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
