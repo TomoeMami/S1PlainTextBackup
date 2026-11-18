@@ -955,3 +955,107 @@ BanGDream! bilibili官方：@BanGDream_CN
 
        [https://x.com/bang_dream_info/status/2122615734719369319](https://x.com/bang_dream_info/status/2122615734719369319)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42221#       发表于 2026-11-18 13:54
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/18/135406z6cieis3izmeeiiw.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-18_13-46-04.png</strong> (887.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 13:54 上传
+
+       [https://x.com/bang_dream_info/status/2122880121652875580](https://x.com/bang_dream_info/status/2122880121652875580)
+
+       [https://bang-dream.com/discographies/4287](https://bang-dream.com/discographies/4287)
+
+       <[strong>【CM】剧场版「BanG Dream! Ave Mujica prima aurora」Blu-ray （2026.12.23 发售）</strong>](https://www.bilibili.com/video/BV1ADs16AEJa) <blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/18/135407n7hnvql5swhq657q.png" referrerpolicy="no-referrer">
+
+<strong>22ba262d38a8c5fe7f70e9169afa988dc3b8702b.png</strong> (1.58 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 13:54 上传
+
+2026年12月23日 (周三) 发售
+
+剧场版「BanG Dream! Ave Mujica prima aurora」Blu-ray
+
+★商品情报
+[https://bang-dream.com/discographies/4287/](https://bang-dream.com/discographies/4287/)
+
+【发售日】
+
+2026年12月23日 (周三)
+
+【定价】
+
+11,000日元（含税）
+
+【收录内容】
+
+＜上巻 收录内容＞
+
+[Blu-ray]
+
+・剧场版「BanG Dream! Ave Mujica prima aurora」本片影像
+
+・Ave Mujica 观影礼仪讲座剧场
+
+・特別舞台问候 声优Talk节目（Blu-ray ver.）
+
+[CD]
+
+・劇伴収録サウンドトラックCD
+
+1. Overture
+
+2. 冥界への誘い
+
+3. 血の祭儀
+
+4. 幕間の素顔
+
+5. 桜咲く夜道
+
+6. 盛者必衰
+
+7. もう一つの顔
+
+8. 緊張と緩和
+
+9. アンティーク・ファントム
+
+10. おかえりなさい！
+
+11. 独立宣言
+
+12. グラスを片手に
+
+13. 崩れ出す日常
+
+[初回生产分限定封入特典]
+
+・スペシャルブックレット
+
+・特製ジャケットステッカー1枚
+
+[早期预约特典]
+
+・Mini Photo风Card(5种 Set)
+
+预约期间
+
+2026年10月24日(周六)～11月22日(周日) 22:59
+
+#BanGDream# #AveMujica#</blockquote>
+       [https://www.bilibili.com/video/BV1ADs16AEJa](https://www.bilibili.com/video/BV1ADs16AEJa)
+

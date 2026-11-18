@@ -16459,3 +16459,14 @@ gpt 6.2是不是还行，昨天试了下agy各种报奇怪的错，又不想用�
 
 让6.2 Astra帮我改下说的稍微不像人话的文档，说‘“但是我读起来还是有点不通顺” 。它直接给我大改成是说人话了，但是原来东西全tm没了。
 
+
+*****
+
+####  唠叨  
+##### 20610#       发表于 2026-11-18 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70522782&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-18 11:07</a>
+
+坏了 让反重力团队偷到宝了</blockquote>
+AI的事 怎么能叫偷呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
