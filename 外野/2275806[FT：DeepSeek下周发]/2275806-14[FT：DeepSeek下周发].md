@@ -16846,3 +16846,40 @@ ds网页版真的限量了吗？我用了一天都没触发</blockquote>
 
 顺便狠狠批判哈基米
 
+
+*****
+
+####  纸皮  
+##### 20634#       发表于 2026-11-18 17:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">和同业一起夸了一下午seedream，圣.豆包
+<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">世一模！（生图，建筑行业，很懂国内建筑需求）
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">我有一个梦想，全世界建筑师都用豆姐，将来全世界新建建筑都一股子老中建筑的味道
+
+顺便狠狠批判哈基米
+
+
+*****
+
+####  qqwliao  
+##### 20635#       发表于 2026-11-18 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524577&amp;ptid=2275806" target="_blank">serj005 发表于 2026-11-18 17:27</a>
+
+昨天问问题用了5个常规短对话就限量了（每个对话都不超过三次追问），不太清楚现在具体的限额额度 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是不是有账户歧视，我输出了一下，今天我用了16k的token，8次搜索，完全没有弹出限额。我账户是24年11月之前就开始用了
+
+*****
+
+####  Esoterica  
+##### 20636#       发表于 2026-11-18 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524608&amp;ptid=2275806" target="_blank">纸皮 发表于 2026-11-18 17:36</a>
+
+和同业一起夸了一下午seedream，圣.豆包
+
+世一模！（生图，建筑行业，很懂国内建筑需求）
+
+我有一个梦想，全 ...</blockquote>
+请问大佬是建筑的哪个方向，最近在搞一些策展、室内设计方面的内容，seedream够强的话是不是没必要折腾gpt image了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
