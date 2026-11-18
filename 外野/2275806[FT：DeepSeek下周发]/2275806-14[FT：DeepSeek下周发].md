@@ -17264,3 +17264,33 @@ ELI5 = Explain Like I'm 5，字面意思是「像给一个 5 岁小孩解释那�
 
 GPT回答说：他未必真的有这种轻视用户的意思，但这种表达确实容易产生喜剧效果。
 
+
+*****
+
+####  pure_liquid  
+##### 20655#       发表于 2026-11-18 21:16
+
+<blockquote>warlock228 发表于 2026-11-18 19:49
+tibo承认了说话不太利索有点问题，我一天用下来还好，可以试试他讲的方法
+
+ ...</blockquote>
+我问GPT，ELI5是什么意思？GPT回答说：
+
+ELI5 = Explain Like I'm 5，字面意思是「像给一个 5 岁小孩解释那样给我讲明白」。
+
+我进一步追问说：这让我觉得Tibo不像是在诚心的提供技术方案解决问题，而更像是在调侃。
+
+GPT回答说：他未必真的有这种轻视用户的意思，但这种表达确实容易产生喜剧效果。
+
+*****
+
+####  hugosol  
+##### 20656#       发表于 2026-11-18 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525129&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-18 19:49</a>
+
+tibo承认了说话不太利索有点问题，我一天用下来还好，可以试试他讲的方法
+
+ ...</blockquote>
+我选择直接用6-Astra，虽然贵点但体验好多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
