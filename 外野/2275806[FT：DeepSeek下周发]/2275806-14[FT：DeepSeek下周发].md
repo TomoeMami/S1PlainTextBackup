@@ -17649,3 +17649,13 @@ neon看跑分有点夸张啊 部分场景超过carbon？google最近发的也太
 
 但是反重力实在是太垃圾了
 
+
+*****
+
+####  lactone  
+##### 20679#       发表于 2026-11-19 06:31
+
+谷歌这几个模型定位出问题了吧？neon和carbon不打架？hydrogen开low也很垃圾，开max能打sonnet，开low打不了大肥鱼，argon现在几乎没有价值了
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
