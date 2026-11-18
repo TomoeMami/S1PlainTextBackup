@@ -2298,3 +2298,35 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">完全没石头了 毛都没出
 
+
+*****
+
+####  angelooo  
+##### 21920#       发表于 2026-11-18 17:12
+
+这强化，利Q背叛绿卡是正确的
+
+
+*****
+
+####  岸浪白野  
+##### 21921#       发表于 2026-11-18 17:17
+
+不用评价了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/18/171652h6cn2qwnx6fn6nff.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1794993410494_1.webp</strong> (112.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 17:16 上传
+
+<img src="https://img.stage1st.com/forum/202611/18/171652u5qsxxumqux12q00.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1794993410642_2.webp</strong> (86.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 17:16 上传
+
