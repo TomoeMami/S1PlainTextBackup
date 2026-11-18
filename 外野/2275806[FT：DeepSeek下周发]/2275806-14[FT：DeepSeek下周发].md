@@ -17712,3 +17712,50 @@ Antigravity下用Neon + High做个鹈鹕骑车
 
 好像也没多耐用
 
+
+*****
+
+####  pure_liquid  
+##### 20685#       发表于 2026-11-19 07:42
+
+不对，我好像被前一页有坛友说氖是夹在氢和氩之间的耐用型模型误导了
+
+在X上搜了一下，发现有些榜上比碳还高
+
+所以这东西其实本来也不打算主打耐用？
+
+
+*****
+
+####  BarricadeMKXX  
+##### 20686#       发表于 2026-11-19 07:47
+
+真上了？
+顺便之前有个AA Index 67的应该是假图
+
+<img src="https://img.stage1st.com/forum/202611/19/074627wj8hbok64oq2kssj.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795045586821_1.webp</strong> (115.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 07:46 上传
+
+<img src="https://img.stage1st.com/forum/202611/19/074627r73xlhece6jleils.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795045586953_2.webp</strong> (121.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 07:46 上传
+
+<img src="https://img.stage1st.com/forum/202611/19/074627j8pp80vdz98ovv4v.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795045587114_3.webp</strong> (124.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 07:46 上传
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
