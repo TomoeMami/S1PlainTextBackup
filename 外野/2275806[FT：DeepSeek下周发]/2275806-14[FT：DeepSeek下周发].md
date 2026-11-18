@@ -16815,3 +16815,34 @@ ds网页版真的限量了吗？我用了一天都没触发</blockquote>
 ds网页版真的限量了吗？我用了一天都没触发</blockquote>
 我早上九点过就触发了……我只是让它看了几张我画的电路图而已    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  serj005  
+##### 20632#       发表于 2026-11-18 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524478&amp;ptid=2275806" target="_blank">qqwliao 发表于 2026-11-18 17:05</a>
+ds网页版真的限量了吗？我用了一天都没触发</blockquote>
+昨天问问题用了5个常规短对话就限量了（每个对话都不超过三次追问），不太清楚现在具体的限额额度
+
+*****
+
+####  花椒  
+##### 20633#       发表于 2026-11-18 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524478&amp;ptid=2275806" target="_blank">qqwliao 发表于 2026-11-18 17:05</a>
+ds网页版真的限量了吗？我用了一天都没触发</blockquote>
+我早上九点过就触发了……我只是让它看了几张我画的电路图而已    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  纸皮  
+##### 20634#       发表于 2026-11-18 17:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">和同业一起夸了一下午seedream，圣.豆包
+<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">世一模！（生图，建筑行业，很懂国内建筑需求）
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">我有一个梦想，全世界建筑师都用豆姐，将来全世界新建建筑都一股子老中建筑的味道
+
+顺便狠狠批判哈基米
+
