@@ -16042,3 +16042,45 @@ X上一堆博主喷GPT6.2不行，强化学习翻车了？</blockquote>
 
 早上从pro100升到pro200居然还单独给重置了额度
 
+
+*****
+
+####  紧那罗  
+##### 20574#       发表于 2026-11-18 09:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">简单试了下ultrafast模式的Sol
+
+端到端速率大概100t/s 速度输hydrogen一截 小赢opus
+
+代价是费用来到fable、astra一档，要你何用<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  warlock228  
+##### 20575#       发表于 2026-11-18 09:52
+
+急头白脸上去试试6.2sol 开极高让她审查昨晚蹬出来的东西，他直接开两个6.1sol来审<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://picui.ogmua.cn/s1/2026/11/18/6afcfe8fa5cb2.webp" referrerpolicy="no-referrer">
+
+
+*****
+
+####  紧那罗  
+##### 20574#       发表于 2026-11-18 09:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">简单试了下ultrafast模式的Sol
+
+端到端速率大概100t/s 速度输hydrogen一截 小赢opus
+
+代价是费用来到fable、astra一档，要你何用<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  warlock228  
+##### 20575#       发表于 2026-11-18 09:52
+
+急头白脸上去试试6.2sol 开极高让她审查昨晚蹬出来的东西，他直接开两个6.1sol来审<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://picui.ogmua.cn/s1/2026/11/18/6afcfe8fa5cb2.webp" referrerpolicy="no-referrer">
+
