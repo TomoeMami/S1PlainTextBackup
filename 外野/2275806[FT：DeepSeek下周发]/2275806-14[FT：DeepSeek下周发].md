@@ -16297,3 +16297,40 @@ glm5.3对比DS4.1F1017什么水平？OPCG的200刀太诱人了</blockquote>
 glm5.3对比DS4.1F1017什么水平？OPCG的200刀太诱人了</blockquote>
 很慢，而且没有多模态，我之前蹬官方鸡蛋的时候体验过实在是不如他自己家的5.3flash
 
+
+*****
+
+####  紧那罗  
+##### 20594#       发表于 2026-11-18 12:08
+
+Astra降价体感还挺明显，应该主要是缓存降幅比较大的关系。这下总算不至于200刀的额度只能和Claude20刀的比了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  warlock228  
+##### 20595#       发表于 2026-11-18 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523008&amp;ptid=2275806" target="_blank">CosineG 发表于 2026-11-18 11:37</a>
+GPT-6.2真给我整无语了，真就戳一下动一下戳一下动一下
+
+—— 来自 OnePlus PJD110, Android 16, 鹅球 v4.0 ...</blockquote>
+戳一下动一下是祖传的，直接告诉他直到完成目标途中无须向我汇报
+
+*****
+
+####  80后卢瑟  
+##### 20596#       发表于 2026-11-18 12:11
+
+跑了一个 one-shot 网页小游戏，HTML+three.js，只用了周额度 1%<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  unrealMeeSeeks  
+##### 20597#       发表于 2026-11-18 12:14
+
+Gpt最神的是那个tab补全挺好的，还能模拟我的语气。要是自动tab自动做，也是one shot神了吧。
+
