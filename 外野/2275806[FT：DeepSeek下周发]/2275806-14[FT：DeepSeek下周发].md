@@ -16262,3 +16262,38 @@ glm5.3对比DS4.1F1017什么水平？OPCG的200刀太诱人了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  蛋黄酱Release  
+##### 20591#       发表于 2026-11-18 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523150&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-18 11:57</a>
+请问各位大佬，我现在买MacBookPro M5 MAX 18+40核 128G，2T。可以跑什么样的本地模型，用于本地数据处理、 ...</blockquote>
+跑qwen27b不需要5090吧，有个16g显存都够了
+
+
+*****
+
+####  pure_liquid  
+##### 20592#       发表于 2026-11-18 12:00
+
+有点好奇OpenCode为什么要选择GLM 5.3发力？
+
+从知名度上来说，应该还比不上同系列的GLM 5.3 Flash（Ox Alpha）吧？
+
+考虑到5.3的API定价是5.3 Flash的10倍，200美元额度的5.3和200美元额度的5.3 Flash也不是一个概念
+
+如果不考虑token效率的话，200美元额度的5.3相当于20美元额度的5.3 Flash？那感觉也没多少？
+
+
+*****
+
+####  warlock228  
+##### 20593#       发表于 2026-11-18 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70523078&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-18 11:46</a>
+
+glm5.3对比DS4.1F1017什么水平？OPCG的200刀太诱人了</blockquote>
+很慢，而且没有多模态，我之前蹬官方鸡蛋的时候体验过实在是不如他自己家的5.3flash
+
