@@ -17353,3 +17353,63 @@ tibo承认了说话不太利索有点问题，我一天用下来还好，可以�
 
 要不是Astra大降价 我只能润去用哈基米了
 
+
+*****
+
+####  hugosol  
+##### 20660#       发表于 2026-11-18 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525585&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-18 22:09</a>
+
+那真不是贵了一点点 我昨天蹬Astra6只够半天 今天蹬6.2刚刚好
+
+我也不太记得sol对比Astra差在哪 感觉防御 ...</blockquote>
+我测出来6.2-Astra也是额度消耗是一半左右，但Sol要便宜太多了，长任务的场景还是成本更重要
+
+目前我Astra就是用来做需求分析和设计，在codebase-memery-mcp加持下，就算放开了到处查代码，上下文连272K都到不了，这种场景下6.2-Astra因为不说人话在我这里基本是不可用的，但6-Astra的成本是完全可以接受的
+
+
+*****
+
+####  hugosol  
+##### 20660#       发表于 2026-11-18 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525585&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-18 22:09</a>
+
+那真不是贵了一点点 我昨天蹬Astra6只够半天 今天蹬6.2刚刚好
+
+我也不太记得sol对比Astra差在哪 感觉防御 ...</blockquote>
+我测出来6.2-Astra也是额度消耗是一半左右，但Sol要便宜太多了，长任务的场景还是成本更重要
+
+目前我Astra就是用来做需求分析和设计，在codebase-memery-mcp加持下，就算放开了到处查代码，上下文连272K都到不了，这种场景下6.2-Astra因为不说人话在我这里基本是不可用的，但6-Astra的成本是完全可以接受的
+
+
+*****
+
+####  hugosol  
+##### 20660#       发表于 2026-11-18 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525585&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-18 22:09</a>
+
+那真不是贵了一点点 我昨天蹬Astra6只够半天 今天蹬6.2刚刚好
+
+我也不太记得sol对比Astra差在哪 感觉防御 ...</blockquote>
+我测出来6.2-Astra也是额度消耗是一半左右，但Sol要便宜太多了，长任务的场景还是成本更重要
+
+目前我Astra就是用来做需求分析和设计，在codebase-memery-mcp加持下，就算放开了到处查代码，上下文连272K都到不了，这种场景下6.2-Astra因为不说人话在我这里基本是不可用的，但6-Astra的成本是完全可以接受的
+
+*****
+
+####  紧那罗  
+##### 20661#       发表于 2026-11-18 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525639&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-18 22:31</a>
+
+我测出来6.2-Astra也是额度消耗是一半左右，但Sol要便宜太多了，长任务的场景还是成本更重要
+
+目前我Astra ...</blockquote>
+我对上下文长度不是很在意 一直用默认的272k就挺好的
+
+我自己的体感是Sol不讲人话更严重  Astra在我的场景下我感觉稍微调教一下还行？
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道是不是因为我这几天在让他和gemini组队干活 如果他不讲人话我会diss他 让他去看看人carbon是怎么干的
+
