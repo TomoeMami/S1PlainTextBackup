@@ -6886,3 +6886,42 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 本来房间就很小，动不动3,4个怪一起<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  christiny  
+##### 558#       发表于 2026-11-18 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521762&amp;ptid=2293096" target="_blank">Asukalangley33 发表于 2026-11-18 00:24</a>
+
+钻过通风道到高科技地图以后
+
+怪是不是太多了一点？</blockquote>
+对头，上古界域地形狭小，堆怪严重，战斗强度再次变高。  近战很坐牢，我后面就当DOOM在玩。
+
+
+*****
+
+####  christiny  
+##### 559#       发表于 2026-11-18 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521742&amp;ptid=2293096" target="_blank">另外四分之三 发表于 2026-11-18 00:14</a>
+
+快11小时还在第一张图，刚开墓地门，我是不是最慢的了，中间不知道有拳套只有两段冲刺时候在岛上层反复跳， ...</blockquote>
+去陵墓房顶不需要拳套，有两段飞就行了。有拳套更好。
+
+第一次玩，不建议面面俱到，不然玩的很痛苦。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+建议是，先自己探索。打过地图之后，再慢慢来补。
+
+*****
+
+####  christiny  
+##### 560#       发表于 2026-11-18 13:33
+
+【上古界域速通传送祭坛SKIP Queen's Domain   2026-11-18 13-14-59】 [https://www.bilibili.com/video/B ... 0013675f31439d631cc](https://www.bilibili.com/video/BV1sAs16NEUY/?share_source=copy_web&amp;vd_source=8e9f2e742bfad0013675f31439d631cc)
+
+自产自销一下。
+
+上古界域，快速到达传送祭坛的SKIP（非BUG），可以省去一半的流程，快速找到博士和解锁祭坛。
+
