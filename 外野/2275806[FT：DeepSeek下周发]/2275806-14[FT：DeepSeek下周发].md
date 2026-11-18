@@ -17698,3 +17698,17 @@ neon看跑分有点夸张啊 部分场景超过carbon？google最近发的也太
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  pure_liquid  
+##### 20684#       发表于 2026-11-19 07:36
+
+Antigravity下用Neon + High做个鹈鹕骑车
+
+花掉了2%的周额度（4%的五小时额度）
+
+你说对于Pro用户来说有多耐用吗？
+
+好像也没多耐用
+
