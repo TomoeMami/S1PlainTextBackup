@@ -16355,3 +16355,20 @@ Gpt最神的是那个tab补全挺好的，还能模拟我的语气。要是自�
 请问各位大佬，我现在买MacBookPro M5 MAX 18+40核 128G，2T。可以跑什么样的本地模型，用于本地数据处理、 ...</blockquote>
 qwen3.8 flash ，mac新出了好几个高效率引擎，具体咋样不清楚
 
+
+*****
+
+####  KevinGraham  
+##### 20600#       发表于 2026-11-18 12:34
+
+gpt 6.2是不是还行，昨天试了下agy各种报奇怪的错，又不想用了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过hydrogen是真快
+
+
+*****
+
+####  hugosol  
+##### 20601#       发表于 2026-11-18 12:35
+
+这6.2-Astra感觉还是叫Astra-flash吧，输出变成了AI黑话风格，还便宜了不少（但还是比sol贵）
+
