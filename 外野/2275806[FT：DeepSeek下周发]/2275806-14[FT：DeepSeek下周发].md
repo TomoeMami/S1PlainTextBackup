@@ -16208,3 +16208,13 @@ X上一堆博主喷GPT6.2不行，强化学习翻车了？</blockquote>
 
 反重力重置<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CosineG  
+##### 20585#       发表于 2026-11-18 11:37
+
+GPT-6.2真给我整无语了，真就戳一下动一下戳一下动一下
+
+—— 来自 OnePlus PJD110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

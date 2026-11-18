@@ -1014,3 +1014,14 @@ HSMViHIbMAArjks.webp
 
 主角团设定上是科考队，实际行动像是神秘园临时起意的大学生
 
+
+*****
+
+####  Jabeck  
+##### 44#       发表于 2026-11-18 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521947&amp;ptid=2293758" target="_blank">丁兔 发表于 2026-11-18 04:07</a>
+
+主角团设定上是科考队，实际行动像是神秘园临时起意的大学生</blockquote>
+就将看吧。看看今年爆火的打破生化危机电影票房纪录的爆发夜，烂番茄新鲜度96%，Metacritic综合评分81分里面人物言行还不如大学生。
+

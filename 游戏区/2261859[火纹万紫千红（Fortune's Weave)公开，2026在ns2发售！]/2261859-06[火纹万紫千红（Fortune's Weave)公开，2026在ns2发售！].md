@@ -13436,3 +13436,24 @@ twi:@cdgm000
 
 笑到
 
+
+*****
+
+####  Jabeck  
+##### 8667#       发表于 2026-11-18 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70522004&amp;ptid=2261859" target="_blank">蓮華 发表于 2026-11-18 07:21</a>
+
+笑到</blockquote>
+他们干嘛了？
+
+
+*****
+
+####  没取名啊  
+##### 8668#       发表于 2026-11-18 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70522934&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-11-18 11:28</a>
+他们干嘛了？</blockquote>
+在模仿信仰虔诚的萨拉米斯人，通过这种扮演表达对火纹提名少的不满
+
