@@ -16084,3 +16084,56 @@ X上一堆博主喷GPT6.2不行，强化学习翻车了？</blockquote>
 
 <img src="https://picui.ogmua.cn/s1/2026/11/18/6afcfe8fa5cb2.webp" referrerpolicy="no-referrer">
 
+
+*****
+
+####  飞剪号  
+##### 20576#       发表于 2026-11-18 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70521980&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-18 06:45</a>
+
+之前x上面个个都猜测oai要让a\一手免得明年自己上市别那么难看，结果肥龙和大小姐还是扯头发比较要紧 ...</blockquote>
+龙的世界没有人情世故，只有打打杀杀<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  80后卢瑟  
+##### 20577#       发表于 2026-11-18 09:59
+
+<img src="https://img.stage1st.com/forum/202611/18/095926nvgfi1p1ipz1wya6.jpg" referrerpolicy="no-referrer">
+
+<strong>b79390676741e11b1bb9e5149d196a0e.jpg</strong> (133.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 09:59 上传
+
+<img src="https://img.stage1st.com/forum/202611/18/095936xl8lbflbgrlrrbrb.png" referrerpolicy="no-referrer">
+
+<strong>b2b6673e96ba50d6feb51f281b861b05.png</strong> (69.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 09:59 上传
+
+<img src="https://img.stage1st.com/forum/202611/18/095948ewxooon7blwelwza.png" referrerpolicy="no-referrer">
+
+<strong>7e7dd78b2aad59fcf67090aec47adb31.png</strong> (135.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-18 09:59 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  StrangerJ  
+##### 20578#       发表于 2026-11-18 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70522333&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-11-18 09:59</a></blockquote>
+这senior benchmark，6.2sol还缩阳入腹了？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
