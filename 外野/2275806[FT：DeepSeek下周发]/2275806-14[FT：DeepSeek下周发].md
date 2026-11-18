@@ -17578,3 +17578,11 @@ F16 KV（原始）        32K        显存        10.3 GB  �
 
 --no-kv-offload        32K        内存        7.5 GB        12.8 tok/s ❌
 
+
+*****
+
+####  qwased  
+##### 20671#       发表于 2026-11-19 00:26
+
+法棍送pro了，一个月300刀的1017，超级鸡蛋<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
