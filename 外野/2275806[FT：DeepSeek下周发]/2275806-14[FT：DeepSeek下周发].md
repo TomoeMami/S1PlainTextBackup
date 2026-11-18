@@ -17110,3 +17110,18 @@ tailscale，远程调家里电脑。
 
 我草 Opencode 本周10刀换500刀的glm 5.3 这不得狂蹬
 
+
+*****
+
+####  相见恨晚  
+##### 20648#       发表于 2026-11-18 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524839&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-18 18:43</a>
+
+看到一个热搜#WorkBuddy成中国使用量最高AI产品#
+
+让我突然联想起了Trae
+
+点进Trae看了看，感觉现在模型列表 ...</blockquote>
+有一说一，还是有k3.1和Qwen4的，虽然要会员
+

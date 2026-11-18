@@ -5031,3 +5031,18 @@ monomoon差一点就能赶上今年的提名了
 
 是哪个server啊，thinky-puzzle-games还是ThinkyGames.com？
 
+
+*****
+
+####  酒々井かんづめ  
+##### 349#       发表于 2026-11-18 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524817&amp;ptid=2017380" target="_blank">BRAVADO 发表于 2026-11-18 18:37</a>
+
+抱歉确实是theta，我口误了，这里有点奇怪也指的是theta的英文翻译，有点奇怪我玩完开头就切中文了。
+
+是 ...</blockquote>
+ThinkyGames.com
+
+英文我不太清楚，日语的话当时加之前我记得作者说找麦妖作者看了（？）结果还是有把音叉翻译成叉，猫箱、双缝等原文照搬的情况，说是AI翻译更像是机翻
+
