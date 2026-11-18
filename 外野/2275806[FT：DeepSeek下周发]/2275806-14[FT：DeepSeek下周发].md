@@ -17637,3 +17637,15 @@ neon看跑分有点夸张啊 部分场景超过carbon？google最近发的也太
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">agy 真是屎吧 现在 carbon 推广期比 neon 便宜，但是 agy 里比 neon 贵
 
+
+*****
+
+####  舞以  
+##### 20678#       发表于 2026-11-19 06:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基米大家族
+
+氖基米看定位应该是旗舰模型，和Opus/Sol打
+
+但是反重力实在是太垃圾了
+
