@@ -17659,3 +17659,24 @@ neon看跑分有点夸张啊 部分场景超过carbon？google最近发的也太
 
 —— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  璇瑢子R  
+##### 20680#       发表于 2026-11-19 06:41
+
+基米大家族：哈基米是一种群居动物懂不懂<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  紧那罗  
+##### 20681#       发表于 2026-11-19 06:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526229&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-19 06:31</a>
+
+谷歌这几个模型定位出问题了吧？neon和carbon不打架？hydrogen开low也很垃圾，开max能打sonnet，开low打不 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">难道这就是饱和式训练 避免只练一锅再次翻车
+
