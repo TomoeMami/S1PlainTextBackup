@@ -16470,3 +16470,19 @@ gpt 6.2是不是还行，昨天试了下agy各种报奇怪的错，又不想用�
 坏了 让反重力团队偷到宝了</blockquote>
 AI的事 怎么能叫偷呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 20611#       发表于 2026-11-18 14:02
+
+Opus 5.5和GPT 6.2 Astra的科学论文写作风格真是迥然不同. 两边观点甚至还在打架
+
+
+*****
+
+####  hugosol  
+##### 20612#       发表于 2026-11-18 14:06
+
+推特上已经有人在说OAI是因为A/要IPO故意让路发一个拉的新模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
