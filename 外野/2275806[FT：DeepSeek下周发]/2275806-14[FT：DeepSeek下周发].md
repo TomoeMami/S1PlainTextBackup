@@ -16883,3 +16883,24 @@ ds网页版真的限量了吗？我用了一天都没触发</blockquote>
 我有一个梦想，全 ...</blockquote>
 请问大佬是建筑的哪个方向，最近在搞一些策展、室内设计方面的内容，seedream够强的话是不是没必要折腾gpt image了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  The_Ether_  
+##### 20637#       发表于 2026-11-18 17:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">谷歌免费ultra居然没封号，只是退回了
+
+
+*****
+
+####  纸皮  
+##### 20638#       发表于 2026-11-18 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524637&amp;ptid=2275806" target="_blank">Esoterica 发表于 2026-11-18 17:45</a>
+请问大佬是建筑的哪个方向，最近在搞一些策展、室内设计方面的内容，seedream够强的话是不是没必要折腾gp ...</blockquote>
+我做建筑外观，少量景观，民用建筑和工业建筑都做，没做高大上的投标
+偶尔帮忙做室内装修渲染
+室内方向我用得少，我的主业方面gpt显而易见的问题是完全不懂建筑，和渲染风格很容易飘回它自带的那个过度锐化过度高光风格，成图我是宁可最后用超级过时的笨蛋banana pro出
+seedream5.5它本身听指令很好，效果佳，测试下来纯自己发挥的风格也很符合国内建筑设计手法，另外如果你修改频率高，就是极端好球区，生图非常稳定，不要求修改的地方很少扭曲变形
+

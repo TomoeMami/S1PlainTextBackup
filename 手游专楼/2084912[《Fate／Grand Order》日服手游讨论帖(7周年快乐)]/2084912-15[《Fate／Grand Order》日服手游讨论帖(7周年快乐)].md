@@ -2330,3 +2330,14 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 2026-11-18 17:16 上传
 
+
+*****
+
+####  khxooo  
+##### 21922#       发表于 2026-11-18 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524539&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-11-18 17:17</a>
+
+不用评价了</blockquote>
+好歹也是有点增伤，不像水魔总那样幽默<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
