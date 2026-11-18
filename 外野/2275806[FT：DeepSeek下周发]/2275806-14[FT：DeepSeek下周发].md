@@ -16486,3 +16486,28 @@ Opus 5.5和GPT 6.2 Astra的科学论文写作风格真是迥然不同. 两边观
 
 推特上已经有人在说OAI是因为A/要IPO故意让路发一个拉的新模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紧那罗  
+##### 20613#       发表于 2026-11-18 14:19
+
+最大意义还是价格 我自己这边测试 综合缓存情况下Astra token费用降了将将50%
+
+另外一个不知道有没有参考意义的数据是单轮token消耗也降了20%~30% 总之最后结果就是额度耐用了非常多
+
+原来只有一个打不过opus的Astra6 单周额度几乎只能和Claude pro打一打<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+6.2总归不太丢脸
+
+
+*****
+
+####  lactone  
+##### 20614#       发表于 2026-11-18 14:27
+
+qwen4本来就还行，最近做科研任务，可以说比大肥鱼强太多了
+大肥鱼1017还是只适合干活
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
