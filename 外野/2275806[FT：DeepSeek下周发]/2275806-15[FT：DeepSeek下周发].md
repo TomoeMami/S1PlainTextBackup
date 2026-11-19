@@ -248,3 +248,22 @@ livebench上来看的话，两个gpt 6.2模型都是降本为主，智能没有�
 
 怎么哈基米学生pro能用4N 不能用4C，看价格4N更贵啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 20741#       发表于 2026-11-19 15:02
+
+你们为啥在关注总参<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白日依山尽  
+##### 20742#       发表于 2026-11-19 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70528390&amp;ptid=2275806" target="_blank">バーチャルS1er 发表于 2026-11-19 14:57</a>
+
+怎么哈基米学生pro能用4N 不能用4C，看价格4N更贵啊</blockquote>
+碳基米打折减半到月底
+
