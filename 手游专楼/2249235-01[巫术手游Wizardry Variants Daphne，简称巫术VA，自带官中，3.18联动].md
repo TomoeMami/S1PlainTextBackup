@@ -129,3 +129,14 @@
 
 突然调整妖精装备获取，下一个新角色什么种族不言自明了
 
+
+*****
+
+####  电脑死机  
+##### 964#       发表于 2026-11-19 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70524753&amp;ptid=2249235" target="_blank">Flechette 发表于 2026-11-18 18:19</a>
+
+突然调整妖精装备获取，下一个新角色什么种族不言自明了</blockquote>
+也就钢级以下点击就送，要靠谱装备还是难整
+
