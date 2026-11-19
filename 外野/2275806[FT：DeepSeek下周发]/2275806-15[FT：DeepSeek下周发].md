@@ -475,3 +475,13 @@ diversity又是可以被tune的 所以这些巨模型真的就像恐龙一样。
 现在便宜方便试用哈基米新模型的方案是啥，不想用大号原价订阅</blockquote>
 iOS 美区三个月 15 刀，应该是要用新号开，不过只有 Pro，Ultra 好像没优惠的样子，忘记了
 
+
+*****
+
+####  Promeus  
+##### 20762#       发表于 2026-11-19 19:04
+
+<img src="https://p.sda1.dev/36/72d3dcf37a727aec8ec38b38ae6a150d/image.jpg" referrerpolicy="no-referrer">
+
+华为应该是要搞idm和超级工厂了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
