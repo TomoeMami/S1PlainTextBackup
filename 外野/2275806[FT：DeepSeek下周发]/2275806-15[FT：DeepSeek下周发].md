@@ -780,3 +780,14 @@ google 的人说后面还有</blockquote>
 谷谷歌歌这套就骗骗外行，顺便和某些狗哨里应外合，吹吹几天更新好几代、实现RSI什么的 ...</blockquote>
 估计是在饱和式训练，并行训一堆，挑好的发，krypton（carbon下一代）和oxygen（hydrogen下一代）也在路上了。卡多就是莽。
 
+
+*****
+
+####  飞剪号  
+##### 20789#       发表于 2026-11-19 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530453&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-19 23:12</a>
+
+估计是在饱和式训练，并行训一堆，挑好的发，krypton（carbon下一代）和oxygen（hydrogen下一代）也在路 ...</blockquote>
+如果是这样，对算力制胜论反而是坏消息啊，堆算力只能让同一锅训出来的模变多，尚不能保证模型的实力有质的飞跃，仿佛看到多炮塔坦克招摇过市，但未来属于单炮管的主战坦克
+

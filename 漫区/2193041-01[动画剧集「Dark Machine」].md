@@ -56,3 +56,11 @@
 
 这周和上周打得爽，露和中村悠一之间有共同的目的，这样解释第一话某些戏码还算说得通
 
+
+*****
+
+####  aptx8285144  
+##### 48#       发表于 2026-11-19 23:20
+
+重看时候发现红发娘说其实是因为对方有个好的教练，<strong>和我们正相反呀</strong><img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，笑死，这集红发和真即吐槽过海里也吐槽过露
+
