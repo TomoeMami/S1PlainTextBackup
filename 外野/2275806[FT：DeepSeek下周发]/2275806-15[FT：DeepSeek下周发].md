@@ -464,3 +464,14 @@ diversity又是可以被tune的 所以这些巨模型真的就像恐龙一样。
 
 现在便宜方便试用哈基米新模型的方案是啥，不想用大号原价订阅
 
+
+*****
+
+####  moekyo  
+##### 20761#       发表于 2026-11-19 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529444&amp;ptid=2275806" target="_blank">simonouozy 发表于 2026-11-19 18:22</a>
+
+现在便宜方便试用哈基米新模型的方案是啥，不想用大号原价订阅</blockquote>
+iOS 美区三个月 15 刀，应该是要用新号开，不过只有 Pro，Ultra 好像没优惠的样子，忘记了
+
