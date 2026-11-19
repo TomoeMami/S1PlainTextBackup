@@ -1079,3 +1079,33 @@ BanGDream! bilibili官方：@BanGDream_CN
 
        [https://www.youtube.com/watch?v=a0gYZq75AbU](https://www.youtube.com/watch?v=a0gYZq75AbU)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42223#       发表于 2026-11-19 19:28
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/19/192759o3o2e2ujgzxg2d2q.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-19_19-18-56.png</strong> (664.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 19:27 上传
+
+       [https://weibo.com/6596632265/Rs5jRd43w](https://weibo.com/6596632265/Rs5jRd43w)
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/19/192758zx3z0ff1afe1m4qb.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-19_19-26-48.png</strong> (308.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 19:27 上传
+
+       [https://www.bilibili.com/opus/1272271559128514567](https://www.bilibili.com/opus/1272271559128514567)
+

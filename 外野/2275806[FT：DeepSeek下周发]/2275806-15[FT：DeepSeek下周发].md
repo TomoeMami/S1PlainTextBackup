@@ -505,3 +505,14 @@ iOS 美区三个月 15 刀，应该是要用新号开，不过只有 Pro，Ultra
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  boeing  
+##### 20765#       发表于 2026-11-19 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529444&amp;ptid=2275806" target="_blank">simonouozy 发表于 2026-11-19 18:22</a>
+
+现在便宜方便试用哈基米新模型的方案是啥，不想用大号原价订阅</blockquote>
+开个小号，新账户有三个月低价PRO，进家庭组开分享。
+
