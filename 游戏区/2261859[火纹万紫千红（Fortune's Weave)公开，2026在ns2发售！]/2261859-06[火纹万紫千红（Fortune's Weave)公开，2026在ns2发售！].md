@@ -13813,3 +13813,15 @@ twi:@cdgm000
 
 我早早打完就封盘等DLC了<img src="https://static.stage1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  根正苗红  
+##### 8692#       发表于 2026-11-20 01:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530538&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-11-19 23:31</a>
+打完战争篇我蕾达都70速了，真的有点离谱，但是敌人就是4%3%的命中率也能摸到你我也是真的说不出话。
+蕾达 ...</blockquote>
+战争篇玩命砸战技啊，反正是女王的家当，多带几把武器<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+蕾达走舞娘的话够用就成了，又不用你去当闪避t抗线，唱歌跳舞都忙不过来。
+
