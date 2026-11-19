@@ -946,3 +946,30 @@ jio用不了4那些模型感觉太鸡肋了
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 17 Ultra
 
+
+*****
+
+####  十六夜鬼月  
+##### 20803#       发表于 2026-11-20 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530043&amp;ptid=2275806" target="_blank">holmesjerry 发表于 2026-11-19 21:18</a>
+
+那太遥远了
+
+同等制作能力（euv级别，大概台积电n5或者三星4nm水平的）国产产能起码2032年</blockquote>
+看明年满血版韬芯片威力如何吧，如果能有效大幅度提升并且可以继续堆叠的话，还是有希望这几年咬住不落后太多的。
+
+
+*****
+
+####  StrangerJ  
+##### 20804#       发表于 2026-11-20 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530771&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-20 01:01</a>
+泥漏没人讨论美国那边发的讨a%檄文吗
+
+—— 来自 HONOR BRT-AN00, Android 17, 鹅球 v3.5.99-alpha ...</blockquote>
+啥檄文？
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
