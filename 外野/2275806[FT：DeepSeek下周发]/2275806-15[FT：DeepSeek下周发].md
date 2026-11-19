@@ -935,3 +935,14 @@ Amd又被指责通共了</blockquote>
 
 GLM5.5开始暗搓搓宣发了，可能真的明天发
 
+
+*****
+
+####  孤狼arcueid  
+##### 20802#       发表于 2026-11-20 01:16
+
+jio用不了4那些模型感觉太鸡肋了
+等等日区买个pro好了
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 17 Ultra
+
