@@ -367,3 +367,24 @@ ai用ps7能达到bash的丝滑吗？
 
 —— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  飞剪号  
+##### 20753#       发表于 2026-11-19 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70528591&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-19 15:30</a>
+
+大肥鱼的道德感确实很低，我看有人说手机可以临时root，重启失效。我想让gpt帮忙临时root下，干着干着发现 ...</blockquote>
+我让大肥鱼帮我分析qq聊天记录备份，大肥鱼上来就扒我的密钥，阻止一次之后还尝试了第二次<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  浪费喝咖啡  
+##### 20754#       发表于 2026-11-19 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70528999&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-19 16:51</a>
+法棍是啥？</blockquote>
+mistral的套餐
+
