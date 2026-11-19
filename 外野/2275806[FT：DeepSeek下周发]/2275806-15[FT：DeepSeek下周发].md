@@ -344,3 +344,16 @@ ai用ps7能达到bash的丝滑吗？
 法棍送pro了，一个月300刀的1017，超级鸡蛋</blockquote>
 法棍是啥？
 
+
+*****
+
+####  静哮苍穹  
+##### 20751#       发表于 2026-11-19 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70528304&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-19 14:43</a>
+
+找到一个测试模型能力挺不错的case
+
+创建一个完全自包含的单文件 HTML 页面，用纯代码（内联 SVG 或 Canvas ...</blockquote>
+这个CASE之前分享过吗
+
