@@ -575,3 +575,43 @@ iOS 美区三个月 15 刀，应该是要用新号开，不过只有 Pro，Ultra
 —— 来自 vivo V2505A, Android 17,  ...</blockquote>
 卢秃被鲁彪和贝嫂子逼到墙角了，断尾求生<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moekyo  
+##### 20770#       发表于 2026-11-19 20:49
+
+比亚迪的璇玑怕不是也要无了
+
+
+*****
+
+####  holmesjerry  
+##### 20771#       发表于 2026-11-19 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529928&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-19 20:49</a>
+比亚迪的璇玑怕不是也要无了</blockquote>
+三星代工的这两天都有传闻
+
+不过新华三那边董事长也发了个吐槽应该没有那么严重
+
+*****
+
+####  moekyo  
+##### 20772#       发表于 2026-11-19 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529936&amp;ptid=2275806" target="_blank">holmesjerry 发表于 2026-11-19 20:50</a>
+
+三星代工的这两天都有传闻
+
+不过新华三那边董事长也发了个吐槽应该没有那么严重 ...</blockquote>
+只能说，等国产出来，让这帮傻逼知道什么是“产能过剩”<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  squallx2  
+##### 20773#       发表于 2026-11-19 20:54
+
+哈基米低价区好像全灭了 情报站显示还有个孟加拉 但是没那边的小号  大鳝人你变了<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
