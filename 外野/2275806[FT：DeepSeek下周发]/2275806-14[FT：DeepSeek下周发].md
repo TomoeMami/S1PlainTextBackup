@@ -17839,3 +17839,13 @@ Antigravity下用Neon + High做个鹈鹕骑车
 
 ——来自 NX789J 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  紧那罗  
+##### 20694#       发表于 2026-11-19 08:40
+
+哎，最近两天稍微研究了一下 Agy 的功能，我对谷歌会把模型直接开放出来比较悲观，应该是会走专武的路线。
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
