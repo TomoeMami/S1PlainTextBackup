@@ -100,3 +100,36 @@ codex不需要这些，但是需要-截图和查看图片使用webp p90  否�
 
 Hyrdogen写文性能极好，跟Argon差不多，但是幻觉也很离谱，有时候甚至能直接幻觉出自问自答
 
+
+*****
+
+####  BarricadeMKXX  
+##### 20728#       发表于 2026-11-19 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70527284&amp;ptid=2275806" target="_blank">sunanya 发表于 2026-11-19 11:03</a>
+谷大善人这是怎么回事，又放出来了一个Neon？
+
+看了看说是根据carbon蒸馏出来的，旗舰还是carbon
+
+Gemini4的 ...</blockquote>
+4Ar和4C是一个基模，有点像ds v4p preview和平行宇宙没翻车0813的关系
+4H官方说源自4C，可能是蒸出来的，某种v4f 0731
+4Ne在H和C中间
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  BarricadeMKXX  
+##### 20729#       发表于 2026-11-19 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70527492&amp;ptid=2275806" target="_blank">a317216007 发表于 2026-11-19 11:40</a>
+说起来有没有ai交流都谭群？
+
+—— 来自 OnePlus PGP110, Android 15, 鹅球 v4.0-alpha</blockquote>
+ai群是这个
+956841615
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
