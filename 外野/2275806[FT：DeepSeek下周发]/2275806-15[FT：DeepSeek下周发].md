@@ -640,3 +640,20 @@ Gpt 到底是怎么越做越回去的<img src="https://static.stage1st.com/image
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  紧那罗  
+##### 20776#       发表于 2026-11-19 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529987&amp;ptid=2275806" target="_blank">sdefrfg1 发表于 2026-11-19 21:02</a>
+
+Gpt 到底是怎么越做越回去的
+
+6.2感觉连5.5opus都打不过，各种粗心各种缺细节，就说话说的滴水不漏是吧
+
+什么 ...</blockquote>
+本来也没打过
+
+转投哈基米吧
+
