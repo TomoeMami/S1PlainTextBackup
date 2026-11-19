@@ -426,3 +426,33 @@ carbon真是现在最强模型了吧。 体验了一下，感觉甚至比fable�
 
 —— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  serj005  
+##### 20758#       发表于 2026-11-19 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70528823&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-19 16:13</a>
+ai用ps7能达到bash的丝滑吗？
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+目前不能，但总归比pwsh5好很多
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 20759#       发表于 2026-11-19 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70527997&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-19 13:36</a>
+https://mp.weixin.qq.com/s/gyCaumiBG8DqFB841ETdxg
+
+一个大佬的一些论述(他发的文章被老黄内部转发过) ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+参数量大就是好。。。吗？
+有1T的专用模型的话绝对倍杀这些10T的llm（比如alpha star
+最终问题其实还是变成了quality diversity
+diversity又是可以被tune的 所以这些巨模型真的就像恐龙一样。。。牛逼但是绝对不会是答案
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
