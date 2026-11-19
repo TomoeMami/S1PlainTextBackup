@@ -485,3 +485,23 @@ iOS 美区三个月 15 刀，应该是要用新号开，不过只有 Pro，Ultra
 
 华为应该是要搞idm和超级工厂了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  The_Ether_  
+##### 20763#       发表于 2026-11-19 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529444&amp;ptid=2275806" target="_blank">simonouozy 发表于 2026-11-19 18:22</a>
+
+现在便宜方便试用哈基米新模型的方案是啥，不想用大号原价订阅</blockquote>
+印度小米跟谷歌合作，卖三个月的pro，之前只卖十几块吧。再就是看到个邪修，花十几刀报个线上学校能过谷歌的学生认证。carbon貌似没太便宜的法子，只能找个中转站或者卖临时号的？
+
+*****
+
+####  Promeus  
+##### 20764#       发表于 2026-11-19 19:21
+
+金融时报：字节跳动与三星晶圆代工的合作项目已经暂停，昆仑的合作项目也同样暂停。目前，小米在台积电的消费芯片生产也已暂停。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
