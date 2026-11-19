@@ -17824,3 +17824,18 @@ Antigravity下用Neon + High做个鹈鹕骑车
 
 —— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  当光停止  
+##### 20693#       发表于 2026-11-19 08:35
+
+<blockquote>[zhongjie](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526407&amp;ptid=2275806) 发表于 11-19 08:25
+说是neon有八股，实际怎么样？
+让它写创意，有好点子吗？
+
+—— 来自 HONOR WKL-AN80, Android 17, 鹅球 v4.0</blockquote>创意差点，缺灵性整体水平还行。
+不过我刚试了试长上下文空提示词直接破，api也能输出。挺有潜力的。
+
+——来自 NX789J 上的 [S1er 客户端](https://s1er.pages.dev)
+
