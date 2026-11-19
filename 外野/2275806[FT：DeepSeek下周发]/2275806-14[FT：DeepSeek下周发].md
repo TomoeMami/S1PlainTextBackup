@@ -18095,3 +18095,27 @@ R15到R17之间，上两点不明着漏就行
 
 [论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  omnitoken  
+##### 20717#       发表于 2026-11-19 10:49
+
+不作恶是不是仗着卡多并行训练了？
+
+
+*****
+
+####  qqwliao  
+##### 20718#       发表于 2026-11-19 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526547&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-19 09:01</a></blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么跳过氦，也很让人迷惑。
+
+*****
+
+####  clawdbot  
+##### 20719#       发表于 2026-11-19 10:51
+
+传说中的氧就没了吗？现在氖就是灰测的模型？
+
