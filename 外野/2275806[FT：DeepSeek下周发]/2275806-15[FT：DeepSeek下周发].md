@@ -831,3 +831,31 @@ carbon先在和neon拉不开差距
 而且这个时间表很奇怪</blockquote>
 好像前几天有个helix的flash-lite在arena来着
 
+
+*****
+
+####  startraveller  
+##### 20793#       发表于 2026-11-20 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530507&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-11-19 23:22</a>
+如果是这样，对算力制胜论反而是坏消息啊，堆算力只能让同一锅训出来的模变多，尚不能保证模型的实力有质 ...</blockquote>
+小步快跑……和自己比的话，3.8 flash吃尾气到4 argon看到点车尾灯，到现在碳氖氢直接挑战sota，也就两个月不到，还有在路上的，还是很猛的。
+
+
+*****
+
+####  璇瑢子R  
+##### 20794#       发表于 2026-11-20 00:13
+
+现在能说明谷歌夏天赶走的那几个老资历就是罪魁祸首吧。
+
+不是做不出好模型，是人的问题
+
+
+*****
+
+####  Promeus  
+##### 20795#       发表于 2026-11-20 00:16
+
+Amd又被指责通共了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
