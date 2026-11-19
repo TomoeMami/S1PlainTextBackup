@@ -143,3 +143,20 @@ ai群是这个
 提供再多的工具 ，代理还是放着不管瞎裸rg ，grep没用的，同样的1017，同样的项目环境，裸grep禁令和静态工 ...</blockquote>
 有没有推荐的插件和全局指令？
 
+
+*****
+
+####  mitzvah  
+##### 20731#       发表于 2026-11-19 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70527777&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-11-19 12:41</a>
+
+有没有推荐的插件和全局指令？</blockquote>
+我承认我这个插件文档写的比较夸张 跟kimi3.1pro吹牛逼 总结的  但是我测试下来，只要不是严重跟项目核心抽象错配的需求
+
+它确实可以完全自动化编程，提的要求越含糊越好，反正在1017上表现是不错的，当然了我试下来在ds4.c与llama.cpp这种复杂度的项目，按我的经验来看，即便需求与代码与核心抽象约束完全错配，1017在我这个自动化插件上也可以保证产物完成构建能跑，就是自己承认没达到你的要求而已
+
+这个东西还有个用法，你要是s1，s2步骤比如说研究一下你的xx需求在mm项目上的可行性的话，如果你的需求与项目实际的核心抽象真的差距巨大，你的需求约束比较严格，它就会不停迭代————在这个意义上作为项目本身的技术探针也是有一定使用价值的
+
+[https://github.com/ptkdLLL/static-dap-socratic](https://github.com/ptkdLLL/static-dap-socratic)
+
