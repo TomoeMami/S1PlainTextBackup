@@ -893,3 +893,27 @@ Amd又被指责通共了</blockquote>
 —— 来自 vivo V2505A, Android 17,  ...</blockquote>
 芯片管制主导权是两党斗争核心，而鲁比奥本来就是对华严格限制起家的，当国务卿前都搞多少次提案了。
 
+
+*****
+
+####  千秋难诉  
+##### 20799#       发表于 2026-11-20 00:45
+
+将军家AI<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/20/004145rvomnnm2xno9qark.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-20 00:41 上传
+
+<img src="https://img.stage1st.com/forum/202611/20/004331cp1hr9nxpcq294xh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (196.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-20 00:43 上传
+
