@@ -807,3 +807,27 @@ hydrogen和neon反而直接上了
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  bartholo4  
+##### 20791#       发表于 2026-11-19 23:57
+
+carbon先在和neon拉不开差距
+
+应该会上一个更猛的吧
+
+有可能1130，carbon打折结束直接上Krypton
+
+
+*****
+
+####  startraveller  
+##### 20792#       发表于 2026-11-20 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530531&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-19 23:29</a>
+如果真是饱和式训练，一锅出来的，我感觉argon就不该推出
+
+而且这个时间表很奇怪</blockquote>
+好像前几天有个helix的flash-lite在arena来着
+
