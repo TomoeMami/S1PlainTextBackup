@@ -17908,3 +17908,23 @@ ocg的glm×5的总消耗 但实际消耗都比ds4.1f多啊
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  一牧月  
+##### 20701#       发表于 2026-11-19 09:36
+
+6.2astra这nsfw尺度有点哈人，不用任何破甲直接在客户端里可以真枪真刀的，奥特曼叔叔我怕了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  SmterC  
+##### 20702#       发表于 2026-11-19 09:37
+
+最近看到又出了一个说是可以帮助模型快速理解大量代码的MCP工具
+[https://github.com/aoci-spec/aoci-code](https://github.com/aoci-spec/aoci-code)
+
+似乎这个和codebase-memory原理嗨不太一样，有没有用过的大佬看看哪个更好
+

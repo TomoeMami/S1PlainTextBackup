@@ -24,3 +24,11 @@
 
 这游戏里作者的不少怪癖小东西，就看是先被改掉还是被藤壶喷着改掉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vladimeow  
+##### 960#       发表于 2026-11-19 09:32
+
+可能有点暴论，但按现在的状况AI都能马上端出个像样重置，也不知道这项目组在磨什么洋工
+
