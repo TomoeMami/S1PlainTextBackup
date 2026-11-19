@@ -333,3 +333,14 @@ ai用ps7能达到bash的丝滑吗？
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  UncleDracula  
+##### 20750#       发表于 2026-11-19 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525911&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-19 00:26</a>
+
+法棍送pro了，一个月300刀的1017，超级鸡蛋</blockquote>
+法棍是啥？
+
