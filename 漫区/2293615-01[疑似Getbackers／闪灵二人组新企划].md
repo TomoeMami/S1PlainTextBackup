@@ -450,3 +450,11 @@
 
 要么企划方把粉丝都当傻逼，要么企划方自己是傻逼，真以为这种大粪有人买账吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  零食杀手  
+##### 42#       发表于 2026-11-19 22:47
+
+到底是动态漫画，还是只是企划阶段先用ai应付下给个宣传pv？（成片素材不够？）
+
