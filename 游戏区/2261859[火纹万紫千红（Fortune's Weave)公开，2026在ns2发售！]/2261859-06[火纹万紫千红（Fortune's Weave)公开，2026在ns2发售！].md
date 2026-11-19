@@ -13592,3 +13592,18 @@ twi:@cdgm000
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Antidote丶  
+##### 8677#       发表于 2026-11-19 11:36
+
+我迪哥打到第二部第四章了，还没让他砍过一刀
+
+*****
+
+####  未熟串烧  
+##### 8678#       发表于 2026-11-19 11:36
+
+1级舞娘升到33级有4次没加速度，90成长率救不了脸黑<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
