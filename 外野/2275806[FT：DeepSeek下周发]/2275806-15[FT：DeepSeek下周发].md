@@ -981,3 +981,11 @@ jio用不了4那些模型感觉太鸡肋了
 
 没啥关注，a\是今晚上市？那正好明天起来看看冷热。
 
+
+*****
+
+####  qwased  
+##### 20806#       发表于 2026-11-20 02:10
+
+牢唐开始造势神秘模型了，这是要正面抗击A/啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下前端和氢鸡米差不多或者略强，价格合理的话应该不错
+
