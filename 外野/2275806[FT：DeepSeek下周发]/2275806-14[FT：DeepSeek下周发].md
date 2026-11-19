@@ -18043,3 +18043,40 @@ https://github.com/aoci-spec/aoci-code
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  一牧月  
+##### 20713#       发表于 2026-11-19 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526876&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-11-19 09:56</a>
+前有A畜后有谷大善人，面对压力奥特曼不会真狗急跳墙又想搞成人版chatgpt了吧？ ...</blockquote>
+应该是安全对齐对岔劈了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  一牧月  
+##### 20714#       发表于 2026-11-19 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526956&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-19 10:10</a>
+单纯的安全训练训炸了但这是好事据说画图也超薄甲了，只要不喽点什么涩图都能画 ...</blockquote>
+R15到R17之间，上两点不明着漏就行
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  一牧月  
+##### 20715#       发表于 2026-11-19 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526979&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-19 10:14</a>
+我是不明白，只要不搞恋童癖，一般的hs在美国又不违法，为啥都不搞
+
+—— 来自 vivo V2505A, Android 17,  ...</blockquote>
+舆论风险太大
+而且正常安全对齐价值观对齐也会导致nsfw上甲
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
