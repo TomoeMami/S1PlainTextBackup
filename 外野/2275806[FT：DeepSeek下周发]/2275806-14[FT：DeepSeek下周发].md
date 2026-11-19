@@ -17960,3 +17960,34 @@ https://github.com/aoci-spec/aoci-code
 
 Neon和Argon哪个更适合专业写作，有漏油试了吗
 
+
+*****
+
+####  mitzvah  
+##### 20706#       发表于 2026-11-19 09:48
+
+ 本帖最后由 mitzvah 于 2026-11-19 09:49 编辑 
+
+codebase-memory full 一遍又快又好，虽然也可能有盲区但是很多补盲还是更依赖动态工具，静态工具再加码意义不大了，比起换工具，还是彻底贯彻grep，rg 盲目裸检索与sed awk瞎整片读的禁令来的好，现在的代理内化的盲目裸匹配太厉害了
+
+
+*****
+
+####  mitzvah  
+##### 20707#       发表于 2026-11-19 09:53
+
+提供再多的工具 ，代理还是放着不管瞎裸rg ，grep没用的，同样的1017，同样的项目环境，静态工具指导下能做介入式因果推断，构建独立反事实副本验证因果假设，一旦开始裸regp瞬间变成弱智，连构建都做不到
+
+
+*****
+
+####  陈八尺  
+##### 20708#       发表于 2026-11-19 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526742&amp;ptid=2275806" target="_blank">一牧月 发表于 2026-11-19 09:36</a>
+
+6.2astra这nsfw尺度有点哈人，不用任何破甲直接在客户端里可以真枪真刀的，奥特曼叔叔我怕了
+
+—— 来自 HU ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">前有A畜后有谷大善人，面对压力奥特曼不会真狗急跳墙又想搞成人版chatgpt了吧？
+
