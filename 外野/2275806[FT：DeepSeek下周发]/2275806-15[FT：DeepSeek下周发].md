@@ -526,3 +526,52 @@ iOS 美区三个月 15 刀，应该是要用新号开，不过只有 Pro，Ultra
 金融时报：字节跳动与三星晶圆代工的合作项目已经暂停，昆仑的合作项目也同样暂停。目前，小米在台积电的消 ...</blockquote>
 还能再见吗，玄戒/mimo
 
+
+*****
+
+####  lactone  
+##### 20767#       发表于 2026-11-19 20:09
+
+不是，美国商务部是行政口吧，怎么国会变天了商务部这么快就变了？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lactone  
+##### 20768#       发表于 2026-11-19 20:09
+
+不是，美国商务部是行政口吧，怎么国会变天了商务部这么快就变了？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  lactone  
+##### 20767#       发表于 2026-11-19 20:09
+
+不是，美国商务部是行政口吧，怎么国会变天了商务部这么快就变了？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lactone  
+##### 20768#       发表于 2026-11-19 20:09
+
+不是，美国商务部是行政口吧，怎么国会变天了商务部这么快就变了？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 20769#       发表于 2026-11-19 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529777&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-19 20:09</a>
+不是，美国商务部是行政口吧，怎么国会变天了商务部这么快就变了？
+
+—— 来自 vivo V2505A, Android 17,  ...</blockquote>
+卢秃被鲁彪和贝嫂子逼到墙角了，断尾求生<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
