@@ -615,3 +615,28 @@ iOS 美区三个月 15 刀，应该是要用新号开，不过只有 Pro，Ultra
 
 哈基米低价区好像全灭了 情报站显示还有个孟加拉 但是没那边的小号  大鳝人你变了<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 20774#       发表于 2026-11-19 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529952&amp;ptid=2275806" target="_blank">squallx2 发表于 2026-11-19 20:54</a>
+
+哈基米低价区好像全灭了 情报站显示还有个孟加拉 但是没那边的小号  大鳝人你变了 ...</blockquote>
+“灰产大规模蒸馏攻击”（实际上就是中转站搞了无成本号池顺便卖数据）
+
+还要继续收紧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sdefrfg1  
+##### 20775#       发表于 2026-11-19 21:02
+
+Gpt 到底是怎么越做越回去的<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+6.2感觉连5.5opus都打不过，各种粗心各种缺细节，就说话说的滴水不漏是吧
+什么时候才能摆脱A/<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
