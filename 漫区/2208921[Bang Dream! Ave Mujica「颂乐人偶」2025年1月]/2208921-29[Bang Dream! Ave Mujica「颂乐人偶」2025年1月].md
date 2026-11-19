@@ -1109,3 +1109,110 @@ BanGDream! bilibili官方：@BanGDream_CN
 
        [https://www.bilibili.com/opus/1272271559128514567](https://www.bilibili.com/opus/1272271559128514567)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42224#       发表于 2026-11-19 20:31
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/19/203112f9sssfx1yvf2ysvf.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-19_20-29-56.png</strong> (1.48 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 20:31 上传
+
+       [https://x.com/bang_dream_info/status/2123392092789436902](https://x.com/bang_dream_info/status/2123392092789436902)
+
+       [https://www.youtube.com/watch?v=a0gYZq75AbU](https://www.youtube.com/watch?v=a0gYZq75AbU)
+
+       <[strong>【官方live视频】Ave Mujica 5th LIVE「Nova Historia」【期间限定】</strong>](https://www.bilibili.com/video/BV1B8sb6kEpH) <blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/19/203132fm600z000lb9m0qz.png" referrerpolicy="no-referrer">
+
+<strong>c76819a92f59e20b06616ea993f07f860c3350ab.png</strong> (403.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 20:31 上传
+
+2025年7月26日（周六）・27日（周日）于LaLa arena TOKYO-BAY举办的
+
+Ave Mujica 5th LIVE「Nova Historia」，DAY1全场演出影像将限时公开。
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+Ave Mujica 8th LIVE「Discrimen Fati」
+
+2027年5月29日（周六）・30日（周日）K Arena横滨
+
+Ave Mujica迄今为止规模最大的单独LIVE 2DAYS公演。
+
+门票最速先行抽选申请券将封入Ave Mujica Mini Album「神の名を」初回生产分中。
+
+详情请见：[https://bang-dream.com/events/avemujica-8th/](https://bang-dream.com/events/avemujica-8th/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+TV动画「BanG Dream! MyGO!!!!! // Ave Mujica」
+
+将于2027年1月8日（周五）正式放送。
+
+敬请期待后续情报！
+
+详情请见：[https://anime.bang-dream.com/mygo-avemujica/](https://anime.bang-dream.com/mygo-avemujica/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica 4th Single 发售纪念LIVE「Anima Incorrupta」
+
+2027年2月27日（周六） duo MUSIC EXCHANGE
+
+为纪念Ave Mujica 4th Single发售而举办的特别LIVE。
+
+门票抽选申请券将封入Ave Mujica 4th Single初回生产分中。
+
+详情请见：[https://bang-dream.com/events/avemujica_anima-incorrupta/](https://bang-dream.com/events/avemujica_anima-incorrupta/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+「EVANESCENCE 2026 JAPAN」
+
+2026年12月1日（周二）・2日（周三） SGC HALL ARIAKE
+
+2026年12月4日（周五） Zepp Osaka Bayside
+
+BanG Dream!旗下乐队Ave Mujica将作为助演嘉宾出演。
+
+详情请见：[https://www.creativeman.co.jp/artist/2026/12evanescence/](https://www.creativeman.co.jp/artist/2026/12evanescence/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica Mini Album「神の名を」
+
+现正好评发售中。
+
+Blu-ray附生产限定版将收录Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- DAY2演出影像。
+
+限量生产5,000张的特装版除上述影像外，还将收录同场LIVE的DAY1演出影像。
+
+详情请见：[https://bang-dream.com/discographies/4238/](https://bang-dream.com/discographies/4238/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+◇ BanG Dream!
+
+官方网站：[https://bang-dream.com/](https://bang-dream.com/)
+
+官方bilibili：@BanGDream_CN
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+#BanGDream# #AveMujica#</blockquote>
+       [https://www.bilibili.com/video/BV1B8sb6kEpH](https://www.bilibili.com/video/BV1B8sb6kEpH)
+
