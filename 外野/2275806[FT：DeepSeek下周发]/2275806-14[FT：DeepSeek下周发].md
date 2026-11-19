@@ -17991,3 +17991,55 @@ codebase-memory full 一遍又快又好，虽然也可能有盲区但是很多�
 —— 来自 HU ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">前有A畜后有谷大善人，面对压力奥特曼不会真狗急跳墙又想搞成人版chatgpt了吧？
 
+
+*****
+
+####  warlock228  
+##### 20709#       发表于 2026-11-19 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526876&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-11-19 09:56</a>
+
+前有A畜后有谷大善人，面对压力奥特曼不会真狗急跳墙又想搞成人版chatgpt了吧？ ...</blockquote>
+单纯的安全训练训炸了<img src="https://static.stage1st.com/image/smiley/face/159.gif" referrerpolicy="no-referrer">但这是好事<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">据说画图也超薄甲了，只要不喽点什么涩图都能画
+
+*****
+
+####  zyuco  
+##### 20710#       发表于 2026-11-19 10:11
+
+AI Studio 上真的上线了这个周期表选择器<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看url
+
+<img src="https://img.stage1st.com/forum/202611/18/181125cape955unw055ku0.png" referrerpolicy="no-referrer">
+
+<strong>a6de7ea8a76b1726109f7f94aadd38a2.png</strong> (116.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 10:11 上传
+
+
+*****
+
+####  洛拉斯  
+##### 20711#       发表于 2026-11-19 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526752&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-11-19 09:37</a>
+
+最近看到又出了一个说是可以帮助模型快速理解大量代码的MCP工具
+
+https://github.com/aoci-spec/aoci-code
+
+ ...</blockquote>
+这个适合接手别人的仓库的时候用吧
+
+我从头开始做的项目，每次完成一个阶段都会让ai留下说明文档，帮助下一轮ai接手
+
+*****
+
+####  lactone  
+##### 20712#       发表于 2026-11-19 10:14
+
+我是不明白，只要不搞恋童癖，一般的hs在美国又不违法，为啥都不搞<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
