@@ -112,3 +112,21 @@
 
 时间差不多咯~
 
+
+*****
+
+####  manyin1  
+##### 969#       发表于 2026-11-19 16:41
+
+AI重置版真的可能比磨洋工版快都有可能<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  三级怪兽  
+##### 970#       发表于 2026-11-19 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70528521&amp;ptid=2093296" target="_blank">FBC档案部专员 发表于 2026-11-19 15:17</a>
+
+那么喜欢在xhs宣发就应该提前避雷了</blockquote>
+主要是这游戏里宅男阴湿段子不少，也算是特色了，这要删了，估计除了突然冒出来的”上周的“”理中客“”老玩家“，基本都不买账
+
