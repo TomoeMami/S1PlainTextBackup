@@ -388,3 +388,41 @@ ai用ps7能达到bash的丝滑吗？
 法棍是啥？</blockquote>
 mistral的套餐
 
+
+*****
+
+####  月海的秋鸟  
+##### 20755#       发表于 2026-11-19 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70528591&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-19 15:30</a>
+
+大肥鱼的道德感确实很低，我看有人说手机可以临时root，重启失效。我想让gpt帮忙临时root下，干着干着发现 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">都不用用户提 主动帮你逆向的含金量
+
+
+*****
+
+####  bartholo4  
+##### 20756#       发表于 2026-11-19 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529054&amp;ptid=2275806" target="_blank">静哮苍穹 发表于 2026-11-19 17:02</a>
+这个CASE之前分享过吗</blockquote>
+我不记得在哪里看到的
+然后让碳基米给我找出来的
+它反正说一半是画草原上的四足动物
+但雄狮的鬃毛 步态都更考验模型的能力
+
+—— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  小妻水亚美  
+##### 20757#       发表于 2026-11-19 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70528763&amp;ptid=2275806" target="_blank">zypyong 发表于 2026-11-19 15:59</a>
+carbon真是现在最强模型了吧。 体验了一下，感觉甚至比fable强。 谷歌有算力落后这么多都追上来了。 ...</blockquote>
+还有他手头数据多啊
+
+—— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
