@@ -13825,3 +13825,15 @@ twi:@cdgm000
 战争篇玩命砸战技啊，反正是女王的家当，多带几把武器<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 蕾达走舞娘的话够用就成了，又不用你去当闪避t抗线，唱歌跳舞都忙不过来。
 
+
+*****
+
+####  Nez  
+##### 8693#       发表于 2026-11-20 03:27
+
+255小时终于一周目通关了，美美等dlc了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+总体来说还是很满意的，饱受诟病的第三章也玩得挺开心，大地图分兵拆门玩出了战略指挥的感觉，刷技能熟练度也觉得时间不够
+
+最大的遗憾就是刷完牢霸都不够看了，只能寄希望于超难了
+
