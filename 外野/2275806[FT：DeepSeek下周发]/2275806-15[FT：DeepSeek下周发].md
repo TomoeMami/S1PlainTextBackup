@@ -859,3 +859,37 @@ carbon先在和neon拉不开差距
 
 Amd又被指责通共了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 20796#       发表于 2026-11-20 00:18
+
+我其实有点不理解，模型部署需要很长时间吗？按理说哪怕不搞持续学习，一边训练一边更新权重，做到周更也不难吧，为啥没人尝试一下
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  gawain  
+##### 20797#       发表于 2026-11-20 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530679&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-20 00:16</a>
+Amd又被指责通共了</blockquote>
+问题是amd真通共啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Alce79  
+##### 20798#       发表于 2026-11-20 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529778&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-19 20:09</a>
+
+不是，美国商务部是行政口吧，怎么国会变天了商务部这么快就变了？
+
+—— 来自 vivo V2505A, Android 17,  ...</blockquote>
+芯片管制主导权是两党斗争核心，而鲁比奥本来就是对华严格限制起家的，当国务卿前都搞多少次提案了。
+
