@@ -133,3 +133,13 @@ ai群是这个
 
 —— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  蜇灵  
+##### 20730#       发表于 2026-11-19 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526859&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-11-19 09:53</a>
+提供再多的工具 ，代理还是放着不管瞎裸rg ，grep没用的，同样的1017，同样的项目环境，裸grep禁令和静态工 ...</blockquote>
+有没有推荐的插件和全局指令？
+
