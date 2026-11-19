@@ -13620,3 +13620,35 @@ twi:@cdgm000
 
 除了转职考试跳过，还有用低级职业让全部随机数不达标来重抽之类的，被AI反推攻破加点秘密后感觉这个设置也挺恶心的，有的人这辈子就是一张烂表
 
+
+*****
+
+####  Antidote丶  
+##### 8680#       发表于 2026-11-19 22:12
+
+我这迪哥养的有点废了，这随机加点是真难受呀。米妈初音都比他快
+
+<img src="https://img.stage1st.com/forum/202611/19/221222dtttx22iltxtcodx.png" referrerpolicy="no-referrer">
+
+<strong>61893b47-5ca4-407b-be16-c3f1c9be3333.png</strong> (395.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 22:12 上传
+
+<img src="https://img.stage1st.com/forum/202611/19/221222ux2cf2f0e0188fhj.png" referrerpolicy="no-referrer">
+
+<strong>aafcd673-b10f-463c-ad70-28df81d0fd05.png</strong> (385.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 22:12 上传
+
+<img src="https://img.stage1st.com/forum/202611/19/221222i7voolyqoo52ns5o.png" referrerpolicy="no-referrer">
+
+<strong>c599e81c-4ab7-4135-87e3-d60a9fd25ea9.png</strong> (399.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 22:12 上传
+
