@@ -1002,3 +1002,251 @@ GLM每次都是带头涨价的，价格方面我不报任何期待
 
 不过GLM系列模型一向都是很好的all-rounder，我比较期待能在编码以外的任务有所表现
 
+
+*****
+
+####  飞剪号  
+##### 20808#       发表于 2026-11-19 22:46
+
+谷谷歌歌这套就骗骗外行，顺便和某些狗哨里应外合，吹吹几天更新好几代、实现RSI什么的
+
+*****
+
+####  novem  
+##### 20809#       发表于 2026-11-19 22:51
+
+美国这次给A➗铺路费尽心机啊，活生生又让估值多了几千亿，可惜暂时看不到烟花了
+
+*****
+
+####  startraveller  
+##### 20810#       发表于 2026-11-19 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530358&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-11-19 22:46</a>
+谷谷歌歌这套就骗骗外行，顺便和某些狗哨里应外合，吹吹几天更新好几代、实现RSI什么的 ...</blockquote>
+估计是在饱和式训练，并行训一堆，挑好的发，krypton（carbon下一代）和oxygen（hydrogen下一代）也在路上了。卡多就是莽。
+
+*****
+
+####  飞剪号  
+##### 20811#       发表于 2026-11-19 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530453&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-19 23:12</a>
+
+估计是在饱和式训练，并行训一堆，挑好的发，krypton（carbon下一代）和oxygen（hydrogen下一代）也在路 ...</blockquote>
+如果是这样，对算力制胜论反而是坏消息啊，堆算力只能让同一锅训出来的模变多，尚不能保证模型的实力有质的飞跃，仿佛看到多炮塔坦克招摇过市，但未来属于单炮管的主战坦克
+
+*****
+
+####  lactone  
+##### 20812#       发表于 2026-11-19 23:29
+
+ 本帖最后由 lactone 于 2026-11-19 23:32 编辑 
+
+如果真是饱和式训练，一锅出来的，我感觉argon就不该推出
+
+而且这个时间表很奇怪
+
+carbon和argon都是先公开跑分，然后熬了两周才上线，感觉没活硬整
+
+hydrogen和neon反而直接上了
+
+不过按照谷歌自己的说法，淘汰argon后自己的模型也就三档
+
+a%和o%都有四档，所以短期内还会发一个对标luna和haiku的
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  bartholo4  
+##### 20813#       发表于 2026-11-19 23:57
+
+carbon先在和neon拉不开差距
+
+应该会上一个更猛的吧
+
+有可能1130，carbon打折结束直接上Krypton
+
+*****
+
+####  startraveller  
+##### 20814#       发表于 2026-11-20 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530531&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-19 23:29</a>
+如果真是饱和式训练，一锅出来的，我感觉argon就不该推出
+
+而且这个时间表很奇怪</blockquote>
+好像前几天有个helix的flash-lite在arena来着
+
+*****
+
+####  startraveller  
+##### 20815#       发表于 2026-11-20 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530507&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-11-19 23:22</a>
+如果是这样，对算力制胜论反而是坏消息啊，堆算力只能让同一锅训出来的模变多，尚不能保证模型的实力有质 ...</blockquote>
+小步快跑……和自己比的话，3.8 flash吃尾气到4 argon看到点车尾灯，到现在碳氖氢直接挑战sota，也就两个月不到，还有在路上的，还是很猛的。
+
+*****
+
+####  璇瑢子R  
+##### 20816#       发表于 2026-11-20 00:13
+
+现在能说明谷歌夏天赶走的那几个老资历就是罪魁祸首吧。
+
+不是做不出好模型，是人的问题
+
+*****
+
+####  Promeus  
+##### 20817#       发表于 2026-11-20 00:16
+
+Amd又被指责通共了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 20818#       发表于 2026-11-20 00:18
+
+ 本帖最后由 lactone 于 2026-11-20 00:20 编辑 
+
+我其实有点不理解，模型部署需要很长时间吗？按理说哪怕不搞持续学习，一边训练一边更新权重，做到周更也不难吧，为啥没人尝试一下
+
+好像也就qwen的某版preview之前搞了一次按天进化
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  gawain  
+##### 20819#       发表于 2026-11-20 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530679&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-20 00:16</a>
+Amd又被指责通共了</blockquote>
+问题是amd真通共啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Alce79  
+##### 20820#       发表于 2026-11-20 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529778&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-19 20:09</a>
+
+不是，美国商务部是行政口吧，怎么国会变天了商务部这么快就变了？
+
+—— 来自 vivo V2505A, Android 17,  ...</blockquote>
+芯片管制主导权是两党斗争核心，而鲁比奥本来就是对华严格限制起家的，当国务卿前都搞多少次提案了。
+
+*****
+
+####  千秋难诉  
+##### 20821#       发表于 2026-11-20 00:45
+
+将军家AI<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/20/004145rvomnnm2xno9qark.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-20 00:41 上传
+
+<img src="https://img.stage1st.com/forum/202611/20/004331cp1hr9nxpcq294xh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (196.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-20 00:43 上传
+
+*****
+
+####  lactone  
+##### 20822#       发表于 2026-11-20 01:01
+
+泥漏没人讨论美国那边发的讨a%檄文吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BRT-AN00, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  qwased  
+##### 20823#       发表于 2026-11-20 01:05
+
+GLM5.5开始暗搓搓宣发了，可能真的明天发
+
+*****
+
+####  孤狼arcueid  
+##### 20824#       发表于 2026-11-20 01:16
+
+jio用不了4那些模型感觉太鸡肋了
+等等日区买个pro好了
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 17 Ultra
+
+*****
+
+####  十六夜鬼月  
+##### 20825#       发表于 2026-11-20 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530043&amp;ptid=2275806" target="_blank">holmesjerry 发表于 2026-11-19 21:18</a>
+
+那太遥远了
+
+同等制作能力（euv级别，大概台积电n5或者三星4nm水平的）国产产能起码2032年</blockquote>
+看明年满血版韬芯片威力如何吧，如果能有效大幅度提升并且可以继续堆叠的话，还是有希望这几年咬住不落后太多的。
+
+*****
+
+####  StrangerJ  
+##### 20826#       发表于 2026-11-20 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530771&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-20 01:01</a>
+泥漏没人讨论美国那边发的讨a%檄文吗
+
+—— 来自 HONOR BRT-AN00, Android 17, 鹅球 v3.5.99-alpha ...</blockquote>
+啥檄文？
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  Vneeto  
+##### 20827#       发表于 2026-11-20 01:47
+
+没啥关注，a\是今晚上市？那正好明天起来看看冷热。
+
+*****
+
+####  qwased  
+##### 20828#       发表于 2026-11-20 02:10
+
+牢唐开始造势神秘模型了，这是要正面抗击A/啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下前端和氢鸡米差不多或者略强，价格合理的话应该不错
+
+*****
+
+####  andychen  
+##### 20829#       发表于 2026-11-20 05:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530887&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-20 02:10</a>
+
+牢唐开始造势神秘模型了，这是要正面抗击A/啊看了下前端和氢鸡米差不多或者略强，价格合理的话应该不错 ...</blockquote>
+GLM每次都是带头涨价的，价格方面我不报任何期待
+
+不过GLM系列模型一向都是很好的all-rounder，我比较期待能在编码以外的任务有所表现
+
+*****
+
+####  andychen  
+##### 20830#       发表于 2026-11-20 05:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529952&amp;ptid=2275806" target="_blank">squallx2 发表于 2026-11-19 20:54</a>
+
+哈基米低价区好像全灭了 情报站显示还有个孟加拉 但是没那边的小号  大鳝人你变了 ...</blockquote>
+土区pro还是稍微有点优惠的，大概8折的样子。ultra刚调完价已经不行了
+
