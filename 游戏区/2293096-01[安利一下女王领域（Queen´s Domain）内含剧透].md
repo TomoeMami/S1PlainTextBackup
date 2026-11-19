@@ -6964,3 +6964,55 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 晕不晕啊这个游戏，玩第一人称都挺晕的
 
+
+*****
+
+####  nukejoker  
+##### 565#       发表于 2026-11-19 14:35
+
+ 本帖最后由 nukejoker 于 2026-11-19 14:38 编辑 
+
+重复造了个轮子。
+
+最近打完影之刃0之后接着开荒女王魔域。
+
+习惯之下买了PS5版。然后苦于各种迷路，虽然各种**做的离线地图都挺到位的。但是不想切换电脑也打不了mod，所以干脆自己上手用大肥鱼捏了个安卓版的离线地图。
+[https://queens-domain.pure-data.wiki/en/](https://queens-domain.pure-data.wiki/en/)
+
+基于该网站数据，感谢原制作人。
+
+支持竖屏横屏操作，优化了移动速度，增加了书签功能和传送功能，靠近坐标点10米范围后可以直接显示坐标点内容。
+
+试了下还是挺方便查看的。
+
+通过网盘分享的文件：女王魔域地图-v1.03.apk
+
+链接: [https://pan.baidu.com/s/1rHjUbg-B98dTP3T2rjPMig?pwd=e5up](https://pan.baidu.com/s/1rHjUbg-B98dTP3T2rjPMig?pwd=e5up) 提取码: e5up 
+
+--来自百度网盘超级会员v7的分享
+
+<img src="https://img.stage1st.com/forum/202611/19/143736kmszqufiml7srucy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (497.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 14:37 上传
+
+<img src="https://img.stage1st.com/forum/202611/19/143800gctlstfplgzmdall.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (447.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 14:38 上传
+
+2e18e7d9950503821add12f24d9deda9.jpeg
+(390.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 14:37 上传
+
+<img src="https://img.stage1st.com/forum/202611/19/143721sabtt92etwybleso.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
