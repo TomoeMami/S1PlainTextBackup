@@ -232,3 +232,19 @@ https://mp.weixin.qq.com/s/gyCaumiBG8DqFB841ETdxg
 
 [论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  バーチャルS1er  
+##### 20739#       发表于 2026-11-19 14:51
+
+livebench上来看的话，两个gpt 6.2模型都是降本为主，智能没有什么显著提升
+
+
+*****
+
+####  バーチャルS1er  
+##### 20740#       发表于 2026-11-19 14:57
+
+怎么哈基米学生pro能用4N 不能用4C，看价格4N更贵啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
