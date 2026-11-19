@@ -456,3 +456,11 @@ diversity又是可以被tune的 所以这些巨模型真的就像恐龙一样。
 
 — from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  simonouozy  
+##### 20760#       发表于 2026-11-19 18:22
+
+现在便宜方便试用哈基米新模型的方案是啥，不想用大号原价订阅
+
