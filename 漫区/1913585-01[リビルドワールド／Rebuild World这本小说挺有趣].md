@@ -30,3 +30,12 @@
 
 差不多，应该是要进最终迷宫了，虽然下卷预告完全没有日期<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  redsouris  
+##### 564#       发表于 2026-11-19 08:25
+
+克洛伊相比原版算善终了，待遇翻了几倍
+对灭弹感觉威力不够了，不知道会不会有更厉害的
+

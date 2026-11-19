@@ -17810,3 +17810,17 @@ Antigravity下用Neon + High做个鹈鹕骑车
 
 ——来自 NX789J 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  zhongjie  
+##### 20692#       发表于 2026-11-19 08:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526384&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-11-19 08:16</a>
+简单写了rp，neon应该是蒸馏出来的模型。
+写的内容算是比argon差点(价格是argon原价四分之三)，回复巨快， ...</blockquote>
+说是neon有八股，实际怎么样？
+让它写创意，有好点子吗？
+
+—— 来自 HONOR WKL-AN80, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
