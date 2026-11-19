@@ -13607,3 +13607,16 @@ twi:@cdgm000
 
 1级舞娘升到33级有4次没加速度，90成长率救不了脸黑<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宿  
+##### 8679#       发表于 2026-11-19 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70527476&amp;ptid=2261859" target="_blank">未熟串烧 发表于 2026-11-19 11:36</a>
+
+1级舞娘升到33级有4次没加速度，90成长率救不了脸黑</blockquote>
+不是解包知道是有一套恶心的随机数表了嘛
+
+除了转职考试跳过，还有用低级职业让全部随机数不达标来重抽之类的，被AI反推攻破加点秘密后感觉这个设置也挺恶心的，有的人这辈子就是一张烂表
+
