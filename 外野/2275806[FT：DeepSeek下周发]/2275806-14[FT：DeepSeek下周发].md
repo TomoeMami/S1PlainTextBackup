@@ -17863,3 +17863,37 @@ Antigravity下用Neon + High做个鹈鹕骑车
 
 有一说一吧，Neon本身是个定价、速度、性能三维不符合传统意义上“越贵=越慢=越强”的向上阶梯的，有点像Opus 5.5跟旧Fable的区别。
 
+
+*****
+
+####  knnknn  
+##### 20696#       发表于 2026-11-19 08:59
+
+不要啊，难道我还要继续适应氖八股吗。<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  warlock228  
+##### 20697#       发表于 2026-11-19 09:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526324&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-11-19 07:51</a>
+
+求求Gemini不要再tm发模型和奇怪名字了，谁记得清啊。Cluade都是Fable这个名字比较好记才有印象的，不然Son ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  matthewsteel  
+##### 20698#       发表于 2026-11-19 09:02
+
+太难受了，20刀的codex，刚好不够用，再买一个google20刀感觉有些浪费了。
+
+
+*****
+
+####  白日依山尽  
+##### 20699#       发表于 2026-11-19 09:06
+
+氖创意性不足，但是它直接找出了上个月氩设定的长文稿中的漏洞，还锐评氩的设定充满二次元女频风格，和说的严肃风格不符。
+
