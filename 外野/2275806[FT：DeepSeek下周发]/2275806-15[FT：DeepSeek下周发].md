@@ -989,3 +989,16 @@ jio用不了4那些模型感觉太鸡肋了
 
 牢唐开始造势神秘模型了，这是要正面抗击A/啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下前端和氢鸡米差不多或者略强，价格合理的话应该不错
 
+
+*****
+
+####  andychen  
+##### 20807#       发表于 2026-11-20 05:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530887&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-20 02:10</a>
+
+牢唐开始造势神秘模型了，这是要正面抗击A/啊看了下前端和氢鸡米差不多或者略强，价格合理的话应该不错 ...</blockquote>
+GLM每次都是带头涨价的，价格方面我不报任何期待
+
+不过GLM系列模型一向都是很好的all-rounder，我比较期待能在编码以外的任务有所表现
+
