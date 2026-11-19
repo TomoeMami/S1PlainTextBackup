@@ -702,3 +702,24 @@ google 的人说后面还有
 
 真是没想到
 
+
+*****
+
+####  陈八尺  
+##### 20781#       发表于 2026-11-19 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530126&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-11-19 21:42</a>
+
+neon 是真好用吧我说
+
+google 的人说后面还有</blockquote>
+毕竟有钱有人有卡有数据，只要内部思想一统一，做起来并不难
+
+
+*****
+
+####  aiyouo  
+##### 20782#       发表于 2026-11-19 22:25
+
+刚刚刷微博才发现今晚a/ ipo啊，不知道deepseek会不会有大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
