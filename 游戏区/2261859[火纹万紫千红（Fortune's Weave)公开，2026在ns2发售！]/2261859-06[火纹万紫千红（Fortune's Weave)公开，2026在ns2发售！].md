@@ -13699,3 +13699,35 @@ twi:@cdgm000
 其实直接走两边可以不引导JY怪</blockquote>
 主要是后面会不断刷新两管血的飞龙太难处理了，只能打合流速攻。走两边不会刷出来吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  创始’’’天翔  
+##### 8684#       发表于 2026-11-19 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530415&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-11-19 23:00</a>
+
+其实直接走两边可以不引导JY怪</blockquote>
+主要是后面会不断刷新两管血的飞龙太难处理了，只能打合流速攻。走两边不会刷出来吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jabeck  
+##### 8685#       发表于 2026-11-19 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530426&amp;ptid=2261859" target="_blank">创始’’’天翔 发表于 2026-11-19 23:03</a>
+
+主要是后面会不断刷新两管血的飞龙太难处理了，只能打合流速攻。走两边不会刷出来吗 ...</blockquote>
+刷增援是第九回合开始刷。走两边除非你打撤退点的怪否则只要不进jy怪范围他们就不来打你。
+
+*****
+
+####  索非亚  
+##### 8686#       发表于 2026-11-19 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530426&amp;ptid=2261859" target="_blank">创始’’’天翔 发表于 2026-11-19 23:03</a>
+
+主要是后面会不断刷新两管血的飞龙太难处理了，只能打合流速攻。走两边不会刷出来吗 ...</blockquote>
+简单点就雷达+护卫（古圣）两人贴着墙往下走，后边跟个远程奶适当补补，其他人原地待机就好。路上也就4、5个敌人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

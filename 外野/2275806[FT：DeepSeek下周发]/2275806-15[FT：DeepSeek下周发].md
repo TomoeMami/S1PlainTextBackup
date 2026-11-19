@@ -770,3 +770,13 @@ google 的人说后面还有</blockquote>
 
 美国这次给A➗铺路费尽心机啊，活生生又让估值多了几千亿，可惜暂时看不到烟花了
 
+
+*****
+
+####  startraveller  
+##### 20788#       发表于 2026-11-19 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530358&amp;ptid=2275806" target="_blank">飞剪号 发表于 2026-11-19 22:46</a>
+谷谷歌歌这套就骗骗外行，顺便和某些狗哨里应外合，吹吹几天更新好几代、实现RSI什么的 ...</blockquote>
+估计是在饱和式训练，并行训一堆，挑好的发，krypton（carbon下一代）和oxygen（hydrogen下一代）也在路上了。卡多就是莽。
+
