@@ -791,3 +791,19 @@ google 的人说后面还有</blockquote>
 估计是在饱和式训练，并行训一堆，挑好的发，krypton（carbon下一代）和oxygen（hydrogen下一代）也在路 ...</blockquote>
 如果是这样，对算力制胜论反而是坏消息啊，堆算力只能让同一锅训出来的模变多，尚不能保证模型的实力有质的飞跃，仿佛看到多炮塔坦克招摇过市，但未来属于单炮管的主战坦克
 
+
+*****
+
+####  lactone  
+##### 20790#       发表于 2026-11-19 23:29
+
+如果真是饱和式训练，我感觉argon就不该推出
+
+而且这个时间表很奇怪
+
+carbon和argon都是先公开跑分，然后熬了两周才上线
+
+hydrogen和neon反而直接上了
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

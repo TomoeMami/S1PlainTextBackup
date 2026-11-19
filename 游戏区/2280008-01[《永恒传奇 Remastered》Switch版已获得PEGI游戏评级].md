@@ -96,3 +96,14 @@ PS时，老头超简单。
 
 看着攻略打完一周目，发现少了一个透镜。通关完又照着攻略找了一遍发现能拿的全都拿了。然后通过读档确认了，缺的是本作唯一限时限时透镜，梅露蒂家桌子右侧的那个，后面剧情挨门被炸了后场景变了，就拿不到了。<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">下次再复刻2D传说准备拿NS打了，没成就就不用整这些有的没的了。
 
+
+*****
+
+####  杨松  
+##### 387#       发表于 2026-11-19 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525182&amp;ptid=2280008" target="_blank">Xenor 发表于 2026-11-18 20:09</a>
+
+永恒重置成这样子已经对深渊重置不抱任何幻想了难梦公已尽力</blockquote>
+感觉深渊就算重制了画面也比不了2019年的薄暮
+
