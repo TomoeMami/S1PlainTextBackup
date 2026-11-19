@@ -275,3 +275,11 @@ livebench上来看的话，两个gpt 6.2模型都是降本为主，智能没有�
 
 发现Jev不能直连了，unavailable in this region (451)，得挂梯子用
 
+
+*****
+
+####  love4aids  
+##### 20744#       发表于 2026-11-19 15:30
+
+大肥鱼的道德感确实很低，我看有人说手机可以临时root，重启失效。我想让gpt帮忙临时root下，干着干着发现是利用漏洞，直接停止了。deepseek完全没有这个顾虑，先问能不能官方解锁，我说没有官方通道后就自己吭哧吭哧的开始干了，搜到了别人的成功经验就开始复刻，道德感确实很低<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
