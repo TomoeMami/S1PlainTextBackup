@@ -283,3 +283,25 @@ livebench上来看的话，两个gpt 6.2模型都是降本为主，智能没有�
 
 大肥鱼的道德感确实很低，我看有人说手机可以临时root，重启失效。我想让gpt帮忙临时root下，干着干着发现是利用漏洞，直接停止了。deepseek完全没有这个顾虑，先问能不能官方解锁，我说没有官方通道后就自己吭哧吭哧的开始干了，搜到了别人的成功经验就开始复刻，道德感确实很低<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雷猴雷猴  
+##### 20745#       发表于 2026-11-19 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70528591&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-19 15:30</a>
+
+大肥鱼的道德感确实很低，我看有人说手机可以临时root，重启失效。我想让gpt帮忙临时root下，干着干着发现 ...</blockquote>
+最后成功了吗？
+
+
+*****
+
+####  love4aids  
+##### 20746#       发表于 2026-11-19 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70528642&amp;ptid=2275806" target="_blank">雷猴雷猴 发表于 2026-11-19 15:40</a>
+
+最后成功了吗？</blockquote>
+成功了，我的手机是小米17promax，刚好有人放出怎么root的脚本
+
