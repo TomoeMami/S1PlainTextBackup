@@ -18080,3 +18080,18 @@ R15到R17之间，上两点不明着漏就行
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  紧那罗  
+##### 20716#       发表于 2026-11-19 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526975&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-19 10:13</a>
+这个适合接手别人的仓库的时候用吧
+
+我从头开始做的项目，每次完成一个阶段都会让ai留下说明文档，帮助下 ...</blockquote>
+理论上和人类开发者一样，有 lsp 总归能省点脑子/token。
+当然我觉得现阶段一线大模型在理解代码上已经完全没有瓶颈了，其实不用太在意工具是什么。更进一步的工具提升最大的问题在于人类开发者已经没有概念无法共情了，无法感知 AI大人需要什么。
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
