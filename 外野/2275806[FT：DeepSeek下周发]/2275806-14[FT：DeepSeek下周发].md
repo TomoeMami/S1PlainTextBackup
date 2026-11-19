@@ -17759,3 +17759,33 @@ Antigravity下用Neon + High做个鹈鹕骑车
 
 —— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  umamusume  
+##### 20687#       发表于 2026-11-19 07:48
+
+和氢用一个池子 那肯定是用不起
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  泰坦失足  
+##### 20688#       发表于 2026-11-19 07:51
+
+求求Gemini不要再tm发模型和奇怪名字了，谁记得清啊。Cluade都是Fable这个名字比较好记才有印象的，不然Sonnet/Hiku谁是最轻量那个都记不清。Pro，无后缀，Mini，Nano就已经是最好的名字了
+
+
+*****
+
+####  BarricadeMKXX  
+##### 20689#       发表于 2026-11-19 07:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526324&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-11-19 07:51</a>
+求求Gemini不要再tm发模型和奇怪名字了，谁记得清啊。Cluade都是Fable这个名字比较好记才有印象的，不然Son ...</blockquote>
+还行吧，haiku（俳句）就三行，sonnet十四行
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
