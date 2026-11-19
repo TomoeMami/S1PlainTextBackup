@@ -657,3 +657,24 @@ Gpt 到底是怎么越做越回去的
 
 转投哈基米吧
 
+
+*****
+
+####  holmesjerry  
+##### 20777#       发表于 2026-11-19 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529941&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-19 20:51</a>
+只能说，等国产出来，让这帮傻逼知道什么是“产能过剩”</blockquote>
+那太遥远了
+
+同等制作能力（euv级别，大概台积电n5或者三星4nm水平的）国产产能起码2032年
+
+黄花菜都凉了几遍了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 20778#       发表于 2026-11-19 21:18
+
+哈基米只要解决一下反重力就可以完全替代a/了
+
