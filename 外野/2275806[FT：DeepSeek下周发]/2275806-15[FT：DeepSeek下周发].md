@@ -207,3 +207,28 @@ https://mp.weixin.qq.com/s/gyCaumiBG8DqFB841ETdxg
 
 总参数不好说，但是大概率现在前沿模型的激活参数都已经明显稀疏化。这是推理降本的最直接方式。还笃信人家算力足所以必然是搞大几百b激活的多少刻舟求剑了。
 
+
+*****
+
+####  bartholo4  
+##### 20737#       发表于 2026-11-19 14:43
+
+找到一个测试模型能力挺不错的case
+
+创建一个完全自包含的单文件 HTML 页面，用纯代码（内联 SVG 或 Canvas 2D，不使用任何外部图片或模型素材）绘制一只雄狮在非洲稀树草原上奔跑的循环动画。要求包含：自然协调的四足奔跑步态（注意躯干起伏、鬃毛随风摆动以及脚掌触地时机，避免悬浮滑步）、远景金合欢树与草丛的多层视差滚动，以及播放/暂停和速度调节控件。
+
+不要参考本地和在线资产
+
+猫科动物奔跑，能画很考模型的能力，能看出来明显差异
+
+*****
+
+####  紧那罗  
+##### 20738#       发表于 2026-11-19 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70527995&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-11-19 13:36</a>
+哈吉米的新模型用起来感觉High比GPT的astra要好用很多，额度消耗也更慢。用GPT在一个点上打转两周，前两天 ...</blockquote>
+试试 neon 吧，我感觉对比 carbon 那是又快又好又省
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
