@@ -17928,3 +17928,35 @@ ocg的glm×5的总消耗 但实际消耗都比ds4.1f多啊
 
 似乎这个和codebase-memory原理嗨不太一样，有没有用过的大佬看看哪个更好
 
+
+*****
+
+####  zy450  
+##### 20703#       发表于 2026-11-19 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526752&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-11-19 09:37</a>
+
+最近看到又出了一个说是可以帮助模型快速理解大量代码的MCP工具
+
+https://github.com/aoci-spec/aoci-code
+
+ ...</blockquote>
+早上刚看了介绍，在装，这建立索引巨慢
+
+
+*****
+
+####  warlock228  
+##### 20704#       发表于 2026-11-19 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526552&amp;ptid=2275806" target="_blank">matthewsteel 发表于 2026-11-19 09:02</a>
+太难受了，20刀的codex，刚好不够用，再买一个google20刀感觉有些浪费了。</blockquote>
+买10刀opcg让大肥鱼顶着
+
+*****
+
+####  奥柏伦亲王  
+##### 20705#       发表于 2026-11-19 09:44
+
+Neon和Argon哪个更适合专业写作，有漏油试了吗
+
