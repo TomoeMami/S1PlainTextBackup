@@ -13796,3 +13796,20 @@ twi:@cdgm000
 
 甚至留了两队需要练职业的主力，故意不关门，保证入侵阴兵的数量。
 
+
+*****
+
+####  纯夏  
+##### 8691#       发表于 2026-11-20 01:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530849&amp;ptid=2261859" target="_blank">根正苗红 发表于 2026-11-20 01:36</a>
+
+前两篇花的时间多，救世篇还是毫无强度。没强度倒是可以爽，问题是给你爽的内容太少了。
+
+随便上几个主力无 ...</blockquote>
+所以如果前期刷了太高的属性 打救世篇的确会有很强的不完全燃烧感 
+
+因为根本不够打的 特别是拿到神将职业还没怎么爽呢 就结束了 
+
+我早早打完就封盘等DLC了<img src="https://static.stage1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
