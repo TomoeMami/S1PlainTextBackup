@@ -13652,3 +13652,28 @@ twi:@cdgm000
 
 2026-11-19 22:12 上传
 
+
+*****
+
+####  创始’’’天翔  
+##### 8681#       发表于 2026-11-19 22:54
+
+萨拉米斯真没文字啊，被叫野蛮人好像也怪不了别人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  创始’’’天翔  
+##### 8682#       发表于 2026-11-19 22:56
+
+蕾达战争篇可算过了，最后这关带着一堆练废的角色，硬是打了两天才琢磨出全员存活的打法<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+69278ed7188c32483b7c03870e95303c.jpeg
+(349.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-19 22:55 上传
+
+<img src="https://img.stage1st.com/forum/202611/19/225502jimmqqn6wmozo6fy.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
