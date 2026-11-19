@@ -323,3 +323,13 @@ carbon真是现在最强模型了吧。 体验了一下，感觉甚至比fable�
 
 火星了吗，感觉利好各类agent
 
+
+*****
+
+####  lactone  
+##### 20749#       发表于 2026-11-19 16:13
+
+ai用ps7能达到bash的丝滑吗？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
