@@ -13677,3 +13677,25 @@ twi:@cdgm000
 
 <img src="https://img.stage1st.com/forum/202611/19/225502jimmqqn6wmozo6fy.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jabeck  
+##### 8683#       发表于 2026-11-19 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530403&amp;ptid=2261859" target="_blank">创始’’’天翔 发表于 2026-11-19 22:56</a>
+
+蕾达战争篇可算过了，最后这关带着一堆练废的角色，硬是打了两天才琢磨出全员存活的打法 ...</blockquote>
+其实直接走两边可以不引导JY怪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  创始’’’天翔  
+##### 8684#       发表于 2026-11-19 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530415&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-11-19 23:00</a>
+
+其实直接走两边可以不引导JY怪</blockquote>
+主要是后面会不断刷新两管血的飞龙太难处理了，只能打合流速攻。走两边不会刷出来吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
