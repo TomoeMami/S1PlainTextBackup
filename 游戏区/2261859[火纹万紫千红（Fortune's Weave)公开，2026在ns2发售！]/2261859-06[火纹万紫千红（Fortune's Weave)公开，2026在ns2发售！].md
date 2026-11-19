@@ -13576,3 +13576,19 @@ twi:@cdgm000
 
 我甚至连加护都是残疾的，他全程就是，好棒啊，好开心啊，杀杀杀哈哈哈
 
+
+*****
+
+####  yangchunsiyue  
+##### 8676#       发表于 2026-11-19 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70527208&amp;ptid=2261859" target="_blank">偎 发表于 2026-11-19 10:51</a>
+其实迪哥打不难
+
+当中还能来个小绿小红
+
+我也是迪哥第一条线，就靠精锐直接通关，而且他跑路快，轻松得很好 ...</blockquote>
+我迪哥线也是迪哥一个人开一路，第二章一个人杀穿右边小红那些，然后冲上去杀城里那些<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
