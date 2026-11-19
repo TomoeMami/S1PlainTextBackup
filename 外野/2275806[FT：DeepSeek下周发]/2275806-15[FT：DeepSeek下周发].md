@@ -723,3 +723,34 @@ google 的人说后面还有</blockquote>
 
 刚刚刷微博才发现今晚a/ ipo啊，不知道deepseek会不会有大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 20783#       发表于 2026-11-19 22:28
+
+谷歌再发模型什么定位？小hydrogen？大carbon？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  oct71952  
+##### 20784#       发表于 2026-11-19 22:31
+
+刚用小号开通了哈基米 4.99 美元一个月的 Pro，这下终于不用担心 jio 套餐被封了，可惜 ultra 不搞活动， pro 只能用 neon没有 carbon
+
+
+*****
+
+####  lactone  
+##### 20785#       发表于 2026-11-19 22:36
+
+不是，过去模型发布都是大的小的一起发
+
+当年5.6一口气发三个sol，terra，luna也没人说啥
+谷歌这个套路严格来说发布密度并不高，明显是奔着占头条去的
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
