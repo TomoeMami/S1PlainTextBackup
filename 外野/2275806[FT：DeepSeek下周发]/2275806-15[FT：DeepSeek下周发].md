@@ -160,3 +160,30 @@ ai群是这个
 
 [https://github.com/ptkdLLL/static-dap-socratic](https://github.com/ptkdLLL/static-dap-socratic)
 
+
+*****
+
+####  mitzvah  
+##### 20732#       发表于 2026-11-19 13:30
+
+仓库项目基础上的软件工程自动化最大的难点，按照现在的模型能力而言是提需求的ai用户本身并不了解自己要修改的项目的不变量核心抽象，有的时候会提出完全错配的要求，考虑到就算完全相同的功能的项目，它的核心抽象都可能完全不兼容，比如llama.cpp就跟ds4.c关于图的抽象就完全不同，导致并行性能不一样，人类用户自己不清楚自己的需求是否合理，那现阶段确实很难保证产物达到预期
+
+
+*****
+
+####  The_Ether_  
+##### 20733#       发表于 2026-11-19 13:36
+
+哈吉米的新模型用起来感觉High比GPT的astra要好用很多，额度消耗也更慢。用GPT在一个点上打转两周，前两天免费的ultra蹬carbon很快就指出了一个之前的重要盲点，把问题部分解决了。
+
+现在哈吉米做审查+方法修正，DeepSeek实际操作有限元模型+计算的体验挺好<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 20734#       发表于 2026-11-19 13:36
+
+https://mp.weixin.qq.com/s/gyCaumiBG8DqFB841ETdxg
+
+一个大佬的一些论述(他发的文章被老黄内部转发过)
+
