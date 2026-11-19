@@ -516,3 +516,13 @@ iOS 美区三个月 15 刀，应该是要用新号开，不过只有 Pro，Ultra
 现在便宜方便试用哈基米新模型的方案是啥，不想用大号原价订阅</blockquote>
 开个小号，新账户有三个月低价PRO，进家庭组开分享。
 
+
+*****
+
+####  Nanachi  
+##### 20766#       发表于 2026-11-19 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70529635&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-19 19:21</a>
+金融时报：字节跳动与三星晶圆代工的合作项目已经暂停，昆仑的合作项目也同样暂停。目前，小米在台积电的消 ...</blockquote>
+还能再见吗，玄戒/mimo
+
