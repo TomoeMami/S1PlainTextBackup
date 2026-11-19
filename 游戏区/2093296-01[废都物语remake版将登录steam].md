@@ -78,3 +78,16 @@
 
 拖了这么久确实很难让人有信心啊。。。
 
+
+*****
+
+####  FBC档案部专员  
+##### 966#       发表于 2026-11-19 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70526448&amp;ptid=2093296" target="_blank">三级怪兽 发表于 2026-11-19 08:34</a>
+
+看见跑红薯高强度搞宣发就感觉后面一定会被藤壶搞得一裤裆屎
+
+这游戏里作者的不少怪癖小东西，就看是先被改 ...</blockquote>
+那么喜欢在xhs宣发就应该提前避雷了
+
