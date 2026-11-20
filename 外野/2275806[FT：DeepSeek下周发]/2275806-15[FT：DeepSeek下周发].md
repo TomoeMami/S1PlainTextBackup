@@ -1999,3 +1999,11 @@ Google改billing profile到美国就好了 好像账号里最高级的认证就�
 不知道大家的真实使用感受怎么样？ ...</blockquote>
 不咋滴，我一般当个免费的随手chat用
 
+
+*****
+
+####  北野苍术  
+##### 20898#       发表于 2026-11-20 22:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> Kimi是又挂了么？哎我今晚刷新周额度还没登完呢……
+
