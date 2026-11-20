@@ -1443,3 +1443,17 @@ gestalt 是glm 5.5吗</blockquote>
 
 年初时候还稍微研究了下泛用性的Computer Use，还有基于Chrome debug功能的网页浏览功能，市面上那么多到底哪个是最好用的。好多个人开发者自己开发的这样软件，看不出个道道来，就想等它们中竞争出一个公认好用的再说。结果现在各个大厂都已经原生适配好了。直接在主力agent工具里说一声就行
 
+
+*****
+
+####  小妻水亚美  
+##### 20849#       发表于 2026-11-20 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70531753&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-20 10:18</a>
+唐杰叔叔这次搞不好要拿国模sota了
+
+考虑到美模那边a/拿sota</blockquote>
+我和你说 如果我有智子能监听所有人类并且获取他们的数据，那可以做出一个压缩了人类整个现代文明的ai
+
+—— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
