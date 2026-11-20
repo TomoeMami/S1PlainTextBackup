@@ -14065,3 +14065,14 @@ twi:@cdgm000
 
 没推荐迪哥线开荒是因为，完全没接触过这类游戏的新人开荒期太容易遇上那个时间规划出了问题直接一整章必须重开的惨案了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚发售游戏那会踩雷叫骂的玩家可不少。
 
+
+*****
+
+####  根正苗红  
+##### 8713#       发表于 2026-11-21 02:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70534952&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-11-21 00:56</a>
+我自己是把凯伊线放最后打的，但如果四条线限定只打一次，且凯伊线放最后的话，有个互斥分支任务你是无论 ...</blockquote>
+迪哥线得提醒新人得先去目的地，然后章节结束就自动传送过去了。
+妈的，坑死我了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
