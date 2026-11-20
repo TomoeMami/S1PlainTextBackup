@@ -1372,3 +1372,13 @@ gestalt 是glm 5.5吗
 gestalt 是glm 5.5吗</blockquote>
 大概率是人大高瓴的特调模型<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">因为就叫这个
 
+
+*****
+
+####  xu1985129  
+##### 20842#       发表于 2026-11-20 11:53
+
+坛友们，workbuddy消耗积分太快了怎么办？用专家团做一个简单的爬虫就消耗了我2000多积分，而且积分花光了都没做完
+
+— from HONOR ALP-AN00, Android 14, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
