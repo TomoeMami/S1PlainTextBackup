@@ -1856,3 +1856,14 @@ google 对网络的要求是不是很高。。。我用手机和家里的网都�
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  赤星ビスコ  
+##### 20884#       发表于 2026-11-20 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533748&amp;ptid=2275806" target="_blank">流缨 发表于 2026-11-20 18:24</a>
+酒馆本质拼 prompt 工具，但插件类的工作机制并非如此，还是有很多外挂玩意儿的，而且大量卡依赖脚本、正 ...</blockquote>
+需求是要用antigravity里的模型吧，那也用不了其他工具。简单的就拼prompt然后chat。
+复杂的就许愿让根据人物卡搞个脚本项目呗，然后在antigravity里改prompt，通过以不同参数触发脚本形式来继续。想想确实很折腾
+
