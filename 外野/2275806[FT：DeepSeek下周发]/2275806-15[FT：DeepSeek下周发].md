@@ -2214,3 +2214,28 @@ ds写，然后开个新对话让ds找茬
 
 neon猫文本跟agron比怎么样？
 
+
+*****
+
+####  knnknn  
+##### 20912#       发表于 2026-11-21 02:22
+
+让基米全家做了一下lincos小游戏。
+
+很出人意料的氢基米氖基米氩基米都完全通过了。
+
+Qwen4 Max能解答出物理常数部分，后面的元素也解答出来了，但是最后的目的没解读出来。
+
+Kimi K3.1 Pro能解答出物理常数部分，后面认为无法破解拒绝解答。
+
+肥鱼和GLM在那边试了半天轮转解码解不出就不干了。
+
+直观感受上可能和参数量（或者ngram）有关。
+
+且从哈基米的token速度来看token效率可能挺高的，我觉得前面文章分享的10T500B是个可能的数字。
+
+<img src="https://upload.moonchan.xyz/p.sda1.dev/36/fc2e9dc5c96bda8927371a7d82bbcaa5/image.webp" referrerpolicy="no-referrer">
+<img src="https://upload.moonchan.xyz/p.sda1.dev/36/b0492e147ba4e96eaf25f527aa28ec1f/image.webp" referrerpolicy="no-referrer">
+<img src="https://upload.moonchan.xyz/p.sda1.dev/36/690d275eaf893d42615e6162d8fb281e/image.webp" referrerpolicy="no-referrer">
+<img src="https://upload.moonchan.xyz/p.sda1.dev/36/748837d6b0e158c9db326107c026b79e/image.webp" referrerpolicy="no-referrer">
+
