@@ -1835,3 +1835,14 @@ google 对网络的要求是不是很高。。。我用手机和家里的网都�
 
 怎么qwen4flash和27b还没发
 
+
+*****
+
+####  流缨  
+##### 20882#       发表于 2026-11-20 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533609&amp;ptid=2275806" target="_blank">赤星ビスコ 发表于 2026-11-20 17:42</a>
+如果不在意酒馆前端是可以的，把酒馆代码拉下来作为工作区，让你的任意agent写个工具，把预设和任务卡转 ...</blockquote>
+酒馆本质拼 prompt 工具，但插件类的工作机制并非如此，还是有很多外挂玩意儿的，而且大量卡依赖脚本、正则、循环任务、数据库，不亚于小型工程项目，如果再配生图和 TTS 更是有的折腾
+纯玩卡直接用 TT 就行了，上 harness 舍本逐末    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
