@@ -1345,3 +1345,30 @@ arena的排行这样改一下，就很清晰了
 
 —— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  omnitoken  
+##### 20839#       发表于 2026-11-20 11:32
+
+gestalt 是glm 5.5吗
+
+*****
+
+####  奥柏伦亲王  
+##### 20840#       发表于 2026-11-20 11:32
+
+给一部分像我一样的用户推荐一个用反重力额度的方法，就是dsh-ntr插件，本质上是使用DeepseekHarness的UI去和ACP Agent对话，通过它来使用反重力实际就相当于给反重力CLI套了个DSH的壳（仅限交互界面，推理、工具执行、文件读写这些都是agy在完成，输出结果原样返回到DSH里），我认为是acp类解决方案中最安全的一类了。
+
+当然这个插件基本只能解决反重力桌面版交互和UI恶心的问题，agent干活干一半卡住这类的问题应该是没法解决（虽然我很少碰到）。不过至少我有个趁手的GUI并且不用总是打开谷歌这些垃圾软件了
+
+
+*****
+
+####  Promeus  
+##### 20841#       发表于 2026-11-20 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70532200&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-11-20 11:32</a>
+gestalt 是glm 5.5吗</blockquote>
+大概率是人大高瓴的特调模型<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">因为就叫这个
+
