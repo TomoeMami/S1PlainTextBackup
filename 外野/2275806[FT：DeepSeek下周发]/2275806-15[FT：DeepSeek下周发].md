@@ -1318,3 +1318,30 @@ arena的排行这样改一下，就很清晰了
 
 —— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  BarricadeMKXX  
+##### 20838#       发表于 2026-11-20 10:58
+
+昨晚群里发过之后还真拉到群友上车gemini了
+我说Neon这真挺说人话的对吧
+
+<img src="https://img.stage1st.com/forum/202611/20/105838m83rp3yyje72y1g6.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795143517225_1.webp</strong> (68.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-20 10:58 上传
+
+<img src="https://img.stage1st.com/forum/202611/20/105838bxtnffpp2xfg2kwn.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795143517313_2.webp</strong> (92.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-20 10:58 上传
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
