@@ -1382,3 +1382,13 @@ gestalt 是glm 5.5吗</blockquote>
 
 — from HONOR ALP-AN00, Android 14, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  serj005  
+##### 20843#       发表于 2026-11-20 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70532310&amp;ptid=2275806" target="_blank">xu1985129 发表于 2026-11-20 11:53</a>
+坛友们，workbuddy消耗积分太快了怎么办？用专家团做一个简单的爬虫就消耗了我2000多积分，而且积分花光了 ...</blockquote>
+为啥做爬虫要用专家团<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">普通模式用dsv4.1f满足不了需求吗，正常做个小程序用不了100积分吧
+
