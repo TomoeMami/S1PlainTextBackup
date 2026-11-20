@@ -1962,3 +1962,15 @@ neon用着感觉很强，额度是够的，gemini pro的性价比好高，agy纯
 —— 来自 OnePlus PJZ110, Android 1 ...</blockquote>
 网页版据说智力低一些
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 20895#       发表于 2026-11-20 21:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+Google改billing profile到美国就好了 好像账号里最高级的认证就看这个实在不行在线聊天和客服说一般也行。
+但是 agy看运气 aistudio看ip
+
+— from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
