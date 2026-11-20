@@ -2428,3 +2428,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 <img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">很可怕好吧，后面还有2个剧场版，还有魔夜2，细水长流每次2颗石头，抽了就是赚了
 
+
+*****
+
+####  qixinno1  
+##### 21931#       发表于 2026-11-20 20:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这可是2CD的20充 和4CD的30充别不知足好吧
+
