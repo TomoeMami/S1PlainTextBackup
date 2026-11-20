@@ -1258,3 +1258,13 @@ Blu-ray附生产限定版将收录Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- D
 
        [https://x.com/musicday_ntv/status/2123702903605219837](https://x.com/musicday_ntv/status/2123702903605219837)
 
+
+*****
+
+####  07579394  
+##### 42227#       发表于 2026-11-20 22:33
+
+大型音番来了，突然三次元
+
+高尾又可以找树爱罗合照<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
