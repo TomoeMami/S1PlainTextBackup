@@ -1592,3 +1592,14 @@ glm怎么还不发<img src="https://static.stage1st.com/image/smiley/face2017/12
 什么套餐能用83B？</blockquote>
 （大概是）按席位付钱的企业套餐。管理员没因为token用的太多了找过我。
 
+
+*****
+
+####  LiniN  
+##### 20862#       发表于 2026-11-20 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70532206&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-20 11:32</a>
+
+大概率是人大高瓴的特调模型因为就叫这个，而且那个模型特别明确了专门是基于多模态交互研发的 ...</blockquote>
+匿名模型怎么可能拿真名去测，也就是说最不可能的就是人大的模型
+
