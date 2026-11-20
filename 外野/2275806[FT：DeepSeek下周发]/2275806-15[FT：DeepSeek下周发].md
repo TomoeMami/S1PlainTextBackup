@@ -1761,3 +1761,69 @@ neon我觉得算opus5.5除了前端和游戏领域外的上位替代
 neon我觉得算opus5.5除了前端和游戏领域外的上位替代</blockquote>
 游戏领域是指？
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 20876#       发表于 2026-11-20 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533630&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-11-20 17:49</a>
+
+游戏领域是指？</blockquote>
+做各种游戏的渲染和建模，本身的后端逻辑的话gemini可能还更强
+
+
+*****
+
+####  宅男的爱  
+##### 20877#       发表于 2026-11-20 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533274&amp;ptid=2275806" target="_blank">xu1985129 发表于 2026-11-20 16:20</a>
+
+哦哦，好的，我下次试试
+
+— from HONOR ALP-AN00, Android 14, S1 Next Goose v3.5.99-alpha ...</blockquote>
+另外补一下，AI给你的回复你看不懂都没事，重要的是它自己有没有说出来
+
+说出来会进上下文
+
+甚至对于DS这种注意力涣散的小孩，它说了你看都不看回一句“检查一遍”“这对吗”，它甚至会自己Debug一些问题出来
+
+然后再让Workbuddy执行
+
+*****
+
+####  口袋妖怪  
+##### 20878#       发表于 2026-11-20 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70532384&amp;ptid=2275806" target="_blank">xu1985129 发表于 2026-11-20 12:11</a>
+
+不知道，我不清楚需要多大的力才能干好这个事，然后我看名称肯定是专家团更吊，所以选了专家团，模型选的 ...</blockquote>
+血的教训，别迷恋什么这个那个的，wb下用ds1017就够了，不要用其他的
+
+
+*****
+
+####  真红之闪电  
+##### 20879#       发表于 2026-11-20 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533662&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-11-20 18:00</a>
+
+做各种游戏的渲染和建模，本身的后端逻辑的话gemini可能还更强</blockquote>
+哦哦，这个我倒是还好，我的coding工作很轻量，文字工作更多。感谢。
+
+*****
+
+####  ayanamilin  
+##### 20880#       发表于 2026-11-20 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70531416&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-11-20 09:16</a>
+google 对网络的要求是不是很高。。。我用手机和家里的网都显示google one不支持所在地区，怎么换都没用。 ...</blockquote>
+代理规则要设定好（嫌麻烦就开全局），开虚拟网卡模式（tun）。
+
+节点ip质量要说得过去。
+
+有些工具比如Chrome自带的gemeni需要额外的技巧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
