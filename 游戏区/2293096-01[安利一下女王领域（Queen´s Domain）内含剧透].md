@@ -7115,3 +7115,23 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 我真觉得前期堆怪的海底区域和上古界域的怪都眉清目秀的（以上评价基于我几乎手打刷满所有武器等级的感受）
 
+
+*****
+
+####  Kaornao  
+##### 575#       发表于 2026-11-21 03:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535048&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-21 02:47</a>
+个人感受是一飞石从本岛开始直到三飞石打完大书库回到本岛大陵墓开门的流程的探索为主的解谜体验是神中神最 ...</blockquote>
+盾兵确实恶心，一开始不会打被近身三连顶顶死气笑了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Algie  
+##### 576#       发表于 2026-11-21 03:15
+
+虽然已经被剧透过科技侧的存在了但在初次接触海边小岛上放沃达索镜片的房间的时候还是很受震撼的（骷髅激光枪射手不算），就好像掠食打破玻璃，楚门走出录音棚一样（虽然游戏并没有往这方面发展）
+

@@ -5061,3 +5061,22 @@ ThinkyGames.com
 
 瞅了一眼提名，bigwalk之前因为用ai闹出那么大事的也拿到GOTY提名了，应该和ai use没什么关系吧。就是thinky awards想引流，不过我自第二届开始就不在乎这个奖了，anyway。
 
+
+*****
+
+####  铃森冬  
+##### 351#       发表于 2026-11-21 03:16
+
+去吃了下瓜感觉主办方对AI编程没啥偏见啊，说白了还是被吹哥的沉星之序占了推箱解谜这个品类的位置显得茜塔太糊了
+
+下面是 ThinkyGames 的 Manager, Joseph Mansfield 回复提 AI 问题找茬的人的原话
+ <blockquote>Hey, so my feelings are similar to the folks who responded to you. 
+
+I think we would be better off evaluating this on a case-by-case basis with each game. We already have a good process for the awards by which games go through multiple stages of selection and voting, and I think any concerns regarding AI usage would come up there. Those involved in that process can use any information the developers have disclosed about their AI usage.
+
+Ultimately, I think having a strict no-AI policy would be impossible for us to enforce consistently and it puts the onus of knowing about AI usage on us, even though the developer may not have disclosed it. Also, I think AI tools are likely to stick around and be part of how people work, whether in big ways or small ways, and it won't always be clear in what ways AI has been used. I do think our curation team and jurors are likely to be discerning about AI usage when such information is available though.
+
+Regardless, the vast majority of games that have made heavy use of AI in their development are just garbage anyway, so they won't stand a chance in the awards. We've been getting tons of games submitted to us that have absolutely zero value because they're generic, soulless, and uninteresting and the developer has put almost no effort into actually making something worthwhile. But we don't need a no-AI policy to recognise that.
+
+I appreciate that that means that some games that used AI in more subtle ways will likely be part of the awards, but I'm personally okay with accepting that and trusting the process (and I'll accept the criticism if you think that's not okay).</blockquote>
+
