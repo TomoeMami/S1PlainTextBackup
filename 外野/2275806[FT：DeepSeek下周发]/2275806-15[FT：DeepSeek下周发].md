@@ -1974,3 +1974,28 @@ Google改billing profile到美国就好了 好像账号里最高级的认证就�
 
 — from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  jinuzuktII  
+##### 20896#       发表于 2026-11-20 21:41
+
+<blockquote>弗里德里希大帝 发表于 2026-11-20 20:47
+没有vibe需求的话，是不是可以不需要反重力，用gemini网页版就行了?
+
+—— 来自 OnePlus PJZ110, Android 1 ...</blockquote>
+有 ai studio 就好
+
+
+*****
+
+####  口袋妖怪  
+##### 20897#       发表于 2026-11-20 21:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70534079&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-20 19:49</a>
+
+感觉最近贴吧里Hy4 Flash（hy4f）的好评率好高
+
+不知道大家的真实使用感受怎么样？ ...</blockquote>
+不咋滴，我一般当个免费的随手chat用
+
