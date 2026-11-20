@@ -1922,3 +1922,31 @@ Google 那个除了节点，还要看号是不是绑定了国内，我昨天就�
 
 最近谷歌在批量检查账号吧，把我十几年的老号都送回国了，虽然申诉半个小时改了回去，但是总觉得不安稳
 
+
+*****
+
+####  icer  
+##### 20891#       发表于 2026-11-20 20:40
+
+neon用着感觉很强，额度是够的，gemini pro的性价比好高，agy纯线性使用也还行
+
+
+*****
+
+####  lactone  
+##### 20892#       发表于 2026-11-20 20:42
+
+就是agy这水平，已经有一种用cherry studio的感觉了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  弗里德里希大帝  
+##### 20893#       发表于 2026-11-20 20:47
+
+没有vibe需求的话，是不是可以不需要反重力，用gemini网页版就行了?
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
