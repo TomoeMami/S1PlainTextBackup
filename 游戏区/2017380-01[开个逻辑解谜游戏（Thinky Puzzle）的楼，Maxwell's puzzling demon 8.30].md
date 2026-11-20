@@ -5080,3 +5080,11 @@ Regardless, the vast majority of games that have made heavy use of AI in their d
 
 I appreciate that that means that some games that used AI in more subtle ways will likely be part of the awards, but I'm personally okay with accepting that and trusting the process (and I'll accept the criticism if you think that's not okay).</blockquote>
 
+
+*****
+
+####  铃森冬  
+##### 352#       发表于 2026-11-21 03:20
+
+不过 ThinkyGames 确实一开始就使劲圈地早就搞得 Thinky Puzzle 的品类在里面显得很很闹麻了
+
