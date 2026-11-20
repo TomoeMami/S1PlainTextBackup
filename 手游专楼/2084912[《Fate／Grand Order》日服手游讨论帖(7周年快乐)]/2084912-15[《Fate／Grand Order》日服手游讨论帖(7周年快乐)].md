@@ -2420,3 +2420,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 充满了快乐的空气<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 21930#       发表于 2026-11-20 20:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">很可怕好吧，后面还有2个剧场版，还有魔夜2，细水长流每次2颗石头，抽了就是赚了
+
