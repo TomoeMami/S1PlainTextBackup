@@ -2147,3 +2147,15 @@ glm5.5呢，不是说这周发吗
 —— 来自 鹅球 v3.5.99</blockquote>
 套牢的骗人接盘的
 
+
+*****
+
+####  依恋未酌宴  
+##### 20906#       发表于 2026-11-21 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533542&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-11-20 17:28</a>
+哈吉米neon真得超神，research用起来智力甚至和astra没什么区别，写论文也更有人味 ...</blockquote>
+让他给我润色了一段gpt给我改的paper，只能说效果秒杀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
