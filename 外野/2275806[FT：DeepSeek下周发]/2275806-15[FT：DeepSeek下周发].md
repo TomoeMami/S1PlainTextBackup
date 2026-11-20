@@ -1603,3 +1603,30 @@ glm怎么还不发<img src="https://static.stage1st.com/image/smiley/face2017/12
 大概率是人大高瓴的特调模型因为就叫这个，而且那个模型特别明确了专门是基于多模态交互研发的 ...</blockquote>
 匿名模型怎么可能拿真名去测，也就是说最不可能的就是人大的模型
 
+
+*****
+
+####  love4aids  
+##### 20863#       发表于 2026-11-20 16:37
+
+6.2astra 的风评是不是已经确定是最好用的黑奴模型，智商最高但是情商低，不说人话。适合拿 6astra 或者其他模型拿鞭子来抽
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  zzy516232108  
+##### 20864#       发表于 2026-11-20 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533274&amp;ptid=2275806" target="_blank">xu1985129 发表于 2026-11-20 16:20</a>
+
+哦哦，好的，我下次试试
+
+— from HONOR ALP-AN00, Android 14, S1 Next Goose v3.5.99-alpha ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">主要是把判断的过程交给ai（既然你不懂）
+
+并且要求他用最简单最直白的话告诉你（ELI5=当我是5岁小孩，和我解释清楚）
+
+不过有一说一如果只是文字处理，网页爬虫这种活的话，都可以直接让dsflash做，简单的。
+
