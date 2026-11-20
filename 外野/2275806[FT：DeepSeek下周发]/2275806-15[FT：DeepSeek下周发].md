@@ -1536,3 +1536,24 @@ neon比gpt快多了吧 你对比的terra？</blockquote>
 
 glm怎么还不发<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  idlerdy  
+##### 20857#       发表于 2026-11-20 16:00
+
+反重力反代出来很容易被封的情况下，有可能让反重力本身兼容酒馆的使用方式吗（兼容预设和角色卡）
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  唠叨  
+##### 20858#       发表于 2026-11-20 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70532958&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-11-20 14:51</a>
+
+看了下我这个月的，真的用的很多</blockquote>
+什么套餐能用83B？
+
