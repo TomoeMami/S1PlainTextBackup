@@ -1297,3 +1297,24 @@ arena的排行这样改一下，就很清晰了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">agy太tm难用了 
 
+
+*****
+
+####  ycjiang1337  
+##### 20836#       发表于 2026-11-20 10:55
+
+风怒编辑
+
+
+*****
+
+####  ycjiang1337  
+##### 20837#       发表于 2026-11-20 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70531754&amp;ptid=2275806" target="_blank">holmesjerry 发表于 2026-11-20 10:18</a>
+950是的
+960有可能是hbm3有可能还是hizq</blockquote>
+今后应该都是hizq，没理由重新用回HBM3
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+

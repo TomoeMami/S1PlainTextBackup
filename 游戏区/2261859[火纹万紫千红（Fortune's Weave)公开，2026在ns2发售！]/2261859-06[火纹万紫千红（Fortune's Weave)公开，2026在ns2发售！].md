@@ -13957,3 +13957,21 @@ twi:@cdgm000
 
 昨天研究了下大概懂了简单处理这个乱数种子的方案，就是在下一级知道会垃圾成长的时候去转职用掉那次机会，还有其他方法吗
 
+
+*****
+
+####  沙发果冻  
+##### 8704#       发表于 2026-11-20 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70531902&amp;ptid=2261859" target="_blank">deathyue 发表于 2026-11-20 10:44</a>
+昨天研究了下大概懂了简单处理这个乱数种子的方案，就是在下一级知道会垃圾成长的时候去转职用掉那次机会， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有换成低级职业吃保底重抽，具体操作还是用AI算吧
+
+
+*****
+
+####  齿轮轴君  
+##### 8705#       发表于 2026-11-20 10:54
+
+卡带刚到手，翻了翻攻略打算按舞娘迪哥女王正太的顺序打。一些强力角色在某些故事线晚入手的话选择用来数值补正的职业比较好？还有就是不roll点和重复刷单条故事线用来合并数值的条件下能打困难生存吗？
+
