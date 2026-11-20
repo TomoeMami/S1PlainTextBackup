@@ -1683,3 +1683,22 @@ gemi氖写小说、搞设定确实很强啊，又开通会员了
 
 确实 6.2这次是真不行了 这个月用完换哈基米ultra了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 20871#       发表于 2026-11-20 17:28
+
+哈吉米neon真得超神，research用起来智力甚至和astra没什么区别<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">，写论文也更有人味
+
+*****
+
+####  冤枉呐  
+##### 20872#       发表于 2026-11-20 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70531416&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-11-20 09:16</a>
+google 对网络的要求是不是很高。。。我用手机和家里的网都显示google one不支持所在地区，怎么换都没用。 ...</blockquote>
+我都不知道为什么，同一个网络，不同时间，结果不一样
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
