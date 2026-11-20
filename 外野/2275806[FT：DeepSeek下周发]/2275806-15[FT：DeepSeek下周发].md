@@ -1867,3 +1867,11 @@ google 对网络的要求是不是很高。。。我用手机和家里的网都�
 需求是要用antigravity里的模型吧，那也用不了其他工具。简单的就拼prompt然后chat。
 复杂的就许愿让根据人物卡搞个脚本项目呗，然后在antigravity里改prompt，通过以不同参数触发脚本形式来继续。想想确实很折腾
 
+
+*****
+
+####  moekyo  
+##### 20885#       发表于 2026-11-20 18:50
+
+Google 那个除了节点，还要看号是不是绑定了国内，我昨天就是，要申请切换到美区之类才行 [https://policies.google.com/coun ... ource=policies-site](https://policies.google.com/country-association-form?hl=en&amp;source=policies-site)
+
