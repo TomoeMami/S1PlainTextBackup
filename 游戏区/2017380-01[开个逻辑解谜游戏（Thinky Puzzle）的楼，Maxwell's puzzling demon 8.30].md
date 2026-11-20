@@ -5046,3 +5046,18 @@ ThinkyGames.com
 
 英文我不太清楚，日语的话当时加之前我记得作者说找麦妖作者看了（？）结果还是有把音叉翻译成叉，猫箱、双缝等原文照搬的情况，说是AI翻译更像是机翻
 
+
+*****
+
+####  BRAVADO  
+##### 350#       发表于 2026-11-21 02:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70525058&amp;ptid=2017380" target="_blank">酒々井かんづめ 发表于 2026-11-18 19:32</a>
+
+ThinkyGames.com
+
+英文我不太清楚，日语的话当时加之前我记得作者说找麦妖作者看了（？）结果还是有把音 ...</blockquote>
+看了一下，XXela和Hempuli居然差点吵起来了可还行。
+
+瞅了一眼提名，bigwalk之前因为用ai闹出那么大事的也拿到GOTY提名了，应该和ai use没什么关系吧。就是thinky awards想引流，不过我自第二届开始就不在乎这个奖了，anyway。
+
