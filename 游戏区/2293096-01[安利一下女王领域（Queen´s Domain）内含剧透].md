@@ -7153,3 +7153,14 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 首饰也是被探索功能占格子严重
 
+
+*****
+
+####  zzf111  
+##### 578#       发表于 2026-11-21 03:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535063&amp;ptid=2293096" target="_blank">Kaornao 发表于 2026-11-21 03:13</a>
+
+盾兵确实恶心，一开始不会打被近身三连顶顶死气笑了，不过我倒是挺喜欢罪恶辑录的这种恶意的，箱庭结构很 ...</blockquote>
+没被盾兵三连顶死的女王魔域人生是不完整的<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
