@@ -1493,3 +1493,19 @@ neon比gpt快多了吧 你对比的terra？</blockquote>
 
 这个月用了300块的大肥鱼，狂干40亿token，峰价也是硬干。比起这一顿下馆子的钱时间更重要
 
+
+*****
+
+####  泰坦失足  
+##### 20854#       发表于 2026-11-20 14:51
+
+<img src="https://img.stage1st.com/forum/202611/20/144936tdnl6ll9161pr602.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-20 14:49 上传
+
+看了下我这个月的，真的用的很多<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
