@@ -1509,3 +1509,22 @@ neon比gpt快多了吧 你对比的terra？</blockquote>
 
 看了下我这个月的，真的用的很多<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 20855#       发表于 2026-11-20 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70532384&amp;ptid=2275806" target="_blank">xu1985129 发表于 2026-11-20 12:11</a>
+
+不知道，我不清楚需要多大的力才能干好这个事，然后我看名称肯定是专家团更吊，所以选了专家团，模型选的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这样，以后你可以先在对话里选择一个模型，比如DS4.1f这种便宜好用的模型
+
+问他
+
+“我要做xxxx事，请用ELI5的方式告诉我，这个问题是否困难，你是否可以解决？”
+
+“我是纯小白，用最傻瓜的方式解释这件事是否简单，你是否可以解决”
+
+大概这种话 你可以让AI帮你判断下
+

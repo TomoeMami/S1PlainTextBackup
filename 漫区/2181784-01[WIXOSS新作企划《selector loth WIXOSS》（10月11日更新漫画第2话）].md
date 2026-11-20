@@ -643,3 +643,11 @@ https://www.takaratomy.co.jp/pro ... ectorlothwixoss.php
 
 卡牌tcg停运了
 
+
+*****
+
+####  hououmon  
+##### 52#       发表于 2026-11-20 15:01
+
+居然死了T-T
+
