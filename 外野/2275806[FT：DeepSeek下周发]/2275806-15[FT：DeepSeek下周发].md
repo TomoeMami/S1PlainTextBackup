@@ -1485,3 +1485,11 @@ neon比gpt快多了吧 你对比的terra？
 neon比gpt快多了吧 你对比的terra？</blockquote>
 不，对比的1017<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 20853#       发表于 2026-11-20 14:41
+
+这个月用了300块的大肥鱼，狂干40亿token，峰价也是硬干。比起这一顿下馆子的钱时间更重要
+
