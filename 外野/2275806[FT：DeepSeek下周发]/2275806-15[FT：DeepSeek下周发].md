@@ -1271,3 +1271,29 @@ Neon这模型用得我好纠结啊
 
 结果和GPT6一样使用起来还是非常需要引导，不过需要的方向不同
 
+
+*****
+
+####  qz66618  
+##### 20833#       发表于 2026-11-20 10:39
+
+glm今天能发吗，sota不sota的先发出来再说
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  bartholo4  
+##### 20834#       发表于 2026-11-20 10:41
+
+[https://sites.google.com/view/ar ... 201/full-page-embed](https://sites.google.com/view/arena-agent-index1201/full-page-embed)
+
+arena的排行这样改一下，就很清晰了
+
+*****
+
+####  jojog  
+##### 20835#       发表于 2026-11-20 10:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">agy太tm难用了 
+
