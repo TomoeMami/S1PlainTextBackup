@@ -2175,3 +2175,16 @@ glm5.5呢，不是说这周发吗
 
 好像有点意思
 
+
+*****
+
+####  无论东西  
+##### 20908#       发表于 2026-11-21 01:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70534079&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-20 19:49</a>
+
+感觉最近贴吧里Hy4 Flash（hy4f）的好评率好高
+
+不知道大家的真实使用感受怎么样？ ...</blockquote>
+纯一坨，巨蠢，听不懂人话，雷霆大思考半天成果惨不忍睹
+
