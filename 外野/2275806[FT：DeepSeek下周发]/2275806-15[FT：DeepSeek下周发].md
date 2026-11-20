@@ -1457,3 +1457,11 @@ gestalt 是glm 5.5吗</blockquote>
 
 —— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  heemoon  
+##### 20850#       发表于 2026-11-20 13:27
+
+neon用下来感觉审美比6.2好不少，就是太慢了，不然gpt plus可以直接退了
+
