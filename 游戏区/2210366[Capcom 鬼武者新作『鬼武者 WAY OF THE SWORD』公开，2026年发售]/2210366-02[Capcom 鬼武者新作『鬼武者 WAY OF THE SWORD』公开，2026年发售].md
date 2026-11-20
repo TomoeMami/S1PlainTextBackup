@@ -37,3 +37,26 @@
 整体感觉挺像剑星，一样的在传送点之间无意义跑路，一样的通马桶支线（其实剑星的支线反倒不像通马桶），一样的异形怪物，一样的红绿灯背板，一样的破盾刮痧……
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 1999#       发表于 2026-11-20 08:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530535&amp;ptid=2210366" target="_blank">naclken. 发表于 2026-11-19 23:30</a>
+通关了剑戟模式了，综合感觉6~7分水平。
+
+真正感觉到难度的BOSS就俩：三战佐佐木和源义经：前者招式繁多夹杂 ...</blockquote>
+鬼灯袋不都是有回血需求选回复量超大的缓慢回复或者没需求选回蓝回紫么，boss 在内攻击性都不高，不至于吃药也高风险吧
+
+
+*****
+
+####  naclken.  
+##### 2000#       发表于 2026-11-20 09:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70531319&amp;ptid=2210366" target="_blank">otakun 发表于 2026-11-20 08:58</a>
+
+鬼灯袋不都是有回血需求选回复量超大的缓慢回复或者没需求选回蓝回紫么，boss 在内攻击性都不高，不至于 ...</blockquote>
+血量高的时候不需要吃药，血量低的时候吃一口补不回来<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
