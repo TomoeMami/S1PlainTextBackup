@@ -2369,3 +2369,19 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 真是一场酣畅淋漓的赤石啊<img src="https://p.sda1.dev/36/27ac846c3dcd7e8d73d77e8903cdc2d4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 21925#       发表于 2026-11-20 17:02
+
+青子技能本，有珠宝具本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/20/170232bc8jj4006gwp0sfm.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795165351484_3.webp</strong> (42.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-20 17:02 上传
+

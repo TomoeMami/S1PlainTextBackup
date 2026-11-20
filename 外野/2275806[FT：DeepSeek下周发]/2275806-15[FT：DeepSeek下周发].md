@@ -1646,3 +1646,24 @@ openai的对齐和安全真的很差，astra只适合做研究
 
 A/上市了，DS的PRO怎么还不发
 
+
+*****
+
+####  overflowal  
+##### 20867#       发表于 2026-11-20 16:59
+
+ 本帖最后由 overflowal 于 2026-11-20 17:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533338&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-20 16:37</a>
+6.2astra 的风评是不是已经确定是最好用的黑奴模型，智商最高但是情商低，不说人话。适合拿 6astra 或者其 ...</blockquote>
+因为Astra极端严谨且极端聪明。比较是个知道自己在干嘛的人使用。不太适合许愿。 很多人觉得他不说人话是因为它默认你是个insider。。 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  hugosol  
+##### 20868#       发表于 2026-11-20 17:06
+
+体感两个6.2的模型都没有之前的好用，头铁而且容易跑偏方向，不适合开放性任务
+
+tdd这种当甩手掌柜的任务交给6.2-sol倒是没问题，不过现在的模型早就越过那条线了用哪个都没差，比6.1-sol快和省倒是没太看出来
+
