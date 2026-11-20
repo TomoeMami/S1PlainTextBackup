@@ -1750,3 +1750,14 @@ neon我觉得算opus5.5除了前端和游戏领域外的上位替代
 所以谷歌现在到底哪些能用？大概啥水平？准备从Claude 跑路了。</blockquote>
 neon我觉得算opus5.5除了前端和游戏领域外的上位替代
 
+
+*****
+
+####  真红之闪电  
+##### 20875#       发表于 2026-11-20 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533613&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-11-20 17:44</a>
+
+neon我觉得算opus5.5除了前端和游戏领域外的上位替代</blockquote>
+游戏领域是指？
+

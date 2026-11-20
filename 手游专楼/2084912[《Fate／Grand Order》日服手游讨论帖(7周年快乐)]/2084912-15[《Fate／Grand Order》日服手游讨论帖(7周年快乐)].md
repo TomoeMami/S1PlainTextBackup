@@ -2393,3 +2393,11 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 这强化摆明了“电影上了意思意思得了”的意思吧，太爆笑了
 
+
+*****
+
+####  alucardcz  
+##### 21927#       发表于 2026-11-20 17:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">备战剧场版2了
+
