@@ -60,3 +60,16 @@
 鬼灯袋不都是有回血需求选回复量超大的缓慢回复或者没需求选回蓝回紫么，boss 在内攻击性都不高，不至于 ...</blockquote>
 血量高的时候不需要吃药，血量低的时候吃一口补不回来<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乔迪奥  
+##### 2001#       发表于 2026-11-20 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530535&amp;ptid=2210366" target="_blank">naclken. 发表于 2026-11-19 23:30</a>
+
+通关了剑戟模式了，综合感觉6~7分水平。
+
+真正感觉到难度的BOSS就俩：三战佐佐木和源义经：前者招式繁多夹杂 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">酒吞二阶段其实能补充的，但是大多数人都发现不了
+
