@@ -1565,3 +1565,30 @@ glm怎么还不发<img src="https://static.stage1st.com/image/smiley/face2017/12
 
 所以谷歌现在到底哪些能用？大概啥水平？准备从Claude 跑路了。
 
+
+*****
+
+####  xu1985129  
+##### 20860#       发表于 2026-11-20 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533018&amp;ptid=2275806" target="_blank">zzy516232108 发表于 2026-11-20 15:06</a>
+这样，以后你可以先在对话里选择一个模型，比如DS4.1f这种便宜好用的模型
+
+问他
+
+“我要做xxxx事，请用ELI5 ...</blockquote>
+哦哦，好的，我下次试试
+
+— from HONOR ALP-AN00, Android 14, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  泰坦失足  
+##### 20861#       发表于 2026-11-20 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533207&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-11-20 16:02</a>
+
+什么套餐能用83B？</blockquote>
+（大概是）按席位付钱的企业套餐。管理员没因为token用的太多了找过我。
+
