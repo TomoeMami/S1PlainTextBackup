@@ -1392,3 +1392,26 @@ gestalt 是glm 5.5吗</blockquote>
 坛友们，workbuddy消耗积分太快了怎么办？用专家团做一个简单的爬虫就消耗了我2000多积分，而且积分花光了 ...</blockquote>
 为啥做爬虫要用专家团<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">普通模式用dsv4.1f满足不了需求吗，正常做个小程序用不了100积分吧
 
+
+*****
+
+####  xu1985129  
+##### 20844#       发表于 2026-11-20 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70532345&amp;ptid=2275806" target="_blank">serj005 发表于 2026-11-20 12:02</a>
+为啥做爬虫要用专家团普通模式用dsv4.1f满足不了需求吗，正常做个小程序用不了100积分吧 ...</blockquote>
+不知道，我不清楚需要多大的力才能干好这个事，然后我看名称肯定是专家团更吊，所以选了专家团，模型选的hy4，我看它有些活派给了DS4F干。非IT/软件工程从业人员，以前主要用豆包处理一些word、Excel之类的文档工作，写写报告、方案之类的。
+
+— from HONOR ALP-AN00, Android 14, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  紧那罗  
+##### 20845#       发表于 2026-11-20 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70530983&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-11-20 05:37</a>
+咕咕的缓存果然问题很大，一旦有比较大的 sub agent 等待都能把它的主 agent 的缓存干成 0 ...</blockquote>
+想想缓存无非是速度/价格，考虑到哈基米现在模型能力也算扯平了。
+反重力其他功能层面的问题忍忍也就过去了。
+

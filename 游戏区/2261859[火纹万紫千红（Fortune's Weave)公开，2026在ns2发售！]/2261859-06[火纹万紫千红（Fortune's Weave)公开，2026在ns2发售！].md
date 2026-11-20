@@ -13994,3 +13994,28 @@ twi:@cdgm000
 
 不用太纠结凹点，大方向没错就得了。终盘既没有强度，也没有数量。一百四五十个小时的猛如虎操作，到了**篇最后几个区，就这<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯夏  
+##### 8708#       发表于 2026-11-20 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70531948&amp;ptid=2261859" target="_blank">齿轮轴君 发表于 2026-11-20 10:54</a>
+
+卡带刚到手，翻了翻攻略打算按舞娘迪哥女王正太的顺序打。一些强力角色在某些故事线晚入手的话选择用来数值 ...</blockquote>
+对 晚入队的其实发挥的机会不大 用职业数值补点数完全可以 
+
+不刷数值完全可以打困难经典 我就是没刷通关的
+
+但是钱和技能你必须要刷
+
+
+*****
+
+####  沙发果冻  
+##### 8709#       发表于 2026-11-20 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70532295&amp;ptid=2261859" target="_blank">根正苗红 发表于 2026-11-20 11:49</a>
+不用太纠结凹点，大方向没错就得了。终盘既没有强度，也没有数量。一百四五十个小时的猛如虎操作，到了**篇 ...</blockquote>
+感觉战争篇比较有压力，而且多用板凳角色通关很有意思
+
