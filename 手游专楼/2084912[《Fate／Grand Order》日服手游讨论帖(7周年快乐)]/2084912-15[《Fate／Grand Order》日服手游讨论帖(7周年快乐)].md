@@ -2401,3 +2401,14 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">备战剧场版2了
 
+
+*****
+
+####  壳壳牛  
+##### 21928#       发表于 2026-11-20 18:10
+
+没救了
+提前备战明年泳装吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
