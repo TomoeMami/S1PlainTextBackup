@@ -1702,3 +1702,51 @@ google 对网络的要求是不是很高。。。我用手机和家里的网都�
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  赤星ビスコ  
+##### 20873#       发表于 2026-11-20 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533200&amp;ptid=2275806" target="_blank">idlerdy 发表于 2026-11-20 16:00</a>
+反重力反代出来很容易被封的情况下，有可能让反重力本身兼容酒馆的使用方式吗（兼容预设和角色卡）
+
+论坛助 ...</blockquote>
+如果不在意酒馆前端是可以的，把酒馆代码拉下来作为工作区，让你的任意agent写个工具，把预设和任务卡转换为明文prompt。然后你新开个对话，把生成的prompt塞进去就行
+
+但很多预设采用三明治结构，直接对话的话只能追加，还有破甲也不确定可不可行
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 20874#       发表于 2026-11-20 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533239&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-11-20 16:10</a>
+
+所以谷歌现在到底哪些能用？大概啥水平？准备从Claude 跑路了。</blockquote>
+neon我觉得算opus5.5除了前端和游戏领域外的上位替代
+
+
+*****
+
+####  赤星ビスコ  
+##### 20873#       发表于 2026-11-20 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533200&amp;ptid=2275806" target="_blank">idlerdy 发表于 2026-11-20 16:00</a>
+反重力反代出来很容易被封的情况下，有可能让反重力本身兼容酒馆的使用方式吗（兼容预设和角色卡）
+
+论坛助 ...</blockquote>
+如果不在意酒馆前端是可以的，把酒馆代码拉下来作为工作区，让你的任意agent写个工具，把预设和任务卡转换为明文prompt。然后你新开个对话，把生成的prompt塞进去就行
+
+但很多预设采用三明治结构，直接对话的话只能追加，还有破甲也不确定可不可行
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 20874#       发表于 2026-11-20 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70533239&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-11-20 16:10</a>
+
+所以谷歌现在到底哪些能用？大概啥水平？准备从Claude 跑路了。</blockquote>
+neon我觉得算opus5.5除了前端和游戏领域外的上位替代
+
