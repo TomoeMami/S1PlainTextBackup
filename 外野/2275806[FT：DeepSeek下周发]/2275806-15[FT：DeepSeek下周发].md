@@ -1475,3 +1475,13 @@ neon用下来感觉审美比6.2好不少，就是太慢了，不然gpt plus可�
 neon用下来感觉审美比6.2好不少，就是太慢了，不然gpt plus可以直接退了</blockquote>
 neon比gpt快多了吧 你对比的terra？
 
+
+*****
+
+####  heemoon  
+##### 20852#       发表于 2026-11-20 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70532759&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-20 13:51</a>
+neon比gpt快多了吧 你对比的terra？</blockquote>
+不，对比的1017<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
