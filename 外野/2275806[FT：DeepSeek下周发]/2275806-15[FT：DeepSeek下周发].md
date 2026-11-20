@@ -1465,3 +1465,13 @@ gestalt 是glm 5.5吗</blockquote>
 
 neon用下来感觉审美比6.2好不少，就是太慢了，不然gpt plus可以直接退了
 
+
+*****
+
+####  紧那罗  
+##### 20851#       发表于 2026-11-20 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70532686&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-11-20 13:27</a>
+neon用下来感觉审美比6.2好不少，就是太慢了，不然gpt plus可以直接退了</blockquote>
+neon比gpt快多了吧 你对比的terra？
+

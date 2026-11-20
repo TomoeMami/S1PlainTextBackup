@@ -7056,3 +7056,13 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 晚上打他那几个乌漆墨黑的图加倍刺激，最好屋里都别开大灯<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  christiny  
+##### 570#       发表于 2026-11-20 13:49
+
+链接: [https://pan.baidu.com/s/1f8ezfQvhgEEqGQ23n-hPZQ?pwd=wwvp](https://pan.baidu.com/s/1f8ezfQvhgEEqGQ23n-hPZQ?pwd=wwvp)   密码 wwvp
+
+黑暗恐惧症福音   去黑MOD，F7开关。  这个是直接把体积雾去掉了，看的非常清楚。  在地面上的话，远景体积雾也没了，少了些层次感，不过可以随时开关。
+
