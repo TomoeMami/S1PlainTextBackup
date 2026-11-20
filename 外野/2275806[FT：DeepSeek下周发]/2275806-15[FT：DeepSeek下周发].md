@@ -1950,3 +1950,15 @@ neon用着感觉很强，额度是够的，gemini pro的性价比好高，agy纯
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  蜇灵  
+##### 20894#       发表于 2026-11-20 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70534261&amp;ptid=2275806" target="_blank">弗里德里希大帝 发表于 2026-11-20 20:47</a>
+没有vibe需求的话，是不是可以不需要反重力，用gemini网页版就行了?
+
+—— 来自 OnePlus PJZ110, Android 1 ...</blockquote>
+网页版据说智力低一些
+
