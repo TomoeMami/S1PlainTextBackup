@@ -1875,3 +1875,11 @@ google 对网络的要求是不是很高。。。我用手机和家里的网都�
 
 Google 那个除了节点，还要看号是不是绑定了国内，我昨天就是，要申请切换到美区之类才行 [https://policies.google.com/coun ... ource=policies-site](https://policies.google.com/country-association-form?hl=en&amp;source=policies-site)
 
+
+*****
+
+####  heemoon  
+##### 20886#       发表于 2026-11-20 19:29
+
+要是哈基米给的claude额度再多一点点就完美了，现在的周限大概只能用opus5.5做一两次粗略的审核或者规划
+
