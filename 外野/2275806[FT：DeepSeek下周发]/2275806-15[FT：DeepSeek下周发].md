@@ -2889,3 +2889,27 @@ agy竟然已经重置了，怎么一点声响也没有
 mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔会炸缓存</blockquote>
 峰价330？那谷价不就是660？认真的？
 
+
+*****
+
+####  UncleDracula  
+##### 20955#       发表于 2026-11-21 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536422&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-21 15:15</a>
+
+mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔会炸缓存</blockquote>
+峰价330？那谷价不就是660？认真的？
+
+
+*****
+
+####  qwased  
+##### 20956#       发表于 2026-11-21 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536741&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-21 17:17</a>
+
+峰价330？那谷价不就是660？认真的？</blockquote>
+固定峰价
+
+每月1号重置，所以卡时间订阅可以多蹬一个月
+
