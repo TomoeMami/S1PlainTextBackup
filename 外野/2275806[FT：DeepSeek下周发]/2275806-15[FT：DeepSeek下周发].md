@@ -2662,3 +2662,26 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 还是贵了，不如想办法弄一下日区学生优惠，30R一个月的pro</blockquote>
 这个我也看到了，但是还是要折腾，再研究研究<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  love4aids  
+##### 20945#       发表于 2026-11-21 16:07
+
+反重力桌面端没有中文选项是比较牛逼的
+
+*****
+
+####  医生狼多  
+##### 20946#       发表于 2026-11-21 16:08
+
+充了一年日区哈基米pro<img src="https://static.stage1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  love4aids  
+##### 20947#       发表于 2026-11-21 16:14
+
+日区ios订阅了哈基米pro，试了一下，这沟通能力甩6.2Astra一条街。Astra现在真是不说人话了，我以前一直以为小模型才不说人话，结果Astra这个规模的模型也不说人话<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
