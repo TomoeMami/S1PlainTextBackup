@@ -2602,3 +2602,41 @@ thx，顺便问问反重力到底有多不好用……</blockquote>
 最近用量有点大，一天跑满差不多20亿token，有没有什么实惠点的plan推荐？速度别太慢最好没5小时限制，模型 ...</blockquote>
 mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔会炸缓存<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moekyo  
+##### 20940#       发表于 2026-11-21 15:18
+
+ 本帖最后由 moekyo 于 2026-11-21 15:20 编辑 
+
+有人知道 Gemini Pro 年包黑五半价怎么弄吗，好几个说法，有说要黑五当天才会开放新用户，已经充了的现在点进去就是了，但是我现在点进去，还是默认年付 16% 的折扣
+
+
+*****
+
+####  很久就在那边l  
+##### 20941#       发表于 2026-11-21 15:21
+
+看别人发的国产白嫖渠道，我就接了一个workbuddy都用不完
+<img src="https://p.sda1.dev/36/5062cd7c4522cca18725838ccf7a8892/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moekyo  
+##### 20942#       发表于 2026-11-21 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536429&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-21 15:18</a>
+
+有人知道 Gemini Pro 年包黑五半价怎么弄吗，好几个说法，有说要黑五当天才会开放新用户，已经充了的现在点 ...</blockquote>
+原来把之前非美区的支付信息删了就出来了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/21/152235m97gyfqfqxftrx7f.png" referrerpolicy="no-referrer">
+
+<strong>s1p-paste-1795245755315.png</strong> (211.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-21 15:22 上传
+
