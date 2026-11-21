@@ -3216,3 +3216,49 @@ skill管理我记得herdr-app好像有个mod可以用，不过现在我在搭自
 
 对了google的pro及以上还有flow积分，每个月1000不要浪费了，能用omni 1.2f，虽然大概比不上sd2.5（没用过，不过反正也是送的不用白不用
 
+
+*****
+
+####  moekyo  
+##### 20973#       发表于 2026-11-21 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537329&amp;ptid=2275806" target="_blank">idlerdy 发表于 2026-11-21 21:22</a>
+
+我切换到年费确实是半价了
+
+—— 来自 vivo V2527A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+后面可以。是我之前绑过其他区的支付，删了重新绑美区就好了
+
+*****
+
+####  wonderful259  
+##### 20974#       发表于 2026-11-21 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536432&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-21 15:21</a>
+
+看别人发的国产白嫖渠道，我就接了一个workbuddy都用不完</blockquote>
+试着 magpie 接了 zcode，跑了 一个亿 token，然后账号被封了
+
+
+*****
+
+####  moekyo  
+##### 20973#       发表于 2026-11-21 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537329&amp;ptid=2275806" target="_blank">idlerdy 发表于 2026-11-21 21:22</a>
+
+我切换到年费确实是半价了
+
+—— 来自 vivo V2527A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+后面可以。是我之前绑过其他区的支付，删了重新绑美区就好了
+
+*****
+
+####  wonderful259  
+##### 20974#       发表于 2026-11-21 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536432&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-11-21 15:21</a>
+
+看别人发的国产白嫖渠道，我就接了一个workbuddy都用不完</blockquote>
+试着 magpie 接了 zcode，跑了 一个亿 token，然后账号被封了
+
