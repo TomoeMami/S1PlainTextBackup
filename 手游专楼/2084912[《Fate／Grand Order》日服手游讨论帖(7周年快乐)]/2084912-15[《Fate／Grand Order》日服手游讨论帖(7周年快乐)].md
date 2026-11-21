@@ -2462,3 +2462,14 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 
 青子这个强化主要是魔弹变多了，提高了不少伤害，NP问题还是没有解决，再来次强化估计就差不多了，希望快点端上来。
 
+
+*****
+
+####  qixinno1  
+##### 21935#       发表于 2026-11-21 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535412&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2026-11-21 09:25</a>
+
+青子这个强化主要是魔弹变多了，提高了不少伤害，NP问题还是没有解决，再来次强化估计就差不多了，希望快 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">青子从出来不就一直在喷那个红卡变蓝卡 导致变身后的NP率直接成残疾人
+
