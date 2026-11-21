@@ -3262,3 +3262,25 @@ skill管理我记得herdr-app好像有个mod可以用，不过现在我在搭自
 看别人发的国产白嫖渠道，我就接了一个workbuddy都用不完</blockquote>
 试着 magpie 接了 zcode，跑了 一个亿 token，然后账号被封了
 
+
+*****
+
+####  UncleDracula  
+##### 20975#       发表于 2026-11-21 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537188&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-21 20:35</a>
+
+那就等于扣两次钱有3个月额度，当然没有扣一次钱用两个月额度多啊</blockquote>
+Mistral的1017是强制不开思考的？
+
+
+*****
+
+####  UncleDracula  
+##### 20975#       发表于 2026-11-21 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537188&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-21 20:35</a>
+
+那就等于扣两次钱有3个月额度，当然没有扣一次钱用两个月额度多啊</blockquote>
+Mistral的1017是强制不开思考的？
+
