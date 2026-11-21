@@ -3031,3 +3031,30 @@ kimi是加额度了还是重置了 怎么我的总使用量一下子少了好多
 
 但是最划算的是之前的法棍黑客松鸡蛋，免费给3个月订阅哈哈
 
+
+*****
+
+####  diohanmilton  
+##### 20962#       发表于 2026-11-21 19:29
+
+我现在用grok网页版用来问一些外国事情的问答，这几天基本就四五个问题就限流了。grok也暗改了？
+
+—— 来自 HONOR PGT-AN10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  hugosol  
+##### 20963#       发表于 2026-11-21 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535860&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-21 11:55</a>
+
+开始大量使用Google以后harness彻底炸锅了，现在常用的有Codex，Pi，DSH和Antigravity四个
+
+想尝试部署一个 ...</blockquote>
+跨agent多会话管理的话herdr是最接近这个定位的，其他Paseo和T3一开始的产品定位都不是这个，还有一个类似的Rex不过好像还在内测
+
+但herdr也是不支持dsh的，dsh这架构太激进了，生态已经变成自己跟自己玩的了
+
+skill管理我记得herdr-app好像有个mod可以用，不过现在我在搭自己的工作流平台，就直接在上面做skill和mcp管理了
+
