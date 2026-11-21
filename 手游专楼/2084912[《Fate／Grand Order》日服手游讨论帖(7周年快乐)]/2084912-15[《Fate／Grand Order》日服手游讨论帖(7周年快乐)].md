@@ -2495,3 +2495,14 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 青子从出来不就一直在喷那个红卡变蓝卡 导致变身后的NP率直接成残疾人</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是不是，虽然这个也是喷点。我说的是初始状态那个辅助宝具的效果，只加了红魔放，但是不给蓝魔放，超级青子的宝具却是蓝宝具，导致数据看似很高，结果屁用没有（即使强化后的青子配合水杯打伤害也是靠蓝爆，因为她的红卡倍率只有0.75，不如绿卡）突出一个脑残设计。
 
+
+*****
+
+####  都谷捻柏  
+##### 21936#       发表于 2026-11-21 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535436&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-11-21 09:34</a>
+
+青子从出来不就一直在喷那个红卡变蓝卡 导致变身后的NP率直接成残疾人</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是不是，虽然这个也是喷点。我说的是初始状态那个辅助宝具的效果，只加了红魔放，但是不给蓝魔放，超级青子的宝具却是蓝宝具，导致数据看似很高，结果屁用没有（即使强化后的青子配合水杯打伤害也是靠蓝爆，因为她的红卡倍率只有0.75，不如绿卡）突出一个脑残设计。
+
