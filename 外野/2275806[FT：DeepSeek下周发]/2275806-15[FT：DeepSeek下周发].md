@@ -2913,3 +2913,29 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 
 每月1号重置，所以卡时间订阅可以多蹬一个月
 
+
+*****
+
+####  UncleDracula  
+##### 20957#       发表于 2026-11-21 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536770&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-21 17:27</a>
+
+固定峰价
+
+每月1号重置，所以卡时间订阅可以多蹬一个月</blockquote>
+意思是我今天订阅，1号会重置额度，但到期时间还是下个月的今天？
+
+
+*****
+
+####  UncleDracula  
+##### 20957#       发表于 2026-11-21 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536770&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-21 17:27</a>
+
+固定峰价
+
+每月1号重置，所以卡时间订阅可以多蹬一个月</blockquote>
+意思是我今天订阅，1号会重置额度，但到期时间还是下个月的今天？
+
