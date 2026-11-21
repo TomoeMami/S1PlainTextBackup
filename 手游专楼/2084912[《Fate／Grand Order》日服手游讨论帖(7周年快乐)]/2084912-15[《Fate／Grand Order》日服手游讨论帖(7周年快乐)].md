@@ -2554,3 +2554,27 @@ QP到上限了.....但现在也没有特别想喂的角色来消耗....想想该
 活动送带群充和自充还有一点拐力的自爆狂光炮.... ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“数值怪，自爆是限制强度了”，这是大家的共识，所以没啥讨论的。
 
+
+*****
+
+####  森兰丸  
+##### 21938#       发表于 2026-11-22 00:10
+
+这活动开到现在都这么多天了好像也从没人讨论过送的松永
+
+活动送带群充和自充还有一点拐力的自爆狂光炮....这要放在前几年都是不敢想象的事
+
+也就在现在的环境下意义已经不是那么大了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 21939#       发表于 2026-11-22 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537681&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-11-22 00:10</a>
+
+这活动开到现在都这么多天了好像也从没人讨论过送的松永
+
+活动送带群充和自充还有一点拐力的自爆狂光炮.... ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“数值怪，自爆是限制强度了”，这是大家的共识，所以没啥讨论的。
+

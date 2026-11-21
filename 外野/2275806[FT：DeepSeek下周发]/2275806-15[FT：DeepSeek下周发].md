@@ -3323,3 +3323,16 @@ Mistral的1017是强制不开思考的？
 大号主动退了后日区订阅了pro，但是没法建组也没法拉组了，只能等冷却到期 ...</blockquote>
 可以在小号那里关掉共享就行了 大号不用退家庭
 
+
+*****
+
+####  孤狼arcueid  
+##### 20977#       发表于 2026-11-22 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537670&amp;ptid=2275806" target="_blank">舞以 发表于 2026-11-22 00:02</a>
+可以在小号那里关掉共享就行了 大号不用退家庭</blockquote>
+<img src="https://static.stage1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">没办法，小号密码忘记了，当时也是临时注册的
+也省得担心jio什么时候掉了
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 17 Ultra
+
