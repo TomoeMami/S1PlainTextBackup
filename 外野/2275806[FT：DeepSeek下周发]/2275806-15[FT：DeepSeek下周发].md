@@ -3058,3 +3058,25 @@ kimi是加额度了还是重置了 怎么我的总使用量一下子少了好多
 
 skill管理我记得herdr-app好像有个mod可以用，不过现在我在搭自己的工作流平台，就直接在上面做skill和mcp管理了
 
+
+*****
+
+####  BarricadeMKXX  
+##### 20964#       发表于 2026-11-21 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536657&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-21 16:43</a>
+
+二五折？？是哪个什么学生优惠吗</blockquote>
+应该是随机刷的，总之我用了很久但没买过gemini的谷歌主号，点开订阅界面弹了个优惠，三个月的二五折
+
+
+*****
+
+####  BarricadeMKXX  
+##### 20964#       发表于 2026-11-21 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536657&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-21 16:43</a>
+
+二五折？？是哪个什么学生优惠吗</blockquote>
+应该是随机刷的，总之我用了很久但没买过gemini的谷歌主号，点开订阅界面弹了个优惠，三个月的二五折
+
