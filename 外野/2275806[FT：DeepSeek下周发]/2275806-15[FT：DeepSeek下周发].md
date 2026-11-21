@@ -2651,3 +2651,14 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 原来把之前非美区的支付信息删了就出来了</blockquote>
 还是贵了，不如想办法弄一下日区学生优惠，30R一个月的pro
 
+
+*****
+
+####  moekyo  
+##### 20944#       发表于 2026-11-21 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536454&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-21 15:35</a>
+
+还是贵了，不如想办法弄一下日区学生优惠，30R一个月的pro</blockquote>
+这个我也看到了，但是还是要折腾，再研究研究<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
