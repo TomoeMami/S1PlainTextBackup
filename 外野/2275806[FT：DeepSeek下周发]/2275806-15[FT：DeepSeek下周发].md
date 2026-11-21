@@ -3080,3 +3080,14 @@ skill管理我记得herdr-app好像有个mod可以用，不过现在我在搭自
 二五折？？是哪个什么学生优惠吗</blockquote>
 应该是随机刷的，总之我用了很久但没买过gemini的谷歌主号，点开订阅界面弹了个优惠，三个月的二五折
 
+
+*****
+
+####  qwased  
+##### 20965#       发表于 2026-11-21 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536876&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-21 18:16</a>
+
+所以，如果一个月内用量均匀分布，最划算的方式是月中订阅吗？</blockquote>
+应该是准备两个号，在月中轮流开一个月订阅<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最狠的做法应该是仅退款，法棍甚至支持14天无条件退款……不过估计玩多了会封信用卡
+
