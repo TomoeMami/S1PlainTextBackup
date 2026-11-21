@@ -2767,3 +2767,125 @@ moekyo 发表于 2026-11-21 15:18
 
 我平时用ai也就写ppt，写报告，搞视频，偶尔搞个小工具，在不能用claude的情况下，哈基米已经是完美替代了。
 
+
+*****
+
+####  bartholo4  
+##### 20953#       发表于 2026-11-21 17:09
+
+agy竟然已经重置了，怎么一点声响也没有
+
+专门做了个监控都没监控到
+
+还有30几的额度没蹬完（拍大腿）
+
+
+*****
+
+####  bartholo4  
+##### 20953#       发表于 2026-11-21 17:09
+
+agy竟然已经重置了，怎么一点声响也没有
+
+专门做了个监控都没监控到
+
+还有30几的额度没蹬完（拍大腿）
+
+*****
+
+####  紧那罗  
+##### 20954#       发表于 2026-11-21 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535860&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-21 11:55</a>
+开始大量使用Google以后harness彻底炸锅了，现在常用的有Codex，Pi，DSH和Antigravity四个
+
+想尝试部署一个 ...</blockquote>
+我看漏油用herdr的好像比较多
+我个人现在是用PASEO，还比较满意。 不过我对这类工具的诉求是纯前端的，其他的如skill mcp管理，我是直接让agent自己去对齐就完事。
+
+不过渐渐也有需求跟不上了，现在准备基于PASEO daemon自己搭一个。
+
+
+*****
+
+####  heemoon  
+##### 20952#       发表于 2026-11-21 17:04
+
+感觉gpt对我已经没有续订的价值了，给了个参考视频让他模仿，6.2astra规划sol执行，改了三遍下来还是一坨。
+
+换neon出的第一版就惊艳到我了，就是那种非常懂我的感觉，有灵性<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+我平时用ai也就写ppt，写报告，搞视频，偶尔搞个小工具，在不能用claude的情况下，哈基米已经是完美替代了。
+
+*****
+
+####  bartholo4  
+##### 20953#       发表于 2026-11-21 17:09
+
+agy竟然已经重置了，怎么一点声响也没有
+
+专门做了个监控都没监控到
+
+还有30几的额度没蹬完（拍大腿）
+
+*****
+
+####  紧那罗  
+##### 20954#       发表于 2026-11-21 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535860&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-21 11:55</a>
+开始大量使用Google以后harness彻底炸锅了，现在常用的有Codex，Pi，DSH和Antigravity四个
+
+想尝试部署一个 ...</blockquote>
+我看漏油用herdr的好像比较多
+我个人现在是用PASEO，还比较满意。 不过我对这类工具的诉求是纯前端的，其他的如skill mcp管理，我是直接让agent自己去对齐就完事。
+
+不过渐渐也有需求跟不上了，现在准备基于PASEO daemon自己搭一个。
+
+
+*****
+
+####  heemoon  
+##### 20952#       发表于 2026-11-21 17:04
+
+感觉gpt对我已经没有续订的价值了，给了个参考视频让他模仿，6.2astra规划sol执行，改了三遍下来还是一坨。
+
+换neon出的第一版就惊艳到我了，就是那种非常懂我的感觉，有灵性<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+我平时用ai也就写ppt，写报告，搞视频，偶尔搞个小工具，在不能用claude的情况下，哈基米已经是完美替代了。
+
+*****
+
+####  bartholo4  
+##### 20953#       发表于 2026-11-21 17:09
+
+agy竟然已经重置了，怎么一点声响也没有
+
+专门做了个监控都没监控到
+
+还有30几的额度没蹬完（拍大腿）
+
+*****
+
+####  紧那罗  
+##### 20954#       发表于 2026-11-21 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535860&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-21 11:55</a>
+开始大量使用Google以后harness彻底炸锅了，现在常用的有Codex，Pi，DSH和Antigravity四个
+
+想尝试部署一个 ...</blockquote>
+我看漏油用herdr的好像比较多
+我个人现在是用PASEO，还比较满意。 不过我对这类工具的诉求是纯前端的，其他的如skill mcp管理，我是直接让agent自己去对齐就完事。
+
+不过渐渐也有需求跟不上了，现在准备基于PASEO daemon自己搭一个。
+
+*****
+
+####  UncleDracula  
+##### 20955#       发表于 2026-11-21 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536422&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-21 15:15</a>
+
+mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔会炸缓存</blockquote>
+峰价330？那谷价不就是660？认真的？
+
