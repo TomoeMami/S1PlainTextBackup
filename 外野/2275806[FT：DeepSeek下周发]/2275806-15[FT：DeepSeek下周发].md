@@ -2939,3 +2939,34 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 每月1号重置，所以卡时间订阅可以多蹬一个月</blockquote>
 意思是我今天订阅，1号会重置额度，但到期时间还是下个月的今天？
 
+
+*****
+
+####  舞以  
+##### 20958#       发表于 2026-11-21 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536830&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-21 17:52</a>
+
+意思是我今天订阅，1号会重置额度，但到期时间还是下个月的今天？</blockquote>
+是的喵，所以你蹬得狠的话，相当于送你一个月用量
+
+
+*****
+
+####  舞以  
+##### 20958#       发表于 2026-11-21 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536830&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-21 17:52</a>
+
+意思是我今天订阅，1号会重置额度，但到期时间还是下个月的今天？</blockquote>
+是的喵，所以你蹬得狠的话，相当于送你一个月用量
+
+*****
+
+####  pure_liquid  
+##### 20959#       发表于 2026-11-21 18:16
+
+<blockquote>舞以 发表于 2026-11-21 18:11
+是的喵，所以你蹬得狠的话，相当于送你一个月用量</blockquote>
+所以，如果一个月内用量均匀分布，最划算的方式是月中订阅吗？
+
