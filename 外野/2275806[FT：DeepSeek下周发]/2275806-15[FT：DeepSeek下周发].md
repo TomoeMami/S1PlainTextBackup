@@ -2992,3 +2992,16 @@ kimi是加额度了还是重置了 怎么我的总使用量一下子少了好多
 kimi是加额度了还是重置了 怎么我的总使用量一下子少了好多</blockquote>
 送了25%的月额度
 
+
+*****
+
+####  舞以  
+##### 20961#       发表于 2026-11-21 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536876&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-21 18:16</a>
+
+所以，如果一个月内用量均匀分布，最划算的方式是月中订阅吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">是吧
+
+但是最划算的是之前的法棍黑客松鸡蛋，免费给3个月订阅哈哈
+
