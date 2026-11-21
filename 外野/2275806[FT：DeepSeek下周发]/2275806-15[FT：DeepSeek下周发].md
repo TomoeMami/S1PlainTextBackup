@@ -2573,3 +2573,32 @@ Kimi K3.1 Pro能解答出物理常数部分，后面认为无法破解拒绝解�
 
 当然我也不是说10T就对，同理我其实也很怀疑可能是刚刚过T左右参数模型里面内置了文本向量数据库多段检索的。
 
+
+*****
+
+####  我也很绝望啊  
+##### 20937#       发表于 2026-11-21 15:08
+
+最近用量有点大，一天跑满差不多20亿token，有没有什么实惠点的plan推荐？速度别太慢最好没5小时限制，模型有1017就够了
+
+
+*****
+
+####  紧那罗  
+##### 20938#       发表于 2026-11-21 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535711&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-11-21 11:09</a>
+thx，顺便问问反重力到底有多不好用……</blockquote>
+我只拿反重力当纯后段harness，坦白说除了和主流agent差别比较大（我觉得这应该不算缺点？）反重力团队自己维护ACP也不积极，其他的也没什么。
+反重力早期产品规划就挺激进的，我最近在看他们的swarm实现，思路也是挺新颖的。感觉主要还是大公司病，不太招社区喜欢。
+其他非功能层面的毛病，首字慢，缓存率低这些就算附带的了，只要价格实惠都好说2333
+
+*****
+
+####  qwased  
+##### 20939#       发表于 2026-11-21 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536410&amp;ptid=2275806" target="_blank">我也很绝望啊 发表于 2026-11-21 15:08</a>
+最近用量有点大，一天跑满差不多20亿token，有没有什么实惠点的plan推荐？速度别太慢最好没5小时限制，模型 ...</blockquote>
+mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔会炸缓存<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
