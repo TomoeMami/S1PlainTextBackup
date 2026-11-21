@@ -3197,3 +3197,14 @@ skill管理我记得herdr-app好像有个mod可以用，不过现在我在搭自
 
 [https://mp.weixin.qq.com/s/LHZxKjzVkEpnsCDcNlaMXw](https://mp.weixin.qq.com/s/LHZxKjzVkEpnsCDcNlaMXw) 混元团队的问答，还是挺偏技术话题的
 
+
+*****
+
+####  孤狼arcueid  
+##### 20971#       发表于 2026-11-21 23:03
+
+之前小号开的jio把大号拉进群组
+大号主动退了后日区订阅了pro，但是没法建组也没法拉组了，只能等冷却到期，找客服battle了一下居然特赦了<img src="https://static.stage1st.com/image/smiley/normal/024.gif" referrerpolicy="no-referrer">
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 17 Ultra
+

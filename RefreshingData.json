@@ -540,10 +540,10 @@
     "update": false
   },
   "2094432": {
-    "totalreply": 14707,
+    "totalreply": 14708,
     "title": "[【Mr.Quin／秦川】真爱（？）讨论三号楼]",
     "newtitle": "[【Mr.Quin／秦川】秦智障真爱（？）讨论三号楼]",
-    "lastedit": 1795269136,
+    "lastedit": 1795273214,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10980,10 +10980,10 @@
     "update": false
   },
   "2159972": {
-    "totalreply": 2116,
+    "totalreply": 2117,
     "title": "[【官宣】R星《GTA6》首个预告公开，2025年秋发售XS／PS5]",
     "newtitle": "[【官宣】R星《GTA6》PV公开，2026年11月19日发售XS／PS5]",
-    "lastedit": 1795271416,
+    "lastedit": 1795273338,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 23553,
+    "totalreply": 23554,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「穿越甚大蘑境与你相逢」版本即将开放]",
-    "lastedit": 1795272736,
+    "lastedit": 1795273692,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 20970,
+    "totalreply": 20971,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1795272377,
+    "lastedit": 1795273456,
     "category": "外野",
     "active": true,
     "update": false
@@ -13599,10 +13599,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 43573,
+    "totalreply": 43574,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1795272247,
+    "lastedit": 1795273588,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13887,12 +13887,12 @@
     "update": false
   },
   "2267682": {
-    "totalreply": 143,
+    "totalreply": 144,
     "title": "[【2026年／10月播出】罗梅莉亚战记 动画⚔️预告解禁‼️]",
     "newtitle": "[【2026年／10月播出】罗梅莉亚战记 动画⚔️预告解禁‼️]",
-    "lastedit": 1794877208,
+    "lastedit": 1795273697,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2280008": {
@@ -14499,10 +14499,10 @@
     "update": false
   },
   "2293096": {
-    "totalreply": 598,
+    "totalreply": 599,
     "title": "[安利一下女王领域（Queen´s Domain）内含剧透]",
     "newtitle": "[安利一下女王魔域（Queen´s Domain）内含剧透]",
-    "lastedit": 1795272615,
+    "lastedit": 1795273589,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17937,10 +17937,10 @@
     "update": false
   },
   "2294466": {
-    "totalreply": 244,
+    "totalreply": 246,
     "title": "[黎曼猜想被A／证明了]",
     "newtitle": "[黎曼猜想被A／证明了]",
-    "lastedit": 1795271065,
+    "lastedit": 1795273589,
     "category": "外野",
     "active": true,
     "update": false
@@ -18050,6 +18050,15 @@
     "newtitle": "[富野由悠季 新作「ヒミコヤマト ／ 卑弥呼大和」制作进行中]",
     "lastedit": 1795271778,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2288021": {
+    "totalreply": 76,
+    "title": "[这是我今年看到过最精彩的ai视频]",
+    "newtitle": "[这是我今年看到过最精彩的ai视频]",
+    "lastedit": 1795273215,
+    "category": "外野",
     "active": true,
     "update": false
   }

@@ -7509,3 +7509,14 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 靠近才活，大概10m左右正常索敌范围，能活的也不多，零散分布在四个房子和中央台子上，有个别的需要主动 ...</blockquote>
 好的谢谢。之前打完没补血，直接给怪偷袭死了。回档后还没插钥匙<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  另外四分之三  
+##### 599#       发表于 2026-11-21 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537392&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-21 21:51</a>
+说的是有两个宝箱的沉船小岛吗？  3飞就能来回的。</blockquote>
+是水迷宫里有个鱼人顶个蛋的雕塑那里，说是探险队俩人坐船去深处，然后水位降下去回不来了，然后我也回不来了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+蛇人钥匙上部查了攻略才知道藏在哪里了，谁知道什么什么石头就是那种升降石柱子啊，墓地逛了好几圈都没找到，，
+
