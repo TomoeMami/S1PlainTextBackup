@@ -14076,3 +14076,23 @@ twi:@cdgm000
 迪哥线得提醒新人得先去目的地，然后章节结束就自动传送过去了。
 妈的，坑死我了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沙发果冻  
+##### 8714#       发表于 2026-11-21 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70534952&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-11-21 00:56</a>
+我自己是把凯伊线放最后打的，但如果四条线限定只打一次，且凯伊线放最后的话，有个互斥分支任务你是无论 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">迪哥线那个重开是时间规划问题么，那是外传时间卡死，主要看你知不知道提前踩点能传送，不然你再怎么规划都可能重打一章
+
+
+*****
+
+####  沙发果冻  
+##### 8714#       发表于 2026-11-21 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70534952&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-11-21 00:56</a>
+我自己是把凯伊线放最后打的，但如果四条线限定只打一次，且凯伊线放最后的话，有个互斥分支任务你是无论 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">迪哥线那个重开是时间规划问题么，那是外传时间卡死，主要看你知不知道提前踩点能传送，不然你再怎么规划都可能重打一章
+
