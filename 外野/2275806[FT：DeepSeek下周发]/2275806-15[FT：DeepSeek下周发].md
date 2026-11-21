@@ -2685,3 +2685,30 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 
 日区ios订阅了哈基米pro，试了一下，这沟通能力甩6.2Astra一条街。Astra现在真是不说人话了，我以前一直以为小模型才不说人话，结果Astra这个规模的模型也不说人话<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BarricadeMKXX  
+##### 20948#       发表于 2026-11-21 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536429&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-21 15:18</a>
+
+有人知道 Gemini Pro 年包黑五半价怎么弄吗，好几个说法，有说要黑五当天才会开放新用户，已经充了的现在点 ...</blockquote>
+你看价格，我是前几天开了日区二五折，改套餐的地方虽然显示16%折扣但左边的价格已经变成了五折的14500日元
+
+
+*****
+
+####  BarricadeMKXX  
+##### 20948#       发表于 2026-11-21 16:24
+
+ 本帖最后由 BarricadeMKXX 于 2026-11-21 16:27 编辑 
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536429&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-21 15:18</a>
+
+有人知道 Gemini Pro 年包黑五半价怎么弄吗，好几个说法，有说要黑五当天才会开放新用户，已经充了的现在点 ...</blockquote>
+
+你看价格，我是前几天开了日区二五折，改套餐的地方虽然显示16%折扣但左边的价格已经变成了五折的14500日元
+
+那个16%的意思是年费相比12个月每月续订省16%
+
