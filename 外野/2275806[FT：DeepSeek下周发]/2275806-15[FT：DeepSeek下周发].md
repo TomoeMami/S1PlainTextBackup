@@ -3208,3 +3208,11 @@ skill管理我记得herdr-app好像有个mod可以用，不过现在我在搭自
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 17 Ultra
 
+
+*****
+
+####  heemoon  
+##### 20972#       发表于 2026-11-21 23:09
+
+对了google的pro及以上还有flow积分，每个月1000不要浪费了，能用omni 1.2f，虽然大概比不上sd2.5（没用过，不过反正也是送的不用白不用
+

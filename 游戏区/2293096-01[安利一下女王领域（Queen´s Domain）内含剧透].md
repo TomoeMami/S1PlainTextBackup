@@ -7520,3 +7520,15 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 是水迷宫里有个鱼人顶个蛋的雕塑那里，说是探险队俩人坐船去深处，然后水位降下去回不来了，然后我也回不来了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 蛇人钥匙上部查了攻略才知道藏在哪里了，谁知道什么什么石头就是那种升降石柱子啊，墓地逛了好几圈都没找到，，
 
+
+*****
+
+####  另外四分之三  
+##### 600#       发表于 2026-11-21 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537245&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-21 20:53</a>
+集齐5飞石 主线推差不多了后别急着逛地图解密，效率还是很低，这时候该去收集4神镜片
+
+雷神镜片在出生岛大 ...</blockquote>
+感谢大佬，花环解密我是硬试出来的，粪坑最后还能变清水真不错，我就说有个隐藏在台子地下怎么解不了
+
