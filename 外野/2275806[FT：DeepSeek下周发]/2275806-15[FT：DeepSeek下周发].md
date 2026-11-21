@@ -3156,3 +3156,14 @@ skill管理我记得herdr-app好像有个mod可以用，不过现在我在搭自
 什么意思？是不是说，如果是同一个号，第二个月的月中续订的话，不给重置？必须要等再下一个月重新订阅？ ...</blockquote>
 那就等于扣两次钱有3个月额度，当然没有扣一次钱用两个月额度多啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 20967#       发表于 2026-11-21 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537145&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-11-21 20:22</a>
+
+什么意思？是不是说，如果是同一个号，第二个月的月中续订的话，不给重置？必须要等再下一个月重新订阅？ ...</blockquote>
+那就等于扣两次钱有3个月额度，当然没有扣一次钱用两个月额度多啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
