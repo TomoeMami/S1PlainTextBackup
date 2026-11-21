@@ -3336,3 +3336,42 @@ Mistral的1017是强制不开思考的？
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 17 Ultra
 
+
+*****
+
+####  qwased  
+##### 20978#       发表于 2026-11-22 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537612&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-21 23:36</a>
+
+Mistral的1017是强制不开思考的？</blockquote>
+你是不是用的DSH，是的话最好换node版，desktop版的内置组件更新慢所以mistral供应商里面选不了1017的思考强度
+
+或者你手动添加一个response协议的第三方供应商mistral也行，除了法棍要求会话最大图片数量不超过20以外都完美适配了，添加完叫肥鱼在配置文档里面加一下图片数量的限制
+
+
+*****
+
+####  qwased  
+##### 20978#       发表于 2026-11-22 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537612&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-21 23:36</a>
+
+Mistral的1017是强制不开思考的？</blockquote>
+你是不是用的DSH，是的话最好换node版，desktop版的内置组件更新慢所以mistral供应商里面选不了1017的思考强度
+
+或者你手动添加一个response协议的第三方供应商mistral也行，除了法棍要求会话最大图片数量不超过20以外都完美适配了，添加完叫肥鱼在配置文档里面加一下图片数量的限制
+
+
+*****
+
+####  qwased  
+##### 20978#       发表于 2026-11-22 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537612&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-21 23:36</a>
+
+Mistral的1017是强制不开思考的？</blockquote>
+你是不是用的DSH，是的话最好换node版，desktop版的内置组件更新慢所以mistral供应商里面选不了1017的思考强度
+
+或者你手动添加一个response协议的第三方供应商mistral也行，除了法棍要求会话最大图片数量不超过20以外都完美适配了，添加完叫肥鱼在配置文档里面加一下图片数量的限制
+
