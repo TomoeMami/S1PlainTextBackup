@@ -2970,3 +2970,25 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 是的喵，所以你蹬得狠的话，相当于送你一个月用量</blockquote>
 所以，如果一个月内用量均匀分布，最划算的方式是月中订阅吗？
 
+
+*****
+
+####  raragon  
+##### 20960#       发表于 2026-11-21 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536615&amp;ptid=2275806" target="_blank">profklugstein 发表于 2026-11-21 16:30</a>
+
+kimi是加额度了还是重置了 怎么我的总使用量一下子少了好多</blockquote>
+送了25%的月额度
+
+
+*****
+
+####  raragon  
+##### 20960#       发表于 2026-11-21 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536615&amp;ptid=2275806" target="_blank">profklugstein 发表于 2026-11-21 16:30</a>
+
+kimi是加额度了还是重置了 怎么我的总使用量一下子少了好多</blockquote>
+送了25%的月额度
+
