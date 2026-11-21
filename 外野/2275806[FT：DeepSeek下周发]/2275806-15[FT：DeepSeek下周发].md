@@ -3284,3 +3284,29 @@ Mistral的1017是强制不开思考的？
 那就等于扣两次钱有3个月额度，当然没有扣一次钱用两个月额度多啊</blockquote>
 Mistral的1017是强制不开思考的？
 
+
+*****
+
+####  舞以  
+##### 20976#       发表于 2026-11-22 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537539&amp;ptid=2275806" target="_blank">孤狼arcueid 发表于 2026-11-21 23:03</a>
+
+之前小号开的jio把大号拉进群组
+
+大号主动退了后日区订阅了pro，但是没法建组也没法拉组了，只能等冷却到期 ...</blockquote>
+可以在小号那里关掉共享就行了 大号不用退家庭
+
+
+*****
+
+####  舞以  
+##### 20976#       发表于 2026-11-22 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537539&amp;ptid=2275806" target="_blank">孤狼arcueid 发表于 2026-11-21 23:03</a>
+
+之前小号开的jio把大号拉进群组
+
+大号主动退了后日区订阅了pro，但是没法建组也没法拉组了，只能等冷却到期 ...</blockquote>
+可以在小号那里关掉共享就行了 大号不用退家庭
+
