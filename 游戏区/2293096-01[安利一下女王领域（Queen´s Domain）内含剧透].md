@@ -7164,3 +7164,12 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 盾兵确实恶心，一开始不会打被近身三连顶顶死气笑了，不过我倒是挺喜欢罪恶辑录的这种恶意的，箱庭结构很 ...</blockquote>
 没被盾兵三连顶死的女王魔域人生是不完整的<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  28201  
+##### 579#       发表于 2026-11-21 07:50
+
+我倒是觉得上古界域挺好，风景好也不迷路。怪还是多但没给你全挤在一个封闭区域。和古墓一起是走的最爽的两个图。
+石化花园它应该做成类似万魔殿，你挑战了怪才活，结果我钥匙一插，在视线内的自己全动了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
