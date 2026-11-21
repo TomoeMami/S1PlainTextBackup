@@ -7499,3 +7499,13 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 问下大家石化花园插了五色钥匙后，石像是都不动的吗？怎么我一插完就走到存档点什么也没碰就全都活了 ...</blockquote>
 靠近才活，大概10m左右正常索敌范围，能活的也不多，零散分布在四个房子和中央台子上，有个别的需要主动攻击多次才会活
 
+
+*****
+
+####  28201  
+##### 598#       发表于 2026-11-21 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537498&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-21 22:37</a>
+靠近才活，大概10m左右正常索敌范围，能活的也不多，零散分布在四个房子和中央台子上，有个别的需要主动 ...</blockquote>
+好的谢谢。之前打完没补血，直接给怪偷袭死了。回档后还没插钥匙<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
