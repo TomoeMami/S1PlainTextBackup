@@ -2743,3 +2743,27 @@ moekyo 发表于 2026-11-21 15:18
 有人知道 Gemini Pro 年包黑五半价怎么弄吗，好几个说法，有说要黑五当天 ...</blockquote>
 二五折？？是哪个什么学生优惠吗
 
+
+*****
+
+####  heemoon  
+##### 20952#       发表于 2026-11-21 17:04
+
+感觉gpt对我已经没有续订的价值了，给了个参考视频让他模仿，6.2astra规划sol执行，改了三遍下来还是一坨。
+
+换neon出的第一版就惊艳到我了，就是那种非常懂我的感觉，有灵性<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+我平时用ai也就写ppt，写报告，搞视频，偶尔搞个小工具，在不能用claude的情况下，哈基米已经是完美替代了。
+
+
+*****
+
+####  heemoon  
+##### 20952#       发表于 2026-11-21 17:04
+
+感觉gpt对我已经没有续订的价值了，给了个参考视频让他模仿，6.2astra规划sol执行，改了三遍下来还是一坨。
+
+换neon出的第一版就惊艳到我了，就是那种非常懂我的感觉，有灵性<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+我平时用ai也就写ppt，写报告，搞视频，偶尔搞个小工具，在不能用claude的情况下，哈基米已经是完美替代了。
+
