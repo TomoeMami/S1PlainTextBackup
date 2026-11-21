@@ -3189,3 +3189,11 @@ skill管理我记得herdr-app好像有个mod可以用，不过现在我在搭自
 
 可以先买个月付，转年付优惠后会退一部分费用
 
+
+*****
+
+####  qz66618  
+##### 20970#       发表于 2026-11-21 22:44
+
+[https://mp.weixin.qq.com/s/LHZxKjzVkEpnsCDcNlaMXw](https://mp.weixin.qq.com/s/LHZxKjzVkEpnsCDcNlaMXw) 混元团队的问答，还是挺偏技术话题的
+
