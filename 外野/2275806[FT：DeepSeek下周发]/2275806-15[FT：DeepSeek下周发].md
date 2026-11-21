@@ -3167,3 +3167,15 @@ skill管理我记得herdr-app好像有个mod可以用，不过现在我在搭自
 什么意思？是不是说，如果是同一个号，第二个月的月中续订的话，不给重置？必须要等再下一个月重新订阅？ ...</blockquote>
 那就等于扣两次钱有3个月额度，当然没有扣一次钱用两个月额度多啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  idlerdy  
+##### 20968#       发表于 2026-11-21 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536429&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-21 15:18</a>
+有人知道 Gemini Pro 年包黑五半价怎么弄吗，好几个说法，有说要黑五当天才会开放新用户，已经充了的现在点 ...</blockquote>
+我切换到年费确实是半价了
+
+—— 来自 vivo V2527A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
