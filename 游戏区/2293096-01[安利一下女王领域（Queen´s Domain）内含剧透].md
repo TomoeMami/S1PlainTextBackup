@@ -7183,3 +7183,25 @@ Woc我玩个demo试试水拿了把锈剑被路边虫子和鸡追着打我砍他�
 
 上古界域一开始觉得很乱，后面全收集时回去再看还是挺清楚的，中规中矩。
 
+
+*****
+
+####  Algie  
+##### 581#       发表于 2026-11-21 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535048&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-21 02:47</a>
+
+个人感受是一飞石从本岛开始直到三飞石打完大书库回到本岛大陵墓开门的流程的探索为主的解谜体验是神中神最 ...</blockquote>
+我怀疑盾兵这些铁皮罐头怪弄出来就是逼玩家多用用魔法武器搞速杀的
+
+
+*****
+
+####  Algie  
+##### 581#       发表于 2026-11-21 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535048&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-21 02:47</a>
+
+个人感受是一飞石从本岛开始直到三飞石打完大书库回到本岛大陵墓开门的流程的探索为主的解谜体验是神中神最 ...</blockquote>
+我怀疑盾兵这些铁皮罐头怪弄出来就是逼玩家多用用魔法武器搞速杀的
+
