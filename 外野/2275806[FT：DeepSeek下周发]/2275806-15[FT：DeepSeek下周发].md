@@ -2722,3 +2722,24 @@ kimi是加额度了还是重置了 怎么我的总使用量一下子少了好多
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  夜游宫  
+##### 20950#       发表于 2026-11-21 16:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最近用workbuddy把以前停服的老手游解了个包，免费的HY4搞了一小时还有两百多张图片无法解密，换了GLM半小时就搞完了，最后用DS做了个html图片播放器。当然消耗也惊人，总共花了六百多积分。
+
+
+*****
+
+####  moekyo  
+##### 20951#       发表于 2026-11-21 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536590&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-11-21 16:24</a>
+
+moekyo 发表于 2026-11-21 15:18
+
+有人知道 Gemini Pro 年包黑五半价怎么弄吗，好几个说法，有说要黑五当天 ...</blockquote>
+二五折？？是哪个什么学生优惠吗
+
