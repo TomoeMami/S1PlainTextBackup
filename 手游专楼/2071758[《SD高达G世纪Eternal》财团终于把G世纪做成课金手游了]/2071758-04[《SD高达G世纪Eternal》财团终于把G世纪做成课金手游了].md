@@ -46,3 +46,16 @@
 
 格斗射击超800，也就没有三动，纯数值怪
 
+
+*****
+
+####  captoon  
+##### 4984#       发表于 2026-11-23 04:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70539168&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-11-22 18:48</a>
+
+破坏将军开飞翼0地图炮伤害比希罗高
+
+格斗射击超800，也就没有三动，纯数值怪</blockquote>
+我这次也都是只摸了个技师，就走了，机体真的尴尬，技师还可以
+
