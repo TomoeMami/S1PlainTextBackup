@@ -3515,3 +3515,28 @@ opencode的deepseek降价60%？  那相当于多少用量 搞得我都不会�
 
 刚才在dsh蹬v4.1f似乎路由到测试模型了，CoT基本全部是中文
 
+
+*****
+
+####  tonyunreal  
+##### 20984#       发表于 2026-11-22 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70538962&amp;ptid=2275806" target="_blank">gzGaryC 发表于 2026-11-22 17:08</a>
+
+刚才在dsh蹬v4.1f似乎路由到测试模型了，CoT基本全部是中文</blockquote>
+我前天遇到了，蠢的一笔，害得我喷了它一天改bug
+
+
+*****
+
+####  tonyunreal  
+##### 20984#       发表于 2026-11-22 17:53
+
+ 本帖最后由 tonyunreal 于 2026-11-22 17:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70538962&amp;ptid=2275806" target="_blank">gzGaryC 发表于 2026-11-22 17:08</a>
+
+刚才在dsh蹬v4.1f似乎路由到测试模型了，CoT基本全部是中文</blockquote>
+我前天遇到了，蠢的一笔，害得我喷了它一天改bug
+
+记错了，我那个是英文思考链但是每段都用中文回复
+
