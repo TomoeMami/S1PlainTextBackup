@@ -163,3 +163,18 @@
 
 再有一个就是，考虑到普通不可思议打倒后只会掉种蛋不会掉驾驭蛋，驾驭蛋有可能就是十二支骑士彻底不可思议化后的掉落物，十二支弟子的毕业考试就是击破老师什么的…反正都是猜测啦<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 322#       发表于 2026-11-22 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70539594&amp;ptid=2278175" target="_blank">永恒的王牌 发表于 2026-11-22 21:35</a>
+
+目前的情报
+
+十二支的情况是就算有带扣控制也会非人化，其中龙首是状况最严重的，头和手已经完全变异了。
+
+— ...</blockquote>
+我怀疑其实原本的男主在小时候的事故中已经死了，现在的男主是大小姐不可思议化后用不可思议的力量复活的<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
