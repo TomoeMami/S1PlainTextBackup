@@ -14446,3 +14446,31 @@ twi:@cdgm000
 反击又用不了战技
 全部武器只有长柄刀和拳刃有5点必杀加成 其他武器都是0<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bonnwang  
+##### 8737#       发表于 2026-11-22 22:18
+
+还有 饰品能力的发动机率是3%<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+这尼玛逗我呢？
+
+
+*****
+
+####  涂鸦恶魔  
+##### 8738#       发表于 2026-11-22 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70539753&amp;ptid=2261859" target="_blank">bonnwang 发表于 2026-11-22 22:16</a>
+
+必杀剑只是一个有必杀战技的普通剑而已
+
+必杀率是0
+
+一个回合只能用一次必杀战技</blockquote>
+用来放战技啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，反而必杀剑本身的战技很少用。
+
+连击系的战技都是-10耐久强化之后变-8耐久。
+
+什么达米纳斧达米纳枪只有25点，多用几次就没了，至少也改回三房那样钢斧55钢枪45
+
