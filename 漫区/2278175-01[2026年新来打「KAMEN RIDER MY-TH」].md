@@ -114,3 +114,16 @@
 
 怎么感觉类似剑的不死者融合系数同步的设定，没有那个零件直接变身次数多了会变成怪人么
 
+
+*****
+
+####  pokemon最爱  
+##### 319#       发表于 2026-11-22 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70538766&amp;ptid=2278175" target="_blank">洛克萨斯 发表于 2026-11-22 14:52</a>
+
+怎么感觉类似剑的不死者融合系数同步的设定，没有那个零件直接变身次数多了会变成怪人么 ...</blockquote>
+是正常情况下没有零件没办法变身，有了零件可以变身但变多了会变怪人吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+毕竟是“控制带扣”。
+
