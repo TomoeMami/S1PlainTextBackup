@@ -7690,3 +7690,55 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 这游戏整体boss战都是送的。 难的是路上堆怪+地形狭小。
 
+
+*****
+
+####  zzf111  
+##### 604#       发表于 2026-11-22 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70538631&amp;ptid=2293096" target="_blank">ParadiseMartyr 发表于 2026-11-22 13:37</a>
+
+打到海王boss了，感觉这一战消耗很大啊，打boss刮痧，boss还会上毒招小弟。
+
+打完下来要耗费十个药草十瓶药 ...</blockquote>
+心疼药就把木棒练满，升级后的木棒是游戏里综合治疗能力最强的东西
+
+解异常状态的道具前期可能比较稀有总体上是不缺的
+
+
+*****
+
+####  zzf111  
+##### 604#       发表于 2026-11-22 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70538631&amp;ptid=2293096" target="_blank">ParadiseMartyr 发表于 2026-11-22 13:37</a>
+
+打到海王boss了，感觉这一战消耗很大啊，打boss刮痧，boss还会上毒招小弟。
+
+打完下来要耗费十个药草十瓶药 ...</blockquote>
+心疼药就把木棒练满，升级后的木棒是游戏里综合治疗能力最强的东西
+
+解异常状态的道具前期可能比较稀有总体上是不缺的
+
+
+*****
+
+####  zzf111  
+##### 604#       发表于 2026-11-22 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70538631&amp;ptid=2293096" target="_blank">ParadiseMartyr 发表于 2026-11-22 13:37</a>
+
+打到海王boss了，感觉这一战消耗很大啊，打boss刮痧，boss还会上毒招小弟。
+
+打完下来要耗费十个药草十瓶药 ...</blockquote>
+心疼药就把木棒练满，升级后的木棒是游戏里综合治疗能力最强的东西
+
+解异常状态的道具前期可能比较稀有总体上是不缺的
+
+*****
+
+####  28201  
+##### 605#       发表于 2026-11-22 17:35
+
+鲸鱼还行吧，打之前去存档对面，跳过去还没进墓室那里有个插钥匙的，插完柱子升降到密室可以拿一个首饰，戴上毒消得快一点。我打鲸鱼都放弃祛毒了，直接补血。反正治好马上又中毒。
+
