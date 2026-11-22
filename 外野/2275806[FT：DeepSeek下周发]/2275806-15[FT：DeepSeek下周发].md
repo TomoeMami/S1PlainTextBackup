@@ -3683,3 +3683,15 @@ Gemini 说了 12 月 2 号开放第三方的样子
 
 600r 1年的哈基米怎么样
 
+
+*****
+
+####  御坂MKII  
+##### 20996#       发表于 2026-11-22 23:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">写代码的时候感觉 gpt 都还好。今天正好去看颈椎顺便拍片拿了些药，让它看片和看药的时候终于发现它变态的地方了。
+
+没有把问诊结果直接发给它，它就死活不会根据 ct 片给出任何结论，把开的药发给它也是没结论。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+反正就是我没法从这些信息里得出任何结论，结论你要问医生
+
