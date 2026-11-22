@@ -3750,3 +3750,15 @@ GPT 额度蹬完用坛友推荐的法棍 1017 接上 dsh 接手，输出速度�
 
 —— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 21002#       发表于 2026-11-23 04:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70540326&amp;ptid=2275806" target="_blank">Luc 发表于 2026-11-23 02:44</a>
+GPT 额度蹬完用坛友推荐的法棍 1017 接上 dsh 接手，输出速度直接翻了 20 倍好爽
+法棍的 1017 websearch 是 ...</blockquote>
+我是直接用的union search插件接管了搜索，改成exa tavily bing一起出结果的
+你在全局agents.md加上“run_code/bash之类有描述意图字段的工具都用中文写意图”就差不多知道在干嘛了，还想让它多汇报也能继续加规定但是肥鱼说话太难懂<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
