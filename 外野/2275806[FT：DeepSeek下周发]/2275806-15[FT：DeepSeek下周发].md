@@ -3375,3 +3375,23 @@ Mistral的1017是强制不开思考的？</blockquote>
 
 或者你手动添加一个response协议的第三方供应商mistral也行，除了法棍要求会话最大图片数量不超过20以外都完美适配了，添加完叫肥鱼在配置文档里面加一下图片数量的限制
 
+
+*****
+
+####  唠叨  
+##### 20979#       发表于 2026-11-22 10:21
+
+opencode的deepseek降价60%？  那相当于多少用量 搞得我都不会算了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+有在用opencode的佬吗  速度和智力怎么样
+
+
+*****
+
+####  唠叨  
+##### 20979#       发表于 2026-11-22 10:21
+
+opencode的deepseek降价60%？  那相当于多少用量 搞得我都不会算了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+有在用opencode的佬吗  速度和智力怎么样
+

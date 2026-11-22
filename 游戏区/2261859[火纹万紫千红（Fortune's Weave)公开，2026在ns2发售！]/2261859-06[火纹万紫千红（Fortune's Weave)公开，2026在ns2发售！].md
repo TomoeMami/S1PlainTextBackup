@@ -14189,3 +14189,56 @@ twi:@cdgm000
 
 另外提一下独角兽这马也很重要，加幸运，幸运到40可以让非法系单位考中级法师，可以提供大量的跳过机会
 
+
+*****
+
+####  bonnwang  
+##### 8720#       发表于 2026-11-22 10:21
+
+第二部收了小绿，没看攻略小红没收到就通关了，问大肥鱼
+她说要重打第一部、第二部，才行<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+我直接选了第二部方尖碑有小绿的进度，干了小红收服，然后打完第二部更新记录就有了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+回去告诉她，她还嘴硬<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bonnwang  
+##### 8720#       发表于 2026-11-22 10:21
+
+第二部收了小绿，没看攻略小红没收到就通关了，问大肥鱼
+她说要重打第一部、第二部，才行<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+我直接选了第二部方尖碑有小绿的进度，干了小红收服，然后打完第二部更新记录就有了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+回去告诉她，她还嘴硬<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bonnwang  
+##### 8720#       发表于 2026-11-22 10:21
+
+第二部收了小绿，没看攻略小红没收到就通关了，问大肥鱼
+她说要重打第一部、第二部，才行<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+我直接选了第二部方尖碑有小绿的进度，干了小红收服，然后打完第二部更新记录就有了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+回去告诉她，她还嘴硬<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bonnwang  
+##### 8721#       发表于 2026-11-22 10:26
+
+有几个做wiki的，标记女王线第一部12章能收的眼睛村姑和迪亚哥事实上是无法挖角的
+首先这两个人有前置外传要打，大碗时间就到10-23，要挖角的等第二天，而10-24就强制进主线了
+有谁在女王线成功挖到这两个人吗
+
+
+*****
+
+####  bonnwang  
+##### 8721#       发表于 2026-11-22 10:26
+
+有几个做wiki的，标记女王线第一部12章能收的眼睛村姑和迪亚哥事实上是无法挖角的
+首先这两个人有前置外传要打，大碗时间就到10-23，要挖角的等第二天，而10-24就强制进主线了
+有谁在女王线成功挖到这两个人吗
+
