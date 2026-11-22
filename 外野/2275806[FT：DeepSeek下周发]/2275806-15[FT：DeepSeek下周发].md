@@ -3657,3 +3657,11 @@ Pro200用了重置卡五小时干完了，才16亿一千刀。畜完了
 我也想只用一个，但是google现在杀反代丧心病狂，antigravity不得不用</blockquote>
 现在T3 code已经可以合法使用官方的哈基米订阅了，后面应该也会有其他agent加进来。<blockquote>官方合规性已明确在 2026 年 10 月底至 11 月初，社区（包括 T3 Code 作者 Theo）曾因 Google 早期条款禁止第三方套壳调用 Antigravity 登录态而产生过政策争议。随后 Google 迅速更新了政策并确认：只要认证和请求是由 Google 官方签名的 antigravity-acp 二进制文件原生处理（而非第三方逆向包装），个人 Google AI 订阅用户就可以在 T3 Code 等支持的第三方客户端中合法使用订阅内的 Gemini 模型（注：Antigravity 里的 Claude 模型额度仍受限，仅限 Gemini 模型）。</blockquote>
 
+
+*****
+
+####  moekyo  
+##### 20993#       发表于 2026-11-22 22:33
+
+Gemini 说了 12 月 2 号开放第三方的样子
+
