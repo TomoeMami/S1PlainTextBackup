@@ -3395,3 +3395,13 @@ opencode的deepseek降价60%？  那相当于多少用量 搞得我都不会�
 
 有在用opencode的佬吗  速度和智力怎么样
 
+
+*****
+
+####  唠叨  
+##### 20979#       发表于 2026-11-22 10:21
+
+opencode的deepseek降价60%？  那相当于多少用量 搞得我都不会算了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+有在用opencode的佬吗  速度和智力怎么样
+
