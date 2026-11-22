@@ -3628,3 +3628,21 @@ GLM 5.4 preview 在 x 上炒作了，说是下周发还是700b 但是新架构�
 看了下，好像来源就是高盛那篇研报。</blockquote>
 来源只有券商研报的话靠谱程度不好说啊
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 20990#       发表于 2026-11-22 21:33
+
+Pro200用了重置卡五小时干完了，才16亿一千刀。畜完了
+
+
+*****
+
+####  startraveller  
+##### 20991#       发表于 2026-11-22 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70539515&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-11-22 21:06</a>
+看了下，好像来源就是高盛那篇研报。</blockquote>
+不过好像猫老板也说12月中放大的
+
