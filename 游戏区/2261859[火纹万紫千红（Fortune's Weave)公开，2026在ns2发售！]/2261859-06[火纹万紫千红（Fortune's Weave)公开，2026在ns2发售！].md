@@ -14484,3 +14484,29 @@ twi:@cdgm000
 
 另外我卡塔尼亚转猎兵打算走法系还有救吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  根正苗红  
+##### 8740#       发表于 2026-11-23 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70539187&amp;ptid=2261859" target="_blank">涂鸦恶魔 发表于 2026-11-22 18:59</a>
+魔系的神鸵可以不用换，因为现在没有暗飞马骑士这个职业，而且也没有加魔的走地马。算上坐骑的成长率，黑 ...</blockquote>
+凯伊可以转墓志铭。5%的魔力成长差距，也没差多少。
+
+鉴于这游戏稀烂的武器平衡。西洛克不如提剑砍人，最强的双刀。舍不得黑魔直接德鲁伊都成（墓志铭被克制不大稳），不差那点属性和暴击。给个必胜宝珠丢人堆里就是青春版迪哥。根本死不了。
+
+只谈强度不谈爱，圣转与其说是法师顶点，不如说是唯一一个能提剑砍人的白魔最上级职业。我舍不得西洛克的群疗就给他了。关键是火纹的特效太五毛了，圣转一顿虎虎生风的动作模组，燃后甩出几坨大鼻涕<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Humpy  
+##### 8741#       发表于 2026-11-23 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70540060&amp;ptid=2261859" target="_blank">齿轮轴君 发表于 2026-11-23 00:07</a>
+初见感觉最难受的就是不给多存档位，前期各种试错一旦走错路线想反悔都没地方说。
+
+另外我卡塔尼亚转猎兵打 ...</blockquote>
+还是得看你的乱数表<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实在不行就合成大西瓜
+
