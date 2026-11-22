@@ -14429,3 +14429,20 @@ twi:@cdgm000
 
 武器耐久值也要改，剑已经够强了，还把枪和斧和耐久削了，必杀剑的耐久反而是必杀武器里最高的是什么脑回路。
 
+
+*****
+
+####  bonnwang  
+##### 8736#       发表于 2026-11-22 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70539688&amp;ptid=2261859" target="_blank">涂鸦恶魔 发表于 2026-11-22 22:02</a>
+还有把战魂石后面的强化删了，后面的强化数值都是用脚填的。
+
+武器耐久值也要改，剑已经够强了，还把枪和 ...</blockquote>
+必杀剑只是一个有必杀战技的普通剑而已
+必杀率是0
+一个回合只能用一次必杀战技
+都不知道说什么好
+反击又用不了战技
+全部武器只有长柄刀和拳刃有5点必杀加成 其他武器都是0<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
