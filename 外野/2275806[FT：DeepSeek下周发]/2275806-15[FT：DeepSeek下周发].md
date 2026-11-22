@@ -3548,3 +3548,15 @@ opencode的deepseek降价60%？  那相当于多少用量 搞得我都不会�
 
 GLM 5.4 preview 在 x 上炒作了，说是下周发还是700b 但是新架构，先发个中号的样子。12月中发大号。
 
+
+*****
+
+####  andychen  
+##### 20986#       发表于 2026-11-22 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70539398&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-22 20:22</a>
+GLM 5.4 preview 在 x 上炒作了，说是下周发还是700b 但是新架构，先发个中号的样子。12月中发大号。 ...</blockquote>
+那看来高盛那篇研报说中了
+
+700B模型是下一代模型架构的测试，4T模型是本代架构的最终版
+
