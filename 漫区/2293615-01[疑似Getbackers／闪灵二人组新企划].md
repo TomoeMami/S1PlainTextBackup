@@ -492,3 +492,11 @@ AI短剧？
 
 笑嘻了。。本来以为大概率便宜动画 没想到连动画都不是<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 47#       发表于 2026-11-22 18:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绝赞炎上中，说是没跟作画打过招呼，似乎也没跟讲谈社打过招呼，被喷了以后把账号名字从アニメコミック改成了ボイスコミック企图蒙混过关，当大家是傻逼啊？
+

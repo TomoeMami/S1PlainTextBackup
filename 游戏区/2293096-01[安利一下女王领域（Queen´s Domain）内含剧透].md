@@ -7764,3 +7764,14 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 鲸鱼还行吧，打之前去存档对面，跳过去还没进墓室那里有个插钥匙的，插完柱子升降到密室可以拿一个首饰，戴上毒消得快一点。我打鲸鱼都放弃祛毒了，直接补血。反正治好马上又中毒。
 
+
+*****
+
+####  fuochai  
+##### 606#       发表于 2026-11-22 18:33
+
+看了一下介绍，这就是我一直想做的游戏啊
+学习一下<img src="https://static.stage1st.com/image/smiley/face/87.gif" referrerpolicy="no-referrer">
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Sony Xperia 1 V
+
