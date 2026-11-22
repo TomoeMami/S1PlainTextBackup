@@ -3444,3 +3444,66 @@ opencode的deepseek降价60%？  那相当于多少用量 搞得我都不会�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ayanamilin  
+##### 20982#       发表于 2026-11-22 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535860&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-21 11:55</a>
+
+开始大量使用Google以后harness彻底炸锅了，现在常用的有Codex，Pi，DSH和Antigravity四个
+
+想尝试部署一个 ...</blockquote>
+用 zed 呗，ACP 连接一切。
+
+不过我自己现在只用 Pi
+
+
+*****
+
+####  ayanamilin  
+##### 20982#       发表于 2026-11-22 13:47
+
+ 本帖最后由 ayanamilin 于 2026-11-22 13:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535860&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-21 11:55</a>
+
+开始大量使用Google以后harness彻底炸锅了，现在常用的有Codex，Pi，DSH和Antigravity四个
+
+想尝试部署一个 ...</blockquote>
+用 zed 呗，ACP 连接一切。
+
+不过我自己现在只用 Pi，也是走 zed 接入的
+
+
+*****
+
+####  ayanamilin  
+##### 20982#       发表于 2026-11-22 13:47
+
+ 本帖最后由 ayanamilin 于 2026-11-22 13:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535860&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-21 11:55</a>
+
+开始大量使用Google以后harness彻底炸锅了，现在常用的有Codex，Pi，DSH和Antigravity四个
+
+想尝试部署一个 ...</blockquote>
+用 zed 呗，ACP 连接一切。
+
+不过我自己现在只用 Pi，也是走 zed 接入的
+
+
+*****
+
+####  ayanamilin  
+##### 20982#       发表于 2026-11-22 13:47
+
+ 本帖最后由 ayanamilin 于 2026-11-22 13:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70535860&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-21 11:55</a>
+
+开始大量使用Google以后harness彻底炸锅了，现在常用的有Codex，Pi，DSH和Antigravity四个
+
+想尝试部署一个 ...</blockquote>
+用 zed 呗，ACP 连接一切。
+
+不过我自己现在只用 Pi，也是走 zed 接入的
+
