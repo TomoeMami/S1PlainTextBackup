@@ -3695,3 +3695,24 @@ Gemini 说了 12 月 2 号开放第三方的样子
 
 反正就是我没法从这些信息里得出任何结论，结论你要问医生
 
+
+*****
+
+####  warlock228  
+##### 20997#       发表于 2026-11-23 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70539882&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-11-22 23:02</a>
+
+写代码的时候感觉 gpt 都还好。今天正好去看颈椎顺便拍片拿了些药，让它看片和看药的时候终于发现它变态的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你以为她不懂，她只是怕了，完成用户诉求降药量结果把人停药停嘎了的新闻还挂着呢
+
+
+*****
+
+####  1242599693  
+##### 20998#       发表于 2026-11-23 00:33
+
+<blockquote>御坂MKII 发表于 2026-11-22 23:02
+写代码的时候感觉 gpt 都还好。今天正好去看颈椎顺便拍片拿了些药，让它看片和看药的时候终于发现它变态的 ...</blockquote>
+问gpt好多东西他都回答这是个好课题，我们应该怎么完善方案
+
