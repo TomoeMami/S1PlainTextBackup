@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 50380,
+    "totalreply": 50381,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.12 莉经万难]",
-    "lastedit": 1795353495,
+    "lastedit": 1795354088,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 23387,
+    "totalreply": 23389,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼11月]",
-    "lastedit": 1795341901,
+    "lastedit": 1795354088,
     "category": "外野",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 20988,
+    "totalreply": 20989,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1795353010,
+    "lastedit": 1795354089,
     "category": "外野",
     "active": true,
     "update": false
@@ -13932,10 +13932,10 @@
     "update": false
   },
   "2283078": {
-    "totalreply": 824,
+    "totalreply": 827,
     "title": "[时之笛重制来了！！2026年 11月 5 日 发售]",
     "newtitle": "[塞尔达传说：时之笛重制版专楼，2026年11月5日发售]",
-    "lastedit": 1795353495,
+    "lastedit": 1795354088,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17195,7 +17195,7 @@
     "newtitle": "[空轨2nd进TGA最佳rpg提名应该有戏]",
     "lastedit": 1795094766,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2294244": {
@@ -17757,10 +17757,10 @@
     "update": false
   },
   "2294466": {
-    "totalreply": 308,
+    "totalreply": 311,
     "title": "[黎曼猜想被A／证明了]",
     "newtitle": "[黎曼猜想被A／证明了]",
-    "lastedit": 1795353129,
+    "lastedit": 1795354089,
     "category": "外野",
     "active": true,
     "update": false
@@ -17919,10 +17919,10 @@
     "update": false
   },
   "2211943": {
-    "totalreply": 331,
+    "totalreply": 332,
     "title": "[《仙剑奇侠传四》重制版 2027年上半年发售！定档PV & 实机演示12月5日公开]",
     "newtitle": "[《仙剑奇侠传四》重制版 2027年上半年发售！定档PV & 实机演示12月5日公开]",
-    "lastedit": 1795348356,
+    "lastedit": 1795353607,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17942,6 +17942,15 @@
     "newtitle": "[火凤燎原动画，第三季制作确认，2027播出]",
     "lastedit": 1795351222,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2282037": {
+    "totalreply": 41,
+    "title": "[英式幽默奇幻小说《碟形世界》系列中译版共22本分享]",
+    "newtitle": "[英式幽默奇幻小说《碟形世界》系列中译版共22本分享]",
+    "lastedit": 1795354090,
+    "category": "外野",
     "active": true,
     "update": false
   }
