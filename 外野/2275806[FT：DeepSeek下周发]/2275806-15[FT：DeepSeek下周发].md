@@ -3425,3 +3425,22 @@ opencode的deepseek降价60%？  那相当于多少用量 搞得我都不会�
 
 比Mistral Pro要划算
 
+
+*****
+
+####  紧那罗  
+##### 20981#       发表于 2026-11-22 11:05
+
+<img src="https://img.stage1st.com/forum/202611/22/110309n009n4qy64wjz9yf.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_4356.png.jpeg</strong> (349.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-22 11:03 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">体验一下限期一天的阿斯特拉大人的ultrafast。
+难怪o/把sol的ultrafast下放出来，这速度是真会上瘾。（额度下降速度也是）
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
