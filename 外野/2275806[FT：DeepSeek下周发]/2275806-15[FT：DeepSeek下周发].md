@@ -3724,3 +3724,16 @@ Gemini 说了 12 月 2 号开放第三方的样子
 
 你给一两张CT片也看不出啥吧，还不如把CT报告发给它再问它是什么意思
 
+
+*****
+
+####  御坂MKII  
+##### 21000#       发表于 2026-11-23 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70540229&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-23 01:13</a>
+
+你给一两张CT片也看不出啥吧，还不如把CT报告发给它再问它是什么意思</blockquote>
+不是一两张，一套整个 70 MB 都在。我把我给医生说的和医生问的一整套该有的全发了，它是一点儿都不想说<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+隐掉的只有问它的结论部分
+
