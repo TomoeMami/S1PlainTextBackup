@@ -3560,3 +3560,27 @@ GLM 5.4 preview 在 x 上炒作了，说是下周发还是700b 但是新架构�
 
 700B模型是下一代模型架构的测试，4T模型是本代架构的最终版
 
+
+*****
+
+####  andychen  
+##### 20987#       发表于 2026-11-22 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70538653&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-11-22 13:47</a>
+用 zed 呗，ACP 连接一切。
+
+不过我自己现在只用 Pi，也是走 zed 接入的</blockquote>
+我也想只用一个，但是google现在杀反代丧心病狂，antigravity不得不用
+
+*****
+
+####  HazukiShion  
+##### 20988#       发表于 2026-11-22 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70539495&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-22 20:57</a>
+
+那看来高盛那篇研报说中了
+
+700B模型是下一代模型架构的测试，4T模型是本代架构的最终版 ...</blockquote>
+看了下，好像来源就是高盛那篇研报。<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
