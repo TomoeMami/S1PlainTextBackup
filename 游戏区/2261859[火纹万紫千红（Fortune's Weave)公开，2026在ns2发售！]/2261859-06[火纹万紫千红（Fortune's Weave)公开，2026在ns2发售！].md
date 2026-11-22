@@ -14265,3 +14265,45 @@ twi:@cdgm000
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Bruce33  
+##### 8723#       发表于 2026-11-22 16:07
+
+借楼问一下打完万缕千丝了等dlc又重玩结合，这游戏播片在ns2上是有音画不同步问题吗还是只有我遇到了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这bug任天堂都不管了吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Bruce33  
+##### 8724#       发表于 2026-11-22 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70538869&amp;ptid=2261859" target="_blank">Bruce33 发表于 2026-11-22 16:07</a>
+借楼问一下打完万缕千丝了等dlc又重玩结合，这游戏播片在ns2上是有音画不同步问题吗还是只有我遇到了这bug ...</blockquote>
+而且刚开始对话还遇到bgm突然消失的情况，玩到后面不咋出现了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Bruce33  
+##### 8723#       发表于 2026-11-22 16:07
+
+借楼问一下打完万缕千丝了等dlc又重玩结合，这游戏播片在ns2上是有音画不同步问题吗还是只有我遇到了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这bug任天堂都不管了吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Bruce33  
+##### 8724#       发表于 2026-11-22 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70538869&amp;ptid=2261859" target="_blank">Bruce33 发表于 2026-11-22 16:07</a>
+借楼问一下打完万缕千丝了等dlc又重玩结合，这游戏播片在ns2上是有音画不同步问题吗还是只有我遇到了这bug ...</blockquote>
+而且刚开始对话还遇到bgm突然消失的情况，玩到后面不咋出现了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
