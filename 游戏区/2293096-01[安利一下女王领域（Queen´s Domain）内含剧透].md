@@ -7805,3 +7805,16 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 从上古界域开始后面的图战斗强度都太高了，用远程武器也难受
 
+
+*****
+
+####  christiny  
+##### 609#       发表于 2026-11-22 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70539326&amp;ptid=2293096" target="_blank">妄想中毒 发表于 2026-11-22 19:54</a>
+
+从上古界域开始后面的图战斗强度都太高了，用远程武器也难受</blockquote>
+刚刚开始<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我建议还是适当的打下MOD，优化一下。 这游戏堆怪+20分钟刷新，确实很累人的，特别是后面的地图非常大……
+
