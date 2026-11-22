@@ -14474,3 +14474,13 @@ twi:@cdgm000
 
 什么达米纳斧达米纳枪只有25点，多用几次就没了，至少也改回三房那样钢斧55钢枪45
 
+
+*****
+
+####  齿轮轴君  
+##### 8739#       发表于 2026-11-23 00:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">初见感觉最难受的就是不给多存档位，前期各种试错一旦走错路线想反悔都没地方说。
+
+另外我卡塔尼亚转猎兵打算走法系还有救吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
