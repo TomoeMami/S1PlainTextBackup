@@ -7786,3 +7786,14 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 打完下来要耗费十个药草十瓶药 ...</blockquote>
 即便如此，这也可能是全游戏你消耗最大的一次……后面再也没有这么强的boss了，相对主角的成长而言
 
+
+*****
+
+####  komoechan  
+##### 607#       发表于 2026-11-22 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70538631&amp;ptid=2293096" target="_blank">ParadiseMartyr 发表于 2026-11-22 13:37</a>
+打到海王boss了，感觉这一战消耗很大啊，打boss刮痧，boss还会上毒招小弟。
+打完下来要耗费十个药草十瓶药 ...</blockquote>
+即便如此，这也可能是全游戏你消耗最大的一次……后面再也没有这么强的boss了，相对主角的成长而言
+
