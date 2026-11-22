@@ -7841,3 +7841,15 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 —— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  ParadiseMartyr  
+##### 612#       发表于 2026-11-23 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70540097&amp;ptid=2293096" target="_blank">另外四分之三 发表于 2026-11-23 00:22</a>
+我是知识之塔boss之后就放弃交互想法了，开局时候我还拿蓝火把打过那个放球盾兵，总体感觉近战伤害翻倍才能 ...</blockquote>
+石化花园在传送的时候跑出传送区域就会到那儿去，我刚解锁传送的时候乱跑了一下突然到了这个地方…
+
+—— 来自 Xiaomi 2602BRT18C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
