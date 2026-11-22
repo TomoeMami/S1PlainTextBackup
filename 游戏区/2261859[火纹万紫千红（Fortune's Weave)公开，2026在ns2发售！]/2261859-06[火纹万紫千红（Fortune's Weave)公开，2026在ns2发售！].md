@@ -14404,3 +14404,15 @@ twi:@cdgm000
 
 有些短章节确实就是完不成所有事情的，但是只做外传应该都是够的，“所有事情”主要包括去买上级证，那个真的是很绕
 
+
+*****
+
+####  沙发果冻  
+##### 8734#       发表于 2026-11-22 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70539244&amp;ptid=2261859" target="_blank">bonnwang 发表于 2026-11-22 19:26</a>
+感觉这作的武器系统深度很一般
+而且不成体系
+导致我后期全员先知黑白双修堆战场续航 ...</blockquote>
+武器系统保留三角克制的话感觉会更有意思，当然首先是删除净化剑
+
