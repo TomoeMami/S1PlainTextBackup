@@ -14252,3 +14252,16 @@ twi:@cdgm000
 首先这两个人有前置外传要打，大碗时间就到10-23，要挖角的等第二天，而10-24就强制进主线了
 有谁在女王线成功挖到这两个人吗
 
+
+*****
+
+####  燃烧的石头  
+##### 8722#       发表于 2026-11-22 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70538205&amp;ptid=2261859" target="_blank">bonnwang 发表于 2026-11-22 10:26</a>
+有几个做wiki的，标记女王线第一部12章能收的眼睛村姑和迪亚哥事实上是无法挖角的
+首先这两个人有前置外传 ...</blockquote>
+可以收，女王12章只打外传不做支线时间刚刚好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
