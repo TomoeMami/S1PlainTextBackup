@@ -200,3 +200,19 @@
 
 其实我第一反应是后面会有大小姐出现不可思议化麦斯和十二生肖展开内斗的剧情<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  挺好的  
+##### 325#       发表于 2026-11-23 09:14
+
+ 本帖最后由 挺好的 于 2026-11-23 09:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70539594&amp;ptid=2278175" target="_blank">永恒的王牌 发表于 2026-11-22 21:35</a>
+
+目前的情报
+
+十二支的情况是就算有带扣控制也会非人化，其中龙首是状况最严重的，头和手已经完全变异了。
+
+— ...</blockquote>
+缇虎设定上其实是英国人来着，好像官方提过来着，我找下
+
