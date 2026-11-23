@@ -8005,3 +8005,17 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 这画面真是接受不了，你做成RPG大师的简陋2D画面我都能接受，但是这么粗糙的3D…… ...</blockquote>
 设置里可以开成精细化，可以去除马赛克，稍微好一些。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 626#       发表于 2026-11-23 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543546&amp;ptid=2293096" target="_blank">zzf111 发表于 2026-11-23 20:17</a>
+宝箱怪掉的东西是无限飞翼石，这东西越早拿到越好用</blockquote>
+已经拿到了，结果刚刚在罪恶籍录拿到个丐版飞翼石，我还奇怪我不是拿到螺旋剑碎片了么还给我返回骨片干什么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">顺带吐槽一下不存档俩小时白玩，总是害怕存档了不方便返回。
+后面发现飞翼石无限用就随时随地存档了<img src="https://static.stage1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">虽然第二遍轻车熟路半个钟头就把这俩小时探的内容全补回来了
+
+—— 来自 Xiaomi 2602BRT18C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

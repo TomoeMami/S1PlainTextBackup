@@ -4844,3 +4844,11 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 
 最近开始用pstack，感觉模型智力水平能往上提半档，6.1-Sol能当Astra用了，这种工作流对弱模型的提升会更大吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zxc786  
+##### 21101#       发表于 2026-11-23 22:37
+
+google ai pro的5折优惠似乎不是每个账号都有的。老号没开过，是不是等11.27的新用户优惠比较靠谱？
+
