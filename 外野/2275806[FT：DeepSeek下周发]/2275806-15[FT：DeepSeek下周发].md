@@ -4952,3 +4952,11 @@ google ai pro的5折优惠似乎不是每个账号都有的。老号没开过，
 
 qwen4flash来了，试用了一下感觉怎么比qwen4max强<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  warlock228  
+##### 21111#       发表于 2026-11-24 00:54
+
+6.2astra确实是有点奇怪，今天下午让它修个bug来来回回让我输sql一小时都没啥结果，结果烦了只能赌赌运气翻SVN翻出来好久之前的旧代码一跑没这个bug让它对照才解决了
+
