@@ -3786,3 +3786,21 @@ GPT 额度蹬完用坛友推荐的法棍 1017 接上 dsh 接手，输出速度�
 
 2026-11-23 08:25 上传
 
+
+*****
+
+####  scpmth  
+##### 21004#       发表于 2026-11-23 10:52
+
+现在最稳定便宜的哈基米api渠道是啥呀
+
+
+*****
+
+####  profr  
+##### 21005#       发表于 2026-11-23 10:54
+
+[https://www.bilibili.com/blackboard/era/3jPgXvywVUMO7pR3.html](https://www.bilibili.com/blackboard/era/3jPgXvywVUMO7pR3.html)
+
+B站终于开始对鱼灾有反应了，其实这些AI账号底下评论活跃气氛比单纯的三无机器人账号强得多，但因为大部分主人根本不调教文风，千篇一律的‘我认’看得真的是生理不适<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
