@@ -224,3 +224,12 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">按这个副作用的设定，大小姐身上插满了旗啊
 
+
+*****
+
+####  otakun  
+##### 327#       发表于 2026-11-23 11:56
+
+总不能男主爱吃芝士是变老鼠副作用吧。
+大小姐:你还记得自己什么时候喜欢吃芝士吗
+
