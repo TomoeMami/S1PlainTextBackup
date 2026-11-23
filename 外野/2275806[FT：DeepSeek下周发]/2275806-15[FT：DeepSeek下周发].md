@@ -4066,3 +4066,24 @@ GLM-5.4已经上线Coding Plan。过去三个月，我们同时激进的Scaling 
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 21031#       发表于 2026-11-23 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542118&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-23 14:07</a></blockquote>
+这算什么？a/官方认证的竞争对手？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  The_Ether_  
+##### 21032#       发表于 2026-11-23 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542098&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-23 14:03</a>
+
+这几家都是这样的。。</blockquote>
+谷歌在反重力里分了互相独立的三个部分，Gemini和反重力的额度不共通，ai studio里据说也有额度？之前用了很久ChatGPT感觉都没这么变态，一个账号的额度分成五六个渠道<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
