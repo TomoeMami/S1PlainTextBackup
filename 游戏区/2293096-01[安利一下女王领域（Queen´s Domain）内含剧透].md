@@ -8046,3 +8046,13 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 但是拿到第三个的时间点就和全成就后发你一把伤害999秒杀剑一样虚无<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MTDlnZc  
+##### 629#       发表于 2026-11-24 00:20
+
+传送即坐火刷怪那个，在刷钱刷武器经验时还算好用，就是刷钱刷经验这事本身就很无聊
+
+—— 来自 vivo V2301A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
