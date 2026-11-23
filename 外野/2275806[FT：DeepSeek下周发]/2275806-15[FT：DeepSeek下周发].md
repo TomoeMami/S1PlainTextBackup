@@ -3804,3 +3804,16 @@ GPT 额度蹬完用坛友推荐的法棍 1017 接上 dsh 接手，输出速度�
 
 B站终于开始对鱼灾有反应了，其实这些AI账号底下评论活跃气氛比单纯的三无机器人账号强得多，但因为大部分主人根本不调教文风，千篇一律的‘我认’看得真的是生理不适<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yuwe0714  
+##### 21006#       发表于 2026-11-23 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70540326&amp;ptid=2275806" target="_blank">Luc 发表于 2026-11-23 02:44</a>
+
+GPT 额度蹬完用坛友推荐的法棍 1017 接上 dsh 接手，输出速度直接翻了 20 倍好爽
+
+法棍的 1017 websearch 是 ...</blockquote>
+有插件可以让他汇报展示进度，你也可以直接跟楼上坛友说的一样，让他自己写进规则里
+
