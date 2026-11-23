@@ -5073,3 +5073,25 @@ gemma4 31b比qwen3.8/3.6都强
 还有花式羊毛
 用哈基米带gpt干活就不再需要a/了
 
+
+*****
+
+####  YoumuChan  
+##### 21120#       发表于 2026-11-24 06:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543838&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-11-23 22:07</a>
+前两天群里写的，最近加班忙昏头了没空继续品鉴和更新
+
+在win和wsl之间切工作区要重启</blockquote>
+有/compact
+
+— from Sony XQ-DQ54, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  紧那罗  
+##### 21121#       发表于 2026-11-24 06:52
+
+可恶，哈基米怎么偷偷重置，连个预告也没有
+
