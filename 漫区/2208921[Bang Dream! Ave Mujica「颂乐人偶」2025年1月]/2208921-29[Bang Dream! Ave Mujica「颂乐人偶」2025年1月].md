@@ -1268,3 +1268,23 @@ Blu-ray附生产限定版将收录Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- D
 
 高尾又可以找树爱罗合照<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 42228#       发表于 2026-11-23 17:05
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/23/170513j5885urt9gr9d9tt.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-23_17-01-23.png</strong> (575.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-23 17:05 上传
+
+       [https://x.com/bang_dream_info/status/2124650383666815007](https://x.com/bang_dream_info/status/2124650383666815007)
+
+       [https://www.ntv.co.jp/mochicafe](https://www.ntv.co.jp/mochicafe)
+
