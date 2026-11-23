@@ -4193,3 +4193,18 @@ aistudio里也分两份<img src="https://static.stage1st.com/image/smiley/face20
 ——来自  HUAWEI Pura X View OpenHarmony-7.0.0.115(26) 上的 S1 Orang ...</blockquote>
 非程序员可以，程序员的话建议还是一步到位ultra
 
+
+*****
+
+####  inpachi  
+##### 21042#       发表于 2026-11-23 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541499&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-11-23 11:33</a>
+
+qq对于第三方bot的态度一向是冚家铲。</blockquote>
+毕竟QQ到近几年才想到给用户开扇窗让用户接自己运行的bot，但开的这个窗也不算好用而且限制大。
+
+事实上三方bot除了容易被风控之外，在自运营这方面有长久的基础，确实比官方bot强<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+但B站这边原本就没什么很成熟的第三方框架，基本都是这两个月搞出来的。他们要是愿意参考一下，提供一个相对容易的接入方式，接进来的账号直接打个标的话，我觉得应该是容易推行且相对好做的
+
