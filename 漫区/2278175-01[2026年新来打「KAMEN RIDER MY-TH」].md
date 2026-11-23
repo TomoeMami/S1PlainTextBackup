@@ -216,3 +216,11 @@
 — ...</blockquote>
 缇虎设定上其实是英国人来着，好像官方提过来着，我找下
 
+
+*****
+
+####  丹德里恩  
+##### 326#       发表于 2026-11-23 09:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">按这个副作用的设定，大小姐身上插满了旗啊
+
