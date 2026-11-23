@@ -3842,3 +3842,36 @@ B站终于开始对鱼灾有反应了，其实这些AI ...</blockquote>
 </blockquote>
 这是咋做的，我想弄个游戏角色三弟打印，它不给找。
 
+
+*****
+
+####  ydd-319  
+##### 21009#       发表于 2026-11-23 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541407&amp;ptid=2275806" target="_blank">coldhot3 发表于 2026-11-23 11:16</a>
+
+这是咋做的，我想弄个游戏角色三弟打印，它不给找。</blockquote>
+我这个是一句话让他自己建模的，如果是让他提取已有的游戏模型，我还没试过，可能得装插件吧
+
+*****
+
+####  zmsws801  
+##### 21010#       发表于 2026-11-23 11:22
+
+权重空间编程是一种方法，通用大型语言模型（LLM）读取神经网络的原始权重，并根据自然语言目标直接编辑或写入这些权重，而无需梯度下降和训练循环。
+
+在一篇发表于 2026 年 11 月 2 日的博文中，四位 MIT CSAIL 研究人员报告称 GPT-6 Astra 已能做到这一点：它编辑了 Qwen3.5-0.8B 0.016% 的权重，将该模型的 MATH-500 分数从 7.9% 提升至 48.1%。针对三个 MinAtar 游戏，Astra 获得了规则、源代码与全零网络，然后在一次回复里以文本写出了每个权重，无需数据、梯度或工具。三个网络的表现都超过了训练 1 亿步的 PPO 智能体。
+[https://rikiyat.github.io/blog/weight-space-programming/](https://rikiyat.github.io/blog/weight-space-programming/)
+
+
+*****
+
+####  inpachi  
+##### 21011#       发表于 2026-11-23 11:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">B站鱼灾肯定比QQ机器人好处理吧。
+
+QQ机器人因为一直有比较成熟的第三方方案，在官方推出官方接入接口之后大部分人还是不买账，都还是自己起小号用各种第三方方案接入。
+
+B站这边本来就是从零开始的，开个官方接入，走这个渠道的号都会被标记机器人账号的话肯定更好处理一点
+
