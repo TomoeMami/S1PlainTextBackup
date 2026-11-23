@@ -4221,3 +4221,11 @@ qq对于第三方bot的态度一向是冚家铲。</blockquote>
 
 轻则截断，重则封号
 
+
+*****
+
+####  紧那罗  
+##### 21044#       发表于 2026-11-23 15:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">GPT promax到期了，严重戒断中
+
