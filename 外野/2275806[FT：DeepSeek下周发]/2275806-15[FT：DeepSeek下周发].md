@@ -4087,3 +4087,52 @@ GLM-5.4已经上线Coding Plan。过去三个月，我们同时激进的Scaling 
 这几家都是这样的。。</blockquote>
 谷歌在反重力里分了互相独立的三个部分，Gemini和反重力的额度不共通，ai studio里据说也有额度？之前用了很久ChatGPT感觉都没这么变态，一个账号的额度分成五六个渠道<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  saintsimpler  
+##### 21033#       发表于 2026-11-23 14:30
+
+99.99刀的一年哈基米pro开不开呢
+
+——来自  HUAWEI Pura X View OpenHarmony-7.0.0.115(26) 上的 [S1 Orange](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2244111) 1.5.1
+
+
+*****
+
+####  mp5  
+##### 21034#       发表于 2026-11-23 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541906&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-23 13:06</a>
+
+初步试了下GLM5.4，风格还是Anthropic那种非常主动
+
+智力肯定是完爆现在的5.3，但是官方5.3被降智太久，我 ...</blockquote>
+刷新了下, 没看到glm5.4
+
+是plan用户没人权吗?<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  R.I.P  
+##### 21035#       发表于 2026-11-23 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542041&amp;ptid=2275806" target="_blank">桐道悠 发表于 2026-11-23 13:45</a>
+
+咨询一下,如果用来翻译日语R18内容(文本),用哪家的api比较好?消费是怎么样的(100k多少费用?)?另外R18内容走 ...</blockquote>
+目前1017还是能满足r18翻译需求的。或者自部署qwen3.8 27b破甲版本也堪用
+
+
+*****
+
+####  andychen  
+##### 21036#       发表于 2026-11-23 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542208&amp;ptid=2275806" target="_blank">mp5 发表于 2026-11-23 14:32</a>
+刷新了下, 没看到glm5.4
+
+是plan用户没人权吗?</blockquote>
+Coding Plan用户应该全都推了，不如说现在只有Coding Plan用户能用
+
+你试试从官方接口直接拉模型清单
+
