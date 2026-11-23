@@ -4534,3 +4534,43 @@ coding特化本来就是市场用脚投票的结果，不然你以为为什么�
 
 coding特化也只是在客观条件有限的情况下特化的结果，毕竟大模型在写代码这块确实能有效且快速地转化成生产力，码农也愿意为这块付费。接下来发展什么方向还得看怎么用大模型能赚钱
 
+
+*****
+
+####  奈落的孤火花  
+##### 21074#       发表于 2026-11-23 18:40
+
+这种情况应该还会持续几年，但是最后肯定国模会好起来的，尤其是ds
+
+
+*****
+
+####  qwased  
+##### 21075#       发表于 2026-11-23 18:45
+
+glm5.4炸炉了，无法理解自然语言
+从这玩意和业界这几个月放出的loop transformer模型来看，gpt6 astra是loop这个传言极大概率是oai放的烟雾弹，只有30a3b以下参数量才有效果，放大到27b、甚至智谱这种700b的水平全部都会爆炸<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 21076#       发表于 2026-11-23 18:46
+
+<img src="https://img.stage1st.com/forum/202611/23/184540rptztpgmrpmtijyv.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795430739639_5.webp</strong> (49.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-23 18:45 上传
+
+<img src="https://img.stage1st.com/forum/202611/23/184540ycw6vjx95e99296e.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795430739756_6.webp</strong> (34.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-23 18:45 上传
+
+真在那造时空门绷不住了
+
