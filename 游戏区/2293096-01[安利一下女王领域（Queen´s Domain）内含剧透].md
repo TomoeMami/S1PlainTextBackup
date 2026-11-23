@@ -8027,3 +8027,22 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 30w销量了，估计50w应该可以。  全靠社区自来水😂
 
+
+*****
+
+####  zzf111  
+##### 628#       发表于 2026-11-23 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70544025&amp;ptid=2293096" target="_blank">ParadiseMartyr 发表于 2026-11-23 22:32</a>
+
+已经拿到了，结果刚刚在罪恶籍录拿到个丐版飞翼石，我还奇怪我不是拿到螺旋剑碎片了么还给我返回骨片干什 ...</blockquote>
+这游戏的螺旋剑碎片其实有三个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一个是能时停随时随地传送到上个传送台的无限飞翼石
+
+一个是比较鸡肋传送即坐火刷怪不能滞空传送的返回骨片高级版 完整传送晶体
+
+最后一个是全要素收集后 4结局前倒数10分钟前才能获得的有专属传送界面，能时停随时随地传送到具体篝火点的真螺旋剑
+
+但是拿到第三个的时间点就和全成就后发你一把伤害999秒杀剑一样虚无<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

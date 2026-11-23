@@ -4901,3 +4901,21 @@ google ai pro的5折优惠似乎不是每个账号都有的。老号没开过，
 
 今晚上这GLM直接卡爆炸了吧 完全没反应
 
+
+*****
+
+####  奈落的孤火花  
+##### 21106#       发表于 2026-11-23 23:43
+
+今晚上这GLM直接卡爆炸了吧 完全没反应
+
+*****
+
+####  罗莉控  
+##### 21107#       发表于 2026-11-23 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543620&amp;ptid=2275806" target="_blank">xmmc1800 发表于 2026-11-23 20:41</a>
+
+30刀是API额度，还有300刀Vibe额度，在https://chat.mistral.ai/code/extensions页面点击“Advanced”折 ...</blockquote>
+他们到底是怎么计费的，DS说vibe key那个150刀额度是vibe 专用的，用dsh只有15刀，我现在还没用满，所以也不知道真假
+
