@@ -5061,3 +5061,15 @@ gemma4 31b比qwen3.8/3.6都强
 
 至于克小姐 我祝她在纳斯达克一切顺利<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 21119#       发表于 2026-11-24 05:50
+
+只要谷歌不降智，就是oa的严父<img src="https://static.stage1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+现在哈基米在a/自我阉割的领域彻底完爆它，比如算子优化，生物科研
+又在说人话上吊打gpt
+还有花式羊毛
+用哈基米带gpt干活就不再需要a/了
+
