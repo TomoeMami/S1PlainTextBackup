@@ -4968,3 +4968,19 @@ qwen4flash来了，试用了一下感觉怎么比qwen4max强<img src="https://st
 
 豆包嫖的积分今天到期，用了下GLM5.4 ，果然又是任务五分之一没完成积分快蹬完了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 21113#       发表于 2026-11-24 01:08
+
+<img src="https://img.stage1st.com/forum/202611/24/010826l2ecbctzbdtpgvpn.jpg" referrerpolicy="no-referrer">
+
+<strong>6AE84B66B067BC75E41CE86CBEF8109B.jpg</strong> (175.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-24 01:08 上传
+
+免费法棍又来了，手慢无
+

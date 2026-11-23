@@ -14562,3 +14562,15 @@ twi:@cdgm000
 没事，速度够快上圣天马。看了一堆烂七八糟的攻略，什么打拳甚至打魔拳，什么白魔表好，啥都不如天马省心 ...</blockquote>
 一流姐上天其实不用护符更好，拿驼兵中级精通加20回避，再算上各种加成，克制的东西反而打不中<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangchunsiyue  
+##### 8747#       发表于 2026-11-24 01:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70544118&amp;ptid=2261859" target="_blank">沙发果冻 发表于 2026-11-23 22:44</a>
+一流姐上天其实不用护符更好，拿驼兵中级精通加20回避，再算上各种加成，克制的东西反而打不中 ...</blockquote>
+我的卡塔妮娅凯伊线转了飞马，女王线转了卫士。感觉卫士很区，攻击打不动人，白魔法也很差，力魔双差。合线以后还是选了凯伊线的飞马，力魔比粉毛还强些。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
