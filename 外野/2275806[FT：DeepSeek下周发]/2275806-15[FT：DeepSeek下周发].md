@@ -4003,3 +4003,11 @@ GLM-5.4已经上线Coding Plan。过去三个月，我们同时激进的Scaling 
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qz66618  
+##### 21024#       发表于 2026-11-23 13:35
+
+现在国模发模型都不发跑分或者延迟发技术报告的风气是谁带起来的，难不成一个新产品发布后还得用户自己先拿案例测试新模型的具体能力才能有个判断吗<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
