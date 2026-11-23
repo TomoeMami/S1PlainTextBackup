@@ -4774,3 +4774,14 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  唠叨  
+##### 21095#       发表于 2026-11-23 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543620&amp;ptid=2275806" target="_blank">xmmc1800 发表于 2026-11-23 20:41</a>
+
+30刀是API额度，还有300刀Vibe额度，在https://chat.mistral.ai/code/extensions页面点击“Advanced”折 ...</blockquote>
+网站需**  使用api还需**吗？
+
