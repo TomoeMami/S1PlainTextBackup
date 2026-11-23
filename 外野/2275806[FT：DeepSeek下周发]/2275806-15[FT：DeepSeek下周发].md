@@ -4658,3 +4658,24 @@ GLM5.4 这架构明显抄的 DeepSeek V4.1f 跨层 KV 复用、index 复用、SW
 
 而且说是非高峰有200tokens/s，高峰有70tokens/s，我只能说有点幽默了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真红之闪电  
+##### 21085#       发表于 2026-11-23 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542275&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-23 14:46</a>
+aistudio里也分两份
+
+一份是playground里的每日免费
+
+一份是api赠金（pro 10美元/元，ultra50）</blockquote>
+最烦的是 macos 的 Gemini 能掉反重力，然后反重力还有一个 APP…我特么真是服了
+
+*****
+
+####  飞剪号  
+##### 21086#       发表于 2026-11-23 19:53
+
+回错帖子了，编辑
+
