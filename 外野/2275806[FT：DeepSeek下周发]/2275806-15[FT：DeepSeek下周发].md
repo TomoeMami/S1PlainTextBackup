@@ -4716,3 +4716,25 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 
 他们自己的稿子也写了思维链较长。后续那个3T模型价格肯定很高，要是token效率也这么低，那就没法用了
 
+
+*****
+
+####  xmmc1800  
+##### 21090#       发表于 2026-11-23 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543549&amp;ptid=2275806" target="_blank">我也很绝望啊 发表于 2026-11-23 20:18</a>
+
+我开了个15刀的套餐，生成api用了20多刀的DeepSeek之后收到个额度已经消耗掉80%的邮件，查到个“Mistral  ...</blockquote>
+30刀是API额度，还有300刀Vibe额度，在[https://chat.mistral.ai/code/extensions](https://chat.mistral.ai/code/extensions)页面点击“Advanced”折叠框生成Vibe API Key
+
+*****
+
+####  ycjiang1337  
+##### 21091#       发表于 2026-11-23 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543127&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-23 18:01</a>
+根据传闻5.4也不大啊</blockquote>
+不用传闻，5.4就是后训练模型
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
