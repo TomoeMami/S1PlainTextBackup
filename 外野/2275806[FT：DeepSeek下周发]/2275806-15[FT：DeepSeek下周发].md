@@ -4944,3 +4944,11 @@ google ai pro的5折优惠似乎不是每个账号都有的。老号没开过，
 
 这种“看上去说得过去但是实际上是随便做做”的味道让我感觉很像今年年初时候的模型，倒退了接近一年啊
 
+
+*****
+
+####  qwased  
+##### 21110#       发表于 2026-11-24 00:45
+
+qwen4flash来了，试用了一下感觉怎么比qwen4max强<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
