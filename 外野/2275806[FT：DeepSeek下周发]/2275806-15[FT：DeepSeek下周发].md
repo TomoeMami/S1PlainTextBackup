@@ -4738,3 +4738,11 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 
 —— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  nxmonitor  
+##### 21092#       发表于 2026-11-23 21:02
+
+关键的engram没抄
+
