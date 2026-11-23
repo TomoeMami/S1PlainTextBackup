@@ -4260,3 +4260,27 @@ qq对于第三方bot的态度一向是冚家铲。</blockquote>
 
 —— 来自 Google Pixel 11, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  oct71952  
+##### 21048#       发表于 2026-11-23 16:23
+
+<blockquote>saintsimpler 发表于 2026-11-23 14:30
+99.99刀的一年哈基米pro开不开呢
+
+——来自  HUAWEI Pura X View OpenHarmony-7.0.0.115(26) 上的 S1 Orang ...</blockquote>
+我今天刚开，把月付切换成年付了，现在就只能祈祷不要降智
+
+
+*****
+
+####  oct71952  
+##### 21049#       发表于 2026-11-23 16:24
+
+<blockquote>distrowatch 发表于 2026-11-23 16:04
+现在google账号转区方便么？用了一年多ai pro现在才想到用反重力，结果发现原来账号是国区的用不了
+
+——  ...</blockquote>
+我最近切换了，原来的地区是香港，按照网上搜的教程操作一下，第二天就通过了
+
