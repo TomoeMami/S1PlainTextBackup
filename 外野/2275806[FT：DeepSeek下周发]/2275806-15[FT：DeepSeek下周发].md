@@ -4746,3 +4746,11 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 
 关键的engram没抄
 
+
+*****
+
+####  heemoon  
+##### 21093#       发表于 2026-11-23 21:25
+
+不是你们要的好用的agy到底是啥样的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（codex我也没觉得好太多啊），这几天用下来我的感受是只要哈基米不降智用原价买pro年卡我都愿意。
+
