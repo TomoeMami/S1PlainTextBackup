@@ -14552,3 +14552,13 @@ twi:@cdgm000
 
 别的不说，这作天马的胜利动作真的好看，拿剑拿枪都很棒<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沙发果冻  
+##### 8746#       发表于 2026-11-23 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541322&amp;ptid=2261859" target="_blank">根正苗红 发表于 2026-11-23 11:02</a>
+没事，速度够快上圣天马。看了一堆烂七八糟的攻略，什么打拳甚至打魔拳，什么白魔表好，啥都不如天马省心 ...</blockquote>
+一流姐上天其实不用护符更好，拿驼兵中级精通加20回避，再算上各种加成，克制的东西反而打不中<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
