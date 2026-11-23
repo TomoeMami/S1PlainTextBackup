@@ -4169,3 +4169,27 @@ aistudio里也分两份<img src="https://static.stage1st.com/image/smiley/face20
 目前1017还是能满足r18翻译需求的。或者自部署qwen3.8 27b破甲版本也堪用</blockquote>
 这方面qwen3.8会比3.6好吗？
 
+
+*****
+
+####  andychen  
+##### 21040#       发表于 2026-11-23 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542177&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-11-23 14:22</a>
+
+谷歌在反重力里分了互相独立的三个部分，Gemini和反重力的额度不共通，ai studio里据说也有额度？之前用 ...</blockquote>
+这就是大公司病，你怕不怕<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 21041#       发表于 2026-11-23 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542201&amp;ptid=2275806" target="_blank">saintsimpler 发表于 2026-11-23 14:30</a>
+
+99.99刀的一年哈基米pro开不开呢
+
+——来自  HUAWEI Pura X View OpenHarmony-7.0.0.115(26) 上的 S1 Orang ...</blockquote>
+非程序员可以，程序员的话建议还是一步到位ultra
+
