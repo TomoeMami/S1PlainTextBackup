@@ -14574,3 +14574,14 @@ twi:@cdgm000
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  根正苗红  
+##### 8748#       发表于 2026-11-24 02:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70544568&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-11-24 01:13</a>
+我的卡塔妮娅凯伊线转了飞马，女王线转了卫士。感觉卫士很区，攻击打不动人，白魔法也很差，力魔双差。合 ...</blockquote>
+高速一流姐走闪避t，明显不适合卫士抗线。
+上天马，最好一条线猎兵恶棍走到底（蕾达线，入队早），极致的速技。另一条线只补力量或魔力。可惜凯伊线入队太晚，来不及上车。
+
