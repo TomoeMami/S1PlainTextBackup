@@ -10980,10 +10980,10 @@
     "update": false
   },
   "2159972": {
-    "totalreply": 2322,
+    "totalreply": 2324,
     "title": "[【官宣】R星《GTA6》首个预告公开，2025年秋发售XS／PS5]",
     "newtitle": "[【官宣】R星《GTA6》PV公开，2026年11月19日发售XS／PS5]",
-    "lastedit": 1795459092,
+    "lastedit": 1795459815,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16385,7 +16385,7 @@
     "newtitle": "[3D平台跳跃游戏专楼]",
     "lastedit": 1795200856,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2294075": {
@@ -17523,10 +17523,10 @@
     "update": false
   },
   "2294466": {
-    "totalreply": 331,
+    "totalreply": 332,
     "title": "[黎曼猜想被A／证明了]",
     "newtitle": "[黎曼猜想被A／证明了]",
-    "lastedit": 1795458971,
+    "lastedit": 1795459814,
     "category": "外野",
     "active": true,
     "update": false
@@ -18095,6 +18095,15 @@
     "newtitle": "[小学馆旗下部分连载漫画作者停更抗议(更新：已有部分作品下架MangaOne]",
     "lastedit": 1795452628,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2294575": {
+    "totalreply": 41,
+    "title": "[黄仁勋还在牌桌上]",
+    "newtitle": "[黄仁勋还在牌桌上]",
+    "lastedit": 1795460050,
+    "category": "外野",
     "active": true,
     "update": false
   }
