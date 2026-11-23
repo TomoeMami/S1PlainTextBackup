@@ -3762,3 +3762,27 @@ GPT 额度蹬完用坛友推荐的法棍 1017 接上 dsh 接手，输出速度�
 我是直接用的union search插件接管了搜索，改成exa tavily bing一起出结果的
 你在全局agents.md加上“run_code/bash之类有描述意图字段的工具都用中文写意图”就差不多知道在干嘛了，还想让它多汇报也能继续加规定但是肥鱼说话太难懂<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ydd-319  
+##### 21003#       发表于 2026-11-23 08:31
+
+昨天半夜心血来潮一句话让大肥鱼生成的天启坦克<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/23/082241pxu1sdqb1k2ws7uh.gif" referrerpolicy="no-referrer">
+
+<strong>turntable.gif</strong> (2.24 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-23 08:22 上传
+
+<img src="https://img.stage1st.com/forum/202611/23/082536q4ku258255k4sbob.png" referrerpolicy="no-referrer">
+
+<strong>contact_sheet.png</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-23 08:25 上传
+
