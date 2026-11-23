@@ -4421,3 +4421,60 @@ gemini的ultra和gpt pro100，哪个更经得起用？差距大不大呢？
 说明国内参数大的模型真的不好训，编程特化还行，说白了，我感觉Claude也是编程特化。真论起大模型智力来 ...</blockquote>
 感觉确实日子不好过，但愿能挺过去看DS的了，A\今天点名的模型公司除了OAI就剩大肥鱼了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明明以前都会点国模全员的名的
 
+
+*****
+
+####  当光停止  
+##### 21062#       发表于 2026-11-23 17:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">国内过1t的模型，比较成功的就是k3了，也是缺点不少。qwen4我没用过，而deepseekv4pro算是炸了。
+
+现在deepseek4.1又回到舒适区，glm憋的那个新底座模型还没憋出来。路还很长。
+
+
+*****
+
+####  Promeus  
+##### 21063#       发表于 2026-11-23 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543005&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-23 17:35</a>
+说明国内参数大的模型真的不好训，编程特化还行，说白了，我感觉Claude也是编程特化。真论起大模型智力来 ...</blockquote>
+根据传闻5.4也不大啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HazukiShion  
+##### 21064#       发表于 2026-11-23 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543005&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-23 17:35</a>
+说明国内参数大的模型真的不好训，编程特化还行，说白了，我感觉Claude也是编程特化。真论起大模型智力来 ...</blockquote>
+可 5.4 好像…..还是 700B。<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andychen  
+##### 21065#       发表于 2026-11-23 18:06
+
+GLM5.4我用下来感觉后训练不够，有的行为有问题
+
+一坨代码有问题他每次撞上报错不是针对报错的地方修，而是重写一整坨。要是重复三四次还是报错就直接全推倒重来。我的额度就这样生生被烧没了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  love4aids  
+##### 21066#       发表于 2026-11-23 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543127&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-23 18:01</a>
+
+根据传闻5.4也不大啊</blockquote>
+对啊，我的意思就是glm只能拿小模型出来糊弄啊，大模型跟ds一样难产了
+
+*****
+
+####  startraveller  
+##### 21067#       发表于 2026-11-23 18:06
+
+大的应该是两三周后的5.5吧
+
