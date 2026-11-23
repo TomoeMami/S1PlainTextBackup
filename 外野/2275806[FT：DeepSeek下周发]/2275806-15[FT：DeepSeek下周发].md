@@ -4825,3 +4825,22 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 
 —— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  紧那罗  
+##### 21099#       发表于 2026-11-23 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543711&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-11-23 21:25</a>
+
+不是你们要的好用的agy到底是啥样的（codex我也没觉得好太多啊），这几天用下来我的感受是只要哈基米不降智 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">agy团队也想知道 然后发出来被人骂了
+
+
+*****
+
+####  hugosol  
+##### 21100#       发表于 2026-11-23 22:15
+
+最近开始用pstack，感觉模型智力水平能往上提半档，6.1-Sol能当Astra用了，这种工作流对弱模型的提升会更大吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
