@@ -4919,3 +4919,28 @@ google ai pro的5折优惠似乎不是每个账号都有的。老号没开过，
 30刀是API额度，还有300刀Vibe额度，在https://chat.mistral.ai/code/extensions页面点击“Advanced”折 ...</blockquote>
 他们到底是怎么计费的，DS说vibe key那个150刀额度是vibe 专用的，用dsh只有15刀，我现在还没用满，所以也不知道真假
 
+
+*****
+
+####  qwased  
+##### 21108#       发表于 2026-11-24 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70544384&amp;ptid=2275806" target="_blank">罗莉控 发表于 2026-11-23 23:49</a>
+他们到底是怎么计费的，DS说vibe key那个150刀额度是vibe 专用的，用dsh只有15刀，我现在还没用满，所以 ...</blockquote>
+我也不知道，反正一个普通key一个vibe key填进dsh都能用，已经蹬掉180欧了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在又不知道能拿来干嘛了
+
+*****
+
+####  pure_liquid  
+##### 21109#       发表于 2026-11-24 00:01
+
+<blockquote>拯救节操希灵宅 发表于 2026-11-23 23:12
+6.2astra这个偷懒的毛病感觉没救了，现在1、2分钟就停下来问些无关紧要的问题，感觉是严重的reward hacking ...</blockquote>
+完全同意
+
+正常情况下，大家虽然骂GPT过度防御性，但是它至少考虑周全，制定计划全面详细，能考虑到我想不到的问题
+
+6.2 Astra就不行，随便考虑一下，甚至经常连思考链都没有出现，就开始随意回答，给人的感觉是在上下文背景下勉强能说得过去就行
+
+这种“看上去说得过去但是实际上是随便做做”的味道让我感觉很像今年年初时候的模型，倒退了接近一年啊
+
