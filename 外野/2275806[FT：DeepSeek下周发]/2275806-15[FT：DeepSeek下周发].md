@@ -3940,3 +3940,11 @@ GLM-5.4已经上线Coding Plan。过去三个月，我们同时激进的Scaling 
 
 话说作为新架构模型居然没有改大版本号，我还以为这个模型会叫5.5flash或者6flash
 
+
+*****
+
+####  tonyunreal  
+##### 21018#       发表于 2026-11-23 12:33
+
+上plan不上api是几个意思 <img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
