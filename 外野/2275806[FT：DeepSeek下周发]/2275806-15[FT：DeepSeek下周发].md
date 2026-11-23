@@ -4478,3 +4478,40 @@ GLM5.4我用下来感觉后训练不够，有的行为有问题
 
 大的应该是两三周后的5.5吧
 
+
+*****
+
+####  ycjiang1337  
+##### 21068#       发表于 2026-11-23 18:11
+
+从V4.1F的发布时间来看0813明显是老架构直接扔了，所谓训炸了从一开始就只是传言而已
+
+*****
+
+####  love4aids  
+##### 21069#       发表于 2026-11-23 18:11
+
+看b站上的ai十项全能，就能看出来gpt综合是最强的，国模基本偏科，感觉训练语料不够优质，智力不够。Claude跟国模差不多，也是前端特化，其他也偏科。
+
+还看过拿国考给ai做的，只有gpt和Gemini拿了满分，其他都是不行。整体上来看，差距拉大了
+
+*****
+
+####  qwased  
+##### 21070#       发表于 2026-11-23 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542527&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-23 15:52</a>
+大佬请教下，为啥我Mistral用了30刀就提示没额度了？</blockquote>
+要去那个叫vibe的分区生成一个key，那个才是额度大头
+
+
+*****
+
+####  ycjiang1337  
+##### 21071#       发表于 2026-11-23 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543160&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-23 18:11</a>
+
+看b站上的ai十项全能，就能看出来gpt综合是最强的，国模基本偏科，感觉训练语料不够优质，智力不够。Claude ...</blockquote>
+coding特化本来就是市场用脚投票的结果，不然你以为为什么第一个上市的是A/
+
