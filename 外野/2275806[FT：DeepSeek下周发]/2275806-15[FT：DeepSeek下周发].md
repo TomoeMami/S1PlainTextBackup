@@ -4158,3 +4158,14 @@ aistudio里也分两份<img src="https://static.stage1st.com/image/smiley/face20
 
 一份是api赠金（pro 10美元/元，ultra50）
 
+
+*****
+
+####  虎鲸  
+##### 21039#       发表于 2026-11-23 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542211&amp;ptid=2275806" target="_blank">R.I.P 发表于 2026-11-23 14:33</a>
+
+目前1017还是能满足r18翻译需求的。或者自部署qwen3.8 27b破甲版本也堪用</blockquote>
+这方面qwen3.8会比3.6好吗？
+
