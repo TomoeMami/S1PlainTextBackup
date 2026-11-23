@@ -4136,3 +4136,25 @@ Coding Plan用户应该全都推了，不如说现在只有Coding Plan用户能�
 
 你试试从官方接口直接拉模型清单
 
+
+*****
+
+####  tsubasa9  
+##### 21037#       发表于 2026-11-23 14:45
+
+借楼问：gpt plus现在额度如何？短信验证要怎么过？
+
+*****
+
+####  bartholo4  
+##### 21038#       发表于 2026-11-23 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542177&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-11-23 14:22</a>
+
+谷歌在反重力里分了互相独立的三个部分，Gemini和反重力的额度不共通，ai studio里据说也有额度？之前用 ...</blockquote>
+aistudio里也分两份<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+一份是playground里的每日免费
+
+一份是api赠金（pro 10美元/元，ultra50）
+
