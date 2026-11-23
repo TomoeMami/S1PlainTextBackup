@@ -4019,3 +4019,11 @@ GLM-5.4已经上线Coding Plan。过去三个月，我们同时激进的Scaling 
 
 咨询一下,如果用来翻译日语R18内容(文本),用哪家的api比较好?消费是怎么样的(100k多少费用?)?另外R18内容走api会被封禁吗?
 
+
+*****
+
+####  The_Ether_  
+##### 21026#       发表于 2026-11-23 13:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哈吉米这机制好鸡贼，不用的话就不会开始重制倒计时，那你扣费能不能别这么及时啊
+
