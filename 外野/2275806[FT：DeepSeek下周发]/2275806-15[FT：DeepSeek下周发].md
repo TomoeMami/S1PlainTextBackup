@@ -4960,3 +4960,11 @@ qwen4flash来了，试用了一下感觉怎么比qwen4max强<img src="https://st
 
 6.2astra确实是有点奇怪，今天下午让它修个bug来来回回让我输sql一小时都没啥结果，结果烦了只能赌赌运气翻SVN翻出来好久之前的旧代码一跑没这个bug让它对照才解决了
 
+
+*****
+
+####  口袋妖怪  
+##### 21112#       发表于 2026-11-24 01:03
+
+豆包嫖的积分今天到期，用了下GLM5.4 ，果然又是任务五分之一没完成积分快蹬完了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
