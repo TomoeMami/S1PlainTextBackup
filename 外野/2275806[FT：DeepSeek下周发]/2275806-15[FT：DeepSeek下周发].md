@@ -4027,3 +4027,42 @@ GLM-5.4已经上线Coding Plan。过去三个月，我们同时激进的Scaling 
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哈吉米这机制好鸡贼，不用的话就不会开始重制倒计时，那你扣费能不能别这么及时啊
 
+
+*****
+
+####  ov_efly  
+##### 21027#       发表于 2026-11-23 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541435&amp;ptid=2275806" target="_blank">zmsws801 发表于 2026-11-23 11:22</a>
+
+权重空间编程是一种方法，通用大型语言模型（LLM）读取神经网络的原始权重，并根据自然语言目标直接编辑或 ...</blockquote>
+还有一篇 WeightCode 真实现了，自然进化真闭环了
+
+
+*****
+
+####  紧那罗  
+##### 21028#       发表于 2026-11-23 14:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542056&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-11-23 13:50</a>
+哈吉米这机制好鸡贼，不用的话就不会开始重制倒计时，那你扣费能不能别这么及时啊 ...</blockquote>
+这几家都是这样的。。
+
+
+*****
+
+####  lactone  
+##### 21029#       发表于 2026-11-23 14:05
+
+没有持续学习就不算agi
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Promeus  
+##### 21030#       发表于 2026-11-23 14:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
