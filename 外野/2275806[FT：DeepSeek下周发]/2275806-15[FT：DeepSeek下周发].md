@@ -4634,3 +4634,27 @@ X上刷到一些GLM搓的模型，还不错
 
 GLM5.4 这架构明显抄的 DeepSeek V4.1f 跨层 KV 复用、index 复用、SWA + TopK。
 
+
+*****
+
+####  overflowal  
+##### 21083#       发表于 2026-11-23 19:39
+
+咕咕嘎嘎好用啊,就是反重力实在太屎了，这特么不是什么都没有？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  overflowal  
+##### 21083#       发表于 2026-11-23 19:39
+
+咕咕嘎嘎好用啊,就是反重力实在太屎了，这特么不是什么都没有？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  qz66618  
+##### 21084#       发表于 2026-11-23 19:44
+
+而且说是非高峰有200tokens/s，高峰有70tokens/s，我只能说有点幽默了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
