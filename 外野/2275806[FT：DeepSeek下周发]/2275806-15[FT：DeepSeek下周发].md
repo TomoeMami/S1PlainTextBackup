@@ -3919,3 +3919,24 @@ DSH 最新的alpha 这个用来替代老的TODO列表的 时间线 插件还不�
 
 GLM5.4模型现在能拉取到了但是无法调用，应该是700B那个小模，看看水平能不能超过1017
 
+
+*****
+
+####  qwased  
+##### 21016#       发表于 2026-11-23 12:21
+
+GLM-5.4已经上线Coding Plan。过去三个月，我们同时激进的Scaling Loop和模型大小，大家首先看到的是Loop Transformer带来的惊喜。GLM-5.4新增视觉能力与更强的泛Coding能力。V2、V3及团队版用户使用GLM-5.4模型额度已提升至1.5倍，将模型名设置为glm-5.4即可。
+
+
+*****
+
+####  andychen  
+##### 21017#       发表于 2026-11-23 12:23
+
+ 本帖最后由 andychen 于 2026-11-23 12:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541735&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-23 12:21</a>
+GLM-5.4已经上线Coding Plan。过去三个月，我们同时激进的Scaling Loop和模型大小，大家首先看到的是Loop T ...</blockquote>
+激进的Scaling Loop啊，OpenAI的人可是出来说过他们训练的任何模型思维图都没有突破2。国内厂商为了突破硬件限制必须采用更激进的技术线路了
+
+话说作为新架构模型居然没有改大版本号，我还以为这个模型会叫5.5flash或者6flash
+
