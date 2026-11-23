@@ -4584,3 +4584,15 @@ X上刷到一些GLM搓的模型，还不错
 
 不过这种比较泛的也就看看意思，生产还是要做真的例题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就像大家都觉得GPTimage好但是我的细分专业难用的要死
 
+
+*****
+
+####  蜇灵  
+##### 21078#       发表于 2026-11-23 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542580&amp;ptid=2275806" target="_blank">distrowatch 发表于 2026-11-23 16:04</a>
+现在google账号转区方便么？用了一年多ai pro现在才想到用反重力，结果发现原来账号是国区的用不了
+
+——  ...</blockquote>
+国区怎么买的AIPro
+
