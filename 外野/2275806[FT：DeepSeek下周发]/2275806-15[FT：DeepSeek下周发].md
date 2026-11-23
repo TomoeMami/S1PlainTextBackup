@@ -5006,3 +5006,34 @@ qwen4flash来了，试用了一下感觉怎么比qwen4max强<img src="https://st
 
 感觉审美比1017强点，但是视力不好
 
+
+*****
+
+####  断片集  
+##### 21115#       发表于 2026-11-24 01:57
+
+google ai pro的教育优惠有没有啥坑?
+
+我有两个号,都在淘宝上搞了教育优惠;新加坡区一个月只要30多感觉太实惠了,有点不真实<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  断片集  
+##### 21115#       发表于 2026-11-24 01:57
+
+google ai pro的教育优惠有没有啥坑?
+
+我有两个号,都在淘宝上搞了教育优惠;新加坡区一个月只要30多感觉太实惠了,有点不真实<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 21116#       发表于 2026-11-24 02:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70544615&amp;ptid=2275806" target="_blank">断片集 发表于 2026-11-24 01:57</a>
+google ai pro的教育优惠有没有啥坑?
+
+我有两个号,都在淘宝上搞了教育优惠;新加坡区一个月只要30多感觉太实 ...</blockquote>
+坑就是教育资格随时可能要求你二审，另外一张国内信用卡绑太多号也有点危险。我是用苹果礼品卡多开的
+
