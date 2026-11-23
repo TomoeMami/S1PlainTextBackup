@@ -4871,3 +4871,25 @@ google ai pro的5折优惠似乎不是每个账号都有的。老号没开过，
 google ai pro的5折优惠似乎不是每个账号都有的。老号没开过，是不是等11.27的新用户优惠比较靠谱？ ...</blockquote>
 现在这个是所谓早鸟价，没买过的号要黑五当天
 
+
+*****
+
+####  宏.  
+##### 21104#       发表于 2026-11-23 23:08
+
+<img src="https://img.stage1st.com/forum/202611/23/230832pd5a9u5ntv9z8zss.jpg" referrerpolicy="no-referrer">
+
+<strong>HXxkCqFWgAAPndt.jpg</strong> (198.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-23 23:08 上传
+
+
+*****
+
+####  拯救节操希灵宅  
+##### 21105#       发表于 2026-11-23 23:12
+
+6.2astra这个偷懒的毛病感觉没救了，现在1、2分钟就停下来问些无关紧要的问题，感觉是严重的reward hacking了
+
