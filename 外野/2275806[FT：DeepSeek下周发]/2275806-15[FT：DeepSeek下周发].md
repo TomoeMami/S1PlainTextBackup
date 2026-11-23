@@ -3982,3 +3982,24 @@ GLM-5.4已经上线Coding Plan。过去三个月，我们同时激进的Scaling 
 
 这么低调，benchmark 也不发，该不会拉了吧
 
+
+*****
+
+####  andychen  
+##### 21022#       发表于 2026-11-23 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541944&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-11-23 13:16</a>
+
+这么低调，benchmark 也不发，该不会拉了吧</blockquote>
+拉肯定是不拉的，有多好还不好说
+
+
+*****
+
+####  lactone  
+##### 21023#       发表于 2026-11-23 13:24
+
+这是不是国模第一个明确使用loop的？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
