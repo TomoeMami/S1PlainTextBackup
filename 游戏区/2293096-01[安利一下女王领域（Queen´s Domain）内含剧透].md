@@ -7984,3 +7984,24 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 这画面真是接受不了，你做成RPG大师的简陋2D画面我都能接受，但是这么粗糙的3D……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  christiny  
+##### 624#       发表于 2026-11-23 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542065&amp;ptid=2293096" target="_blank">イシュハラ 发表于 2026-11-23 13:53</a>
+
+螺旋楼梯底下那个存档点进去的那个区域，有两个爬行怪的地方，我是踩着两个雕像上到上面才开了上下的开关 ...</blockquote>
+哦哦，确实不是正常流程。正常流程是在两个士兵那边，飞刀中央桥上。
+
+*****
+
+####  christiny  
+##### 625#       发表于 2026-11-23 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543603&amp;ptid=2293096" target="_blank">m1grandmk1 发表于 2026-11-23 20:34</a>
+
+这画面真是接受不了，你做成RPG大师的简陋2D画面我都能接受，但是这么粗糙的3D…… ...</blockquote>
+设置里可以开成精细化，可以去除马赛克，稍微好一些。
+
