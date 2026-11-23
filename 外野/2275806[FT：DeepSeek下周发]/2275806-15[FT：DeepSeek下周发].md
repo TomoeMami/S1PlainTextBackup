@@ -4292,3 +4292,38 @@ qq对于第三方bot的态度一向是冚家铲。</blockquote>
 
 反重力有点慢，网络配置有啥特别要求吗？
 
+
+*****
+
+####  weare17k  
+##### 21051#       发表于 2026-11-23 16:43
+
+gemini的ultra和gpt pro100，哪个更经得起用？差距大不大呢？
+
+—— 来自 HONOR PNM-AN10, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  桐道悠  
+##### 21052#       发表于 2026-11-23 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542447&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-11-23 15:32</a>
+
+这个最好用本地模型，在线的api或多或少有审核的
+
+轻则截断，重则封号</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">现在用的就是sakura本地部署,但是硬件限制只能上7B,感觉差点意思
+
+
+*****
+
+####  洛拉斯  
+##### 21053#       发表于 2026-11-23 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542759&amp;ptid=2275806" target="_blank">桐道悠 发表于 2026-11-23 16:43</a>
+
+现在用的就是sakura本地部署,但是硬件限制只能上7B,感觉差点意思</blockquote>
+我能部署27b，爽到
+
+当年为了玩游戏买的显卡没想到最后用来写黄文
+
