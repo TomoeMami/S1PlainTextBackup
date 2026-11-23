@@ -4687,3 +4687,32 @@ aistudio里也分两份
 
 反重力的问题看来谷歌都不想解决了，等着用第三方吧，经典大公司病；至于嘎拉嘛，在ds出新架构的第一天就有人说唐杰正看着呢，但是这个后训练的水准，以智谱的能力来看，有半点不太及预期。
 
+
+*****
+
+####  我也很绝望啊  
+##### 21088#       发表于 2026-11-23 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70536422&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-21 15:15</a>
+
+mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔会炸缓存</blockquote>
+我开了个15刀的套餐，生成api用了20多刀的DeepSeek之后收到个额度已经消耗掉80%的邮件，查到个“Mistral 旧版官方定价页曾列普通 Pro 为 $30/月 API credits”的信息，是我使用的姿势不对吗
+
+
+*****
+
+####  andychen  
+##### 21089#       发表于 2026-11-23 20:21
+
+<img src="https://img.stage1st.com/forum/202611/23/201959vss31vhvfssvrc4z.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795436399993_2.webp</strong> (96.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-23 20:19 上传
+
+看来今天瞬间把额度烧光的人不止我一个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+他们自己的稿子也写了思维链较长。后续那个3T模型价格肯定很高，要是token效率也这么低，那就没法用了
+

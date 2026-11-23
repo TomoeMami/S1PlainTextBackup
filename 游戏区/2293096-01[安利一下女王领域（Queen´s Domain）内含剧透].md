@@ -7965,3 +7965,14 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 怎么进游戏没声音啊，切了几个扬声器都没声音，而且不开steam控制器映射识别不到dse手柄<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 622#       发表于 2026-11-23 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541181&amp;ptid=2293096" target="_blank">ParadiseMartyr 发表于 2026-11-23 10:35</a>
+
+好的，石化花园我把三叉戟全放进去激活了，只出了一堆数值巨高的怪，还把我药都耗完了，就打个宝箱怪和拿 ...</blockquote>
+宝箱怪掉的东西是无限飞翼石，这东西越早拿到越好用
+
