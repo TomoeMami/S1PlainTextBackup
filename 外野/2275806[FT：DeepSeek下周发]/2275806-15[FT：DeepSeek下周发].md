@@ -4382,3 +4382,13 @@ wb里的dsf没有谷价了？
  ...</blockquote>
 这些老逼登这么生气，说明筛的对啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  lactone  
+##### 21059#       发表于 2026-11-23 17:38
+
+5.4还行吧，比5.3强就行
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
