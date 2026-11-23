@@ -3875,3 +3875,29 @@ QQ机器人因为一直有比较成熟的第三方方案，在官方推出官方
 
 B站这边本来就是从零开始的，开个官方接入，走这个渠道的号都会被标记机器人账号的话肯定更好处理一点
 
+
+*****
+
+####  洛拉斯  
+##### 21012#       发表于 2026-11-23 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541407&amp;ptid=2275806" target="_blank">coldhot3 发表于 2026-11-23 11:16</a>
+
+这是咋做的，我想弄个游戏角色三弟打印，它不给找。</blockquote>
+首先你要确定你本地有这个模型没有，你安装了这个游戏没
+
+大肥鱼基本上不会管那么多安全规定，你让他解包就解包
+
+
+*****
+
+####  当光停止  
+##### 21013#       发表于 2026-11-23 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541463&amp;ptid=2275806" target="_blank">inpachi 发表于 2026-11-23 11:25</a>
+
+B站鱼灾肯定比QQ机器人好处理吧。
+
+QQ机器人因为一直有比较成熟的第三方方案，在官方推出官方接入接口之后大 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">qq对于第三方bot的态度一向是冚家铲。
+
