@@ -4754,3 +4754,23 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 
 不是你们要的好用的agy到底是啥样的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（codex我也没觉得好太多啊），这几天用下来我的感受是只要哈基米不降智用原价买pro年卡我都愿意。
 
+
+*****
+
+####  heemoon  
+##### 21093#       发表于 2026-11-23 21:25
+
+不是你们要的好用的agy到底是啥样的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（codex我也没觉得好太多啊），这几天用下来我的感受是只要哈基米不降智用原价买pro年卡我都愿意。
+
+
+*****
+
+####  misuzu0723  
+##### 21094#       发表于 2026-11-23 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543670&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-11-23 21:02</a>
+关键的engram没抄</blockquote>
+这个好像预训练就得加上
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
