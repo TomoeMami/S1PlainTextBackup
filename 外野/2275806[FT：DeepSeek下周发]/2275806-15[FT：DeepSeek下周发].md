@@ -4984,3 +4984,25 @@ qwen4flash来了，试用了一下感觉怎么比qwen4max强<img src="https://st
 
 免费法棍又来了，手慢无
 
+
+*****
+
+####  qwased  
+##### 21114#       发表于 2026-11-24 01:36
+
+ 本帖最后由 qwased 于 2026-11-24 01:37 编辑 
+
+<img src="https://img.stage1st.com/forum/202611/24/013609tk74necct88d0e07.png" referrerpolicy="no-referrer">
+
+<strong>9FB0E5569E99E35548CE114817FB0DF2.png</strong> (803.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-24 01:36 上传
+
+居然是阶跃？不可思议啊
+
+体感差不多0910~1017水平，而且很快
+
+感觉审美比1017强点，但是视力不好
+
