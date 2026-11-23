@@ -4351,3 +4351,34 @@ gemini的ultra和gpt pro100，哪个更经得起用？差距大不大呢？
 
 wb里的dsf没有谷价了？
 
+
+*****
+
+####  warlock228  
+##### 21056#       发表于 2026-11-23 17:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">嘎啦嘛怎么端上来个区
+
+
+*****
+
+####  love4aids  
+##### 21057#       发表于 2026-11-23 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542986&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-23 17:31</a>
+
+嘎啦嘛怎么端上来个区</blockquote>
+说明国内参数大的模型真的不好训，编程特化还行，说白了，我感觉Claude也是编程特化。真论起大模型智力来，还是Google和openai。国内还真只能看ds和kimi，现在被算力卡的也难受
+
+
+*****
+
+####  overflowal  
+##### 21058#       发表于 2026-11-23 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542819&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-23 16:53</a>
+隔段时间又来一次，然后底下评论点草 DS，其实这光一份不明所以的邮件，怎么能有这么多戏呢
+
+ ...</blockquote>
+这些老逼登这么生气，说明筛的对啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
