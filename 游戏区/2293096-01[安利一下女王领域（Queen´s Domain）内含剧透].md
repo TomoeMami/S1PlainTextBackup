@@ -7903,3 +7903,15 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 —— 来自 Xiaomi 2602BRT18C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  panandhao  
+##### 616#       发表于 2026-11-23 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541181&amp;ptid=2293096" target="_blank">ParadiseMartyr 发表于 2026-11-23 10:35</a>
+好的，石化花园我把三叉戟全放进去激活了，只出了一堆数值巨高的怪，还把我药都耗完了，就打个宝箱怪和拿 ...</blockquote>
+花园的一个房间里有四个没有亮起的火把，点亮它们需要利用灵视面具四个镜片的能力，在花园里互动四个印记（等后面收集齐镜片再来也不迟）
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

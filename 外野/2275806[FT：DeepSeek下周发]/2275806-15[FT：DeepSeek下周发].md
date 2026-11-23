@@ -3817,3 +3817,28 @@ GPT 额度蹬完用坛友推荐的法棍 1017 接上 dsh 接手，输出速度�
 法棍的 1017 websearch 是 ...</blockquote>
 有插件可以让他汇报展示进度，你也可以直接跟楼上坛友说的一样，让他自己写进规则里
 
+
+*****
+
+####  洛拉斯  
+##### 21007#       发表于 2026-11-23 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541287&amp;ptid=2275806" target="_blank">profr 发表于 2026-11-23 10:54</a>
+
+https://www.bilibili.com/blackboard/era/3jPgXvywVUMO7pR3.html
+
+B站终于开始对鱼灾有反应了，其实这些AI ...</blockquote>
+鱼可比那种复制粘贴批量带节奏的机器人好多了，但是需要强制标注和控制数量
+
+
+*****
+
+####  coldhot3  
+##### 21008#       发表于 2026-11-23 11:16
+
+<blockquote>ydd-319 发表于 2026-11-23 08:31
+昨天半夜心血来潮一句话让大肥鱼生成的天启坦克大概272k token，1块2毛5
+
+</blockquote>
+这是咋做的，我想弄个游戏角色三弟打印，它不给找。
+
