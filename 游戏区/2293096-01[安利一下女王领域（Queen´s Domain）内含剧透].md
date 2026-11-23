@@ -7875,3 +7875,31 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 上古界流程是，先找到博士，获得黄色解码器。再去找紫色解码器，然后再找第五课风宝石。最后去关闭三个信号塔。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 615#       发表于 2026-11-23 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541051&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-23 10:11</a>
+温馨提示一下，先去陵墓房顶打精英，拿绿色解码器。   上古界会用到。
+
+上古界流程是，先找到博士，获得 ...</blockquote>
+好的，石化花园我把三叉戟全放进去激活了，只出了一堆数值巨高的怪，还把我药都耗完了，就打个宝箱怪和拿一把剑么？我没漏东西吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2602BRT18C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  ParadiseMartyr  
+##### 615#       发表于 2026-11-23 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70541051&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-23 10:11</a>
+温馨提示一下，先去陵墓房顶打精英，拿绿色解码器。   上古界会用到。
+
+上古界流程是，先找到博士，获得 ...</blockquote>
+好的，石化花园我把三叉戟全放进去激活了，只出了一堆数值巨高的怪，还把我药都耗完了，就打个宝箱怪和拿一把剑么？我没漏东西吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2602BRT18C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
