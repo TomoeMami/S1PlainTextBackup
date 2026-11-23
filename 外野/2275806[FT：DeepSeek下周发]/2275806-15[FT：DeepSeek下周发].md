@@ -5037,3 +5037,15 @@ google ai pro的教育优惠有没有啥坑?
 我有两个号,都在淘宝上搞了教育优惠;新加坡区一个月只要30多感觉太实 ...</blockquote>
 坑就是教育资格随时可能要求你二审，另外一张国内信用卡绑太多号也有点危险。我是用苹果礼品卡多开的
 
+
+*****
+
+####  璇瑢子R  
+##### 21117#       发表于 2026-11-24 04:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542290&amp;ptid=2275806" target="_blank">虎鲸 发表于 2026-11-23 14:52</a>
+这方面qwen3.8会比3.6好吗？</blockquote>
+gemma4 31b比qwen3.8/3.6都强
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
