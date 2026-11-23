@@ -4229,3 +4229,14 @@ qq对于第三方bot的态度一向是冚家铲。</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">GPT promax到期了，严重戒断中
 
+
+*****
+
+####  UncleDracula  
+##### 21045#       发表于 2026-11-23 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70537188&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-21 20:35</a>
+
+那就等于扣两次钱有3个月额度，当然没有扣一次钱用两个月额度多啊</blockquote>
+大佬请教下，为啥我Mistral用了30刀就提示没额度了？
+
