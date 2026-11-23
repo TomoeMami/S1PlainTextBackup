@@ -4785,3 +4785,43 @@ mistral，15刀一个月，330刀的峰价用量，500tps左右，就是偶尔�
 30刀是API额度，还有300刀Vibe额度，在https://chat.mistral.ai/code/extensions页面点击“Advanced”折 ...</blockquote>
 网站需**  使用api还需**吗？
 
+
+*****
+
+####  qwased  
+##### 21096#       发表于 2026-11-23 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543767&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-11-23 21:46</a>
+网站需要梯  使用api还需要梯吗？</blockquote>
+你能接通cf就不用
+
+*****
+
+####  我也很绝望啊  
+##### 21097#       发表于 2026-11-23 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543767&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-11-23 21:46</a>
+
+网站需要梯  使用api还需要梯吗？</blockquote>
+要的，不挂梯子连不上api
+
+
+*****
+
+####  BarricadeMKXX  
+##### 21098#       发表于 2026-11-23 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543711&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-11-23 21:25</a>
+不是你们要的好用的agy到底是啥样的（codex我也没觉得好太多啊），这几天用下来我的感受是只要哈基米不降智 ...</blockquote>
+前两天群里写的，最近加班忙昏头了没空继续品鉴和更新<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+在win和wsl之间切工作区要重启
+
+起后台任务编译项目报错了自己发现不了干等，还是我手动插话让它排查的
+
+命令行cmd /c然后和program files的空格搏斗
+
+会话没有fork，似乎没有手动compact
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
