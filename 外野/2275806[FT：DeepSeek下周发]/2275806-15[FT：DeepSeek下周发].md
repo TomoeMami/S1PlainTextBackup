@@ -4574,3 +4574,13 @@ glm5.4炸炉了，无法理解自然语言
 
 真在那造时空门绷不住了
 
+
+*****
+
+####  纸皮  
+##### 21077#       发表于 2026-11-23 19:02
+
+X上刷到一些GLM搓的模型，还不错
+
+不过这种比较泛的也就看看意思，生产还是要做真的例题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就像大家都觉得GPTimage好但是我的细分专业难用的要死
+
