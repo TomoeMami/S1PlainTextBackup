@@ -11,3 +11,11 @@ holygrailwargame.cupnight.workers.dev
 
 —— 来自 OPPO PKJ110, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  khxooo  
+##### 48333#       发表于 2026-11-23 17:53
+
+今天每日单抽，刚好可以抽两次，谁知道两次都来静谧，当场就气醒了<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+

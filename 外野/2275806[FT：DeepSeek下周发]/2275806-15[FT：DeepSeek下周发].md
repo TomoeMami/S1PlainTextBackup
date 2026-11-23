@@ -4392,3 +4392,32 @@ wb里的dsf没有谷价了？
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  紧那罗  
+##### 21060#       发表于 2026-11-23 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70542756&amp;ptid=2275806" target="_blank">weare17k 发表于 2026-11-23 16:43</a>
+
+gemini的ultra和gpt pro100，哪个更经得起用？差距大不大呢？
+
+—— 来自 HONOR PNM-AN10, Android 17, 鹅 ...</blockquote>
+纯token数量应该是gpt，gpt100是20刀的10倍，gemini是5倍。
+
+不过现在有个田忌赛马的问题 neon作为略贵于sol一档的模型 大部分人现在体感可能比astra（价格2.5倍于neon）还要好
+
+这就导致实际用起来可能还是gemini ultra更好用
+
+再加上google加送的那堆福利也确实比O/的能打的多
+
+*****
+
+####  warlock228  
+##### 21061#       发表于 2026-11-23 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543005&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-23 17:35</a>
+
+说明国内参数大的模型真的不好训，编程特化还行，说白了，我感觉Claude也是编程特化。真论起大模型智力来 ...</blockquote>
+感觉确实日子不好过，但愿能挺过去看DS的了，A\今天点名的模型公司除了OAI就剩大肥鱼了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明明以前都会点国模全员的名的
+
