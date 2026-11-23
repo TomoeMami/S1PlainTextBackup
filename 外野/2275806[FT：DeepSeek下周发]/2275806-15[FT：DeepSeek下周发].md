@@ -4596,3 +4596,41 @@ X上刷到一些GLM搓的模型，还不错
 ——  ...</blockquote>
 国区怎么买的AIPro
 
+
+*****
+
+####  qz66618  
+##### 21079#       发表于 2026-11-23 19:33
+
+[https://mp.weixin.qq.com/s/D-IZr-QaT1or_chminK8IQ](https://mp.weixin.qq.com/s/D-IZr-QaT1or_chminK8IQ) 智谱的公众号发了有关5.4的信息，是在先前模型的预训练基模上把模型改成loop transformer继续后训练的，后续很快会推出之前提到的那个重新训练的3T模型。
+
+目前看来这个5.4只能说相较于5.3有提升，但是仍然没有更详细的跑分结果，只给了一个coding场景下和国模的比较胜率（这算什么体感bench吗？），从目前表现来看只能希望他们重头训练的全新架构的大模型真的能发挥出架构上的优势吧<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 21080#       发表于 2026-11-23 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70543371&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-11-23 19:24</a>
+国区怎么买的AIPro</blockquote>
+国区可以订 AI Pro 啊，你可以用哈基米吧，但是不能用反重力。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  andychen  
+##### 21081#       发表于 2026-11-23 19:36
+
+从这个架构图上看思维图也就两层嘛，和OAI一样的
+
+之前说激进的Scaling Loop，我还以为一上来就要搞三层四层然后后面奔着十几二十层去了。不过倒也不意外，这个模型的思维链仍然是可读的，而按OAI研究人员的暗示思维图超过3层思维链对人类就几乎完全不可读了
+
+*****
+
+####  ayanamilin  
+##### 21082#       发表于 2026-11-23 19:36
+
+GLM5.4 这架构明显抄的 DeepSeek V4.1f 跨层 KV 复用、index 复用、SWA + TopK。
+
