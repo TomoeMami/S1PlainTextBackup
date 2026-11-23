@@ -192,3 +192,11 @@
 — ...</blockquote>
 如果按这个逻辑，那红猫为什么要击杀先代老鼠好像就能多一种解释了。
 
+
+*****
+
+####  風卷豹  
+##### 324#       发表于 2026-11-23 08:47
+
+其实我第一反应是后面会有大小姐出现不可思议化麦斯和十二生肖展开内斗的剧情<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
