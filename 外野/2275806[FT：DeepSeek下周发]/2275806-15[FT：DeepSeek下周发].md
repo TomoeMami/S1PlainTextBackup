@@ -5669,3 +5669,12 @@ hungerG居然评价不错？
 
 mistral 开始封号了。
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 21168#       发表于 2026-11-25 01:28
+
+Dot连给我的chat发消息都做不到，还得我一直手动发继续。
+<img src="https://p.sda1.dev/36/a9313b994df73c24f7987892657081fc/image.jpg" referrerpolicy="no-referrer">
+
