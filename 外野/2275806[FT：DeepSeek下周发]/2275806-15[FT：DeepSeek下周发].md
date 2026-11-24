@@ -5360,3 +5360,23 @@ a/公告这么写，被人扒出来是系统提示词直接禁止提供这方面
 
 —— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  JRPG  
+##### 21146#       发表于 2026-11-24 16:30
+
+<blockquote>UncleDracula 发表于 2026-11-24 16:00
+谷歌pro送的10刀赠金API能用吗？为啥我用API先扣我充值的额度，真狗</blockquote>
+能用啊，我一直扣的我的赠金
+
+
+*****
+
+####  JRPG  
+##### 21146#       发表于 2026-11-24 16:30
+
+<blockquote>UncleDracula 发表于 2026-11-24 16:00
+谷歌pro送的10刀赠金API能用吗？为啥我用API先扣我充值的额度，真狗</blockquote>
+能用啊，我一直扣的我的赠金
+
