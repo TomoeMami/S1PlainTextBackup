@@ -5326,3 +5326,24 @@ a/公告这么写，被人扒出来是系统提示词直接禁止提供这方面
 
 —— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  UncleDracula  
+##### 21144#       发表于 2026-11-24 16:00
+
+谷歌pro送的10刀赠金API能用吗？为啥我用API先扣我充值的额度，真狗
+
+
+*****
+
+####  bartholo4  
+##### 21145#       发表于 2026-11-24 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70546792&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-24 16:00</a>
+谷歌pro送的10刀赠金API能用吗？为啥我用API先扣我充值的额度，真狗</blockquote>
+你是不是没有领到你充钱的那个结算账户上
+我这个月就是领错了账户
+
+—— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
