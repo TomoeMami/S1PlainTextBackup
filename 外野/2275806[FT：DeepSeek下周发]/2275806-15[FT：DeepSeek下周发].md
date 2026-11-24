@@ -5255,3 +5255,11 @@ qoder 有个叫 hungerG 的灰测模型，不过有人说是 Stepfun
 
 国模有哪个普通办公文字工作ppt之类的比较好用啊 用workbuddy的kimi3做个ppt用了我800积分还没做完限额夹断了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HazukiShion  
+##### 21138#       发表于 2026-11-24 13:22
+
+Qwen4 27B 到底啥时候出？<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
