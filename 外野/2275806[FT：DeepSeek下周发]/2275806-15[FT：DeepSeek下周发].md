@@ -5429,3 +5429,16 @@ Neon基本对应Opus：名义上的次旗舰模型，实际上在日常工作场
 
 Pro套餐按照有些用户自己统计，大概有400多刀的额度，比Openai高，比A畜低很多。
 
+
+*****
+
+####  冤枉呐  
+##### 21152#       发表于 2026-11-24 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70546151&amp;ptid=2275806" target="_blank">iceddd 发表于 2026-11-24 12:59</a>
+国模有哪个普通办公文字工作ppt之类的比较好用啊 用workbuddy的kimi3做个ppt用了我800积分还没做完限额夹断 ...</blockquote>
+开源文字处理我现在用k3
+运营商自己部署的
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
