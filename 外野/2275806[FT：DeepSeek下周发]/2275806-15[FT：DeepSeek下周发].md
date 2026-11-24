@@ -5181,3 +5181,26 @@ agy中google把gemini的模型额度放一个池子里了，是增加了还是�
 现在想订阅gemini尝试一下，怎么做比较好？看了一圈，又是黑五折扣，又是教育优惠，还有人说可以直接用国内 ...</blockquote>
 免费羊毛不能用carbon和Claude的模型，教育优惠好像最长可以4年，性价比最高，但是只有pro档能选，黑五是半价
 
+
+*****
+
+####  紧那罗  
+##### 21131#       发表于 2026-11-24 10:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本来觉得调教了一个月时间 也算把GPT调教的算是能说人话了
+
+这周GPT pro到期了换成哈基米来写方案
+
+只能说说人话的水平也还是有差距的
+
+neon目前用下来暂时没看到什么短板 目前就剩一些安全审计类的事情感觉适合GPT这种高防模型干
+
+*****
+
+####  neptunehs  
+##### 21132#       发表于 2026-11-24 10:55
+
+黑五半价的pro大概是多少钱，需要怎么搞，国区Google play的Google账号能搞吗？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
