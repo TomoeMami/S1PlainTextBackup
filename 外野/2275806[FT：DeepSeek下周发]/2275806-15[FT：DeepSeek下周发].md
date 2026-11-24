@@ -5103,3 +5103,13 @@ gemma4 31b比qwen3.8/3.6都强
 
 Gemini4在opus这个档位的是哪个模型，pro有多少额度
 
+
+*****
+
+####  heemoon  
+##### 21123#       发表于 2026-11-24 08:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70544919&amp;ptid=2275806" target="_blank">FACS 发表于 2026-11-24 08:27</a>
+Gemini4在opus这个档位的是哪个模型，pro有多少额度</blockquote>
+可以用opus 5.5 high，体感的话周额度可以出两个小视频（用代码写的），其他没试过
+
