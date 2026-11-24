@@ -19,3 +19,11 @@ holygrailwargame.cupnight.workers.dev
 
 今天每日单抽，刚好可以抽两次，谁知道两次都来静谧，当场就气醒了<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安生  
+##### 48334#       发表于 2026-11-24 11:16
+
+这每日单抽 我就没出过货 真服了
+
