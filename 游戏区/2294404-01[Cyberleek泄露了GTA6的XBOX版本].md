@@ -557,3 +557,13 @@ claude 也知道要保命哈哈
 感觉比起破解，各种优化才是长期战。</blockquote>
 理论上，画面可以回滚到GTA5最初的PC版程度
 
+
+*****
+
+####  ArowRocher  
+##### 61#       发表于 2026-11-24 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70547189&amp;ptid=2294404" target="_blank">鱼雷鲨 发表于 2026-11-24 17:40</a>
+理论上，画面可以回滚到GTA5最初的PC版程度</blockquote>
+如果是均匀的差也就差了，我最近玩了下宇宙机器人，碰到的有：帧数从几十到一百多过山车，贴图不加载，光影bug，冗长的过场loading等等
+
