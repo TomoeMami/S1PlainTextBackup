@@ -5729,3 +5729,14 @@ Dot连给我的chat发消息都做不到，还得我一直手动发继续。
 
 今天5个号里最后一个Jio Google Pro也死了。回来吧，兄弟姐妹们，我还有一个正规Edu Google AI Pro可以激活和使用，回到家庭组里来变成额外的5倍Gemini APP额度吧
 
+
+*****
+
+####  squallx2  
+##### 21174#       发表于 2026-11-25 07:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548381&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-11-25 07:01</a>
+
+今天5个号里最后一个Jio Google Pro也死了。回来吧，兄弟姐妹们，我还有一个正规Edu Google AI Pro可以激活 ...</blockquote>
+jio反正也没4用 不知道pixel的状况如何？
+
