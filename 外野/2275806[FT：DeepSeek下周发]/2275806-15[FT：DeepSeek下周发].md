@@ -5470,3 +5470,16 @@ gpt聊天模型换6.2sol之后感觉是偷偷减少思考强度了吧，现在�
 
 之前拿滚开的万千之心随便选了一章拉给GPT让它提取大纲，然后新开对话让GPT根据大纲重写这章，结果不说文笔了，信息量都差很多了，明明大纲已经写的很长了
 
+
+*****
+
+####  紧那罗  
+##### 21155#       发表于 2026-11-24 20:13
+
+今天中等强度用了一天neon（coding开了orchestrator）
+
+比预想的要耐用很多 单任务消耗的token感觉比gpt少很多
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看来后面补一个ultra20应该够了
+
+不过就是开orchestrator干活确实不算快 后面再试试swarm
+
