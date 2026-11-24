@@ -5247,3 +5247,11 @@ neon目前用下来暂时没看到什么短板 目前就剩一些安全审计类
 千问4flash出来了？  怎么我没找到</blockquote>
 qoder 有个叫 hungerG 的灰测模型，不过有人说是 Stepfun
 
+
+*****
+
+####  iceddd  
+##### 21137#       发表于 2026-11-24 12:59
+
+国模有哪个普通办公文字工作ppt之类的比较好用啊 用workbuddy的kimi3做个ppt用了我800积分还没做完限额夹断了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
