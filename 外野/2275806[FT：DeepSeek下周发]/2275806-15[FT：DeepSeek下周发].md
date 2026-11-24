@@ -5271,3 +5271,26 @@ Qwen4 27B 到底啥时候出？<img src="https://static.stage1st.com/image/smile
 
 在本帖提醒后，才确实发现6.2astra有明显的偷懒倾向（一般用6.2sol），在比较弱的约束词，干活的质量和6astra有差距
 
+
+*****
+
+####  StrangerJ  
+##### 21140#       发表于 2026-11-24 14:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70544744&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-24 05:50</a>
+只要谷歌不降智，就是oa的严父
+现在哈基米在a/自我阉割的领域彻底完爆它，比如算子优化，生物科研
+又在说人 ...</blockquote>
+算子优化？a/自我阉割？
+认真请教下有没有更详细的信息
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  JRPG  
+##### 21141#       发表于 2026-11-24 14:07
+
+在小红书上搜API，太特么可乐了，承包我一周笑点
+
