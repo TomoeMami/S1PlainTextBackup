@@ -5314,3 +5314,15 @@ Qwen4 27B 到底啥时候出？<img src="https://static.stage1st.com/image/smile
 
 a/公告这么写，被人扒出来是系统提示词直接禁止提供这方面的服务而且还不让用户知道，表现就是肥波/opus这一档的模型让它弄下llamacpp都会疯狂绕弯子又不愿意明说为什么不帮你做<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  StrangerJ  
+##### 21143#       发表于 2026-11-24 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70546546&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-24 15:00</a>
+a/公告这么写，被人扒出来是系统提示词直接禁止提供这方面的服务而且还不让用户知道，表现就是肥波/opus ...</blockquote>
+多谢，我之前倒没把这个联系起来。
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
