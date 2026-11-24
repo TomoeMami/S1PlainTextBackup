@@ -1342,3 +1342,23 @@ Blu-ray附生产限定版将收录Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- D
 
        [https://x.com/bang_dream_info/status/2125153869906985018](https://x.com/bang_dream_info/status/2125153869906985018)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42230#       发表于 2026-11-24 21:28
+
+       <img src="http://i0.hdslb.com/bfs/new_dyn/ba63043dd87d799666b3f3d5790029ed1459104794.png" referrerpolicy="no-referrer">
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/24/212853gwp4hikblihds0rl.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-24_21-24-14.png</strong> (537.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-24 21:28 上传
+
+       [https://t.bilibili.com/1274213719693328385](https://t.bilibili.com/1274213719693328385)
+
