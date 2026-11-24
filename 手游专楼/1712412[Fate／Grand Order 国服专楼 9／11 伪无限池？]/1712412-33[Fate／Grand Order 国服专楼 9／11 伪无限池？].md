@@ -41,3 +41,28 @@ holygrailwargame.cupnight.workers.dev
 
 与此同时，群里的海豹说已经出了6个五星
 
+
+*****
+
+####  khxooo  
+##### 48336#       发表于 2026-11-24 21:00
+
+标准抽4星出5星<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+MuMu-20261124-210042-836.jpg
+(445.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-24 20:59 上传
+
+<img src="https://img.stage1st.com/forum/202611/24/205949st3kuqikqd39et03.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno1  
+##### 48337#       发表于 2026-11-24 21:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">每日单抽已经出四个五星了 一个白贞三个NEW
+

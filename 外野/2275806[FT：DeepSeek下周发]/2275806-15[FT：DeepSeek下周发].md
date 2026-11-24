@@ -5483,3 +5483,11 @@ gpt聊天模型换6.2sol之后感觉是偷偷减少思考强度了吧，现在�
 
 不过就是开orchestrator干活确实不算快 后面再试试swarm
 
+
+*****
+
+####  Promeus  
+##### 21156#       发表于 2026-11-24 21:04
+
+华子疑似搓出来超级hbm了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
