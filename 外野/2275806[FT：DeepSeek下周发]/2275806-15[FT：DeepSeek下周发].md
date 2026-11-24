@@ -5219,3 +5219,21 @@ neon目前用下来暂时没看到什么短板 目前就剩一些安全审计类
 
 被检测到国内地区用不了反重力，要换地区
 
+
+*****
+
+####  heemoon  
+##### 21134#       发表于 2026-11-24 12:20
+
+哈基米这次让我去尝试了很多新花样，用omni生成视频，用flow music生成音乐，用colab部署minmax h3（但抢不到a100和g4<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+以前只用ai改个ppt搞个小工具啥的是真浪费啊
+
+
+*****
+
+####  唠叨  
+##### 21135#       发表于 2026-11-24 12:22
+
+千问4flash出来了？  怎么我没找到
+
