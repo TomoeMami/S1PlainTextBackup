@@ -5121,3 +5121,14 @@ Gemini4在opus这个档位的是哪个模型，pro有多少额度</blockquote>
 
 agy中google把gemini的模型额度放一个池子里了，是增加了还是变少了？
 
+
+*****
+
+####  spaceblue  
+##### 21125#       发表于 2026-11-24 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70544962&amp;ptid=2275806" target="_blank">白日依山尽 发表于 2026-11-24 08:44</a>
+
+agy中google把gemini的模型额度放一个池子里了，是增加了还是变少了？</blockquote>
+增加了，相当于把argon的额度加到了gemini4里
+
