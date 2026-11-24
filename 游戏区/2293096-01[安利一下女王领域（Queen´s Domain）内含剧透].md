@@ -8172,3 +8172,17 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 —— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  panandhao  
+##### 640#       发表于 2026-11-25 02:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548248&amp;ptid=2293096" target="_blank">ParadiseMartyr 发表于 2026-11-25 01:47</a>
+已经莫名其妙找到了，也打了那个血天使，他们的红色宝箱我记得之前好像在哪儿见过，然而完全想不起来了
+
+ ...</blockquote>
+希拉苏城堡内部也有血天使的宝箱。还有地下世界监牢二层，有一扇需要用这把钥匙开启的血天使BOSS战大门
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
