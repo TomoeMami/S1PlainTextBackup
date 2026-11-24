@@ -5499,3 +5499,15 @@ gpt聊天模型换6.2sol之后感觉是偷偷减少思考强度了吧，现在�
 
 豆包工作里面的大肥鱼免费啊，我用dsh搞出来用爽爆了！
 
+
+*****
+
+####  lactone  
+##### 21158#       发表于 2026-11-24 21:53
+
+hungerG体验很不错<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉是一个废话更少的大肥鱼
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
