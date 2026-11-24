@@ -5380,3 +5380,22 @@ a/公告这么写，被人扒出来是系统提示词直接禁止提供这方面
 谷歌pro送的10刀赠金API能用吗？为啥我用API先扣我充值的额度，真狗</blockquote>
 能用啊，我一直扣的我的赠金
 
+
+*****
+
+####  andychen  
+##### 21147#       发表于 2026-11-24 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70546355&amp;ptid=2275806" target="_blank">StrangerJ 发表于 2026-11-24 14:03</a>
+算子优化？a/自我阉割？
+认真请教下有没有更详细的信息</blockquote>
+Fable5.2发布公告有写，在能帮助人工智能开发的能力上做了刻意削弱
+
+
+*****
+
+####  UncleDracula  
+##### 21148#       发表于 2026-11-24 16:55
+
+是不是有延迟？我刚用的，看的支出页面显示的，结算页面还没显示消耗。还有那个300刀赠金要怎么用？能用API写代码吗？
+
