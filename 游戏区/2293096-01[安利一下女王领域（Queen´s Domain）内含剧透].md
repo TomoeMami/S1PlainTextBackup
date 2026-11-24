@@ -8158,3 +8158,17 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 还有一块在一个两层亭子上，亭子二楼有喷水雕像，就在旁边。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 639#       发表于 2026-11-25 01:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548235&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-25 01:27</a>
+下水道，那几个铁栏里面去了吗。
+
+传送祭坛背后一块</blockquote>
+已经莫名其妙找到了，也打了那个血天使，他们的宝箱我记得之前好像在哪儿见过，然而完全想不起来了
+
+—— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
