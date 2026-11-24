@@ -5169,3 +5169,15 @@ agy中google把gemini的模型额度放一个池子里了，是增加了还是�
 
 现在想订阅gemini尝试一下，怎么做比较好？看了一圈，又是黑五折扣，又是教育优惠，还有人说可以直接用国内信用卡支付的，看得人眼花缭乱
 
+
+*****
+
+####  The_Ether_  
+##### 21130#       发表于 2026-11-24 10:37
+
+ 本帖最后由 The_Ether_ 于 2026-11-24 10:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70545366&amp;ptid=2275806" target="_blank">剑影若兰 发表于 2026-11-24 10:18</a>
+
+现在想订阅gemini尝试一下，怎么做比较好？看了一圈，又是黑五折扣，又是教育优惠，还有人说可以直接用国内 ...</blockquote>
+免费羊毛不能用carbon和Claude的模型，教育优惠好像最长可以4年，性价比最高，但是只有pro档能选，黑五是半价
+
