@@ -5237,3 +5237,13 @@ neon目前用下来暂时没看到什么短板 目前就剩一些安全审计类
 
 千问4flash出来了？  怎么我没找到
 
+
+*****
+
+####  startraveller  
+##### 21136#       发表于 2026-11-24 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70546025&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-11-24 12:22</a>
+千问4flash出来了？  怎么我没找到</blockquote>
+qoder 有个叫 hungerG 的灰测模型，不过有人说是 Stepfun
+
