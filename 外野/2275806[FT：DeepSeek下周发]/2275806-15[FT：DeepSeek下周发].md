@@ -5750,3 +5750,16 @@ hungerG 429了 维持一天的好日子
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  泰坦失足  
+##### 21176#       发表于 2026-11-25 07:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548392&amp;ptid=2275806" target="_blank">squallx2 发表于 2026-11-25 07:08</a>
+
+jio反正也没4用 不知道pixel的状况如何？</blockquote>
+Reddit上有人说真正的Pixel10是算尊享硬件购买者，可以用Agy里的4.
+
+JIO和一毛不拔Edu虽然不能用Agy里的4，但是可以用在Gemini APP用4
+
