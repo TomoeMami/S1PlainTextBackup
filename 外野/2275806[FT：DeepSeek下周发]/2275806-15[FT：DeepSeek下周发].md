@@ -5520,3 +5520,21 @@ hungerG体验很不错<img src="https://static.stage1st.com/image/smiley/face201
 hungerG 1shot会有很多bug，提示一下他自己修+迭代就很好了
 而且token效率极高，体感甚至能接近k31p了，肥鱼弄了500k上下文加两个子代理弄不好的测试他只要120k上下文加一个子代理就搞定
 
+
+*****
+
+####  crow_wine  
+##### 21160#       发表于 2026-11-24 22:18
+
+最近官网的1017很弱智是我的错觉吗
+
+
+*****
+
+####  lactone  
+##### 21161#       发表于 2026-11-24 22:19
+
+a÷破发了？
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
