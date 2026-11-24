@@ -5294,3 +5294,23 @@ Qwen4 27B 到底啥时候出？<img src="https://static.stage1st.com/image/smile
 
 在小红书上搜API，太特么可乐了，承包我一周笑点
 
+
+*****
+
+####  qwased  
+##### 21142#       发表于 2026-11-24 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70546355&amp;ptid=2275806" target="_blank">StrangerJ 发表于 2026-11-24 14:03</a>
+算子优化？a/自我阉割？
+认真请教下有没有更详细的信息</blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/24/145723urlsippaow5l4swd.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795503442486_1.webp</strong> (187.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-24 14:57 上传
+
+a/公告这么写，被人扒出来是系统提示词直接禁止提供这方面的服务而且还不让用户知道，表现就是肥波/opus这一档的模型让它弄下llamacpp都会疯狂绕弯子又不愿意明说为什么不帮你做<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
