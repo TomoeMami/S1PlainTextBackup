@@ -546,3 +546,14 @@ claude 也知道要保命哈哈
 
 加油✊，mod跟上
 
+
+*****
+
+####  鱼雷鲨  
+##### 60#       发表于 2026-11-24 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70545728&amp;ptid=2294404" target="_blank">ArowRocher 发表于 2026-11-24 11:27</a>
+
+感觉比起破解，各种优化才是长期战。</blockquote>
+理论上，画面可以回滚到GTA5最初的PC版程度
+
