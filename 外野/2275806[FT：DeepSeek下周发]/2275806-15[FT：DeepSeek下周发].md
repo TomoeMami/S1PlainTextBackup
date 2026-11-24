@@ -5491,3 +5491,11 @@ gpt聊天模型换6.2sol之后感觉是偷偷减少思考强度了吧，现在�
 
 华子疑似搓出来超级hbm了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛拉斯  
+##### 21157#       发表于 2026-11-24 21:46
+
+豆包工作里面的大肥鱼免费啊，我用dsh搞出来用爽爆了！
+
