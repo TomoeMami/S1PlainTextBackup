@@ -407,3 +407,30 @@ R星的法务在到处干discord。。。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这么快？牛逼。。。
 
+
+*****
+
+####  tonyunreal  
+##### 47#       发表于 2026-11-24 11:18
+
+[https://streamable.com/o7ffl9](https://streamable.com/o7ffl9)
+victory项目的视频
+
+—— 来自 Xiaomi 25060RK16C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  莉可厨  
+##### 48#       发表于 2026-11-24 11:25
+
+这也太快了，还以为进游戏要一周，能玩要一个月这样<img src="https://static.stage1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ArowRocher  
+##### 49#       发表于 2026-11-24 11:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">感觉比起破解，各种优化才是长期战。
+
