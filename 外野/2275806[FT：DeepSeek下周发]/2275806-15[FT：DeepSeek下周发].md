@@ -5686,3 +5686,13 @@ Dot连给我的chat发消息都做不到，还得我一直手动发继续。
 
 法棍已被击毙，蹬了一百欧还行吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Luc  
+##### 21170#       发表于 2026-11-25 03:10
+
+法棍为什么封号？是杀白嫖还是什么？付费会员不会被干吧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
