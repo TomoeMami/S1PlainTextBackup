@@ -5204,3 +5204,18 @@ neon目前用下来暂时没看到什么短板 目前就剩一些安全审计类
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  77BBC  
+##### 21133#       发表于 2026-11-24 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70545552&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-11-24 10:55</a>
+
+黑五半价的pro大概是多少钱，需要怎么搞，国区Google play的Google账号能搞吗？
+
+—— 来自 vivo V2561A, A ...</blockquote>
+27号当天免费账号有99刀优惠价，不然就是plus升级一年。
+
+被检测到国内地区用不了反重力，要换地区
+

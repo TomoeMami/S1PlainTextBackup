@@ -434,3 +434,62 @@ victory项目的视频
 
 <img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">感觉比起破解，各种优化才是长期战。
 
+
+*****
+
+####  tonyunreal  
+##### 50#       发表于 2026-11-24 11:29
+
+<img src="https://p.sda1.dev/36/329038ea5bc6923c9528b147695543f0/1000050997.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/36/e68fa3d112285dd4bb2b1849fc754dc6/1000050998.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/36/535413f0abe8183766e33a3e1d1aa715/1000050999.jpg" referrerpolicy="no-referrer">
+
+claude干到一半感觉这活不太对劲<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  wowheyyy  
+##### 51#       发表于 2026-11-24 11:30
+
+不会民间先把线上搓出来吧
+
+
+*****
+
+####  壳壳牛  
+##### 52#       发表于 2026-11-24 11:33
+
+R星现在开预购还来得及吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  千秋难诉  
+##### 53#       发表于 2026-11-24 11:34
+
+进度只会比想象更快
+
+<img src="https://img.stage1st.com/forum/202611/24/113419i7kqyycvz0yb2b1v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-24 11:34 上传
+
+*****
+
+####  千秋难诉  
+##### 54#       发表于 2026-11-24 11:34
+
+ 本帖最后由 千秋难诉 于 2026-11-24 11:35 编辑 
+
+抽风，编辑了
+
