@@ -14604,3 +14604,12 @@ twi:@cdgm000
 为什么100亿灾难的时候苏蒂斯不直接重置时间<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 不就解决了吗
 
+
+*****
+
+####  未熟串烧  
+##### 8751#       发表于 2026-11-24 12:12
+
+再次感叹速度的重要性，我在蕾达线把剑圣露露练起来了，高速=高回避，个人特技20回避相当于常驻，真能当一当回避T。
+而我让穆和金天马转法师，速度没涨起来显得高不成低不就的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
