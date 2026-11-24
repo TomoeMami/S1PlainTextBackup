@@ -5559,3 +5559,35 @@ a÷破发了？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">gemini有能搞黄的中转站推荐么，私信就行，我发觉我信用卡支付不了plus账号<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 21164#       发表于 2026-11-24 23:12
+
+ 本帖最后由 neptunehs 于 2026-11-24 23:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70547067&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-24 17:01</a>
+hungerG居然评价不错？
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+相当强 比（ocg的量化版）1017强不少
+虽然不知道正式价格如何
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  neptunehs  
+##### 21164#       发表于 2026-11-24 23:12
+
+ 本帖最后由 neptunehs 于 2026-11-24 23:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70547067&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-24 17:01</a>
+hungerG居然评价不错？
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+相当强 比（ocg的量化版）1017强不少
+虽然不知道正式价格如何
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
