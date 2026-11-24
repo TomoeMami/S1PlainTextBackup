@@ -5639,3 +5639,25 @@ hungerG居然评价不错？
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 21165#       发表于 2026-11-24 23:48
+
+我喜欢上hungerG了
+
+非常干脆利落，几句话解决问题
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  静哮苍穹  
+##### 21166#       发表于 2026-11-24 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70547859&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-11-24 22:18</a>
+
+最近官网的1017很弱智是我的错觉吗</blockquote>
+真的有点蠢，一点复杂的都不能做，只能打打杂
+
