@@ -5153,3 +5153,11 @@ agy中google把gemini的模型额度放一个池子里了，是增加了还是�
 
 原来如此，所以重置的时候不会一起重置claude的那部分额度<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还是挺喜欢claude搞前端的审美的
 
+
+*****
+
+####  2035年  
+##### 21128#       发表于 2026-11-24 10:00
+
+你们用GLM5.4了吗？感觉怎么样
+
