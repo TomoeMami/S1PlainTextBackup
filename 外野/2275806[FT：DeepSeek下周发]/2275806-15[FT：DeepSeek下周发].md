@@ -5409,3 +5409,23 @@ hungerG居然评价不错？<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  moekyo  
+##### 21150#       发表于 2026-11-24 18:05
+
+今天刷到之前那个 cos 大肥鱼的 kimi 的工程师被扒出是个支持刚度并且希望全国遍地开花的神人，真的加深二刺螈程序员人均傻逼的刻板印象<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 21151#       发表于 2026-11-24 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70544919&amp;ptid=2275806" target="_blank">FACS 发表于 2026-11-24 08:27</a>
+
+Gemini4在opus这个档位的是哪个模型，pro有多少额度</blockquote>
+Neon基本对应Opus：名义上的次旗舰模型，实际上在日常工作场景下比旗舰（Fable/Carbon）强，价格适中，速度不错，能说人话。
+
+Pro套餐按照有些用户自己统计，大概有400多刀的额度，比Openai高，比A畜低很多。
+
