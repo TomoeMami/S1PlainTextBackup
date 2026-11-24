@@ -97,3 +97,24 @@ MuMu-20261124-210042-836.jpg
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qixinno1  
+##### 48341#       发表于 2026-11-25 06:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548097&amp;ptid=1712412" target="_blank">sandro 发表于 2026-11-25 00:08</a>
+
+我草，我一个五星都没，只有个新魔性菩萨李庄</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">明显是常驻出五星来平衡我的出货率的
+
+*****
+
+####  qixinno1  
+##### 48342#       发表于 2026-11-25 06:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548131&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-11-25 00:21</a>
+
+可恶啊，你这欧狗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">常驻五星不如你的限定五星
+
