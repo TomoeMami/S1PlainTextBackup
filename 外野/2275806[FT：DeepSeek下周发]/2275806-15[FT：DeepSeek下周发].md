@@ -5263,3 +5263,11 @@ qoder 有个叫 hungerG 的灰测模型，不过有人说是 Stepfun
 
 Qwen4 27B 到底啥时候出？<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗莉控  
+##### 21139#       发表于 2026-11-24 13:49
+
+在本帖提醒后，才确实发现6.2astra有明显的偷懒倾向（一般用6.2sol），在比较弱的约束词，干活的质量和6astra有差距
+
