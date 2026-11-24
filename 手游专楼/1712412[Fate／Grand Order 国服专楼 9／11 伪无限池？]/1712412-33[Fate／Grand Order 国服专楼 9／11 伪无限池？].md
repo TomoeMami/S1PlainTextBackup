@@ -66,3 +66,13 @@ MuMu-20261124-210042-836.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">每日单抽已经出四个五星了 一个白贞三个NEW
 
+
+*****
+
+####  sandro  
+##### 48338#       发表于 2026-11-25 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70547658&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-11-24 21:03</a>
+每日单抽已经出四个五星了 一个白贞三个NEW</blockquote>
+我草，我一个五星都没，只有个新魔性菩萨李庄
+
