@@ -5442,3 +5442,13 @@ Pro套餐按照有些用户自己统计，大概有400多刀的额度，比Opena
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  瑕在瑾中  
+##### 21153#       发表于 2026-11-24 19:12
+
+gpt聊天模型换6.2sol之后感觉是偷偷减少思考强度了吧，现在这个速度简直神速了
+
+—— 来自 Xiaomi 24122RKC7C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
