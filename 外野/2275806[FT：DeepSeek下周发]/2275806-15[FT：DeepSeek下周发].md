@@ -5538,3 +5538,16 @@ a÷破发了？
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  飞剪号  
+##### 21162#       发表于 2026-11-24 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70547863&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-24 22:19</a>
+
+a÷破发了？
+
+—— 来自 vivo V2505A, Android 17, 鹅球 v3.5.99</blockquote>
+开盘破发，现在就看会跌多少
+

@@ -588,3 +588,24 @@ claude 也知道要保命哈哈
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  trow233  
+##### 64#       发表于 2026-11-24 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70547456&amp;ptid=2294404" target="_blank">水边井 发表于 2026-11-24 19:31</a>
+
+【GTA6 PC 编译-哔哩哔哩直播】 https://b23.tv/BwUoZA2
+
+批站有人直播</blockquote>
+被封禁了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nancygreenlife  
+##### 65#       发表于 2026-11-24 22:32
+
+感觉进展是按小时来算的，光B站就有许多三脚猫在那尝试得不亦乐乎了，R星做啥都是徒劳了
+
