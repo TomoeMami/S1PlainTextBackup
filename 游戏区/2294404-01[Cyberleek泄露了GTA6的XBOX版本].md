@@ -384,3 +384,26 @@ gta上pc跟索尼有啥关系，是索尼倒闭了，还ps5不能玩游戏了，
 
 R星的法务在到处干discord。。。
 
+
+*****
+
+####  pp1349  
+##### 44#       发表于 2026-11-24 10:24
+
+虽然我不是那么赞同破解(R星这商法活该)，但是看5吧索索爆炸简直让我从头顶爽到脚后跟呱<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kojimaru  
+##### 45#       发表于 2026-11-24 10:25
+
+已经可以进游戏了，版权大棒砸不到agent
+
+
+*****
+
+####  丹德里恩  
+##### 46#       发表于 2026-11-24 10:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这么快？牛逼。。。
+
