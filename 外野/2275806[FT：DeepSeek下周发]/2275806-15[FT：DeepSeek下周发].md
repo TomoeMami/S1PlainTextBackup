@@ -5132,3 +5132,24 @@ agy中google把gemini的模型额度放一个池子里了，是增加了还是�
 agy中google把gemini的模型额度放一个池子里了，是增加了还是变少了？</blockquote>
 增加了，相当于把argon的额度加到了gemini4里
 
+
+*****
+
+####  紧那罗  
+##### 21126#       发表于 2026-11-24 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70544926&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-11-24 08:30</a>
+可以用opus 5.5 high，体感的话周额度可以出两个小视频（用代码写的），其他没试过
+
+对照的话，neon审美 ...</blockquote>
+他问的应该是对标Opus5.5的Gemini模型吧。AGY里调Opus就是走的A/的API付费，相当于也是Google补贴了这部分，额度相当少，和直接买API付费差不多（比如20刀的pro就差不多是能用20刀的Opus api）。
+对标Opus5.5的是neon，pro的话一周应该在2～3亿？贴钱力度不如o/a这两家，不过考虑到Google送的东西，性价比还不错
+
+
+*****
+
+####  heemoon  
+##### 21127#       发表于 2026-11-24 09:15
+
+原来如此，所以重置的时候不会一起重置claude的那部分额度<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还是挺喜欢claude搞前端的审美的
+
