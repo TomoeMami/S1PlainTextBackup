@@ -14593,3 +14593,14 @@ twi:@cdgm000
 
 这个第一部重打可以享受之前的挖人好感度和支线任务钱和声望，还可以完全融合角色属性，很难不让人有重打一遍的欲望，这点倒是比三房强太多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bonnwang  
+##### 8750#       发表于 2026-11-24 12:00
+
+一个疑问，既然鸟有穿越时间的能力
+也就是苏蒂斯大号也有这个能力
+为什么100亿灾难的时候苏蒂斯不直接重置时间<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+不就解决了吗
+
