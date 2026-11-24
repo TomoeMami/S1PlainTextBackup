@@ -5696,3 +5696,20 @@ Dot连给我的chat发消息都做不到，还得我一直手动发继续。
 
 —— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 21171#       发表于 2026-11-25 03:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548292&amp;ptid=2275806" target="_blank">Luc 发表于 2026-11-25 03:10</a>
+
+法棍为什么封号？是杀白嫖还是什么？付费会员不会被干吧
+
+—— 来自 OPPO PKJ110, Android 16, 鹅球 v3.5.9 ...</blockquote>
+应该是免费账号全杀了，群友之前付费的学生套餐都没事
+
+观望一下12月的禁止第三方harness力度多大，如果是杀系统提示词的力度那就拜拜
+
+反正现在不缺token，反重力都用不完<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
