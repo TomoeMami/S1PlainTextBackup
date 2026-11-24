@@ -565,3 +565,27 @@ FANTASIAN，主线就差个最终BOSS，但是打不过啊啊啊啊啊啊(还有
 
 —— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 42#         楼主| 发表于 2026-11-24 21:26
+
+<blockquote>哎哟卧槽了 发表于 2026-11-24 21:11
+不如試一下蓋亞幻想紀，結局很神
+
+—— 來自 Google Pixel 2, Android 11, 鵝球 v4.0 ...</blockquote>
+搜了一下，真的是这个感觉
+
+<img src="https://img.stage1st.com/forum/202611/24/212346csztg2tsheqa1t77.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="748" zoomfile="https://img.stage1st.com/forum/202611/24/212346csztg2tsheqa1t77.jpeg">
+
+<strong>F2714048-4804-48FF-9DFE-F2E56B0C1AF0.jpeg</strong> (266.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-24 21:23 上传
+
+但是问题来了，这个游戏要用模拟器来玩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，有包装和说明书的卡带价格不便宜。
+
+诶，那我3ds在闲置了近一年后又能拿出来了。
+
