@@ -6142,3 +6142,13 @@ qwen4 27b和flash都难产了啊。。。看来国产算力是紧张了
 —— 来自 Xiaomi 25019PNF3C, Android 17, 鹅球 ...</blockquote>
 看了下，转的这个人因为自己的帖子被洗稿过，支持Theo的地图炮。然后就去扒DSH了，有点难评
 
+
+*****
+
+####  Milarvoz  
+##### 21210#       发表于 2026-11-25 13:51
+
+都用中转站了还要担心自己的数据被大公司攥在手里吗？有种既要又要的美。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
