@@ -14744,3 +14744,31 @@ twi:@cdgm000
 
 坏了，我斗士穆17级才12力16速，好像已经长歪了，感觉该转头培养刚招过来的罗蕾塔还是说直接头铁练到20放弃斗拳转土匪补力<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangchunsiyue  
+##### 8762#       发表于 2026-11-26 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551569&amp;ptid=2261859" target="_blank">诡计 发表于 2026-11-25 23:50</a>
+各位大佬，求问下：
+
+我按照第一部凯伊-第一部蕾达-第一部迪托利希-第一部赛奥朵拉-第二部蕾达的顺序打完了 ...</blockquote>
+是的，战争篇可以跳过的。但是女王和凯伊第一次跳过之前最好把坐骑和军团下下来。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  yangchunsiyue  
+##### 8762#       发表于 2026-11-26 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551569&amp;ptid=2261859" target="_blank">诡计 发表于 2026-11-25 23:50</a>
+各位大佬，求问下：
+
+我按照第一部凯伊-第一部蕾达-第一部迪托利希-第一部赛奥朵拉-第二部蕾达的顺序打完了 ...</blockquote>
+是的，战争篇可以跳过的。但是女王和凯伊第一次跳过之前最好把坐骑和军团下下来。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
