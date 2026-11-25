@@ -5794,3 +5794,22 @@ Reddit上有人说真正的Pixel10是算尊享硬件购买者，可以用Agy里�
 JIO和一毛不拔Edu虽然不能用Agy里的4 ...</blockquote>
 刚更新发现JIO可以用hydrogen了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白日依山尽  
+##### 21180#       发表于 2026-11-25 09:07
+
+看到楼里说HungerG，下载了Qoder，又被恶心了一遍，和workbuddy一样，安装后它第一时间将100多种扩展名文件默认打开方式改成了自己，问题是它压根打不开。
+
+
+*****
+
+####  overflowal  
+##### 21181#       发表于 2026-11-25 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548485&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-11-25 08:09</a>
+这个400刀是单算反重力里面的额度还是加上了gemini和AIstudio里面的</blockquote>
+因为订阅是是周限额，所以还是按照一周算，pro大概一周可以用120刀的Neon。5小时可以用30刀。
+如果缓存率再优化，实际token用量还会上升。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
