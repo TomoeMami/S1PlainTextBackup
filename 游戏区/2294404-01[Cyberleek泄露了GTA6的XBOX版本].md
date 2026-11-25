@@ -690,3 +690,14 @@ claude干到一半感觉这活不太对劲
 
 听到说法说正经PC版好像就明年上半年甚至是三四月份的事情了，也是R星知道现在这个大AI时代往后拖没意义
 
+
+*****
+
+####  wzy200912345  
+##### 74#       发表于 2026-11-25 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549474&amp;ptid=2294404" target="_blank">FLZB 发表于 2026-11-25 12:33</a>
+
+怎么还有闭源的？</blockquote>
+就是拿别人git缝合下自己改着玩发个自证说自己做咋样了
+

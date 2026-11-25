@@ -6051,3 +6051,13 @@ qwen4 27b和flash都难产了啊。。。看来国产算力是紧张了
 
 —— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  FACS  
+##### 21203#       发表于 2026-11-25 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549239&amp;ptid=2275806" target="_blank">unrealMeeSeeks 发表于 2026-11-25 11:25</a>
+还以为会给我不到一千刀的周额度补偿下，结果是这个</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">O/活不起了，怎么会给补偿
+
