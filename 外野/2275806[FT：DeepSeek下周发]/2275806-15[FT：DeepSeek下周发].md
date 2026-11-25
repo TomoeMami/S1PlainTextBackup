@@ -6796,3 +6796,23 @@ codex团队吸了好几个克劳德code的大佬，也该把codex弄好一点了
 这傻逼玩意有bug会反复上传日志，一天轻松干掉一个月的流量。</blockquote>
 这玩意儿就一直不修吗
 
+
+*****
+
+####  飛霞精灵  
+##### 21263#       发表于 2026-11-26 00:22
+
+【豪猫！🖐️🤗🤚豪猫！🖐️🤗🤚豪猫！🖐️🤗🤚】 【精准空降到 00:00】[https://www.bilibili.com/video/B ... f3a4a9fb221&amp;t=0](https://www.bilibili.com/video/BV1wyWv6YE5T/?share_source=copy_web&amp;vd_source=370598b209221f8c830caf3a4a9fb221&amp;t=0)
+
+哈基米主题曲，也豪听。
+
+*****
+
+####  飛霞精灵  
+##### 21264#       发表于 2026-11-26 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550902&amp;ptid=2275806" target="_blank">last_regret 发表于 2026-11-25 19:37</a>
+
+千问是认领这个形象了？</blockquote>
+满分人设没有不支持的道理啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
