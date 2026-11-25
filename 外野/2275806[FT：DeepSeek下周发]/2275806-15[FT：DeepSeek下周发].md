@@ -6510,3 +6510,30 @@ agent不支持，但是我让肥鱼确认的时候她也不问我直接给我 ..
 
 如果订阅20刀档，日用不高强度写代码，现在是推荐oai的plus还是咕咕嘎嘎家的pro<img src="https://static.stage1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 21242#       发表于 2026-11-25 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550752&amp;ptid=2275806" target="_blank">AzuEdit 发表于 2026-11-25 18:44</a>
+
+如果订阅20刀档，日用不高强度写代码，现在是推荐oai的plus还是咕咕嘎嘎家的pro ...</blockquote>
+O/刚刚大砍用量，现在O的订阅已经完全没有任何意义，只能选哈基米了
+
+
+*****
+
+####  紧那罗  
+##### 21243#       发表于 2026-11-25 18:52
+
+再见了tibo，你的招式都被哈基米学去了
+
+<img src="https://img.stage1st.com/forum/202611/25/185225i5oo7xo7dh8ofbb1.jpg" referrerpolicy="no-referrer">
+
+<strong>image-D9E5A469.jpg</strong> (593.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-25 18:52 上传
+
