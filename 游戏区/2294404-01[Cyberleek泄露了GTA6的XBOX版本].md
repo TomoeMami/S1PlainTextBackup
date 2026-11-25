@@ -820,3 +820,15 @@ Victory的两张画面基本的都有了，就是性能问题只有2fps，当然
 
 —— 来自 Xiaomi 25091RP04C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tonyunreal  
+##### 84#       发表于 2026-11-25 19:21
+
+playable达成纪念，用时不到48小时
+
+<img src="https://p.sda1.dev/36/447a6da86f4f1ca12b73c3ec7efb850b/1000051025.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

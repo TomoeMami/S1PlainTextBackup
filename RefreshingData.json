@@ -356,7 +356,7 @@
     "newtitle": "[FGO日服讨论帖]",
     "lastedit": 1795346781,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2001539": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 50566,
+    "totalreply": 50568,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.12 莉经万难]",
-    "lastedit": 1795605275,
+    "lastedit": 1795605977,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9018,10 +9018,10 @@
     "update": false
   },
   "2026924": {
-    "totalreply": 587,
+    "totalreply": 588,
     "title": "[新月姬格斗【MELTY BLOOD： TYPE LUMINA】讨论（已变FGO格斗）]",
     "newtitle": "[新月姬格斗【MELTY BLOOD： TYPE LUMINA】讨论（已变FGO格斗）]",
-    "lastedit": 1795605012,
+    "lastedit": 1795605730,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 48277,
+    "totalreply": 48278,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1795605370,
+    "lastedit": 1795605978,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 23819,
+    "totalreply": 23820,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「穿越甚大蘑境与你相逢」版本即将开放]",
-    "lastedit": 1795605369,
+    "lastedit": 1795605982,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12546,10 +12546,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 6706,
+    "totalreply": 6707,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1795604432,
+    "lastedit": 1795605980,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14067,10 +14067,10 @@
     "update": false
   },
   "2292779": {
-    "totalreply": 431,
+    "totalreply": 432,
     "title": "[反编译PC移植汇总]",
     "newtitle": "[反编译PC移植汇总]",
-    "lastedit": 1795592172,
+    "lastedit": 1795605859,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15156,12 +15156,12 @@
     "update": false
   },
   "2288985": {
-    "totalreply": 126,
+    "totalreply": 127,
     "title": "[《浪漫沙加3 错综宿命》重制版确定于2027年2月16日上市。]",
     "newtitle": "[《浪漫沙加3 错综宿命》重制版确定于2027年2月4日上市。]",
-    "lastedit": 1794578531,
+    "lastedit": 1795605982,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2288488": {
@@ -17442,10 +17442,10 @@
     "update": false
   },
   "2294572": {
-    "totalreply": 103,
+    "totalreply": 104,
     "title": "[谭友每月花多少token费]",
     "newtitle": "[谭友每月花多少token费]",
-    "lastedit": 1795591211,
+    "lastedit": 1795605731,
     "category": "外野",
     "active": true,
     "update": false
@@ -17712,10 +17712,10 @@
     "update": false
   },
   "2294404": {
-    "totalreply": 83,
+    "totalreply": 84,
     "title": "[Cyberleek泄露了GTA6的XBOX版本]",
     "newtitle": "[Cyberleek泄露了GTA6的XBOX版本]",
-    "lastedit": 1795605495,
+    "lastedit": 1795605860,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17757,10 +17757,10 @@
     "update": false
   },
   "2294615": {
-    "totalreply": 67,
+    "totalreply": 68,
     "title": "[如果把GTA6的剧情单拎出来]",
     "newtitle": "[如果把GTA6的剧情单拎出来]",
-    "lastedit": 1795599854,
+    "lastedit": 1795605613,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17892,10 +17892,10 @@
     "update": false
   },
   "2294691": {
-    "totalreply": 48,
+    "totalreply": 50,
     "title": "[泥潭超能力者多，想问下现在软件公司的生态是什么样的，和古法编程时代有多大区别]",
     "newtitle": "[泥潭超能力者多，想问下现在软件公司的生态是什么样的，和古法编程时代有多大区别]",
-    "lastedit": 1795604774,
+    "lastedit": 1795606104,
     "category": "外野",
     "active": true,
     "update": false
@@ -18000,10 +18000,10 @@
     "update": false
   },
   "2294724": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[圣杯战争模拟器《圣杯满溢之夜》]",
     "newtitle": "[圣杯战争模拟器《圣杯满溢之夜》]",
-    "lastedit": 1795605198,
+    "lastedit": 1795605979,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -18049,6 +18049,15 @@
     "title": "[贴吧现在是什么生态位]",
     "newtitle": "[贴吧现在是什么生态位]",
     "lastedit": 1795603574,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2294775": {
+    "totalreply": 44,
+    "title": "[叔叔说很多B站用户几乎不看短剧]",
+    "newtitle": "[叔叔说很多B站用户几乎不看短剧]",
+    "lastedit": 1795605979,
     "category": "外野",
     "active": true,
     "update": false
