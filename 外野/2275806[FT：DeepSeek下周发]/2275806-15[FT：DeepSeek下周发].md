@@ -6185,3 +6185,20 @@ Theo：恶臭简中推特圈。（I will say that chinese tech twitter is the bi
 
 看完整件事，感觉没一个不傻逼的。
 
+
+*****
+
+####  icebeek  
+##### 21213#       发表于 2026-11-25 14:11
+
+ai小白想问一下坛友，我在用GPT写一些汉字和古诗文赏析方面的内容，感觉网页版的gpt6.2比桌面端的GPT强了很多，桌面端我用的是工作模式，哪怕用的是6.2Astra，用网页版给我的提示词，写出来的东西还是一坨，是因为网页版的有特殊调试吗？网页版6.2是sol模型吗？桌面端之前还出现过开新对话没法发消息的情况，网上查的改config.toml解决了。然而现在桌面端工作模式开新对话看不到上下文消耗了是什么情况？
+
+*****
+
+####  warlock228  
+##### 21214#       发表于 2026-11-25 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549239&amp;ptid=2275806" target="_blank">unrealMeeSeeks 发表于 2026-11-25 11:25</a>
+还以为会给我不到一千刀的周额度补偿下，结果是这个</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我也收到了，没啥想说的，心里就是想润
+
