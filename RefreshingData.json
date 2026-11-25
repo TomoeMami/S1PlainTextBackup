@@ -9018,13 +9018,13 @@
     "update": false
   },
   "2026924": {
-    "totalreply": 589,
+    "totalreply": 590,
     "title": "[新月姬格斗【MELTY BLOOD： TYPE LUMINA】讨论（已变FGO格斗）]",
     "newtitle": "[新月姬格斗【MELTY BLOOD： TYPE LUMINA】讨论（已变FGO格斗）]",
-    "lastedit": 1795607654,
+    "lastedit": 1795612620,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2168085": {
     "totalreply": 1037,
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 48282,
+    "totalreply": 48283,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1795611248,
+    "lastedit": 1795612456,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9495,12 +9495,12 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 24336,
+    "totalreply": 24350,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1795174089,
+    "lastedit": 1795612332,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2195783": {
@@ -12276,13 +12276,13 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 23830,
+    "totalreply": 23831,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「穿越甚大蘑境与你相逢」版本即将开放]",
-    "lastedit": 1795611974,
+    "lastedit": 1795612620,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2266103": {
     "totalreply": 837,
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 23486,
+    "totalreply": 23488,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼11月]",
-    "lastedit": 1795611613,
+    "lastedit": 1795612455,
     "category": "外野",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 21248,
+    "totalreply": 21249,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1795611371,
+    "lastedit": 1795612457,
     "category": "外野",
     "active": true,
     "update": false
@@ -13068,10 +13068,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 46184,
+    "totalreply": 46185,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1795611730,
+    "lastedit": 1795612585,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13590,13 +13590,13 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 44111,
+    "totalreply": 44112,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1795611975,
+    "lastedit": 1795612560,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2288933": {
     "totalreply": 1100,
@@ -17118,10 +17118,10 @@
     "update": false
   },
   "2294475": {
-    "totalreply": 55,
+    "totalreply": 57,
     "title": "[千问的广告中出现了千问娘形象]",
     "newtitle": "[千问的广告中出现了千问娘形象]",
-    "lastedit": 1795609693,
+    "lastedit": 1795612573,
     "category": "外野",
     "active": true,
     "update": false
@@ -17688,10 +17688,10 @@
     "totalreply": 68,
     "title": "[如果把GTA6的剧情单拎出来]",
     "newtitle": "[如果把GTA6的剧情单拎出来]",
-    "lastedit": 1795605613,
+    "lastedit": 1795612560,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2294605": {
     "totalreply": 54,
@@ -17928,13 +17928,13 @@
     "update": false
   },
   "2294724": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "[圣杯战争模拟器《圣杯满溢之夜》]",
     "newtitle": "[圣杯战争模拟器《圣杯满溢之夜》]",
-    "lastedit": 1795607362,
+    "lastedit": 1795612560,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2294715": {
     "totalreply": 42,
@@ -17973,28 +17973,28 @@
     "update": false
   },
   "2294760": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[贴吧现在是什么生态位]",
     "newtitle": "[贴吧现在是什么生态位]",
-    "lastedit": 1795611973,
+    "lastedit": 1795612573,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2294775": {
-    "totalreply": 68,
+    "totalreply": 69,
     "title": "[叔叔说很多B站用户几乎不看短剧]",
     "newtitle": "[叔叔说很多B站用户几乎不看短剧]",
-    "lastedit": 1795611974,
+    "lastedit": 1795612560,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2294761": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[VR以及XR行业，到底路在何方]",
     "newtitle": "[VR以及XR行业，到底路在何方]",
-    "lastedit": 1795611250,
+    "lastedit": 1795612457,
     "category": "外野",
     "active": true,
     "update": false
