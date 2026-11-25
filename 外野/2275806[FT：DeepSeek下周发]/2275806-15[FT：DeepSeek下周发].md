@@ -6295,3 +6295,13 @@ any支持dsh，原生支持，不过dsh只能是用o家模型
 agent不支持，但是我让肥鱼确认的时候她也不问我直接给我 ...</blockquote>
 还真是，dsh也能直接用了
 
+
+*****
+
+####  startraveller  
+##### 21223#       发表于 2026-11-25 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550015&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-11-25 15:09</a>
+OpencodeGo的k3.1额度给到60刀，倍率看齐kimi自己的老套餐了（不得不吐槽一下kimi自己的api价格和订阅倍率 ...</blockquote>
+以3.1的价格 60刀也是一晚上烧完
+
