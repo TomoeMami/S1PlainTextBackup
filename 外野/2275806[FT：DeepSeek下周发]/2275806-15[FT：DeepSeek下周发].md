@@ -6273,3 +6273,25 @@ any现在还有注册的可能吗 没有edu邮箱
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  很久就在那边l  
+##### 21221#       发表于 2026-11-25 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550050&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-11-25 15:19</a>
+any现在还有注册的可能吗 没有edu邮箱
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0 ...</blockquote>
+用五年以上github账号注册l站再用l站登录
+
+*****
+
+####  很久就在那边l  
+##### 21222#       发表于 2026-11-25 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549921&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-11-25 14:47</a>
+any支持dsh，原生支持，不过dsh只能是用o家模型
+agent不支持，但是我让肥鱼确认的时候她也不问我直接给我 ...</blockquote>
+还真是，dsh也能直接用了
+
