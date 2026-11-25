@@ -725,3 +725,16 @@ R星母公司发行商Take‑Two确认，已通过DMCA向GitHub提交投诉，�
 
 R星这样还不如直接公布pc版发售日得了
 
+
+*****
+
+####  trow233  
+##### 77#       发表于 2026-11-25 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550432&amp;ptid=2294404" target="_blank">时空之旅 发表于 2026-11-25 17:16</a>
+
+11月25日消息，《GTA6》泄露的第二天，民间PC移植项目游戏已取得飞跃式进展，可渲染出接近正常光影效果，但 ...</blockquote>
+为什么R星就能做到封杀
+
+老任那一堆都直接可以开玩了？
+

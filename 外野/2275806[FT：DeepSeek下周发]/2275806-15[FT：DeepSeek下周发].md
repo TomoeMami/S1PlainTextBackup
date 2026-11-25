@@ -6390,3 +6390,24 @@ agent不支持，但是我让肥鱼确认的时候她也不问我直接给我 ..
 
 问下dsh-go可以在手机上对手机软件文件进行深度修改并测试吗？
 
+
+*****
+
+####  qwased  
+##### 21232#       发表于 2026-11-25 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550500&amp;ptid=2275806" target="_blank">olo12138 发表于 2026-11-25 17:34</a>
+
+问下dsh-go可以在手机上对手机软件文件进行深度修改并测试吗？</blockquote>
+你让他准备相关的环境就行，我让他拉了一套APK编译环境跑也没啥问题
+
+
+*****
+
+####  qwased  
+##### 21233#       发表于 2026-11-25 17:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> SWE2.1不知道刷分程度如何，看评价好像挺猛的，说是手感比K31P舒服
+
+国模还是太缺卡了啊
+
