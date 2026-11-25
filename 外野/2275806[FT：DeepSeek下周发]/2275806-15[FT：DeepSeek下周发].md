@@ -6152,3 +6152,36 @@ qwen4 27b和flash都难产了啊。。。看来国产算力是紧张了
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  fat  
+##### 21211#       发表于 2026-11-25 14:06
+
+现在 Gemini 4 一般搭什么 harness？ antigravity 还是那么拉胯吗？
+
+用了好久 codex，对优惠有点心动
+
+*****
+
+####  匿名用户  
+##### 21212#       发表于 2026-11-25 14:08
+
+<blockquote>BarricadeMKXX 发表于 2026-11-25 12:19
+话说回来T3code刚被抓包，theo还在x上地图炮中国程序员
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, 鹅球 ...</blockquote>
+整件事都很蠢，是T3上传遥测数据外的一个分支事件：
+
+A：fork T3 自己改 UI，发布出来还挂着 T3 的名字。（看了眼说实话土得要命）
+
+B：想试 T3，结果蠢到下成了 fork 版，然后嘲讽 UI 蠢。
+
+Theo：这不是 T3。 接着阴阳怪气补了句 Temu3 Code。
+
+CDEF：喷 Theo 是种族主义小丑。
+
+Theo：恶臭简中推特圈。（I will say that chinese tech twitter is the biggest fucking cesspit I've ever waded into somehow, and if you trust anyone on that side writing slop essays about things you are fucking braindead）
+
+看完整件事，感觉没一个不傻逼的。
+

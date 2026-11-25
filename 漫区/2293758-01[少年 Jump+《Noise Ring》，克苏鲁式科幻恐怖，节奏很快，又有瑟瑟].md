@@ -34,3 +34,25 @@
 顺带一提 ...</blockquote>
 山口让司的《诞生》真精彩，但算是克系吗，以前看的时候只觉得和孔雀王一类，神神叨叨群魔乱舞。
 
+
+*****
+
+####  夜游宫  
+##### 50#       发表于 2026-11-25 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549579&amp;ptid=2293758" target="_blank">土豆天下 发表于 2026-11-25 13:07</a>
+
+山口让司的《诞生》真精彩，但算是克系吗，以前看的时候只觉得和孔雀王一类，神神叨叨群魔乱舞。 ...</blockquote>
+后续还有部螺天你看了没
+
+
+*****
+
+####  夜游宫  
+##### 50#       发表于 2026-11-25 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549579&amp;ptid=2293758" target="_blank">土豆天下 发表于 2026-11-25 13:07</a>
+
+山口让司的《诞生》真精彩，但算是克系吗，以前看的时候只觉得和孔雀王一类，神神叨叨群魔乱舞。 ...</blockquote>
+后续还有部螺天你看了没
+
