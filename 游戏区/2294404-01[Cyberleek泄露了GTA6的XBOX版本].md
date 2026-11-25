@@ -617,3 +617,13 @@ claude 也知道要保命哈哈
 
 R星，你干脆去干 A % 吧。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 67#       发表于 2026-11-25 07:58
+
+[https://x.com/chasmmmmmmmmmmm/status/2125238687785177580](https://x.com/chasmmmmmmmmmmm/status/2125238687785177580)
+
+Mac版也能至少跑起来了。以后搞不好还有安卓/iOS版<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

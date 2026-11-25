@@ -5763,3 +5763,11 @@ Reddit上有人说真正的Pixel10是算尊享硬件购买者，可以用Agy里�
 
 JIO和一毛不拔Edu虽然不能用Agy里的4，但是可以用在Gemini APP用4
 
+
+*****
+
+####  bixinhaner  
+##### 21177#       发表于 2026-11-25 08:04
+
+这个hungerg可能是qwen4flash吗
+
