@@ -810,3 +810,13 @@ Victory的两张画面基本的都有了，就是性能问题只有2fps，当然
 
 接下来就看r星有几个师
 
+
+*****
+
+####  tonyunreal  
+##### 83#       发表于 2026-11-25 19:15
+
+有个belobug项目也是今晚放，比zslayer进度更靠前，帧数有10左右，但是只支持rdna2以上a卡
+
+—— 来自 Xiaomi 25091RP04C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
