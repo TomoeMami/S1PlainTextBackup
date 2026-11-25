@@ -14725,3 +14725,22 @@ twi:@cdgm000
 女王高级职业转什么好。龙骑还是卫士</blockquote>
 女王自己技能挺普通的，特性也是抗伤的，白魔法有个远疗，当个圣枪师在前排奶人，没事就垫点伤害就差不多。输出方向她有个重破坏+，没有重装移动术，要输出就只能玩重装骑士，但有个问题，这职业成长率有毒，感觉不如去玩大象<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  诡计  
+##### 8760#       发表于 2026-11-25 23:50
+
+各位大佬，求问下：
+<img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">我按照第一部凯伊-第一部蕾达-第一部迪托利希-第一部赛奥朵拉-第二部蕾达的顺序打完了前面的内容，现在想进第三部发现商人是暗的，why？我凯伊篇和女王篇应该都打了他的外传（）
+
+是一定要打过他外传的角色再通一遍战争篇才算数吗
+
+
+*****
+
+####  齿轮轴君  
+##### 8761#       发表于 2026-11-25 23:51
+
+坏了，我斗士穆17级才12力16速，好像已经长歪了，感觉该转头培养刚招过来的罗蕾塔还是说直接头铁练到20放弃斗拳转土匪补力<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

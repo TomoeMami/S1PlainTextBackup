@@ -6786,3 +6786,13 @@ codex团队吸了好几个克劳德code的大佬，也该把codex弄好一点了
 妈的，反重力真的有病，我让它看视频，一个二十几兆的东西在对话里反复上传，最后一下午干掉我 17g** 流量 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这傻逼玩意有bug会反复上传日志，一天轻松干掉一个月的流量。
 
+
+*****
+
+####  真红之闪电  
+##### 21262#       发表于 2026-11-25 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551550&amp;ptid=2275806" target="_blank">zxc786 发表于 2026-11-25 23:38</a>
+这傻逼玩意有bug会反复上传日志，一天轻松干掉一个月的流量。</blockquote>
+这玩意儿就一直不修吗
+
