@@ -864,3 +864,11 @@ playable达成纪念，用时不到48小时
 
 2026-11-25 20:10 上传
 
+
+*****
+
+####  如月尤菲  
+##### 88#       发表于 2026-11-25 20:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说剧情不是被批了么，就算成功了还会有人玩么
+

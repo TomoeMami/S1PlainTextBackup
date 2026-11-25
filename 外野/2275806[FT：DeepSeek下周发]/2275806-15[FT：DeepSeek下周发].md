@@ -6581,3 +6581,11 @@ O/刚刚大砍用量，现在O的订阅已经完全没有任何意义，只能�
 
 刚才deepseek是不是崩了几分钟<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真红之闪电  
+##### 21247#       发表于 2026-11-25 20:34
+
+妈的，反重力真的有病，我让它看视频，一个二十几兆的东西在对话里反复上传，最后一下午干掉我 17g** 流量
+
