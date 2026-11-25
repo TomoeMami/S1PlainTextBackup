@@ -5771,3 +5771,13 @@ JIO和一毛不拔Edu虽然不能用Agy里的4，但是可以用在Gemini APP用
 
 这个hungerg可能是qwen4flash吗
 
+
+*****
+
+####  蜇灵  
+##### 21178#       发表于 2026-11-25 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70547267&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-11-24 18:07</a>
+Neon基本对应Opus：名义上的次旗舰模型，实际上在日常工作场景下比旗舰（Fable/Carbon）强，价格适中，速 ...</blockquote>
+这个400刀是单算反重力里面的额度还是加上了gemini和AIstudio里面的
+
