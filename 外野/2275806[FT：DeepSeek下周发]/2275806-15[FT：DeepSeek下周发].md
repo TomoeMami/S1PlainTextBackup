@@ -6016,3 +6016,26 @@ hungerG都说是阶跃星辰的
 
 qwen4 27b和flash都难产了啊。。。看来国产算力是紧张了
 
+
+*****
+
+####  qwased  
+##### 21200#       发表于 2026-11-25 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549355&amp;ptid=2275806" target="_blank">lubo 发表于 2026-11-25 11:55</a>
+可能要有舆情了</blockquote>
+没看懂，中转站不是本来就能看见你的会话吗
+
+
+*****
+
+####  紧那罗  
+##### 21201#       发表于 2026-11-25 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549365&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-25 12:00</a>
+蜂 bee 开会
+
+—— 来自 Xiaomi M332BF, Android 17, 鹅球 v4.0</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">agy原生界面上看起来这么帅吗，我只在tui里看了一眼。
+可惜这玩意对于ACP对接的第三方前端太不友好了，我估计暂时不会用了
+
