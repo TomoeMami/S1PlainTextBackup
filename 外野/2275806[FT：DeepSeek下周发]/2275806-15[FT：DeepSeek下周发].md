@@ -6097,3 +6097,25 @@ qwen4 27b和flash都难产了啊。。。看来国产算力是紧张了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qwased  
+##### 21207#       发表于 2026-11-25 13:18
+
+[https://agy-harness-hook-tricks.pages.dev/compact-rehydration](https://agy-harness-hook-tricks.pages.dev/compact-rehydration)   
+
+[https://github.com/WhiteBr1ck/agy-powertools](https://github.com/WhiteBr1ck/agy-powertools)
+
+<img src="https://img.stage1st.com/forum/202611/25/131815qv73vakzrlw7kwkz.png" referrerpolicy="no-referrer">
+
+<strong>9DF967086FF01D3C4AF2C3D5CAA6D125.png</strong> (91.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-25 13:18 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">此间乐，不思各种畜
+
+希望谷大善人能多坚挺两个月吧
+
