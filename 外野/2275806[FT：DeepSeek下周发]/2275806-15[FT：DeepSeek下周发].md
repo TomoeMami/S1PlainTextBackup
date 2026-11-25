@@ -6119,3 +6119,26 @@ qwen4 27b和flash都难产了啊。。。看来国产算力是紧张了
 
 希望谷大善人能多坚挺两个月吧
 
+
+*****
+
+####  空き地卯木  
+##### 21208#       发表于 2026-11-25 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549355&amp;ptid=2275806" target="_blank">lubo 发表于 2026-11-25 11:55</a>
+可能要有舆情了</blockquote>
+鉴定为网安嘉豪
+
+
+*****
+
+####  lubo  
+##### 21209#       发表于 2026-11-25 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549430&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-11-25 12:19</a>
+
+话说回来T3code刚被抓包，theo还在x上地图炮中国程序员
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, 鹅球 ...</blockquote>
+看了下，转的这个人因为自己的帖子被洗稿过，支持Theo的地图炮。然后就去扒DSH了，有点难评
+
