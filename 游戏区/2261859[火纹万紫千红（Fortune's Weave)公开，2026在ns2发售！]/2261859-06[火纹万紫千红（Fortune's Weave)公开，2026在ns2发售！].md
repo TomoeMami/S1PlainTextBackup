@@ -14707,3 +14707,11 @@ twi:@cdgm000
 
 但老实说我觉得女王最适合大象<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  deathyue  
+##### 8758#       发表于 2026-11-25 11:32
+
+是不是凯伊线就该全员上马，其他线再走其他路线补属性最后合并？？
+

@@ -5909,3 +5909,22 @@ hydrogen给你用两天，吸上了再砍<img src="https://static.stage1st.com/i
 
 谷歌的现在4个，哪个最好用啊，
 
+
+*****
+
+####  很久就在那边l  
+##### 21192#       发表于 2026-11-25 11:36
+
+any的6.1sol现在随便蹬了，签到一下够用一天，就是不知道为什么不换成6.2sol
+
+*****
+
+####  小妻水亚美  
+##### 21193#       发表于 2026-11-25 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548353&amp;ptid=2275806" target="_blank">The_Ether_ 发表于 2026-11-25 06:28</a>
+老黄回去之后OA两家又开始散播ai威 胁 论，太傻逼了</blockquote>
+是说自己的内部模型已经越来越难被监管住了是吧
+
+—— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
