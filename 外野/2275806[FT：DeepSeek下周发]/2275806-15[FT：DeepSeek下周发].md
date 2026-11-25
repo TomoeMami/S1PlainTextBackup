@@ -6848,3 +6848,11 @@ codex团队吸了好几个克劳德code的大佬，也该把codex弄好一点了
 
 赠金V的VERTEX彻底不可用了吗 今天换着节点蹬都是几轮下来就全429了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  med  
+##### 21268#       发表于 2026-11-26 06:13
+
+o/家砍额度后就没法用了，哈基米便宜，但是切换过来，感觉指令遵循好差，沟通好吃力<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
