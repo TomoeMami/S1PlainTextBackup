@@ -5928,3 +5928,47 @@ any的6.1sol现在随便蹬了，签到一下够用一天，就是不知道为�
 
 —— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  JasonBourne  
+##### 21194#       发表于 2026-11-25 11:52
+
+hungerG都说是阶跃星辰的
+
+*****
+
+####  紧那罗  
+##### 21195#       发表于 2026-11-25 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549242&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-25 11:25</a>
+谷歌的现在4个，哪个最好用啊，</blockquote>
+理论上是碳，但是碳消耗高（含bug），响应慢，同时产出也不是完全压制氖。
+所以现在口碑最好，最优先选择是氖（neon）<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lubo  
+##### 21196#       发表于 2026-11-25 11:55
+
+<img src="https://img.stage1st.com/forum/202611/25/115435v6jmo6yxc3m3lxc4.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9667.png</strong> (209.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-25 11:54 上传
+
+<img src="https://img.stage1st.com/forum/202611/25/115435wzhtjur33jrtum5n.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9666.png</strong> (156.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-25 11:54 上传
+
+可能要有舆情了
+
