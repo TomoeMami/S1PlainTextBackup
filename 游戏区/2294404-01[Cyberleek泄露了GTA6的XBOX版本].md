@@ -872,3 +872,14 @@ playable达成纪念，用时不到48小时
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说剧情不是被批了么，就算成功了还会有人玩么
 
+
+*****
+
+####  时空之旅  
+##### 89#       发表于 2026-11-25 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550971&amp;ptid=2294404" target="_blank">ShiKi847 发表于 2026-11-25 19:58</a>
+
+所以微软是咋被泄露的，太草台了吧</blockquote>
+不是微软泄露的，说是从R星印度那边黑进去泄露出来的
+
