@@ -883,3 +883,14 @@ playable达成纪念，用时不到48小时
 所以微软是咋被泄露的，太草台了吧</blockquote>
 不是微软泄露的，说是从R星印度那边黑进去泄露出来的
 
+
+*****
+
+####  ShiKi847  
+##### 90#       发表于 2026-11-25 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551089&amp;ptid=2294404" target="_blank">时空之旅 发表于 2026-11-25 20:53</a>
+
+不是微软泄露的，说是从R星印度那边黑进去泄露出来的</blockquote>
+r星印度,大葱哥6月那个版本?
+
