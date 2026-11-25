@@ -627,3 +627,15 @@ R星，你干脆去干 A % 吧。<img src="https://static.stage1st.com/image/smi
 
 Mac版也能至少跑起来了。以后搞不好还有安卓/iOS版<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空洞骑士  
+##### 68#       发表于 2026-11-25 08:44
+
+<blockquote>周处除三害 发表于 2026-11-24 19:26
+索尼这边堵了，没想到微软这边没拦住。
+
+—— 来自 鹅球 v4.0</blockquote>
+微软拦住了，xsx根本没被破解。这是黑客黑入R星内部拷出来的。
+
