@@ -6554,3 +6554,14 @@ O/刚刚大砍用量，现在O的订阅已经完全没有任何意义，只能�
 由手机上传
 2026-11-25 19:37 上传
 
+
+*****
+
+####  frankCC  
+##### 21245#       发表于 2026-11-25 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550902&amp;ptid=2275806" target="_blank">last_regret 发表于 2026-11-25 19:37</a>
+
+千问是认领这个形象了？</blockquote>
+画师、游戏圈普遍有着反AI的底层枷锁在，官方不能明面支持，但AI圈可没有这个包袱，白送的二创形象，不认白不认啊。
+

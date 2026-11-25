@@ -8219,3 +8219,13 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 要逛翠谷最好装一下那个延迟怪刷新的mod，这样慢慢清怪然后逛逛其实还行。直接下去就只能跑酷了。烂湖我是打都不想打。
 
+
+*****
+
+####  你妈的为什么  
+##### 644#       发表于 2026-11-25 20:04
+
+这游戏探索真的牛逼。就是刷怪和怪无限追杀太傻逼了。有没不坐火不刷怪的mod啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
