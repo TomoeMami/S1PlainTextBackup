@@ -6661,3 +6661,27 @@ API 赠金的正确用法似乎应该是租 v p s 装个云 agent 在上面
 
 —— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  heemoon  
+##### 21251#       发表于 2026-11-25 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551187&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-25 21:20</a>
+https://b23.tv/n02YJHG
+
+昨天纯用 antigravity 的蜂群做的一个视频</blockquote>
+为什么哈基米（或者说我用过的很多ai）做讲解视频和ppt都特别喜欢这种卡片顶端/左侧带彩条彩边的设计。。。真的一眼ai，不过你视频里效果看着还好。顺便问下tts用的啥？配音听着不错
+
+
+*****
+
+####  Unlight  
+##### 21252#       发表于 2026-11-25 21:44
+
+今天说重新造个轮子，做个新的MPV包，试试许愿式编程。用的ds4.1f 1017，感觉不太行啊？
+
+很慢，比我自己干估计都慢，花了大概7块钱。就，比我想象的慢，还贵。
+
+讲道理这种压根就不算编程了，按说是最简单的活儿吧？也用不上a÷这种吧。
+
