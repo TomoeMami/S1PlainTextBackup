@@ -447,3 +447,13 @@ r星的下限是某些厂商一生达不到的上限
 
 另外很多队友ai逻辑和性格很贴 比如男主高中兄弟就是个怂逼 有个抢车任务我开枪biabiabia打追击的车他说别开枪缩成一团 然后有的npc也不是花架子 真能杀那么几个
 
+
+*****
+
+####  iou90  
+##### 50#       发表于 2026-11-25 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548782&amp;ptid=2294581" target="_blank">nagitoY 发表于 2026-11-25 09:37</a>
+健身白练了bro，我和你一样把力量练到了4级，然后进第二章又要从零开始</blockquote>
+才知道囧 感谢分享 不过钱没了可以理解 练也白练了有点过分了2333
+
