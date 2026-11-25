@@ -6475,3 +6475,22 @@ agent不支持，但是我让肥鱼确认的时候她也不问我直接给我 ..
 我这倒是没有工具报错，但是神奇的是用any的6.1sol在dsh中居然能看到思维链 ...</blockquote>
 本来就是收数据搞蒸馏的，他们用的都是原价API，每天都是天价支出，至今不知道金主是哪家
 
+
+*****
+
+####  phorcys02  
+##### 21239#       发表于 2026-11-25 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549355&amp;ptid=2275806" target="_blank">lubo 发表于 2026-11-25 11:55</a>
+
+可能要有舆情了</blockquote>
+这人是傻逼
+ <blockquote>在使用官方模型 API 时上传 Session Log
+
+帮助改进 DeepSeek 模型与产品</blockquote>
+第一天就存在了
+
+大肥鱼居然只收官网的sessionlog, 我用 ocg/ccg/wb的都不收
+
+我还特意写了个插件，把所有做开源软件的2.4G session log都 强制上传了...
+

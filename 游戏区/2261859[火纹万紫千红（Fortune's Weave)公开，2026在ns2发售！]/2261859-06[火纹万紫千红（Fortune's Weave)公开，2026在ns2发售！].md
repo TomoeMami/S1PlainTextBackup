@@ -14715,3 +14715,13 @@ twi:@cdgm000
 
 是不是凯伊线就该全员上马，其他线再走其他路线补属性最后合并？？
 
+
+*****
+
+####  沙发果冻  
+##### 8759#       发表于 2026-11-25 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548661&amp;ptid=2261859" target="_blank">lbj5454 发表于 2026-11-25 09:09</a>
+女王高级职业转什么好。龙骑还是卫士</blockquote>
+女王自己技能挺普通的，特性也是抗伤的，白魔法有个远疗，当个圣枪师在前排奶人，没事就垫点伤害就差不多。输出方向她有个重破坏+，没有重装移动术，要输出就只能玩重装骑士，但有个问题，这职业成长率有毒，感觉不如去玩大象<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
