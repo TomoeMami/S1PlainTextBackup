@@ -6744,3 +6744,34 @@ https://b23.tv/n02YJHG
 
 嗯 基米氖说是这么做的，我也看不懂
 
+
+*****
+
+####  qwased  
+##### 21258#       发表于 2026-11-25 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551394&amp;ptid=2275806" target="_blank">Unlight 发表于 2026-11-25 22:27</a>
+我大概是这么提的需求（跟C端说，由C端总结的）。其实都不是安装包，就是让他帮我找点滤镜，写配置文件…
+
+ ...</blockquote>
+那就是他不熟一直在摸索这个项目到底是啥<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要是给他mpv lazy之类打好包的给他抽代码就省钱了
+
+
+*****
+
+####  zxc786  
+##### 21259#       发表于 2026-11-25 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550752&amp;ptid=2275806" target="_blank">AzuEdit 发表于 2026-11-25 18:44</a>
+
+如果订阅20刀档，日用不高强度写代码，现在是推荐oai的plus还是咕咕嘎嘎家的pro ...</blockquote>
+哈吉米好用的，还送一堆咕咕嘎嘎全家桶用得上的话性价比算是爆了。
+
+
+*****
+
+####  warlock228  
+##### 21260#       发表于 2026-11-25 23:35
+
+codex团队吸了好几个克劳德code的大佬，也该把codex弄好一点了吧(
+
