@@ -6731,3 +6731,16 @@ https://b23.tv/n02YJHG
 最后一天从pro200升pro500，竟然不是额度回满了，是60%，刚好是差价，太抠了。 ...</blockquote>
 我周末升级还会重置的呀，刚改的吗？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bartholo4  
+##### 21257#       发表于 2026-11-25 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551258&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-11-25 21:43</a>
+
+为什么哈基米（或者说我用过的很多ai）做讲解视频和ppt都特别喜欢这种卡片顶端/左侧带彩条彩边的设计。。 ...</blockquote>
+开源的 IndexTTS-1.5 做的零样本音色克隆（RTX 3060 离线跑的），找了一段 4 秒左右偏俏皮的二次元女声干声当参考；关键是保持 1.0x 原速不加速（防变速电音），再套一层 FFmpeg 人声链：80Hz 高通去底噪、240Hz 补一点暖度、3.4k–6.8kHz 压掉高音刺耳和齿音，最后用 EBU R128 统一到 -14 LUFS 响度。
+
+嗯 基米氖说是这么做的，我也看不懂
+
