@@ -6202,3 +6202,21 @@ ai小白想问一下坛友，我在用GPT写一些汉字和古诗文赏析方面
 还以为会给我不到一千刀的周额度补偿下，结果是这个</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我也收到了，没啥想说的，心里就是想润
 
+
+*****
+
+####  Hattle  
+##### 21215#       发表于 2026-11-25 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549355&amp;ptid=2275806" target="_blank">lubo 发表于 2026-11-25 11:55</a>
+
+可能要有舆情了</blockquote>
+这个纯弱智言论了，首先只有官方API才会上传，而且可以关闭。其次，你先在 dsh 里用 gpt，claude，或者中转站的模型聊天，然后切换回DeepSeek官方API，把你之前聊的上下文打包发送难道不是正常操作吗？不然模型说的上下文是什么，这哪里来的伪人发言
+
+*****
+
+####  qwased  
+##### 21216#       发表于 2026-11-25 14:25
+
+请教下any和agentrouter这两个到底怎么才能用上，用DSH和PI都提示401和key无效<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">签到弄了两千多额度了
+
