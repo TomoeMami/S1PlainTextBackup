@@ -6039,3 +6039,15 @@ qwen4 27b和flash都难产了啊。。。看来国产算力是紧张了
 <img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">agy原生界面上看起来这么帅吗，我只在tui里看了一眼。
 可惜这玩意对于ACP对接的第三方前端太不友好了，我估计暂时不会用了
 
+
+*****
+
+####  BarricadeMKXX  
+##### 21202#       发表于 2026-11-25 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549355&amp;ptid=2275806" target="_blank">lubo 发表于 2026-11-25 11:55</a>
+可能要有舆情了</blockquote>
+话说回来T3code刚被抓包，theo还在x上地图炮中国程序员
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
