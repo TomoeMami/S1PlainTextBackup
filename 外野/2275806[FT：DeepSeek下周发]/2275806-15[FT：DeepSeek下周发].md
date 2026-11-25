@@ -6565,3 +6565,19 @@ O/刚刚大砍用量，现在O的订阅已经完全没有任何意义，只能�
 千问是认领这个形象了？</blockquote>
 画师、游戏圈普遍有着反AI的底层枷锁在，官方不能明面支持，但AI圈可没有这个包袱，白送的二创形象，不认白不认啊。
 
+
+*****
+
+####  Tomorrow_D  
+##### 21246#       发表于 2026-11-25 20:23
+
+刚才deepseek是不是崩了几分钟<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tomorrow_D  
+##### 21246#       发表于 2026-11-25 20:23
+
+刚才deepseek是不是崩了几分钟<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
