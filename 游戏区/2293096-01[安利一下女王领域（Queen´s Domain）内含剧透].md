@@ -8229,3 +8229,11 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  你妈的为什么  
+##### 645#       发表于 2026-11-26 00:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这游戏存档位置在哪，准备上mod了
+
