@@ -14794,3 +14794,27 @@ twi:@cdgm000
 是不是凯伊线就该全员上马，其他线再走其他路线补属性最后合并？？</blockquote>
 理论上是这样，但其实也差不了多少，特别是你其他线凹点的话。反正我个人而言，穆妈和巴西初音都是凯伊线喂满了鸵鸟全程上马（但没凹点），自然长的结果还是全面不如迪托线从头开始养略微凹点的结果，最后也没任何合并价值。
 
+
+*****
+
+####  zmxlegend  
+##### 8764#       发表于 2026-11-26 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548661&amp;ptid=2261859" target="_blank">lbj5454 发表于 2026-11-25 09:09</a>
+
+女王高级职业转什么好。龙骑还是卫士</blockquote>
+我个人是第一部走了飞龙，毕竟这条线就她属性最好了，能飞还是方便，第三部四线合一之后强力飞兵多就改走卫士圣枪路线了，在后面丢丢石头奶奶人就行
+
+
+*****
+
+####  诡计  
+##### 8765#       发表于 2026-11-26 01:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551658&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-11-26 00:27</a>
+
+是的，战争篇可以跳过的。但是女王和凯伊第一次跳过之前最好把坐骑和军团下下来。
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">啊谢谢，但我是问为啥我的商人是灭的……
+

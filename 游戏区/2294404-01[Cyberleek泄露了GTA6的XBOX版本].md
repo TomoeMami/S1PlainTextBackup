@@ -930,3 +930,15 @@ Belobug/VIctory-Belobug-AMD
 
 —— 来自 Xiaomi 25060RK16C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nukacolamania  
+##### 92#       发表于 2026-11-26 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551053&amp;ptid=2294404" target="_blank">如月尤菲 发表于 2026-11-25 20:30</a>
+话说剧情不是被批了么，就算成功了还会有人玩么</blockquote>
+PC玩家玩的时候剧情就由不得它了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 9 Pro, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+

@@ -126,3 +126,15 @@
 
 有红摩，有白莲，没七夜。五月台词有小巷子同盟，只有一个人的同盟吗？法棍和TM是在想什么？
 
+
+*****
+
+####  岸浪白野  
+##### 593#       发表于 2026-11-26 01:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551697&amp;ptid=2026924" target="_blank">usoulo 发表于 2026-11-26 00:58</a>
+有红摩，有白莲，没七夜。五月台词有小巷子同盟，只有一个人的同盟吗？法棍和TM是在想什么？ ...</blockquote>
+演示志贵新招直接七夜蜘蛛步，故事模式还整个慢慢育成志贵学习新招的系统，更别说这作基本半个歌月照着剧情来一遍打七夜不奇怪，志贵都穿私服了学生服留给七夜，boss rush3就擦边过
+后面还能DLC追加，七夜当不了首发能玩角色完全没关系，就算是为了顾及里线只要看今年年底是怎么样就行就能说的通<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+以前小巷子同盟另外两个只要没有重启塔塔利篇就不会有戏，现在还小巷子同盟也就先立个概念不奇怪
+
