@@ -6318,3 +6318,26 @@ any支持dsh，原生支持，不过dsh只能是用o家模型
 agent不支持，但是我让肥鱼确认的时候她也不问我直接给我 ...</blockquote>
 试了一下，61sol在dsh里面好像水土不服，各种工具报错<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紧那罗  
+##### 21225#       发表于 2026-11-25 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549754&amp;ptid=2275806" target="_blank">fat 发表于 2026-11-25 14:06</a>
+现在 Gemini 4 一般搭什么 harness？ antigravity 还是那么拉胯吗？
+
+用了好久 codex，对优惠有点心动 ...</blockquote>
+没的选 谷大善人的底线是你必须用agy。
+界面随便套不管你，但是对接模型的harness必须得是agy。
+
+
+*****
+
+####  云卷花开  
+##### 21226#       发表于 2026-11-25 16:24
+
+贱种推特神秘行为之解包开源软件，属实是没活了
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
