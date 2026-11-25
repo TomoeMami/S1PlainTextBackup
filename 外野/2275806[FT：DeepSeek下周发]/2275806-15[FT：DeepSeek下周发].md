@@ -6537,3 +6537,20 @@ O/刚刚大砍用量，现在O的订阅已经完全没有任何意义，只能�
 
 2026-11-25 18:52 上传
 
+
+*****
+
+####  last_regret  
+##### 21244#       发表于 2026-11-25 19:37
+
+千问是认领这个形象了？
+
+<img src="https://img.stage1st.com/forum/202611/25/193753trq3varxu7zew5ar.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-11-25-19-36-47-564_tv.danmaku.bili.jpg</strong> (178.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-11-25 19:37 上传
+

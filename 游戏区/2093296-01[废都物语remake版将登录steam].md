@@ -165,3 +165,11 @@
 
 当然你要说开发速度怎么样，我也觉得太慢了，这游戏用的还是unity2021和mono，可见立项之早<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用AI也是随手就能把资产全拆出来，所以他们不公开demo倒也还能理解，吧？
 
+
+*****
+
+####  Rary  
+##### 977#       发表于 2026-11-25 19:40
+
+个人觉得原版已经很完美了，这remake的主要价值是可以支持一下原作者
+
