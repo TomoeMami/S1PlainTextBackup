@@ -6349,3 +6349,19 @@ agent不支持，但是我让肥鱼确认的时候她也不问我直接给我 ..
 
 有群友反映自己用反重力发现后台上传了几十G的文件，现在随着越来越多的人使用反重力谷歌“免费帮忙”保存资料到网盘的行为也开始被抓包了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 这也说得通为什么谷歌希望用户强绑反重力平台了
 
+
+*****
+
+####  qz66618  
+##### 21228#       发表于 2026-11-25 17:03
+
+最近的国模在编程这一块泛化性和ds flash有来有回甚至还打不过，目前只能指望glm5.5和4.1pro了
+
+<img src="https://img.stage1st.com/forum/202611/25/170225n5z6655sq95gdd5u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (188.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-25 17:02 上传
+
