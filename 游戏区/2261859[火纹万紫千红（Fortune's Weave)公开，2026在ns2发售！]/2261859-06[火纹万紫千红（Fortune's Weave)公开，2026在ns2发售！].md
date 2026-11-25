@@ -14693,3 +14693,17 @@ twi:@cdgm000
 女王高级职业转什么好。龙骑还是卫士</blockquote>
 龙骑除了能飞没啥优点，如果你特别缺飞兵再考虑吧。
 
+
+*****
+
+####  Humpy  
+##### 8757#       发表于 2026-11-25 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548661&amp;ptid=2261859" target="_blank">lbj5454 发表于 2026-11-25 09:09</a>
+女王高级职业转什么好。龙骑还是卫士</blockquote>
+单周目就卫士吧，前线能抗线的奶，自身白魔法表也还可以。
+
+多周目建议重甲游侠之类的极限培养。
+
+但老实说我觉得女王最适合大象<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
