@@ -14818,3 +14818,14 @@ twi:@cdgm000
 —— 来自 S1Fun ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">啊谢谢，但我是问为啥我的商人是灭的……
 
+
+*****
+
+####  zmxlegend  
+##### 8766#       发表于 2026-11-26 03:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551749&amp;ptid=2261859" target="_blank">诡计 发表于 2026-11-26 01:26</a>
+
+啊谢谢，但我是问为啥我的商人是灭的……</blockquote>
+他的意思就是你要用打了商人线的角色过一次战争篇，哪怕直接跳过也行
+
