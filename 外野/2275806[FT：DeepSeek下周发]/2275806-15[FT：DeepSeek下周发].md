@@ -6240,3 +6240,16 @@ ai小白想问一下坛友，我在用GPT写一些汉字和古诗文赏析方面
 请教下any和agentrouter这两个到底怎么才能用上，用DSH和PI都提示401和key无效签到弄了两千多额度了 ...</blockquote>
 禁止在codex和claude code之外使用
 
+
+*****
+
+####  tk553521  
+##### 21218#       发表于 2026-11-25 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549815&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-25 14:25</a>
+请教下any和agentrouter这两个到底怎么才能用上，用DSH和PI都提示401和key无效签到弄了两千多额度了 ...</blockquote>
+any支持dsh，原生支持，不过dsh只能是用o家模型
+agent不支持，但是我让肥鱼确认的时候她也不问我直接给我搭了个反代，这下也可以用了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
