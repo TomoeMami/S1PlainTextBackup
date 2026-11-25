@@ -6061,3 +6061,39 @@ qwen4 27b和flash都难产了啊。。。看来国产算力是紧张了
 还以为会给我不到一千刀的周额度补偿下，结果是这个</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">O/活不起了，怎么会给补偿
 
+
+*****
+
+####  andychen  
+##### 21204#       发表于 2026-11-25 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549239&amp;ptid=2275806" target="_blank">unrealMeeSeeks 发表于 2026-11-25 11:25</a>
+还以为会给我不到一千刀的周额度补偿下，结果是这个</blockquote>
+我也收到了，这下彻底断了继续续费的念头
+
+下个月开始全用Gemini了
+
+*****
+
+####  andychen  
+##### 21205#       发表于 2026-11-25 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549430&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-11-25 12:19</a>
+话说回来T3code刚被抓包，theo还在x上地图炮中国程序员
+
+—— 来自 Xiaomi 25019PNF3C, Android 17, 鹅球 ...</blockquote>
+这事挺傻逼的，本来想用T3这下被搞去Paseo了
+
+
+*****
+
+####  cscbzcbz  
+##### 21206#       发表于 2026-11-25 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549355&amp;ptid=2275806" target="_blank">lubo 发表于 2026-11-25 11:55</a>
+可能要有舆情了</blockquote>
+额，这个不是可以关的吗。而且只要不用官方模型就不会传<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+而且而不是rc5才有的，一直都有这个开关
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
