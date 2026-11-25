@@ -772,3 +772,41 @@ R星这样还不如直接公布pc版发售日得了
 
 —— 来自 Xiaomi 25091RP04C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  SergeGlenn  
+##### 81#         楼主| 发表于 2026-11-25 19:02
+
+Victory的两张画面基本的都有了，就是性能问题只有2fps，当然也不知道在开放世界里运行稳定不
+
+<img src="https://img.stage1st.com/forum/202611/25/190208co0ht4rvzv6hhhjj.jpg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202611/25/190208co0ht4rvzv6hhhjj.jpg">
+
+<strong>1000014027.jpg</strong> (377.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-25 19:02 上传
+
+<img src="https://img.stage1st.com/forum/202611/25/190208wl6bgbx34g8dxddg.jpg" referrerpolicy="no-referrer">
+
+<strong>1000014026.jpg</strong> (500.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-25 19:02 上传
+
+*****
+
+####  llysander  
+##### 82#       发表于 2026-11-25 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70545274&amp;ptid=2294404" target="_blank">chdhdhd 发表于 2026-11-24 09:56</a>
+
+我还是蛮惊讶，这帮人居然最后竟然真的把游戏文件连着可执行文件流出了
+
+被追责不知道会怎么样，感觉下场恐 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 网传核心成员rockstar india前员工
+
+接下来就看r星有几个师
+
