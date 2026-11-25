@@ -6816,3 +6816,19 @@ codex团队吸了好几个克劳德code的大佬，也该把codex弄好一点了
 千问是认领这个形象了？</blockquote>
 满分人设没有不支持的道理啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YoumuChan  
+##### 21265#       发表于 2026-11-26 02:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549202&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-25 11:15</a>
+今天试着用了一次swarm，结果用量直接炸穿5小时额度
+
+复盘了一下还是agy的acp实现不完善导致缓存命中率爆降
+
+ ...</blockquote>
+感觉/swarm挺需要微调的，包括黑名单哪些模型，如何判断子代理用什么模型，如何让orchestrator别自己干活而是快速下放到子代理，如何让orchestrator判断何时保留子代理何时砍掉开新的。都是很值得/learn然后做成skill的，不然确实是又慢又吃token
+
+— from Sony XQ-DQ54, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
