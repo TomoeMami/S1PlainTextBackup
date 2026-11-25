@@ -6220,3 +6220,23 @@ ai小白想问一下坛友，我在用GPT写一些汉字和古诗文赏析方面
 
 请教下any和agentrouter这两个到底怎么才能用上，用DSH和PI都提示401和key无效<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">签到弄了两千多额度了
 
+
+*****
+
+####  很久就在那边l  
+##### 21217#       发表于 2026-11-25 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549815&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-25 14:25</a>
+请教下any和agentrouter这两个到底怎么才能用上，用DSH和PI都提示401和key无效签到弄了两千多额度了 ...</blockquote>
+禁止在codex和claude code之外使用
+
+
+*****
+
+####  很久就在那边l  
+##### 21217#       发表于 2026-11-25 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549815&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-25 14:25</a>
+请教下any和agentrouter这两个到底怎么才能用上，用DSH和PI都提示401和key无效签到弄了两千多额度了 ...</blockquote>
+禁止在codex和claude code之外使用
+
