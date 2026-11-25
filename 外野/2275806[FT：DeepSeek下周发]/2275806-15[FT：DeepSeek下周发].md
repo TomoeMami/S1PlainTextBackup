@@ -5832,3 +5832,23 @@ hungerG说人话吗  有点受不了八股鱼了
 今天5个号里最后一个Jio Google Pro也死了。回来吧，兄弟姐妹们，我还有一个正规Edu Google AI Pro可以激活 ...</blockquote>
 我的jio也全死完了，刚整了个edu，家庭组每个成员是共用主账号额度么
 
+
+*****
+
+####  matthewsteel  
+##### 21184#       发表于 2026-11-25 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70547958&amp;ptid=2275806" target="_blank">GLYSDSB 发表于 2026-11-24 22:56</a>
+
+gemini有能搞黄的中转站推荐么，私信就行，我发觉我信用卡支付不了plus账号</blockquote>
+google play转到新加坡，大部分国内的银行卡就能通过。
+
+*****
+
+####  inpachi  
+##### 21185#       发表于 2026-11-25 09:41
+
+我的jio好能活……两个号到现在都没掉
+
+等掉了之后我可能就停gpt开谷谷歌歌的pro了
+
