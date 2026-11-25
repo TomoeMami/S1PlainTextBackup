@@ -5781,3 +5781,16 @@ JIO和一毛不拔Edu虽然不能用Agy里的4，但是可以用在Gemini APP用
 Neon基本对应Opus：名义上的次旗舰模型，实际上在日常工作场景下比旗舰（Fable/Carbon）强，价格适中，速 ...</blockquote>
 这个400刀是单算反重力里面的额度还是加上了gemini和AIstudio里面的
 
+
+*****
+
+####  陈八尺  
+##### 21179#       发表于 2026-11-25 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548440&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-11-25 07:45</a>
+
+Reddit上有人说真正的Pixel10是算尊享硬件购买者，可以用Agy里的4.
+
+JIO和一毛不拔Edu虽然不能用Agy里的4 ...</blockquote>
+刚更新发现JIO可以用hydrogen了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
