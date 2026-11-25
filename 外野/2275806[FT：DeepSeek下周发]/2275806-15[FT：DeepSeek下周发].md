@@ -5879,3 +5879,17 @@ AGY里是共用一个额度，Gemini APP是每个人独立且和AGY独立。虽�
 
 hydrogen给你用两天，吸上了再砍<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紧那罗  
+##### 21189#       发表于 2026-11-25 11:15
+
+今天试着用了一次swarm，结果用量直接炸穿5小时额度<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+复盘了一下还是agy的acp实现不完善导致缓存命中率爆降
+
+这玩意想法是挺新奇的 可惜水土不服问题太多 暂时还是不用了
+
+速度上也没比orchestrator好太多
+
