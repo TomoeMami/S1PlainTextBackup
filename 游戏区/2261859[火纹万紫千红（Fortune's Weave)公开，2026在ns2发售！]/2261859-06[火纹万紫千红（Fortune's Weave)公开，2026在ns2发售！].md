@@ -14682,3 +14682,14 @@ twi:@cdgm000
 女王高级职业转什么好。龙骑还是卫士</blockquote>
 龙骑除了能飞没啥优点，如果你特别缺飞兵再考虑吧。
 
+
+*****
+
+####  kelveen  
+##### 8756#       发表于 2026-11-25 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548661&amp;ptid=2261859" target="_blank">lbj5454 发表于 2026-11-25 09:09</a>
+
+女王高级职业转什么好。龙骑还是卫士</blockquote>
+龙骑除了能飞没啥优点，如果你特别缺飞兵再考虑吧。
+
