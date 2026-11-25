@@ -8237,3 +8237,15 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这游戏存档位置在哪，准备上mod了
 
+
+*****
+
+####  ParadiseMartyr  
+##### 646#       发表于 2026-11-26 00:37
+
+迷茫了，现在二结局的那个钥匙好像就捡到了俩个，有一个找不到。镜片也只找到三个缺一个
+然后三结局要求的灵魂我也只有俩。海盗的任务更是一个人都没找到
+这种游戏类似于银河城的关键道具全地图都是的，不给地图后期查漏补缺真的要命<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
