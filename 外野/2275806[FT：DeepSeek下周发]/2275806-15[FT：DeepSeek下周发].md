@@ -6411,3 +6411,57 @@ agent不支持，但是我让肥鱼确认的时候她也不问我直接给我 ..
 
 国模还是太缺卡了啊
 
+
+*****
+
+####  inpachi  
+##### 21234#       发表于 2026-11-25 17:58
+
+上传这事儿各家都差不多，我这儿codex也猛猛上传，之前就被网管来找过，结果一看是codex也没什么后续了
+
+
+*****
+
+####  inpachi  
+##### 21234#       发表于 2026-11-25 17:58
+
+上传这事儿各家都差不多，我这儿codex也猛猛上传，之前就被网管来找过，结果一看是codex也没什么后续了
+
+*****
+
+####  tk553521  
+##### 21235#       发表于 2026-11-25 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550211&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-25 16:06</a>
+
+试了一下，61sol在dsh里面好像水土不服，各种工具报错</blockquote>
+我这倒是没有工具报错，但是神奇的是用any的6.1sol在dsh中居然能看到思维链
+
+
+*****
+
+####  tk553521  
+##### 21235#       发表于 2026-11-25 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550211&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-25 16:06</a>
+
+试了一下，61sol在dsh里面好像水土不服，各种工具报错</blockquote>
+我这倒是没有工具报错，但是神奇的是用any的6.1sol在dsh中居然能看到思维链
+
+*****
+
+####  飞剪号  
+##### 21236#       发表于 2026-11-25 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550601&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-11-25 18:01</a>
+
+我这倒是没有工具报错，但是神奇的是用any的6.1sol在dsh中居然能看到思维链 ...</blockquote>
+暗示ds跟oai有py交易<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一般市民  
+##### 21237#       发表于 2026-11-25 18:05
+
+怎么国内IP访问openrouter的API被直接400，要挂代理了，一个中转站而已老美有毛病？ <img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

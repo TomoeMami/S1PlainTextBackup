@@ -145,3 +145,23 @@
 
 —— 来自 vivo V2509A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Flechette  
+##### 976#       发表于 2026-11-25 17:58
+
+是remake不是remaster，别说什么不如那个什么要素都往里加的AI重置了，恶语伤人心.jpg
+
+当然你要说开发速度怎么样，我也觉得太慢了，这游戏用的还是unity2021和mono，可见立项之早<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用AI也是随手就能把资产全拆出来，所以他们不公开demo倒也还能理解，吧？
+
+
+*****
+
+####  Flechette  
+##### 976#       发表于 2026-11-25 17:58
+
+是remake不是remaster，别说什么不如那个什么要素都往里加的AI重置了，恶语伤人心.jpg
+
+当然你要说开发速度怎么样，我也觉得太慢了，这游戏用的还是unity2021和mono，可见立项之早<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用AI也是随手就能把资产全拆出来，所以他们不公开demo倒也还能理解，吧？
+
