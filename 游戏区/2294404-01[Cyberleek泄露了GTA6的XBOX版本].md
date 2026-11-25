@@ -942,3 +942,15 @@ PC玩家玩的时候剧情就由不得它了<img src="https://static.stage1st.co
 
 — from Google Pixel 9 Pro, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Jooohnny  
+##### 93#       发表于 2026-11-26 01:31
+
+<blockquote>如月尤菲 发表于 2026-11-25 20:30
+话说剧情不是被批了么，就算成功了还会有人玩么</blockquote>
+影响不大，和tlou2不一样，主线只占了gta6不超过4成的内容，比较膈应人的内容加起来也到不了10%，打点mod直接美滋滋开玩了。
+
+参考影之刃零的mod制作速度，gta6的pc可玩后大概率要光速变成山东人模拟器，主打一个打老婆
+
