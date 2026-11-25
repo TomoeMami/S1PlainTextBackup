@@ -6685,3 +6685,28 @@ https://b23.tv/n02YJHG
 
 讲道理这种压根就不算编程了，按说是最简单的活儿吧？也用不上a÷这种吧。
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 21253#       发表于 2026-11-25 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551262&amp;ptid=2275806" target="_blank">Unlight 发表于 2026-11-25 21:44</a>
+
+今天说重新造个轮子，做个新的MPV包，试试许愿式编程。用的ds4.1f 1017，感觉不太行啊？
+
+很慢，比我自己干 ...</blockquote>
+许愿式编程得看oag御三家，对国内ai能力属于降维打击
+
+*****
+
+####  qwased  
+##### 21254#       发表于 2026-11-25 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551262&amp;ptid=2275806" target="_blank">Unlight 发表于 2026-11-25 21:44</a>
+今天说重新造个轮子，做个新的MPV包，试试许愿式编程。用的ds4.1f 1017，感觉不太行啊？
+
+很慢，比我自己干 ...</blockquote>
+是不是许愿方式有点问题，最好先开一个窗口你想要的安装包是什么样子，给他一个以前别人做的包给他参考，然后拉MPV的源码仓库让他写一个计划，写提示词给第二个对话窗口执行
+这样比模糊的一句话让它一个对话内干完可控很多
+

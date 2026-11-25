@@ -26,3 +26,14 @@
 
 雷雅克和海里的关系还是比较对等的，不过上帝视角看是有些暧昧，这话看下来隐约感觉魔鬼经理人促使海里强化战力最高应该是另有目的，估计是和找到初代千鬼后打败对方有关之类的。另外倒是担心雷雅克会怎么看待这两个已经玩魔怔了的家伙<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，希望别俗套吧
 
+
+*****
+
+####  aptx8285144  
+##### 52#       发表于 2026-11-25 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70406626&amp;ptid=2193041" target="_blank">leleq 发表于 2026-10-21 16:58</a>
+
+目前走的的体育番框架还挺稳的，但是这个背景设定不知道是什么意思</blockquote>
+其他队的人：你们这么玩命是想干什么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
