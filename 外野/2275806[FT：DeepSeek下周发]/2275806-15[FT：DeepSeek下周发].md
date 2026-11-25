@@ -6494,3 +6494,19 @@ agent不支持，但是我让肥鱼确认的时候她也不问我直接给我 ..
 
 我还特意写了个插件，把所有做开源软件的2.4G session log都 强制上传了...
 
+
+*****
+
+####  UncleDracula  
+##### 21240#       发表于 2026-11-25 18:37
+
+开个谷歌PRO会员，Gemini4 neon大概能跑多少token？
+
+
+*****
+
+####  AzuEdit  
+##### 21241#       发表于 2026-11-25 18:44
+
+如果订阅20刀档，日用不高强度写代码，现在是推荐oai的plus还是咕咕嘎嘎家的pro<img src="https://static.stage1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
