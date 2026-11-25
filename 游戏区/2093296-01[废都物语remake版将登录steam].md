@@ -173,3 +173,16 @@
 
 个人觉得原版已经很完美了，这remake的主要价值是可以支持一下原作者
 
+
+*****
+
+####  BISSBISS  
+##### 978#       发表于 2026-11-25 23:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550589&amp;ptid=2093296" target="_blank">Flechette 发表于 2026-11-25 17:58</a>
+
+是remake不是remaster，别说什么不如那个什么要素都往里加的AI重置了，恶语伤人心.jpg
+
+当然你要说开发速度 ...</blockquote>
+别急，就冲小红书主力宣发和超长开发时间（这个我极度善意合理揣测他们之前说要和原作者好好沟通做个原作者也满意的版本。）来说，玩起来未必有ai版好。ai重置那些要素还都是可以关的。
+
