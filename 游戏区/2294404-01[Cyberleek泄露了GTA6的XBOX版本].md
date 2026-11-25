@@ -954,3 +954,19 @@ PC玩家玩的时候剧情就由不得它了<img src="https://static.stage1st.co
 
 参考影之刃零的mod制作速度，gta6的pc可玩后大概率要光速变成山东人模拟器，主打一个打老婆
 
+
+*****
+
+####  SergeGlenn  
+##### 94#         楼主| 发表于 2026-11-26 04:12
+
+PS5版撑了7天，目前已被Dump，并降级至11.60
+
+<img src="https://img.stage1st.com/forum/202611/26/041227pq412xdqy23qvx12.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202611/26/041227pq412xdqy23qvx12.png">
+
+<strong>1000014028.png</strong> (108.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-26 04:12 上传
+
