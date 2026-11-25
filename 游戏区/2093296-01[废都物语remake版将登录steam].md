@@ -135,3 +135,13 @@
 
 不至于说风凉话但是现在这个进度很难让人相信有在好好推进吧
 
+
+*****
+
+####  CyborgIP  
+##### 975#       发表于 2026-11-25 17:14
+
+线下试完过，美术还可以 但拖这么久有理由怀疑是加了很多新剧情<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">别到时候塞了一堆私货
+
+—— 来自 vivo V2509A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
