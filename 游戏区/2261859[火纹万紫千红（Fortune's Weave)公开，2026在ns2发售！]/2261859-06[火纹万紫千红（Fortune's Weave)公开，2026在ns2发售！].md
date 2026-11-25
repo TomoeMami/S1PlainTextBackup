@@ -14772,3 +14772,25 @@ twi:@cdgm000
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zmxlegend  
+##### 8763#       发表于 2026-11-26 01:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549268&amp;ptid=2261859" target="_blank">deathyue 发表于 2026-11-25 11:32</a>
+
+是不是凯伊线就该全员上马，其他线再走其他路线补属性最后合并？？</blockquote>
+理论上是这样，但其实也差不了多少，特别是你其他线凹点的话。反正我个人而言，穆妈和巴西初音都是凯伊线喂满了鸵鸟全程上马（但没凹点），自然长的结果还是全面不如迪托线从头开始养略微凹点的结果，最后也没任何合并价值。
+
+
+*****
+
+####  zmxlegend  
+##### 8763#       发表于 2026-11-26 01:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549268&amp;ptid=2261859" target="_blank">deathyue 发表于 2026-11-25 11:32</a>
+
+是不是凯伊线就该全员上马，其他线再走其他路线补属性最后合并？？</blockquote>
+理论上是这样，但其实也差不了多少，特别是你其他线凹点的话。反正我个人而言，穆妈和巴西初音都是凯伊线喂满了鸵鸟全程上马（但没凹点），自然长的结果还是全面不如迪托线从头开始养略微凹点的结果，最后也没任何合并价值。
+
