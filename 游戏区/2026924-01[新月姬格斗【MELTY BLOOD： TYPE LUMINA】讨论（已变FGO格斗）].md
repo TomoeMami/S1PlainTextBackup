@@ -85,3 +85,36 @@
 27年4月22日发售
 [https://youtu.be/5mLtkzWanGc](https://youtu.be/5mLtkzWanGc)
 
+
+*****
+
+####  ナルバレック  
+##### 591#       发表于 2026-11-25 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550954&amp;ptid=2026924" target="_blank">smdzh2 发表于 2026-11-25 19:52</a>
+
+月姬R出里线前我是不会上当的！</blockquote>
+今年月球春晚标题改TYPE MOON了，还画了个月亮...
+
+
+*****
+
+####  ナルバレック  
+##### 591#       发表于 2026-11-25 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550954&amp;ptid=2026924" target="_blank">smdzh2 发表于 2026-11-25 19:52</a>
+
+月姬R出里线前我是不会上当的！</blockquote>
+今年月球春晚标题改TYPE MOON了，还画了个月亮...
+
+
+*****
+
+####  ナルバレック  
+##### 591#       发表于 2026-11-25 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550954&amp;ptid=2026924" target="_blank">smdzh2 发表于 2026-11-25 19:52</a>
+
+月姬R出里线前我是不会上当的！</blockquote>
+今年月球春晚标题改TYPE MOON了，还画了个月亮...
+

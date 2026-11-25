@@ -894,3 +894,39 @@ playable达成纪念，用时不到48小时
 不是微软泄露的，说是从R星印度那边黑进去泄露出来的</blockquote>
 r星印度,大葱哥6月那个版本?
 
+
+*****
+
+####  tonyunreal  
+##### 91#       发表于 2026-11-25 21:20
+
+ZSlayerHQ/victory-world-runtime
+
+Belobug/VIctory-Belobug-AMD
+
+—— 来自 Xiaomi 25060RK16C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  tonyunreal  
+##### 91#       发表于 2026-11-25 21:20
+
+ZSlayerHQ/victory-world-runtime
+
+Belobug/VIctory-Belobug-AMD
+
+—— 来自 Xiaomi 25060RK16C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  tonyunreal  
+##### 91#       发表于 2026-11-25 21:20
+
+ZSlayerHQ/victory-world-runtime
+
+Belobug/VIctory-Belobug-AMD
+
+—— 来自 Xiaomi 25060RK16C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
