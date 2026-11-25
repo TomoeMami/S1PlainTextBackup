@@ -1598,7 +1598,7 @@
     "newtitle": "[S1机核网真爱楼]",
     "lastedit": 1795347136,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2029623": {
@@ -7893,10 +7893,10 @@
     "update": false
   },
   "2050404": {
-    "totalreply": 72584,
+    "totalreply": 72585,
     "title": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
     "newtitle": "[东映原创动画『GIRLS BAND CRY』专楼 完全新作电影制作决定！]",
-    "lastedit": 1795586060,
+    "lastedit": 1795606335,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11142,10 +11142,10 @@
     "update": false
   },
   "2186798": {
-    "totalreply": 1130,
+    "totalreply": 1131,
     "title": "[蓝色星原：旅谣(7.12-7.14 上海BW2024参展）二号楼]",
     "newtitle": "[蓝色星原：旅谣 二号楼  s1群：1093603339]",
-    "lastedit": 1795599375,
+    "lastedit": 1795606214,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 23820,
+    "totalreply": 23822,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「穿越甚大蘑境与你相逢」版本即将开放]",
-    "lastedit": 1795605982,
+    "lastedit": 1795606694,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -13473,10 +13473,10 @@
     "update": false
   },
   "2286687": {
-    "totalreply": 2391,
+    "totalreply": 2392,
     "title": "[开个帖子，记录一下打海猫鸣泣之时的感想]",
     "newtitle": "[开个帖子，记录一下打海猫鸣泣之时的感想]",
-    "lastedit": 1795596742,
+    "lastedit": 1795606585,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13590,10 +13590,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 44096,
+    "totalreply": 44097,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1795605275,
+    "lastedit": 1795606335,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17703,10 +17703,10 @@
     "update": false
   },
   "2294542": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "[有没有低开高走的漫画？]",
     "newtitle": "[有没有低开高走的漫画？]",
-    "lastedit": 1795605134,
+    "lastedit": 1795606582,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17721,10 +17721,10 @@
     "update": false
   },
   "2294616": {
-    "totalreply": 80,
+    "totalreply": 81,
     "title": "[上海地铁新价格12月1日施行]",
     "newtitle": "[上海地铁新价格12月1日施行]",
-    "lastedit": 1795597603,
+    "lastedit": 1795606581,
     "category": "外野",
     "active": true,
     "update": false
@@ -17892,10 +17892,10 @@
     "update": false
   },
   "2294691": {
-    "totalreply": 50,
+    "totalreply": 53,
     "title": "[泥潭超能力者多，想问下现在软件公司的生态是什么样的，和古法编程时代有多大区别]",
     "newtitle": "[泥潭超能力者多，想问下现在软件公司的生态是什么样的，和古法编程时代有多大区别]",
-    "lastedit": 1795606104,
+    "lastedit": 1795606710,
     "category": "外野",
     "active": true,
     "update": false
@@ -18000,10 +18000,10 @@
     "update": false
   },
   "2294724": {
-    "totalreply": 44,
+    "totalreply": 46,
     "title": "[圣杯战争模拟器《圣杯满溢之夜》]",
     "newtitle": "[圣杯战争模拟器《圣杯满溢之夜》]",
-    "lastedit": 1795605979,
+    "lastedit": 1795606452,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -18058,6 +18058,15 @@
     "title": "[叔叔说很多B站用户几乎不看短剧]",
     "newtitle": "[叔叔说很多B站用户几乎不看短剧]",
     "lastedit": 1795605979,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2294761": {
+    "totalreply": 41,
+    "title": "[VR以及XR行业，到底路在何方]",
+    "newtitle": "[VR以及XR行业，到底路在何方]",
+    "lastedit": 1795606337,
     "category": "外野",
     "active": true,
     "update": false
