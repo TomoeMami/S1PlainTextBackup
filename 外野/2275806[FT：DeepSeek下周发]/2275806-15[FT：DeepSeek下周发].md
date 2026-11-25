@@ -6710,3 +6710,24 @@ https://b23.tv/n02YJHG
 是不是许愿方式有点问题，最好先开一个窗口你想要的安装包是什么样子，给他一个以前别人做的包给他参考，然后拉MPV的源码仓库让他写一个计划，写提示词给第二个对话窗口执行
 这样比模糊的一句话让它一个对话内干完可控很多
 
+
+*****
+
+####  Unlight  
+##### 21255#       发表于 2026-11-25 22:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551369&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-25 22:16</a>
+
+是不是许愿方式有点问题，最好先开一个窗口你想要的安装包是什么样子，给他一个以前别人做的包给他参考， ...</blockquote>
+我大概是这么提的需求。其实都不是安装包，就是让他帮我找点滤镜，写配置文件…为 mpv 0.42+ 生成一套可直接使用的播放配置。Windows 优先 Shinchiro 构建。主硬件 AMD RX 9070 XT；兼容 Radeon 780M 轻薄本，但不单独拆方案，由用户自行降档。  环境与框架： - GUI：Lunoir 或 MPV-HC 等不干扰滤镜链的轻量前端。 - 配置框架：hooke007/mpv_PlayKit。 - 不使用 MPV_lazy。  交付内容： 1. 完整 mpv.conf、input.conf、shaders 目录结构、安装步骤、快捷键表、功耗控制建议、常见兼容性注意。 2. 高清化仅固定两条路线：    - 1 键：AMD FSR。    - 2 键：ACNet 温和模型。    - 其余滤镜留扩展空间，不展开。 3. 补帧：    - AFMF（amf_frc）默认启用，配置 d3d11va、d3d11va-zero-copy=yes。    - ~ 键开关补帧。    - RIFE 仅通过快捷键按需启用，不默认常驻。    - 切换补帧时保证 AFMF 与 RIFE 不叠加。    - SVP 4 作为备选说明。    - interpolation=yes + video-sync=display-resample 常驻。 4. 快捷键：    - ~：开关补帧。    - 0：清空所有外置滤镜/补帧附加层，回到内置 ewa_lanczos 拉升。    - 1：AMD FSR。    - 2：ACNet 温和模型。    - 3：CRT 预设 crt-lottes。    - 4：CRT 预设 crt-royale；注明 crt-royale 需 gpu-next，不在运行中切换 vo。    - 5：手动 toggle 降采样至480p。     5. 老片处理流程写成可执行说明：    必要时 deinterlace=yes -&gt; 手动降采样回原生分辨率（如 720x480，flags=neighbor 或 SSimDownscaler）-&gt; CRT 滤镜。  7. 配置文件要求 UTF-8 + LF，且写上说明，方便用户手动修改复制代码
+
+
+*****
+
+####  紧那罗  
+##### 21256#       发表于 2026-11-25 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551154&amp;ptid=2275806" target="_blank">unrealMeeSeeks 发表于 2026-11-25 21:12</a>
+最后一天从pro200升pro500，竟然不是额度回满了，是60%，刚好是差价，太抠了。 ...</blockquote>
+我周末升级还会重置的呀，刚改的吗？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
