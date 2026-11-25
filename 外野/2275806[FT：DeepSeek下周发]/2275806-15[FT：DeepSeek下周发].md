@@ -6465,3 +6465,13 @@ agent不支持，但是我让肥鱼确认的时候她也不问我直接给我 ..
 
 怎么国内IP访问openrouter的API被直接400，要挂代理了，一个中转站而已老美有毛病？ <img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  很久就在那边l  
+##### 21238#       发表于 2026-11-25 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70550601&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-11-25 18:01</a>
+我这倒是没有工具报错，但是神奇的是用any的6.1sol在dsh中居然能看到思维链 ...</blockquote>
+本来就是收数据搞蒸馏的，他们用的都是原价API，每天都是天价支出，至今不知道金主是哪家
+

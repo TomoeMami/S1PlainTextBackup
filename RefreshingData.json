@@ -7659,12 +7659,12 @@
     "update": false
   },
   "2034167": {
-    "totalreply": 516,
+    "totalreply": 517,
     "title": "[【国服】【世界弹射物语】来共斗啦]",
     "newtitle": "[【国服】【世界弹射物语】来共斗啦]",
-    "lastedit": 1789892407,
+    "lastedit": 1795601415,
     "category": "手游专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2172255": {
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 48272,
+    "totalreply": 48273,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1795601293,
+    "lastedit": 1795601535,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 23815,
+    "totalreply": 23817,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「穿越甚大蘑境与你相逢」版本即将开放]",
-    "lastedit": 1795601190,
+    "lastedit": 1795601779,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 23483,
+    "totalreply": 23484,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼11月]",
-    "lastedit": 1795601290,
+    "lastedit": 1795601417,
     "category": "外野",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 21237,
+    "totalreply": 21238,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1795601188,
+    "lastedit": 1795601891,
     "category": "外野",
     "active": true,
     "update": false
@@ -13590,10 +13590,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 44079,
+    "totalreply": 44080,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1795600509,
+    "lastedit": 1795601416,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17568,10 +17568,10 @@
     "update": false
   },
   "2294593": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[黑神话悟空美术总监杨奇谈GTA6：“工业化”一词是对其贬损，昂贵且低效的艺术品]",
     "newtitle": "[黑神话悟空美术总监杨奇谈GTA6：“工业化”一词是对其贬损，昂贵且低效的艺术品]",
-    "lastedit": 1795594090,
+    "lastedit": 1795601533,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17721,10 +17721,10 @@
     "update": false
   },
   "2294404": {
-    "totalreply": 78,
+    "totalreply": 79,
     "title": "[Cyberleek泄露了GTA6的XBOX版本]",
     "newtitle": "[Cyberleek泄露了GTA6的XBOX版本]",
-    "lastedit": 1795601293,
+    "lastedit": 1795601448,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17946,10 +17946,10 @@
     "update": false
   },
   "2294742": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[下一代会是至暗时刻吗]",
     "newtitle": "[下一代会是至暗时刻吗]",
-    "lastedit": 1795601195,
+    "lastedit": 1795601655,
     "category": "外野",
     "active": true,
     "update": false
@@ -18027,11 +18027,29 @@
     "update": false
   },
   "2268180": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "[名侦探柯南M29「ハイウェイの堕天使 ／ 高速公路的堕天使」2026年4月10日上映]",
     "newtitle": "[名侦探柯南M29「ハイウェイの堕天使 ／ 高速公路的堕天使」2026年4月10日上映]",
-    "lastedit": 1795600833,
+    "lastedit": 1795601780,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2294682": {
+    "totalreply": 41,
+    "title": "[steam这次投票多整了个十年最佳投票]",
+    "newtitle": "[steam这次投票多整了个十年最佳投票]",
+    "lastedit": 1795601534,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2294727": {
+    "totalreply": 42,
+    "title": "[由夯到拉锐评AI长文写作能力]",
+    "newtitle": "[由夯到拉锐评AI长文写作能力]",
+    "lastedit": 1795601657,
+    "category": "外野",
     "active": true,
     "update": false
   }
