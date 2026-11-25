@@ -5852,3 +5852,14 @@ google play转到新加坡，大部分国内的银行卡就能通过。
 
 等掉了之后我可能就停gpt开谷谷歌歌的pro了
 
+
+*****
+
+####  泰坦失足  
+##### 21186#       发表于 2026-11-25 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548774&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-11-25 09:35</a>
+
+我的jio也全死完了，刚整了个edu，家庭组每个成员是共用主账号额度么</blockquote>
+AGY里是共用一个额度，Gemini APP是每个人独立且和AGY独立。虽然App没太大用，你可以试试Task模式并绑定你的Github（不确定Gemini APP能不能绑定，过去我是用ChatGPT chat+Github插件来用的）
+
