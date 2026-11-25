@@ -639,3 +639,17 @@ Mac版也能至少跑起来了。以后搞不好还有安卓/iOS版<img src="htt
 —— 来自 鹅球 v4.0</blockquote>
 微软拦住了，xsx根本没被破解。这是黑客黑入R星内部拷出来的。
 
+
+*****
+
+####  tonyunreal  
+##### 69#       发表于 2026-11-25 12:06
+
+闭源的zslayer能正常渲染监狱场景了
+
+<img src="https://p.sda1.dev/36/cb523f9084e85e848e337fb4a0c77f93/prison1.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/36/7ae4822fe3d6ce86f44a584e8dc5fd15/prison2.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/36/e69b68604f0d024f8b5eb99e8efc3d98/prison3.png" referrerpolicy="no-referrer">
+

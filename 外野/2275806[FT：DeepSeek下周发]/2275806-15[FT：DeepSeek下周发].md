@@ -5972,3 +5972,47 @@ hungerG都说是阶跃星辰的
 
 可能要有舆情了
 
+
+*****
+
+####  bartholo4  
+##### 21197#       发表于 2026-11-25 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549202&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-25 11:15</a>
+今天试着用了一次swarm，结果用量直接炸穿5小时额度
+
+复盘了一下还是agy的acp实现不完善导致缓存命中率爆降
+
+ ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/25/115943usopsihig9i29w9u.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1795579183199_1.webp</strong> (75.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-25 11:59 上传
+
+蜂 bee 开会
+
+—— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  lactone  
+##### 21198#       发表于 2026-11-25 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549355&amp;ptid=2275806" target="_blank">lubo 发表于 2026-11-25 11:55</a>
+可能要有舆情了</blockquote>
+没看懂，这不是能关吗
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  自由之紫roy  
+##### 21199#       发表于 2026-11-25 12:03
+
+qwen4 27b和flash都难产了啊。。。看来国产算力是紧张了
+
