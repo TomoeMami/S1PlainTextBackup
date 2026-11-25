@@ -6305,3 +6305,16 @@ agent不支持，但是我让肥鱼确认的时候她也不问我直接给我 ..
 OpencodeGo的k3.1额度给到60刀，倍率看齐kimi自己的老套餐了（不得不吐槽一下kimi自己的api价格和订阅倍率 ...</blockquote>
 以3.1的价格 60刀也是一晚上烧完
 
+
+*****
+
+####  qwased  
+##### 21224#       发表于 2026-11-25 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70549921&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-11-25 14:47</a>
+
+any支持dsh，原生支持，不过dsh只能是用o家模型
+
+agent不支持，但是我让肥鱼确认的时候她也不问我直接给我 ...</blockquote>
+试了一下，61sol在dsh里面好像水土不服，各种工具报错<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
