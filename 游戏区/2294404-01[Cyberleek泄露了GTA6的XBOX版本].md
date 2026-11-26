@@ -1008,3 +1008,11 @@ PS5版撑了7天，目前已被Dump，并降级至11.60
 
 感觉本体没啥意思，重要的是各种mod
 
+
+*****
+
+####  筒井彩芽  
+##### 99#       发表于 2026-11-26 08:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不管咋说得感谢r星，让我出手了国行首发就吃灰的ps5
+
