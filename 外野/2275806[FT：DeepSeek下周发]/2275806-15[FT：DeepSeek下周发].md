@@ -7313,3 +7313,11 @@ Gemini还是早点上线重置券吧，刚用了50%<img src="https://static.stag
 
 推荐一个能Loop工程里提升性能和速度的方式。让AI写Hook定时检查目标参数/数值，低于指定值就直接抛出报错。偷懒没这么写hook，直接goal里文字表达让AI需要积极的使用其他AI Agent CLI作为子Agent。结果刚开始还能高效利用子agent，后面直接摆烂忙着干自己的任务，完全不派出更弱模型的子agent。
 
+
+*****
+
+####  mp5  
+##### 21311#       发表于 2026-11-26 16:39
+
+智谱又在整什么幺蛾子?下午用glm-5.3-Flash已经掉到不到20tk/s<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
