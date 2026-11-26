@@ -7995,3 +7995,16 @@ agy额度不够用的可以找个把主机接入gemini网页端的mcp，效率�
 还有奇奇怪怪的插件各位觉得体验好的都可以推荐推荐 ...</blockquote>
 dsh自带统计功能
 
+
+*****
+
+####  泰坦失足  
+##### 21372#       发表于 2026-11-27 05:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556132&amp;ptid=2275806" target="_blank">s1234y 发表于 2026-11-27 00:08</a>
+
+用 hook 检查什么呢，没太懂，是类似 perf loop 里边的  p95 阈值的值？
+
+—— 来自 S1Fun ...</blockquote>
+训练和推理时候，我让它依次检查一小时的显卡平均利用率，MFU，带宽利用率。最开始连利用率都提不上去，GPU在那空等CPU做检查和文件处理。然后是MFU/带宽率尝试在100%显卡核心利用率情况下挤出更高的吞吐。
+
