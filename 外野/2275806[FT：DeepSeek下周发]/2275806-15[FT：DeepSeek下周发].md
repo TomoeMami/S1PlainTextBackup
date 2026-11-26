@@ -7628,3 +7628,22 @@ any的哈基米没有缓存优惠，尽量不要拿来跑长任务，体验下�
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  UncleDracula  
+##### 21338#       发表于 2026-11-26 20:31
+
+反重力订阅反代真的不封号了？那感觉可以上了啊
+
+
+*****
+
+####  qwased  
+##### 21339#       发表于 2026-11-26 20:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70555366&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-11-26 20:31</a>
+
+反重力订阅反代真的不封号了？那感觉可以上了啊</blockquote>
+号不多的别试
+
