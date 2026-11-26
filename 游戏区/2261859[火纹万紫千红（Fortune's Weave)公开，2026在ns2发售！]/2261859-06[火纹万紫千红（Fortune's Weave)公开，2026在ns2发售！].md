@@ -14870,3 +14870,15 @@ twi:@cdgm000
 —— 来自 S1Fun ...</blockquote>
 sry，我理解什么意思了，感谢
 
+
+*****
+
+####  燃烧的石头  
+##### 8771#       发表于 2026-11-26 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552363&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-11-26 09:28</a>
+我靠，想着用吃饭重开章节大法刷刷红花老婆的好感度，重开键按下去一瞬间就想起之前在神殿因果融合了几个兄 ...</blockquote>
+好感放在第三部最后一章刷就行了，到时候5队拉满人去野外野餐，一个回合能吃5顿，好感刷完就重开
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

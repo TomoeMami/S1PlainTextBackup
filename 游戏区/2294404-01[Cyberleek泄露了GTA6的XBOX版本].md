@@ -1083,3 +1083,21 @@ ps5系统在AI面前全是洞啊，能撑住7天不错了
 
 我记得pc的gta4至今依然需要30帧运行不然结局扒不了直升机
 
+
+*****
+
+####  mcq_2  
+##### 107#       发表于 2026-11-26 10:00
+
+<blockquote>武蔵 发表于 2026-11-26 09:53
+我记得pc的gta4至今依然需要30帧运行不然结局扒不了直升机</blockquote>
+有极小概率可以过去。我试了几个钟头才过去，后面才知道是个bug
+
+
+*****
+
+####  masonknight  
+##### 108#       发表于 2026-11-26 10:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">果然是AI神力，放两年前这种事都无法想象
+
