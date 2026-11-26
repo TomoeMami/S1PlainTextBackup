@@ -1153,3 +1153,15 @@ ps5折腾版已经可以正常运行了<img src="https://static.stage1st.com/ima
 
 不得不说，GTA6的编译之战确实比隔壁OOT好看多了，起转承合一应俱全，反观OOT真是被NS2那一波带走
 
+
+*****
+
+####  susan28  
+##### 115#       发表于 2026-11-26 11:15
+
+ps5 折腾 我已经进入游戏了
+
+【PS5折腾 日锁12.00  运行GTA6 成了-哔哩哔哩】 https://b23.tv/soSTVFX
+
+太快了。。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
