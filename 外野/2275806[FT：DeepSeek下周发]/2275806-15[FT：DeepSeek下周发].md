@@ -7655,3 +7655,43 @@ any的哈基米没有缓存优惠，尽量不要拿来跑长任务，体验下�
 
 反重力的周限额就是4个5小时限额，精准，不怎么敢用
 
+
+*****
+
+####  宅男的爱  
+##### 21341#       发表于 2026-11-26 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554763&amp;ptid=2275806" target="_blank">狂风DKC 发表于 2026-11-26 17:47</a>
+
+请教一下，如何使用关键词，让ai输出的ppt少一点ai味道？主要用kimi和ds
+
+—— 来自 meizu MEIZU 21 Pro, A ...</blockquote>
+如果你是写文档，可以考虑unslop路线，用相关插件，skill去后处理
+
+如果是日常聊天，用规则吧，慢慢调
+
+分享我的案例，我自己调了一个快2万字的字规则，能让DS说话和GPT几乎一个味，但是规则也会限制LLM的思考方式，在开放式问题上性能我不满意，现在又拆了……
+
+
+*****
+
+####  UncleDracula  
+##### 21342#       发表于 2026-11-26 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70555372&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-26 20:32</a>
+
+号不多的别试</blockquote>
+新注册一个试试去，地区就美国就行吧？
+
+*****
+
+####  knnknn  
+##### 21343#       发表于 2026-11-26 20:53
+
+<blockquote>宅男的爱 发表于 2026-11-26 20:50
+如果你是写文档，可以考虑unslop路线，用相关插件，skill去后处理
+
+如果是日常聊天，用规则吧，慢慢调
+</blockquote>
+能抄抄作业吗？想试试最后总结的时候用中译中翻译一下AI语
+
