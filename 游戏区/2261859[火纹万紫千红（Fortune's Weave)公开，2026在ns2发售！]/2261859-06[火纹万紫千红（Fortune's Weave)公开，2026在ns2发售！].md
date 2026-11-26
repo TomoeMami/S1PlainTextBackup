@@ -14914,3 +14914,25 @@ sry，我理解什么意思了，感谢
 我靠，想着用吃饭重开章节大法刷刷红花老婆的好感度，重开键按下去一瞬间就想起之前在神殿因果融合了几个兄 ...</blockquote>
 你这才哪到哪啊 ，我有次 重开战斗的时候 选错道重开本章节呢
 
+
+*****
+
+####  Humpy  
+##### 8775#       发表于 2026-11-26 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551954&amp;ptid=2261859" target="_blank">根正苗红 发表于 2026-11-26 07:29</a>
+啥都不如入队早啊，架不住你还凹了。本来声望5级和7级入队就赶不上原始股。所以凯伊线推荐最后玩，缺啥补 ...</blockquote>
+入队早有时也得看乱数表做不做人的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+古大哥凯伊线入队最早，结果我全程骑鸟不观星最后关键属性力速技还不如蕾妲线不观星的古大哥<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lbzlxx  
+##### 8776#       发表于 2026-11-26 14:53
+
+<blockquote>逆旅行客 发表于 2026-11-26 14:29
+其他线培养的可以作为素材融合，搞出一个水桶号，比如同一个人一条线走土匪加力量，一条线转法师加魔力， ...</blockquote>
+我还是觉得为了一点鸡肋的水桶属性浪费几十小时重复培养太不值了，30人分4条线好好培养一次就完全足够了，如果刻意凹点那就更强更没必要搞这套了，新角色也够强完全抛弃旧角色也完全可行
+
