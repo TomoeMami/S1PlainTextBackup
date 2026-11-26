@@ -7008,3 +7008,15 @@ ai太爱读git了，让其修改一个项目中明确说了的具体内容，它
 
 火山的2月折扣订阅要到期了。。订阅DS的话现在什么好点呀？
 
+
+*****
+
+####  umamusume  
+##### 21283#       发表于 2026-11-26 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552510&amp;ptid=2275806" target="_blank">白日依山尽 发表于 2026-11-26 09:53</a>
+ai太爱读git了，让其修改一个项目中明确说了的具体内容，它也会将整个git历史读一遍，增加一堆干扰上下文 ...</blockquote>
+你只拉屎不治理？
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

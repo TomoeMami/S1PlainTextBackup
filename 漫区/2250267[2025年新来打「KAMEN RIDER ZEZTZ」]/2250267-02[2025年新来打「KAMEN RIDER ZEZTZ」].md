@@ -30,3 +30,27 @@ No.5、6的结局在舞台剧里，敌我同源的点题在舞台剧里，莫和
 
 非说的话补充Nox家族和CODE有仇可能算是让他之前的一些行为更好解释吧
 
+
+*****
+
+####  小碗宽面  
+##### 2274#       发表于 2026-11-26 10:15
+
+gaygay的<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/26/101532gajagvk2vam844zt.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795659332300_1.webp</strong> (88.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-26 10:15 上传
+
+<img src="https://img.stage1st.com/forum/202611/26/101532mi91sv9410094ooc.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795659332426_2.webp</strong> (52.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-26 10:15 上传
+
