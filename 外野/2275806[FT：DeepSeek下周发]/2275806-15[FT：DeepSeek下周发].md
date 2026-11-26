@@ -7487,3 +7487,26 @@ DeepSeek Flash 4折，GLM Flash 3折
 —— 来自 meizu MEIZU 21 Pro, A ...</blockquote>
 你要明确告诉模型哪些东西是你觉得ai 味道的东西才行。最好连解决方案都给出来
 
+
+*****
+
+####  qwased  
+##### 21326#       发表于 2026-11-26 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554763&amp;ptid=2275806" target="_blank">狂风DKC 发表于 2026-11-26 17:47</a>
+请教一下，如何使用关键词，让ai输出的ppt少一点ai味道？主要用kimi和ds
+
+—— 来自 meizu MEIZU 21 Pro, A ...</blockquote>
+kimi不是有一套ppt skill吗
+文案建议让哈基米来写<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 21327#       发表于 2026-11-26 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554619&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-11-26 17:18</a>
+反正我的体验就是哈吉米不管是n还是c，哪怕在hermes那种屎山里，战斗力也是agy里的几倍。 ...</blockquote>
+拿any大善人的奶猫放pi里试了下，和反重力里面都不是一个物种了，干活极快效率极高，一轮顶反重力里面两轮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
