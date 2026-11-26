@@ -2201,7 +2201,7 @@
     "newtitle": "[【主少年JUMP】腰斩漫画与预测讨论楼]",
     "lastedit": 1795409653,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2027972": {
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 48293,
+    "totalreply": 48294,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1795657686,
+    "lastedit": 1795669089,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10980,10 +10980,10 @@
     "update": false
   },
   "2159972": {
-    "totalreply": 2499,
+    "totalreply": 2500,
     "title": "[【官宣】R星《GTA6》首个预告公开，2025年秋发售XS／PS5]",
     "newtitle": "[【官宣】R星《GTA6》PV公开，2026年11月19日发售XS／PS5]",
-    "lastedit": 1795668006,
+    "lastedit": 1795668848,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11142,10 +11142,10 @@
     "update": false
   },
   "2186798": {
-    "totalreply": 1163,
+    "totalreply": 1164,
     "title": "[蓝色星原：旅谣(7.12-7.14 上海BW2024参展）二号楼]",
     "newtitle": "[蓝色星原：旅谣 二号楼  s1群：1093603339]",
-    "lastedit": 1795668006,
+    "lastedit": 1795668727,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12897,12 +12897,12 @@
     "update": false
   },
   "2276704": {
-    "totalreply": 2175,
+    "totalreply": 2176,
     "title": "[【寂寞的车】车迷俱乐部（2026年3月汽车讨论专楼）]",
     "newtitle": "[【寂寞的车】车迷俱乐部（汽车讨论专楼）]",
-    "lastedit": 1795333457,
+    "lastedit": 1795669089,
     "category": "外野",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2276737": {
@@ -13068,10 +13068,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 46216,
+    "totalreply": 46217,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1795668125,
+    "lastedit": 1795668727,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13572,10 +13572,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 44176,
+    "totalreply": 44177,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1795667526,
+    "lastedit": 1795669089,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13896,10 +13896,10 @@
     "update": false
   },
   "2283078": {
-    "totalreply": 914,
+    "totalreply": 915,
     "title": "[时之笛重制来了！！2026年 11月 5 日 发售]",
     "newtitle": "[塞尔达传说：时之笛重制版专楼，2026年11月5日发售]",
-    "lastedit": 1795668486,
+    "lastedit": 1795668848,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14678,15 +14678,6 @@
     "active": false,
     "update": false
   },
-  "2293737": {
-    "totalreply": 44,
-    "title": "[“减肥神药”或致永久性失明？美国FDA发布警告，此前马斯克曾公开推荐]",
-    "newtitle": "[“减肥神药”或致永久性失明？美国FDA发布警告，此前马斯克曾公开推荐]",
-    "lastedit": 1794459366,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2293752": {
     "totalreply": 75,
     "title": "[FIA ＊＊苏拉耶姆：第 12 支 F1 车队应该来自中国，已和比亚迪、吉利接触谈判]",
@@ -14791,15 +14782,6 @@
     "title": "[欧洲民众就这么默默地度过了天然气涨价的危机]",
     "newtitle": "[欧洲民众就这么默默地度过了天然气涨价的危机]",
     "lastedit": 1794536889,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2289091": {
-    "totalreply": 47,
-    "title": "[原来拼多多百亿补贴之前卖的迪卡侬真是假货]",
-    "newtitle": "[原来拼多多百亿补贴之前卖的迪卡侬真是假货]",
-    "lastedit": 1794459247,
     "category": "外野",
     "active": false,
     "update": false
@@ -17406,10 +17388,10 @@
     "update": false
   },
   "2294404": {
-    "totalreply": 117,
+    "totalreply": 118,
     "title": "[Cyberleek泄露了GTA6的XBOX版本]",
     "newtitle": "[Cyberleek泄露了GTA6的XBOX版本（PS5版ROM已被Dump）]",
-    "lastedit": 1795665606,
+    "lastedit": 1795668848,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17694,10 +17676,10 @@
     "update": false
   },
   "2294724": {
-    "totalreply": 67,
+    "totalreply": 68,
     "title": "[圣杯战争模拟器《圣杯满溢之夜》]",
     "newtitle": "[圣杯战争模拟器《圣杯满溢之夜》]",
-    "lastedit": 1795667647,
+    "lastedit": 1795669090,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17829,10 +17811,10 @@
     "update": false
   },
   "2294816": {
-    "totalreply": 64,
+    "totalreply": 67,
     "title": "[学生课间说四川话被认定违纪，四川宜宾深夜通报]",
     "newtitle": "[学生课间说四川话被认定违纪，四川宜宾深夜通报]",
-    "lastedit": 1795668367,
+    "lastedit": 1795668848,
     "category": "外野",
     "active": true,
     "update": false
@@ -17842,6 +17824,15 @@
     "title": "[数据中心上利国家下利百姓，你们怎么就是不明白]",
     "newtitle": "[数据中心上利国家下利百姓，你们怎么就是不明白]",
     "lastedit": 1795666806,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2294820": {
+    "totalreply": 41,
+    "title": "[做外国版的持械入宋背景选在什么时候比较好]",
+    "newtitle": "[做外国版的持械入宋背景选在什么时候比较好]",
+    "lastedit": 1795669090,
     "category": "外野",
     "active": true,
     "update": false

@@ -1185,3 +1185,11 @@ ps5 折腾 我已经进入游戏了
 
 电脑价格居高不下的现在，没来得及配好电脑的人，买个日版ps5折腾黑商店想玩啥玩啥似乎是个性价比不错的选择了
 
+
+*****
+
+####  FLZB  
+##### 118#       发表于 2026-11-26 12:52
+
+里头应该是有ol的代码的，联机mod搞不好真会比ol先来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
