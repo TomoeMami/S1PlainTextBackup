@@ -7393,3 +7393,11 @@ pro送的10刀增金怎么用，能买ai点数吗
 
 大概是去年antigravity刚出，被薅claude渠道羊毛薅怕了。
 
+
+*****
+
+####  当光停止  
+##### 21318#       发表于 2026-11-26 17:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正我的体验就是哈吉米不管是n还是c，哪怕在hermes那种屎山里，战斗力也是agy里的几倍。
+
