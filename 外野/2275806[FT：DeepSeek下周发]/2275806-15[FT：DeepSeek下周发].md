@@ -7460,3 +7460,17 @@ DeepSeek Flash 4折，GLM Flash 3折
 
 从性价比的角度来看有什么理由选择这个MOAT呢？
 
+
+*****
+
+####  andychen  
+##### 21324#       发表于 2026-11-26 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554763&amp;ptid=2275806" target="_blank">狂风DKC 发表于 2026-11-26 17:47</a>
+请教一下，如何使用关键词，让ai输出的ppt少一点ai味道？主要用kimi和ds
+
+—— 来自 meizu MEIZU 21 Pro, A ...</blockquote>
+很难让模型理解什么是ai味，或者说哪怕说给人听也很难理解
+
+要么具体指出哪些设计元素是你不希望看到的，要么找点你认为好的样板对着抄。最好是双管齐下
+
