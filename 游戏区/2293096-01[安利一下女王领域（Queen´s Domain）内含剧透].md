@@ -8432,3 +8432,17 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 经典套路，看电梯下面，电梯夹层，😂😂
 
+
+*****
+
+####  tamako204  
+##### 657#       发表于 2026-11-26 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552980&amp;ptid=2293096" target="_blank">christiny 发表于 2026-11-26 11:09</a>
+鱼人神殿那个墙上破洞
+
+在boss房后的电梯中间夹层😂，够味吧。  电梯底部有骷髅头，房间墙上还有个隐藏门 ...</blockquote>
+原来如此 谢谢…。鱼人那boss图我跑了两次都遗憾离场…
+目前就射脸射出一条路到陵墓了，我估摸着没射完，果然射完还有其他路。
+宝箱怪真恶心啊，目前唯一死亡，第二场拉锯好久，他死我绕头昏 两败俱伤<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
