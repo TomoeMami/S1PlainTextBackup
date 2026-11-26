@@ -7346,3 +7346,50 @@ Gemini还是早点上线重置券吧，刚用了50%<img src="https://static.stag
 
 gemini cli已经被干掉了，只有一个antigravity。而antigravity的订阅反代出来的话大概率会被干掉。就只能用了。
 
+
+*****
+
+####  jyj256  
+##### 21314#       发表于 2026-11-26 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554532&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-11-26 17:01</a>
+
+也不是转向用。
+
+gemini cli已经被干掉了，只有一个antigravity。而antigravity的订阅反代出来的话大概率 ...</blockquote>
+我用PG反代都被干掉了，申诉信发了几封一直不给我解封
+
+*****
+
+####  dark_saber  
+##### 21315#       发表于 2026-11-26 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70553696&amp;ptid=2275806" target="_blank">zego 发表于 2026-11-26 13:50</a>
+
+pro送的10刀增金怎么用，能买ai点数吗
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, 鹅球 v4.0 ...</blockquote>
+可以生成个apikey关联这个扣款账户，给hermes用（但得先充至少5刀，不然用不了赠金）
+
+*****
+
+####  warlock228  
+##### 21316#       发表于 2026-11-26 17:11
+
+惨了 16年谷歌号发了两封转地区的信都被驳回<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">给我根深蒂固了吗
+
+谷大善人给个机会吧
+
+
+*****
+
+####  当光停止  
+##### 21317#       发表于 2026-11-26 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554572&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-11-26 17:10</a>
+
+我用PG反代都被干掉了，申诉信发了几封一直不给我解封</blockquote>
+现在也就acp稍安全点，还不是绝对安全。
+
+大概是去年antigravity刚出，被薅claude渠道羊毛薅怕了。
+
