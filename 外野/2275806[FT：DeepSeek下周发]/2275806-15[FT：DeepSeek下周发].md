@@ -7154,3 +7154,29 @@ pro送的10刀增金怎么用，能买ai点数吗
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  scikirbypoke  
+##### 21298#       发表于 2026-11-26 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70553671&amp;ptid=2275806" target="_blank">nagbirdren 发表于 2026-11-26 13:41</a>
+谷歌99包年需要先订阅一个月吗？我这边看怎么是199包年</blockquote>
+已经是会员才能有早鸟优惠
+
+
+*****
+
+####  hugosol  
+##### 21299#       发表于 2026-11-26 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70553586&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-26 13:13</a>
+
+消耗少算了40%他也敢说出口，正经公关肯定就这么算了等出6.5修回来，但他偏不就告诉你少算了
+
+tibo还说我 ...</blockquote>
+其实一开始官方公布的计费规则是6.2-Astra缓存命中8折，其他都跟6-Astra一样，6.2-Sol跟6.1持平
+
+但是用同样的任务根据api返回测出来6.2-Astra跟6相比大概消耗只有一半左右，当时也没想太多，觉得可能是模型能力带来的提高（虽然体感6.2也没有6靠谱
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是少算了40%，这数字不就对上了嘛
+
