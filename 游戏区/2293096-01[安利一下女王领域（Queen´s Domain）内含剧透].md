@@ -8523,3 +8523,18 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 还真没吃过红果子，我试试。
 罪录也很阴，刚进去黑灯瞎火的，突然三个怪一起挤上来打你<img src="https://static.stage1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 665#       发表于 2026-11-27 03:21
+
+打了二结局了。
+尝试着收集了一下头骨
+有点变态的
+别说69个，30个我都觉得要命了
+拿了透视逛了半个钟才拿到五个(之前拿了十一个)
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这种3d恶魔城真的很需要恶魔城类游戏一样的区域完成度提示，最好有房间完成度提示，然而对于一个3d游戏来说好像又是不太可能的
+
+—— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

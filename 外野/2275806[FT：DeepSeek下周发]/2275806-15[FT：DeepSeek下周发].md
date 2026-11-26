@@ -7974,3 +7974,24 @@ DeepSeek网页和APP上线了价格估算
 
 还有奇奇怪怪的插件各位觉得体验好的都可以推荐推荐，试一下
 
+
+*****
+
+####  蜇灵  
+##### 21370#       发表于 2026-11-27 03:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70555558&amp;ptid=2275806" target="_blank">frankCC 发表于 2026-11-26 21:24</a>
+agy额度不够用的可以找个把主机接入gemini网页端的mcp，效率低点，但勉强能用，不过网页端neon好像降智有点 ...</blockquote>
+这个能不能细说一下，是直接在网页版操作吗？
+
+*****
+
+####  蜇灵  
+##### 21371#       发表于 2026-11-27 03:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556271&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-11-27 01:24</a>
+迁移到dsh上了，问一下有没有好的显示token速率小插件
+
+还有奇奇怪怪的插件各位觉得体验好的都可以推荐推荐 ...</blockquote>
+dsh自带统计功能
+
