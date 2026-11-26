@@ -14847,3 +14847,26 @@ twi:@cdgm000
 
 我靠，想着用吃饭重开章节大法刷刷红花老婆的好感度，重开键按下去一瞬间就想起之前在神殿因果融合了几个兄弟，怒亏600还是900碎片，麻了
 
+
+*****
+
+####  诡计  
+##### 8769#       发表于 2026-11-26 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551862&amp;ptid=2261859" target="_blank">zmxlegend 发表于 2026-11-26 03:47</a>
+
+他的意思就是你要用打了商人线的角色过一次战争篇，哪怕直接跳过也行</blockquote>
+我的，我理解什么意思了，感谢
+
+*****
+
+####  诡计  
+##### 8770#       发表于 2026-11-26 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551658&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-11-26 00:27</a>
+
+是的，战争篇可以跳过的。但是女王和凯伊第一次跳过之前最好把坐骑和军团下下来。
+
+—— 来自 S1Fun ...</blockquote>
+sry，我理解什么意思了，感谢
+

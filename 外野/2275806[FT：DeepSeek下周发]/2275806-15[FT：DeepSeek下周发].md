@@ -6975,3 +6975,28 @@ same
 直接告诉它工作区让它先想办法整理文档，再按需加载</blockquote>
 好吧，感谢
 
+
+*****
+
+####  umamusume  
+##### 21280#       发表于 2026-11-26 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552448&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-26 09:42</a>
+好吧，感谢</blockquote>
+记得用git管理项目 就没那么多事了 哪个agent来都是直接上手
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  白日依山尽  
+##### 21281#       发表于 2026-11-26 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552492&amp;ptid=2275806" target="_blank">umamusume 发表于 2026-11-26 09:50</a>
+
+记得用git管理项目 就没那么多事了 哪个agent来都是直接上手
+
+—— 来自 samsung SM-S9480, Android 16,  ...</blockquote>
+ai太爱读git了，让其修改一个项目中明确说了的具体内容，它也会将整个git历史读一遍，增加一堆干扰上下文。我甚至在agents.md中写了没有允许，不准使用git。
+
