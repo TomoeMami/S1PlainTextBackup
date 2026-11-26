@@ -1441,3 +1441,26 @@ s1的笔电男大也挺多的
 
 说实话，索尼和微软已经尽力了，治不了大葱
 
+
+*****
+
+####  DioxinsX  
+##### 143#       发表于 2026-11-26 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554995&amp;ptid=2294404" target="_blank">ShiKi847 发表于 2026-11-26 18:52</a>
+
+s1的笔电男大也挺多的</blockquote>
+瞧不起谁呢，人可是pcmr<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鱼雷鲨  
+##### 144#       发表于 2026-11-26 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554696&amp;ptid=2294404" target="_blank">trow233 发表于 2026-11-26 17:33</a>
+
+未来再也不会有什么几千人参与搞10年的游戏项目了吧
+
+除非吃空饷</blockquote>
+市民AI工作室也就参与两年，其他人都是同期还得做GTAOL的
+
