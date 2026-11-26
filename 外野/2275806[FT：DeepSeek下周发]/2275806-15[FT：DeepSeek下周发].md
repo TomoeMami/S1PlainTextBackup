@@ -7601,3 +7601,13 @@ kimi不是有一套ppt skill吗
 
 any的哈基米没有缓存优惠，尽量不要拿来跑长任务，体验下就好了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天堂懵懂人  
+##### 21336#       发表于 2026-11-26 20:00
+
+唉为了找几个mod需要混入日文匿名社区
+
+请问哪个AI的中转日和日翻中效果好一点？
+
