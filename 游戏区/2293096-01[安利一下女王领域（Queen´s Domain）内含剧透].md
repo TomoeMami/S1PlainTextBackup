@@ -8380,3 +8380,31 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 但是没办法，有女王了<img src="https://static.stage1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tamako204  
+##### 653#       发表于 2026-11-26 10:50
+
+原来有这么多好用武器啊，我一起拿圣剑蓄力满推波配合透支武器，血量下来再贴脸砍。.. 目前推完知识塔，飞到陵墓。
+
+前面 第一张图有个向下的黑黑的地图，当时被入门的怪劝退了 攻击欲望强数值高，地图又黑。一直还没去。
+
+鱼那张图，拿了四把钥匙 中间那个门（墙后有个缺口）还是没打开，找了好久也没找到咋进去。
+（鱼人也长的太丑了，每次贴脸砍的时候都被迫看脸部特写<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
+
+知识塔的脸射完有奖励吗
+
+另外宝箱怪真吓人，开箱子都有阴影了.备战状态开箱<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sahhhh6x  
+##### 654#       发表于 2026-11-26 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552854&amp;ptid=2293096" target="_blank">tamako204 发表于 2026-11-26 10:50</a>
+
+原来有这么多好用武器啊，我一起拿圣剑蓄力满推波配合透支武器，血量下来再贴脸砍。.. 目前推完知识塔，飞 ...</blockquote>
+知识塔所有的脸都要射完 血肉组织清掉都可以开新区域的 包括地下的
+

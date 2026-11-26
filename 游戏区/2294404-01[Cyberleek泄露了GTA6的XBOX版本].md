@@ -1129,3 +1129,11 @@ b站有30帧运行视频了<img src="https://static.stage1st.com/image/smiley/fa
 b站有30帧运行视频了按主机标准已经算能玩了吧，今晚能优化到顶配60，明天说不定普通机器就都能跑了 ...</blockquote>
 如果所有机制都是按30帧设计的，大概率60帧跑会有bug。
 
+
+*****
+
+####  山岚夜雨  
+##### 112#       发表于 2026-11-26 10:50
+
+如果 30 天内民间能搞出 pc 60 帧那 r 星所谓的因为优化没法首发 pc 就纯属是笑话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
