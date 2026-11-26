@@ -1016,3 +1016,27 @@ PS5版撑了7天，目前已被Dump，并降级至11.60
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不管咋说得感谢r星，让我出手了国行首发就吃灰的ps5
 
+
+*****
+
+####  zid99825  
+##### 100#       发表于 2026-11-26 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551966&amp;ptid=2294404" target="_blank">ShiKi847 发表于 2026-11-26 07:38</a>
+咋ps5版也泄露了，全是内鬼吗？
+
+太离谱了
+
+甚至破解组的高达驾驶员直接/goal给高达，就一句提示词，循环到能 ...</blockquote>
+ps5系统在AI面前全是洞啊，能撑住7天不错了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  山岚夜雨  
+##### 101#       发表于 2026-11-26 09:36
+
+PS5 吭哧瘪肚的发售前几乎一两天一个补丁，这下也小丑了
+

@@ -6923,3 +6923,25 @@ same
 
 现在只能不停开新会话问完把结论黏贴回长对话能好点。
 
+
+*****
+
+####  overflowal  
+##### 21275#       发表于 2026-11-26 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552288&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-26 09:13</a>
+昨天以来感觉neon干活毛躁起来了，有些活没验证完就跟我说可以发版了。
+看推上有人说降智了，也不知道对不 ...</blockquote>
+因为谷歌调整了反重力的prompt，现在会更加快，更加省钱 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  clawdbot  
+##### 21276#       发表于 2026-11-26 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552263&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-26 09:09</a>
+
+那的几十个项目一个个手动新建然后让哈基米看</blockquote>
+直接告诉它工作区让它先想办法整理文档，再按需加载
+
