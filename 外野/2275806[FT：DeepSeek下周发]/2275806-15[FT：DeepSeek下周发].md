@@ -7754,3 +7754,24 @@ DS的APP更新后也有每轮对话消费信息了，可能以后会在APP上开
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  大肥鱼  
+##### 21349#       发表于 2026-11-26 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70555919&amp;ptid=2275806" target="_blank">Milarvoz 发表于 2026-11-26 22:56</a>
+这ds app的额度花费计算到了小数点后8位啊，太严谨了。
+
+—— 来自 samsung SM-S9380, Android 16, 鹅球 v4 ...</blockquote>
+还真是。点开那个货币标志的时候，只能说都有点想吐槽：哪怕是插件，也不至于算到小数点后那么多位吧？这也太严谨了吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  脸宽  
+##### 21350#       发表于 2026-11-26 23:05
+
+在犹豫明天要不要开pro    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
