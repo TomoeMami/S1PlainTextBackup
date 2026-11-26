@@ -7883,3 +7883,29 @@ DeepSeek 习惯你们又不是不知道，想开源就开源了，不意味着�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  千千千千鸟  
+##### 21361#       发表于 2026-11-27 00:23
+
+GPT和codex的安全审查现在搞屁啊。6.2sol和astra，我让它绕过启动器给我打开二游，提示不行。捏麻麻地
+
+*****
+
+####  宅男的爱  
+##### 21362#       发表于 2026-11-27 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556127&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-11-27 00:06</a>
+
+大肥鱼好久没遇到这种错误了。</blockquote>
+为啥你的DS思考是中文的？
+
+
+*****
+
+####  绯色日照  
+##### 21363#       发表于 2026-11-27 00:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
