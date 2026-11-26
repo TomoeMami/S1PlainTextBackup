@@ -7586,3 +7586,18 @@ kimi不是有一套ppt skill吗
 用反代（</blockquote>
 不会封号吗
 
+
+*****
+
+####  qwased  
+##### 21335#       发表于 2026-11-26 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70555022&amp;ptid=2275806" target="_blank">剑影若兰 发表于 2026-11-26 19:01</a>
+
+能仔细讲讲怎么在pi中配置any家的gemini模型吗？官网没说明，怎么试都搞不定
+
+—— 来自 鹅球 v4.0 ...</blockquote>
+供应商用/v1拉模型，然后给炭/氖打开API 覆盖用google协议，Base URL 覆盖/v1beta，关闭developer传递系统信息
+
+any的哈基米没有缓存优惠，尽量不要拿来跑长任务，体验下就好了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
