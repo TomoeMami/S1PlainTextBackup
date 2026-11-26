@@ -1193,3 +1193,47 @@ ps5 折腾 我已经进入游戏了
 
 里头应该是有ol的代码的，联机mod搞不好真会比ol先来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鱼雷鲨  
+##### 119#       发表于 2026-11-26 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551089&amp;ptid=2294404" target="_blank">时空之旅 发表于 2026-11-25 20:53</a>
+
+不是微软泄露的，说是从R星印度那边黑进去泄露出来的</blockquote>
+大葱应该是前面R星总部大裁员赶走的人之一
+
+
+*****
+
+####  鱼雷鲨  
+##### 120#       发表于 2026-11-26 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552511&amp;ptid=2294404" target="_blank">武蔵 发表于 2026-11-26 09:53</a>
+
+我记得pc的gta4至今依然需要30帧运行不然结局扒不了直升机</blockquote>
+GTAOL很多东西也是硬锁30的
+
+
+*****
+
+####  鱼雷鲨  
+##### 121#       发表于 2026-11-26 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552818&amp;ptid=2294404" target="_blank">mcq_2 发表于 2026-11-26 10:43</a>
+
+如果所有机制都是按30帧设计的，大概率60帧跑会有bug。</blockquote>
+Rage引擎祖传代码，为了实时运算
+
+
+*****
+
+####  鱼雷鲨  
+##### 122#       发表于 2026-11-26 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552856&amp;ptid=2294404" target="_blank">山岚夜雨 发表于 2026-11-26 10:50</a>
+
+如果 30 天内民间能搞出 pc 60 帧那 r 星所谓的因为优化没法首发 pc 就纯属是笑话 ...</blockquote>
+也许跟RDR1一样，过十年才出，直接放弃PC玩家
+
