@@ -1109,3 +1109,13 @@ ps5系统在AI面前全是洞啊，能撑住7天不错了
 
 b站有30帧运行视频了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">按主机标准已经算能玩了吧，今晚能优化到顶配60，明天说不定普通机器就都能跑了
 
+
+*****
+
+####  CyborgIP  
+##### 110#       发表于 2026-11-26 10:22
+
+感觉pc的联机模组会比官方ol出得还快
+
+—— 来自 vivo V2509A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
