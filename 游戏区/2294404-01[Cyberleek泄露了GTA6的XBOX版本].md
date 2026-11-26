@@ -1119,3 +1119,13 @@ b站有30帧运行视频了<img src="https://static.stage1st.com/image/smiley/fa
 
 —— 来自 vivo V2509A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  mcq_2  
+##### 111#       发表于 2026-11-26 10:43
+
+<blockquote>inhalc 发表于 2026-11-26 10:15
+b站有30帧运行视频了按主机标准已经算能玩了吧，今晚能优化到顶配60，明天说不定普通机器就都能跑了 ...</blockquote>
+如果所有机制都是按30帧设计的，大概率60帧跑会有bug。
+

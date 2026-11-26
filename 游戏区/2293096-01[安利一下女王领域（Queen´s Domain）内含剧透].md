@@ -8363,3 +8363,20 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 全收集就算了😂，真要白金建议mod提升经验倍率，节约时间。
 
+
+*****
+
+####  vidomina  
+##### 652#         楼主| 发表于 2026-11-26 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552640&amp;ptid=2293096" target="_blank">h33 发表于 2026-11-26 10:13</a>
+
+白金完之后有点意犹未尽，于是去玩了同一赛道的月下之癫（lunacid），全结局完成。但是只能说女王魔域太优 ...</blockquote>
+所以建议先玩月癫，verho这些<img src="https://static.stage1st.com/image/smiley/face2017/049.png">
+
+没办法，人比人得死，货比货得扔<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+下面看hark了，也可试试life blood。其实还有好些这类的待出。
+
+但是没办法，有女王了<img src="https://static.stage1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
