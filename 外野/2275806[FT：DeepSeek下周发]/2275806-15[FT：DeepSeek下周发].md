@@ -6856,3 +6856,13 @@ codex团队吸了好几个克劳德code的大佬，也该把codex弄好一点了
 
 o/家砍额度后就没法用了，哈基米便宜，但是切换过来，感觉指令遵循好差，沟通好吃力<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  umamusume  
+##### 21269#       发表于 2026-11-26 08:00
+
+哈哈 大肥鱼一大早把c盘冚家铲了 真逆天 没见过这么不遵循指令又喜欢随便操作的模型
+
+—— 来自 samsung SM-S9480, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
