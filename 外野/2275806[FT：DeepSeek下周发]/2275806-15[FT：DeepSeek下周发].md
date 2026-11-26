@@ -7106,3 +7106,26 @@ One last reset了，再见了GPT
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">Astra6.2耐用居然是bug，那拉完了。下个账单末期再来一次500pro冲刺拜拜了您嘞
 
+
+*****
+
+####  qwased  
+##### 21293#       发表于 2026-11-26 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552967&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-11-26 11:06</a>
+agy的这周额度一直在反复横跳是怎么回事，一会跌一会涨的</blockquote>
+掉缓存了多扣的额度有可能会在过一会返还给你<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  warlock228  
+##### 21294#       发表于 2026-11-26 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70553353&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-26 12:16</a>
+
+Astra6.2耐用居然是bug，那拉完了。下个账单末期再来一次500pro冲刺拜拜了您嘞 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">消耗少算了40%他也敢说出口，正经公关肯定就这么算了等出6.5修回来，但他偏不就告诉你少算了
+
+tibo还说我们不会追回少扣的额度，屁嘞还要用户感恩戴德不成<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
