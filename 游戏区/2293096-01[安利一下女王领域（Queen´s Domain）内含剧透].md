@@ -8513,3 +8513,13 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 有个残酷xxx项链，能加30攻击，很强😂
 
+
+*****
+
+####  28201  
+##### 664#       发表于 2026-11-26 21:47
+
+残酷天使的纲领（项链）<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+还真没吃过红果子，我试试。
+罪录也很阴，刚进去黑灯瞎火的，突然三个怪一起挤上来打你<img src="https://static.stage1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">
+
