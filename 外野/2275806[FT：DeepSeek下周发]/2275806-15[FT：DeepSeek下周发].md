@@ -7842,3 +7842,32 @@ DS官方的邮件都不可靠，在发模型这事上没有人能保证<img src=
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  ayanamilin  
+##### 21358#       发表于 2026-11-27 00:03
+
+<blockquote>DeepSeek的算子库要更新了，可能新模型几天内就要来了</blockquote>
+
+不是“要更新了”，而是已经更新了一波，主要就是一些 Mega 算子还有昇腾适配。
+
+DeepSeek 习惯你们又不是不知道，想开源就开源了，不意味着任何事情。
+
+
+*****
+
+####  千千千千鸟  
+##### 21359#       发表于 2026-11-27 00:06
+
+大肥鱼好久没遇到这种错误了。<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+185732be32ea5d9d41322651dec9bf0c.jpg
+(97.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 00:06 上传
+
+<img src="https://img.stage1st.com/forum/202611/27/000646pbeqo9wba4eieaba.jpg" referrerpolicy="no-referrer">
+
