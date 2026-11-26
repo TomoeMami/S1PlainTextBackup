@@ -8008,3 +8008,15 @@ dsh自带统计功能
 —— 来自 S1Fun ...</blockquote>
 训练和推理时候，我让它依次检查一小时的显卡平均利用率，MFU，带宽利用率。最开始连利用率都提不上去，GPU在那空等CPU做检查和文件处理。然后是MFU/带宽率尝试在100%显卡核心利用率情况下挤出更高的吞吐。
 
+
+*****
+
+####  andychen  
+##### 21373#       发表于 2026-11-27 07:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70555082&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-11-26 19:20</a>
+不会封号吗</blockquote>
+这周我三个pro号两个跑完了两次周额度，到现在没有异常
+
+注意别用magpie插件反代，去找带提示词清洗的项目
+
