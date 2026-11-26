@@ -7331,3 +7331,18 @@ Gemini还是早点上线重置券吧，刚用了50%<img src="https://static.stag
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  当光停止  
+##### 21313#       发表于 2026-11-26 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554485&amp;ptid=2275806" target="_blank">zjf 发表于 2026-11-26 16:51</a>
+
+谷歌订阅大伙是都转向用agy了吗？好用吗。。。印象里之前不怎么好用的样子
+
+论坛助手,iPhone ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">也不是转向用。
+
+gemini cli已经被干掉了，只有一个antigravity。而antigravity的订阅反代出来的话大概率会被干掉。就只能用了。
+
