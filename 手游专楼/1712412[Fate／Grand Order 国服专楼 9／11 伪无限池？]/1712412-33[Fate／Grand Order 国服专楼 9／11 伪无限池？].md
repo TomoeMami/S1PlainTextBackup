@@ -160,3 +160,20 @@ MuMu-20261124-210042-836.jpg
 
 终于出了一个五星，结果呆毛6宝具，还不给盘子，亏大了！
 
+
+*****
+
+####  khxooo  
+##### 48347#       发表于 2026-11-26 17:49
+
+好了，这次大号全图鉴四星了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+MuMu-20261126-174910-465.jpg
+(469.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-26 17:49 上传
+
+<img src="https://img.stage1st.com/forum/202611/26/174902mkz452f612o12d5a.jpg" referrerpolicy="no-referrer">
+

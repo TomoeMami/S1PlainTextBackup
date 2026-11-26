@@ -7434,3 +7434,29 @@ Google这个星期用量上应该也有改进，我的大号Ultra5X上个礼拜�
 
 —— 来自 meizu MEIZU 21 Pro, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  紧那罗  
+##### 21322#       发表于 2026-11-26 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554763&amp;ptid=2275806" target="_blank">狂风DKC 发表于 2026-11-26 17:47</a>
+请教一下，如何使用关键词，让ai输出的ppt少一点ai味道？主要用kimi和ds
+
+—— 来自 meizu MEIZU 21 Pro, A ...</blockquote>
+没有通解，要么就是写进纪律里，不许怎么怎么说话。要么你给他看看之前人写的ppt，模仿一下？（味道不一定对就是了）
+
+
+*****
+
+####  pure_liquid  
+##### 21323#       发表于 2026-11-26 17:55
+
+今天Command Code推出到那个MOAT，意义是啥呢？
+
+DeepSeek Flash 4折，GLM Flash 3折
+
+虽说是有价格折扣，但是压根比不上他们自己家的GOAT套餐和OpenCode Go套餐的额度倍率吧？
+
+从性价比的角度来看有什么理由选择这个MOAT呢？
+
