@@ -1253,3 +1253,13 @@ Rage引擎祖传代码，为了实时运算
 
 我是不是可以放弃买架二手XSX玩给他爱6的计划了
 
+
+*****
+
+####  山岚夜雨  
+##### 124#       发表于 2026-11-26 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70553551&amp;ptid=2294404" target="_blank">鱼雷鲨 发表于 2026-11-26 13:04</a>
+也许跟RDR1一样，过十年才出，直接放弃PC玩家</blockquote>
+没有这个也许<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，RDR1 是年代太早看不上 pc 没移植也就没移植了，到了大表哥 2 时代多赚一次钱的机会肯定不会放过的
+
