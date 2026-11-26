@@ -7871,3 +7871,15 @@ DeepSeek 习惯你们又不是不知道，想开源就开源了，不意味着�
 
 <img src="https://img.stage1st.com/forum/202611/27/000646pbeqo9wba4eieaba.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  s1234y  
+##### 21360#       发表于 2026-11-27 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554231&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-11-26 15:55</a>
+推荐一个能Loop工程里提升性能和速度的方式。让AI写Hook定时检查目标参数/数值，低于指定值就直接抛出报错 ...</blockquote>
+用 hook 检查什么呢，没太懂，是类似 perf loop 里边的  p95 阈值的值？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

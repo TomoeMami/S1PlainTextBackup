@@ -1464,3 +1464,13 @@ s1的笔电男大也挺多的</blockquote>
 除非吃空饷</blockquote>
 市民AI工作室也就参与两年，其他人都是同期还得做GTAOL的
 
+
+*****
+
+####  tonyunreal  
+##### 145#       发表于 2026-11-27 00:07
+
+打了会wow回来一看，60fps的视频都有了……
+
+—— 来自 Xiaomi 25091RP04C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
