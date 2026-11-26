@@ -1165,3 +1165,15 @@ ps5 折腾 我已经进入游戏了
 
 太快了。。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  mcq_2  
+##### 116#       发表于 2026-11-26 11:28
+
+<blockquote>susan28 发表于 2026-11-26 11:15
+ps5 折腾 我已经进入游戏了
+
+【PS5折腾 日锁12.00  运行GTA6 成了-哔哩哔哩】 https://b23.tv/soSTVFX</blockquote>
+索尼更不会去做单机游戏了。挺好挺好。省的拿dei来恶心单机玩家。
+

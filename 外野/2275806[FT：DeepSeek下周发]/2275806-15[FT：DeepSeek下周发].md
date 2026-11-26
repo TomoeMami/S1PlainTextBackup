@@ -7057,3 +7057,21 @@ ai太爱读git了，让其修改一个项目中明确说了的具体内容，它
 
 agy的这周额度一直在反复横跳是怎么回事，一会跌一会涨的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  scikirbypoke  
+##### 21288#       发表于 2026-11-26 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552967&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-11-26 11:06</a>
+agy的这周额度一直在反复横跳是怎么回事，一会跌一会涨的</blockquote>
+传说中的动态额度，我打算等黑五当天看看情况
+
+*****
+
+####  unrealMeeSeeks  
+##### 21289#       发表于 2026-11-26 11:31
+
+One last reset了，再见了GPT
+<img src="https://p.sda1.dev/36/003deaf8e04ba18e065e40f8f23758f1/image.jpg" referrerpolicy="no-referrer">
+

@@ -552,3 +552,14 @@ r星的下限是某些厂商一生达不到的上限
 
 —— 来自 Xiaomi 25060RK16C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nagitoY  
+##### 59#         楼主| 发表于 2026-11-26 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70548306&amp;ptid=2294581" target="_blank">如月尤菲 发表于 2026-11-25 04:14</a>
+
+最夸张的是，随机事件，支线，隐藏支线，男主，女主，或者双人行，台词都有区别，双人行明显台词更多，还附 ...</blockquote>
+两个人一起行动，开车路上还会有不少闲聊，从某种程度上减少了开车跑图的枯燥感
+
