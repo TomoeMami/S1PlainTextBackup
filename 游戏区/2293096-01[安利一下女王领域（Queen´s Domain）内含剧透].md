@@ -8408,3 +8408,13 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 原来有这么多好用武器啊，我一起拿圣剑蓄力满推波配合透支武器，血量下来再贴脸砍。.. 目前推完知识塔，飞 ...</blockquote>
 知识塔所有的脸都要射完 血肉组织清掉都可以开新区域的 包括地下的
 
+
+*****
+
+####  tamako204  
+##### 655#       发表于 2026-11-26 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552885&amp;ptid=2293096" target="_blank">sahhhh6x 发表于 2026-11-26 10:54</a>
+知识塔所有的脸都要射完 血肉组织清掉都可以开新区域的 包括地下的</blockquote>
+了解，回头再找找去
+

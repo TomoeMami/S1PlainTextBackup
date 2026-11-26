@@ -7028,3 +7028,32 @@ ai太爱读git了，让其修改一个项目中明确说了的具体内容，它
 
 谷歌不给我黑五优惠，想送钱都没法送<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tonyunreal  
+##### 21285#       发表于 2026-11-26 11:00
+
+不知道是不是旧闻
+
+刚发现智谱按量计费的API可以选GLM 5.4了
+
+*****
+
+####  andychen  
+##### 21286#       发表于 2026-11-26 11:00
+
+不知道antigravity是怎么处理提示词的
+
+其他harness同会话内基本都能把缓存命中率维持在95%左右，并且是稳定的。antigravity同会话缓存命中率从6x到9x来回跳，平均估计就80%左右
+
+累了，直接接claude code用算了
+
+
+*****
+
+####  heemoon  
+##### 21287#       发表于 2026-11-26 11:06
+
+agy的这周额度一直在反复横跳是怎么回事，一会跌一会涨的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -136,3 +136,11 @@ MuMu-20261124-210042-836.jpg
 <img src="https://p.sda1.dev/36/21215f42c88df900a5e85e265b6e8a0f/image.jpg" referrerpolicy="no-referrer">
 有ai之后拼图缺失的部分都能补出来了
 
+
+*****
+
+####  khxooo  
+##### 48344#       发表于 2026-11-26 11:05
+
+小号终于单抽出货了，白枪2宝了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

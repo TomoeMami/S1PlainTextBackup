@@ -1137,3 +1137,19 @@ b站有30帧运行视频了按主机标准已经算能玩了吧，今晚能优�
 
 如果 30 天内民间能搞出 pc 60 帧那 r 星所谓的因为优化没法首发 pc 就纯属是笑话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  口袋妖怪  
+##### 113#       发表于 2026-11-26 10:59
+
+ps5折腾版已经可以正常运行了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千秋难诉  
+##### 114#       发表于 2026-11-26 11:03
+
+不得不说，GTA6的编译之战确实比隔壁OOT好看多了，起转承合一应俱全，反观OOT真是被NS2那一波带走
+
