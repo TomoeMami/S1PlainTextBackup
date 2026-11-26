@@ -7193,3 +7193,16 @@ tibo还说我 ...</blockquote>
 但是用同 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是的 这几天天天用6.2Astra他发法邮件前我还欣喜连plus都蹬得起了真是O大善人
 
+
+*****
+
+####  warlock228  
+##### 21301#       发表于 2026-11-26 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70553671&amp;ptid=2275806" target="_blank">nagbirdren 发表于 2026-11-26 13:41</a>
+
+谷歌99包年需要先订阅一个月吗？我这边看怎么是199包年</blockquote>
+无原本订阅的用户27号开始可以购买打折
+
+现在能买的是已有订阅的用户
+
