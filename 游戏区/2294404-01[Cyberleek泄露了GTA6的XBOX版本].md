@@ -1425,3 +1425,11 @@ Public VIctory/XCL build, PortWatch-verified. Owner rates story progress at 80%,
 这也太孝了吧？跟鸵鸟一样</blockquote>
 NGA游综本来就不允许讨论盗版的，现在只是加了这条。
 
+
+*****
+
+####  ShiKi847  
+##### 141#       发表于 2026-11-26 18:52
+
+s1的笔电男大也挺多的
+

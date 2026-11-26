@@ -7510,3 +7510,27 @@ kimi不是有一套ppt skill吗
 反正我的体验就是哈吉米不管是n还是c，哪怕在hermes那种屎山里，战斗力也是agy里的几倍。 ...</blockquote>
 拿any大善人的奶猫放pi里试了下，和反重力里面都不是一个物种了，干活极快效率极高，一轮顶反重力里面两轮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 21328#       发表于 2026-11-26 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552934&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-26 11:00</a>
+不知道antigravity是怎么处理提示词的
+
+其他harness同会话内基本都能把缓存命中率维持在95%左右，并且是稳 ...</blockquote>
+反重力还能接到cc里面用？
+
+
+*****
+
+####  heemoon  
+##### 21329#       发表于 2026-11-26 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554763&amp;ptid=2275806" target="_blank">狂风DKC 发表于 2026-11-26 17:47</a>
+请教一下，如何使用关键词，让ai输出的ppt少一点ai味道？主要用kimi和ds
+
+—— 来自 meizu MEIZU 21 Pro, A ...</blockquote>
+这几个月用ai做ppt下来，我感觉丢参考图让ai抄最快（关键词你可以让ai看图反推），没有参考图就让ai生图然后不停的改，不停的许愿，改到满意的风格就做成skill。另外ds我觉得就不要用了，不是做不出好的ppt，就是会很费力<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
