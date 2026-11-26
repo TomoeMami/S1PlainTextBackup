@@ -7783,3 +7783,23 @@ DS的APP更新后也有每轮对话消费信息了，可能以后会在APP上开
 
 DeepSeek的算子库要更新了，可能新模型几天内就要来了
 
+
+*****
+
+####  qz66618  
+##### 21352#       发表于 2026-11-26 23:18
+
+大概率十二月份<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  startraveller  
+##### 21353#       发表于 2026-11-26 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70555982&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-11-26 23:15</a>
+DeepSeek的算子库要更新了，可能新模型几天内就要来了</blockquote>
+现在都在传 ds 大号训好了，然后 GLM 也辟谣大号跳票了，确认12月发。
+
