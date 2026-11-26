@@ -170,3 +170,13 @@
 
 所以MBTL都古的七夜熊猫到底是什么现在有没有说法
 
+
+*****
+
+####  岸浪白野  
+##### 598#       发表于 2026-11-26 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554262&amp;ptid=2026924" target="_blank">asd235614 发表于 2026-11-26 16:01</a>
+所以MBTL都古的七夜熊猫到底是什么现在有没有说法</blockquote>
+不还是七夜，还不存在过剧情会有出场而已<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

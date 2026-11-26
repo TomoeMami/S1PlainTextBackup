@@ -7401,3 +7401,13 @@ pro送的10刀增金怎么用，能买ai点数吗
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正我的体验就是哈吉米不管是n还是c，哪怕在hermes那种屎山里，战斗力也是agy里的几倍。
 
+
+*****
+
+####  andychen  
+##### 21319#       发表于 2026-11-26 17:35
+
+小声说一句，反代封号的风声已经过了，我三个pro号这个礼拜一直跑
+
+Google这个星期用量上应该也有改进，我的大号Ultra5X上个礼拜四五天就用完了，这个礼拜可能一个星期都用不完。不过也可能是重置发得多我用量没算准
+
