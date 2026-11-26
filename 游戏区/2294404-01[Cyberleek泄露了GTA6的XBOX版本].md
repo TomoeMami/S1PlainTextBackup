@@ -1405,3 +1405,23 @@ Public VIctory/XCL build, PortWatch-verified. Owner rates story progress at 80%,
 
 能不能慢一点，我还一大堆游戏没打完啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WhiteGlint  
+##### 139#       发表于 2026-11-26 17:58
+
+请问一下这种反编译项目，有了原始文件之后要怎么处理呢，可以让dsh这种agent代工吗（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  Jabeck  
+##### 140#       发表于 2026-11-26 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554694&amp;ptid=2294404" target="_blank">翻滚吧熊犊子 发表于 2026-11-26 17:32</a>
+
+这也太孝了吧？跟鸵鸟一样</blockquote>
+NGA游综本来就不允许讨论盗版的，现在只是加了这条。
+
