@@ -7942,3 +7942,14 @@ DeepSeek网页和APP上线了价格估算
 
 被限额的真不知道怎么用的
 
+
+*****
+
+####  qwased  
+##### 21367#       发表于 2026-11-27 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556176&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-27 00:27</a>
+
+又来咨询MacBookpro M5max 128G部署本地AI的可行性了，考虑到数据的安全性和保密性不适合使用外部大模型处 ...</blockquote>
+你可以试试下个千问app，里面那个go模式的3.8flash就是你能本地部署的
+
