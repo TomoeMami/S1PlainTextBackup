@@ -7245,3 +7245,32 @@ tibo还说我 ...</blockquote>
 
 —— 来自 vivo V2547A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  andychen  
+##### 21306#       发表于 2026-11-26 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554065&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-11-26 15:23</a>
+
+哈基米到底重置了没有我周额度一直在99%和49%之间反复横跳</blockquote>
+重置了，我两个用光的号用量都恢复了
+
+*****
+
+####  紧那罗  
+##### 21307#       发表于 2026-11-26 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70553740&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-26 14:05</a>
+
+其实一开始官方公布的计费规则是6.2-Astra缓存命中8折，其他都跟6-Astra一样，6.2-Sol跟6.1持平
+
+但是用同 ...</blockquote>
+不对吧，6.2Astra公布的是4折（输入输出8折 缓存4折  O\的缓存命中本来就贵的离谱）
+
+当天我拿一早上的消耗算过 6的定价里缓存开销会占到70%左右 所以降价还是非常明显的
+
+不过但是确实以为还有另一部分额度下降减少 以为是6.2模型带来的提升
+
+现在看来单纯只是bug带来的提升<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
