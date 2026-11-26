@@ -1330,3 +1330,13 @@ codec-d/cool_fox
 
 泰坦哥是不是接入ai自动回复了
 
+
+*****
+
+####  真心为你air  
+##### 132#       发表于 2026-11-26 15:49
+
+NGA完全不让提GTA6的PC移植，不止游综，网络杂谈区也是。还好这里还能讨论一下。
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.1.1-alpha
+

@@ -7290,3 +7290,26 @@ Gemini还是早点上线重置券吧，刚用了50%<img src="https://static.stag
 
 Gemini还是早点上线重置券吧，刚用了50%<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 21309#       发表于 2026-11-26 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554108&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-26 15:33</a>
+
+不对吧，6.2Astra公布的是4折（输入输出8折 缓存4折  O\的缓存命中本来就贵的离谱）
+
+当天我拿一早上的消 ...</blockquote>
+哦对，查了下你的数字是对的
+
+不过无所谓了，反正我现在也很少用6.2-Astra（
+
+
+*****
+
+####  泰坦失足  
+##### 21310#       发表于 2026-11-26 15:55
+
+推荐一个能Loop工程里提升性能和速度的方式。让AI写Hook定时检查目标参数/数值，低于指定值就直接抛出报错。偷懒没这么写hook，直接goal里文字表达让AI需要积极的使用其他AI Agent CLI作为子Agent。结果刚开始还能高效利用子agent，后面直接摆烂忙着干自己的任务，完全不派出更弱模型的子agent。
+
