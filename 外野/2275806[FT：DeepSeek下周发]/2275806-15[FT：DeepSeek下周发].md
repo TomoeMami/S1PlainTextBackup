@@ -7703,3 +7703,34 @@ any的哈基米没有缓存优惠，尽量不要拿来跑长任务，体验下�
 
 agy额度不够用的可以找个把主机接入gemini网页端的mcp，效率低点，但勉强能用，不过网页端neon好像降智有点多。<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UncleDracula  
+##### 21345#       发表于 2026-11-26 22:00
+
+千问plan的产品经理真是没🐎了。一个任务开个团队讨论，主代理和子代理各种报额度不足给我中断了，我明明还有很多额度啊，用完拜拜了您<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宅男的爱  
+##### 21346#       发表于 2026-11-26 22:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70555452&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-11-26 20:53</a>
+
+能抄抄作业吗？想试试最后总结的时候用中译中翻译一下AI语</blockquote>
+我的几乎所有规则都在裁剪DS的雷霆大思考，所以只在思考时才起作用
+
+比如“要不要我帮你……”“夜深了……”，这是DS在文末撑字数用的，是个机制
+
+比如“……很重”“这段话里这点最重要”，Ban掉所有对用户的主观评价词汇，尤其是正面
+
+比如“123456”，Ban掉所有序号式信息陈列方式
+
+如果想要GPT的不是不能说明是不代表，要求观点和意见要表达作用范围
+
+其实是在降低效率，DS的雷霆大思考是DS的性能表现，所以，我前段时间全删了……
+
+我不知道对中译中有没有用，没试过不好意思
+
