@@ -7534,3 +7534,37 @@ kimi不是有一套ppt skill吗
 —— 来自 meizu MEIZU 21 Pro, A ...</blockquote>
 这几个月用ai做ppt下来，我感觉丢参考图让ai抄最快（关键词你可以让ai看图反推），没有参考图就让ai生图然后不停的改，不停的许愿，改到满意的风格就做成skill。另外ds我觉得就不要用了，不是做不出好的ppt，就是会很费力<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 21330#       发表于 2026-11-26 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554986&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-11-26 18:49</a>
+反重力还能接到cc里面用？</blockquote>
+用反代（
+
+*****
+
+####  剑影若兰  
+##### 21331#       发表于 2026-11-26 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554960&amp;ptid=2275806" target="_blank">qwased 发表于 2026-11-26 18:42</a>
+拿any大善人的奶猫放pi里试了下，和反重力里面都不是一个物种了，干活极快效率极高，一轮顶反重力里面两 ...</blockquote>
+能仔细讲讲怎么在pi中配置any家的gemini模型吗？官网没说明，怎么试都搞不定
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  The_Ether_  
+##### 21332#       发表于 2026-11-26 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554763&amp;ptid=2275806" target="_blank">狂风DKC 发表于 2026-11-26 17:47</a>
+
+请教一下，如何使用关键词，让ai输出的ppt少一点ai味道？主要用kimi和ds
+
+—— 来自 meizu MEIZU 21 Pro, A ...</blockquote>
+把自己做的发给他，让他按照需要的风格来，遣词造句方面也可以这样。找个记忆插件或者让DSH给你写一个，每次需要的时候直接调用对应规则
+
