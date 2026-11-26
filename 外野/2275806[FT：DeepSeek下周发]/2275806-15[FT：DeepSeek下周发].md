@@ -7180,3 +7180,16 @@ tibo还说我 ...</blockquote>
 但是用同样的任务根据api返回测出来6.2-Astra跟6相比大概消耗只有一半左右，当时也没想太多，觉得可能是模型能力带来的提高（虽然体感6.2也没有6靠谱
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是少算了40%，这数字不就对上了嘛
 
+
+*****
+
+####  warlock228  
+##### 21300#       发表于 2026-11-26 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70553740&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-11-26 14:05</a>
+
+其实一开始官方公布的计费规则是6.2-Astra缓存命中8折，其他都跟6-Astra一样，6.2-Sol跟6.1持平
+
+但是用同 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是的 这几天天天用6.2Astra他发法邮件前我还欣喜连plus都蹬得起了真是O大善人
+

@@ -1263,3 +1263,19 @@ Rage引擎祖传代码，为了实时运算
 也许跟RDR1一样，过十年才出，直接放弃PC玩家</blockquote>
 没有这个也许<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，RDR1 是年代太早看不上 pc 没移植也就没移植了，到了大表哥 2 时代多赚一次钱的机会肯定不会放过的
 
+
+*****
+
+####  泰坦失足  
+##### 125#       发表于 2026-11-26 14:34
+
+其实要不是PC和主机都涨价到疯狂以及GTA6只有数字版，本来随手买个二手PS5非Pro和一张GTA6光盘也挺轻松的。奈何这是第一个主机中后期价格比初期价格还贵的时代
+
+
+*****
+
+####  zhenlune  
+##### 126#       发表于 2026-11-26 14:37
+
+首发不上pc铁了心卖两遍+打拳剧本+媒体造神，让人很难同情得起来啊<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
