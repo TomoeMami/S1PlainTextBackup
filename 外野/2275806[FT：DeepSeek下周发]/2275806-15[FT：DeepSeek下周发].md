@@ -7075,3 +7075,26 @@ agy的这周额度一直在反复横跳是怎么回事，一会跌一会涨的</
 One last reset了，再见了GPT
 <img src="https://p.sda1.dev/36/003deaf8e04ba18e065e40f8f23758f1/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tomorrow_D  
+##### 21290#       发表于 2026-11-26 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552437&amp;ptid=2275806" target="_blank">Lorraine_Kinney 发表于 2026-11-26 09:41</a>
+
+99包年是黑五的折扣，能不能用反重力得看你账号的属地，https://policies.google.com/terms 像香港就不行 ...</blockquote>
+成功了，多谢！我先改了地区，然后按照网上的教程先买了一个月的plus，然后再升级成了99美元的包年pro。还没有使用反重力，一会试试看
+
+*****
+
+####  洛拉斯  
+##### 21291#       发表于 2026-11-26 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70552551&amp;ptid=2275806" target="_blank">FYeed 发表于 2026-11-26 10:00</a>
+
+火山的2月折扣订阅要到期了。。订阅DS的话现在什么好点呀？</blockquote>
+订阅个屁啊
+
+豆包工作现在Deepseek免费蹬啊！
+

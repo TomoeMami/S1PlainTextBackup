@@ -1420,3 +1420,23 @@ Blu-ray附生产限定版将收录Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- D
 
        [https://bushiroad-store.com/collections/oblivionis-birthday2026](https://bushiroad-store.com/collections/oblivionis-birthday2026)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42234#       发表于 2026-11-26 12:07
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/26/120716dy66s6yurqqqya6b.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-26_12-05-49.png</strong> (829.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-26 12:07 上传
+
+       [https://x.com/comic_growl/status/2125787349145805138](https://x.com/comic_growl/status/2125787349145805138)
+
+       [https://comic-growl.com/episodes/cb747ad7d2870](https://comic-growl.com/episodes/cb747ad7d2870)
+
