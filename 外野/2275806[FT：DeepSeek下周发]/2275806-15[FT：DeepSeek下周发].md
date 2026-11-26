@@ -7576,3 +7576,13 @@ kimi不是有一套ppt skill吗
 
 刚刚用哈基米修个ai小工具，完工了最后给我来了句：“全部通过并优雅退出。” 给我整笑了，一副嘚瑟的死样（但是我喜欢<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 21334#       发表于 2026-11-26 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70555019&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-26 19:00</a>
+用反代（</blockquote>
+不会封号吗
+
