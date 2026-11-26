@@ -7909,3 +7909,24 @@ GPT和codex的安全审查现在搞屁啊。6.2sol和astra，我让它绕过启�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 21364#       发表于 2026-11-27 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556175&amp;ptid=2275806" target="_blank">宅男的爱 发表于 2026-11-27 00:25</a>
+为啥你的DS思考是中文的？</blockquote>
+可以主动在提示词里控制思维链语言的，如果是用pi这种初始提示词短点的也有概率随机抽奖出中文思维链
+
+
+*****
+
+####  千千千千鸟  
+##### 21365#       发表于 2026-11-27 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556175&amp;ptid=2275806" target="_blank">宅男的爱 发表于 2026-11-27 00:25</a>
+
+为啥你的DS思考是中文的？</blockquote>
+一般来说没有自带的英文agents.md啥的提示词的话，用啥语言和大模型交流，它就用啥语言回答吧。也可以在agents.md里写一些基本规则。我在里面写了要使用中文回复
+
