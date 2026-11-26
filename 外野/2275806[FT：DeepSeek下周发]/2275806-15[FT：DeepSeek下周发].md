@@ -7695,3 +7695,11 @@ any的哈基米没有缓存优惠，尽量不要拿来跑长任务，体验下�
 </blockquote>
 能抄抄作业吗？想试试最后总结的时候用中译中翻译一下AI语
 
+
+*****
+
+####  frankCC  
+##### 21344#       发表于 2026-11-26 21:24
+
+agy额度不够用的可以找个把主机接入gemini网页端的mcp，效率低点，但勉强能用，不过网页端neon好像降智有点多。<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
