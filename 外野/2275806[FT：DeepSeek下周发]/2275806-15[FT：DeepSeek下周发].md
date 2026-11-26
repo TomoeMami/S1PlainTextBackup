@@ -7274,3 +7274,19 @@ tibo还说我 ...</blockquote>
 
 现在看来单纯只是bug带来的提升<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  The_Ether_  
+##### 21308#       发表于 2026-11-26 15:41
+
+Gemini还是早点上线重置券吧，刚用了50%<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  The_Ether_  
+##### 21308#       发表于 2026-11-26 15:41
+
+Gemini还是早点上线重置券吧，刚用了50%<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

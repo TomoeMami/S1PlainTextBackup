@@ -573,3 +573,11 @@ r星的下限是某些厂商一生达不到的上限
 两个人一起行动，开车路上还会有不少闲聊，从某种程度上减少了开车跑图的枯燥感 ...</blockquote>
 闲聊脚本来回就那几句，多打一段时间就开始复读，几个对话我能重复看好几次
 
+
+*****
+
+####  Mr_NaHCO3  
+##### 61#       发表于 2026-11-26 15:38
+
+我纯云，rdr2云起来发困，但gta6看着就很来劲，所以喜欢rdr2应该也会喜欢gta6，但反过来可能不是<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
