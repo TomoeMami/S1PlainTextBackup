@@ -7568,3 +7568,11 @@ kimi不是有一套ppt skill吗
 —— 来自 meizu MEIZU 21 Pro, A ...</blockquote>
 把自己做的发给他，让他按照需要的风格来，遣词造句方面也可以这样。找个记忆插件或者让DSH给你写一个，每次需要的时候直接调用对应规则
 
+
+*****
+
+####  heemoon  
+##### 21333#       发表于 2026-11-26 19:15
+
+刚刚用哈基米修个ai小工具，完工了最后给我来了句：“全部通过并优雅退出。” 给我整笑了，一副嘚瑟的死样（但是我喜欢<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
