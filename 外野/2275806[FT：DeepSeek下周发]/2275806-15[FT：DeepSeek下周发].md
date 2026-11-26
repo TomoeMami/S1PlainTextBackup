@@ -7734,3 +7734,23 @@ agy额度不够用的可以找个把主机接入gemini网页端的mcp，效率�
 
 我不知道对中译中有没有用，没试过不好意思
 
+
+*****
+
+####  qz66618  
+##### 21347#       发表于 2026-11-26 22:52
+
+DS的APP更新后也有每轮对话消费信息了，可能以后会在APP上开启充值通道<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Milarvoz  
+##### 21348#       发表于 2026-11-26 22:56
+
+这ds app的额度花费计算到了小数点后8位啊，太严谨了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
