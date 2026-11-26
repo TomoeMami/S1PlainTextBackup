@@ -7611,3 +7611,20 @@ any的哈基米没有缓存优惠，尽量不要拿来跑长任务，体验下�
 
 请问哪个AI的中转日和日翻中效果好一点？
 
+
+*****
+
+####  一牧月  
+##### 21337#       发表于 2026-11-26 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554763&amp;ptid=2275806" target="_blank">狂风DKC 发表于 2026-11-26 17:47</a>
+请教一下，如何使用关键词，让ai输出的ppt少一点ai味道？主要用kimi和ds
+
+—— 来自 meizu MEIZU 21 Pro, A ...</blockquote>
+我这里只有给小说去ai味的，要不要试试？
+我用夸克网盘给你分享了narrativ...dget等2项，点击链接或复制整段内容，打开「夸克APP」即可获取。
+/~5a6a3cXDiw~:/
+链接：https://pan.quark.cn/s/516f0e2450e7
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
