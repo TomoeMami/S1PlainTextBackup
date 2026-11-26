@@ -7828,3 +7828,17 @@ DS官方的邮件都不可靠，在发模型这事上没有人能保证<img src=
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  冤枉呐  
+##### 21357#       发表于 2026-11-26 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554763&amp;ptid=2275806" target="_blank">狂风DKC 发表于 2026-11-26 17:47</a>
+请教一下，如何使用关键词，让ai输出的ppt少一点ai味道？主要用kimi和ds
+
+—— 来自 meizu MEIZU 21 Pro, A ...</blockquote>
+杜绝一切文学技巧
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
