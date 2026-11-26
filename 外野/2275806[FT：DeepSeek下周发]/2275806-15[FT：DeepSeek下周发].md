@@ -7214,3 +7214,34 @@ tibo还说我 ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卧槽 刚把哈基米用到90% 开始抠抠搜搜换用hydrogen了 居然重置了！
 
+
+*****
+
+####  love4aids  
+##### 21303#       发表于 2026-11-26 15:19
+
+怪不得，我 astra fast 一起开，蹬得飞起原来是 bug，再见了 o 小弟，下个月我就开 google 20 倍了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  heemoon  
+##### 21304#       发表于 2026-11-26 15:23
+
+哈基米到底重置了没有<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我周额度一直在99%和49%之间反复横跳
+
+
+*****
+
+####  retp  
+##### 21305#       发表于 2026-11-26 15:26
+
+买了m5u的兄弟们，内存吃不满的问题都咋解决的？
+显存顶到243g就死，然后系统还以为空余内存很大，一股脑堆缓存把十几g内存堆爆炸，watchdog卡住90秒就重启
+
+根本就没考虑过用户把机器当服务器用，本质大号手机
+
+—— 来自 vivo V2547A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
