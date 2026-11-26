@@ -7411,3 +7411,26 @@ pro送的10刀增金怎么用，能买ai点数吗
 
 Google这个星期用量上应该也有改进，我的大号Ultra5X上个礼拜四五天就用完了，这个礼拜可能一个星期都用不完。不过也可能是重置发得多我用量没算准
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 21320#       发表于 2026-11-26 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554580&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-26 17:11</a>
+
+惨了 16年谷歌号发了两封转地区的信都被驳回给我根深蒂固了吗
+
+谷大善人给个机会吧 ...</blockquote>
+开小号吧，谷歌的风控能力其实比a/要强，毕竟做了那么多年的广告公司了，用户画像是吃饭家伙
+
+
+*****
+
+####  狂风DKC  
+##### 21321#       发表于 2026-11-26 17:47
+
+请教一下，如何使用关键词，让ai输出的ppt少一点ai味道<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">？主要用kimi和ds
+
+—— 来自 meizu MEIZU 21 Pro, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

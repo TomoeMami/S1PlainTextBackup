@@ -1387,3 +1387,21 @@ Public VIctory/XCL build, PortWatch-verified. Owner rates story progress at 80%,
 
 除非吃空饷
 
+
+*****
+
+####  best32167  
+##### 137#       发表于 2026-11-26 17:40
+
+很可能是最后一个大型的、主要由人类制作的游戏项目了
+
+往后是vibe coding时代
+
+
+*****
+
+####  黑夜守望者  
+##### 138#       发表于 2026-11-26 17:42
+
+能不能慢一点，我还一大堆游戏没打完啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
