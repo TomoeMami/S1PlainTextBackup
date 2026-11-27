@@ -8264,3 +8264,11 @@ Coding Tools MCP（直连，配置麻烦） 或者 Remote Desktop Commander（�
 对我来说google drive空间是刚需，但现在完全不给纯空间的套餐，必须绑定ai。就当ai服务是白送的 ...</blockquote>
 drive 能不能直连的？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  love4aids  
+##### 21398#       发表于 2026-11-27 13:03
+
+半价包年其实无所谓，一个月不到 50 块。主要是现在astra 有点耐蹬，重置卡都用不出去，我在想能不能换成 100 美元订阅算了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
