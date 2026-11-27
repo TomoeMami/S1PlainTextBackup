@@ -8347,3 +8347,11 @@ Sol 6.2给了非常详细的Goal/Harness约束，我还时不时确认下流程�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你漏了最好笑的一条
 
+
+*****
+
+####  泰坦失足  
+##### 21405#       发表于 2026-11-27 13:48
+
+目前有种说法是Claude会故意弄砸/犯蠢/不能圆满完成任何和机器学习相关的任务。
+
