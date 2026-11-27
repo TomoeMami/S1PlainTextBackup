@@ -1769,3 +1769,14 @@ R星能不能直接收编啊？PC移植工作是不是可以省不少钱<img src
 
 所以最后会是用Xbox版本还是PS5版本为基础进行破解模拟？挺好奇为啥Xbox泄露的更早，但PS版本的进度基本持平。难道Xbox破解难度比PS的高？
 
+
+*****
+
+####  筒井彩芽  
+##### 173#       发表于 2026-11-27 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70558562&amp;ptid=2294404" target="_blank">多线程之真理解 发表于 2026-11-27 15:34</a>
+
+所以最后会是用Xbox版本还是PS5版本为基础进行破解模拟？挺好奇为啥Xbox泄露的更早，但PS版本的进度基本持 ...</blockquote>
+上一代x1至今也只有初版机前段时间才破解，ps5这边模拟器都有了，而且还有其他游戏pc编译的经验。
+
