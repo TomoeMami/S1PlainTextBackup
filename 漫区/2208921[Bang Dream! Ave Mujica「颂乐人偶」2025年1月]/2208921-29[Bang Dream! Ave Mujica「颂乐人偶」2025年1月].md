@@ -1440,3 +1440,23 @@ Blu-ray附生产限定版将收录Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- D
 
        [https://comic-growl.com/episodes/cb747ad7d2870](https://comic-growl.com/episodes/cb747ad7d2870)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42235#       发表于 2026-11-27 23:15
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/27/231516g3o73k2oya71kgzo.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-27_23-12-23.png</strong> (857.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 23:15 上传
+
+       [https://x.com/bang_dream_info/status/2126239621571031248](https://x.com/bang_dream_info/status/2126239621571031248)
+
+       [https://bang-dream.com/events/evanescence_avemujica/](https://bang-dream.com/events/evanescence_avemujica/)
+
