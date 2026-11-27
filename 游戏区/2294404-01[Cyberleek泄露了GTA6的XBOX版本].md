@@ -1565,3 +1565,26 @@ https://imgur.com/fKi65zp
 
 那么，有mac版吗？我有一个用mac打游戏的朋友<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  储安平  
+##### 155#       发表于 2026-11-27 08:54
+
+<blockquote>WhiteGlint 发表于 2026-11-26 17:58
+请问一下这种反编译项目，有了原始文件之后要怎么处理呢，可以让dsh这种agent代工吗（）
+
+—— 来自 鹅球 v ...</blockquote>
+把github地址扔给ai，ai会帮你全弄好
+
+
+*****
+
+####  WhiteGlint  
+##### 156#       发表于 2026-11-27 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556667&amp;ptid=2294404" target="_blank">储安平 发表于 2026-11-27 08:54</a>
+
+把github地址扔给ai，ai会帮你全弄好</blockquote>
+第一次接触最近热门的recomp项目，昨天试了一下王泪的recomp震惊瘫坐了，怎么DLSS和HDR都有，甚至手柄图标都可以换成PS的
+
