@@ -8506,3 +8506,54 @@ Sol 6.2给了非常详细的Goal/Harness约束，我还时不时确认下流程�
 
 支付宝上的pockyt的chatgpt的gift card已经缺货了还行<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陈八尺  
+##### 21420#       发表于 2026-11-27 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559151&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-27 17:16</a>
+日区新用户是25折三个月，我的号都是这个套餐
+
+要么就是折腾学生优惠25折4年，每年审一次学生资格 ...</blockquote>
+日区学生最近二次验证得厉害，学信网也不让用了，风险是有点大的。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  andychen  
+##### 21421#       发表于 2026-11-27 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559210&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-11-27 17:30</a>
+
+日区学生最近二次验证得厉害，学信网也不让用了，风险是有点大的。
+
+论坛助手,iPhone ...</blockquote>
+所以我给我的号都弄了认证，但是都没用学生优惠买。先躲躲风头再说
+
+等三个月后再看
+
+
+*****
+
+####  knnknn  
+##### 21422#       发表于 2026-11-27 17:35
+
+问下正版pro的agy，一周有几管子5小时？
+
+jio的Hydrogen试了下只有4管子
+
+
+*****
+
+####  YuSS  
+##### 21423#       发表于 2026-11-27 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559232&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-11-27 17:35</a>
+
+问下正版pro的agy，一周有几管子5小时？
+
+jio的Hydrogen试了下只有4管子</blockquote>
+4管，一管25刀
+
