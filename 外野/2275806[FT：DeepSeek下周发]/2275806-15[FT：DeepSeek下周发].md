@@ -8054,3 +8054,30 @@ DSH本身就自带速度显示，不过想要更好看可以装个DSH-claude-sty
 又来咨询MacBookpro M5max 128G部署本地AI的可行性了，考虑到数据的安全性和保密性不适合使用外部大模型处 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不是一个好选择。但是显然，你就是想买，so just buy it。
 
+
+*****
+
+####  fat  
+##### 21377#       发表于 2026-11-27 08:23
+
+目前订阅哈基米的安全用法只有：
+antigravity
+官方 APP 和网页
+送的 10 美元每月 api 额度
+这三种对吗？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  来都来了  
+##### 21378#       发表于 2026-11-27 08:25
+
+<img src="https://img.stage1st.com/forum/202611/27/082548vrd80rbcdpbv8jjg.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1795739147973_1.webp</strong> (5.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 08:25 上传
+
+大模型原来真的会打错别字。
+
