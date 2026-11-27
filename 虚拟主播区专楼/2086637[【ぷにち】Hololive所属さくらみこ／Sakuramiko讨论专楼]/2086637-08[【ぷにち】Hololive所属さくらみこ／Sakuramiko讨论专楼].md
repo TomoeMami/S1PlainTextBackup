@@ -50,3 +50,26 @@ youtube直接在把直播中误ban的片断吐回到原始录档里了这都行�
 
 holo面板下5格有什么用吗？
 
+
+*****
+
+####  holofan  
+##### 11781#       发表于 2026-11-24 22:32
+
+<img src="https://img.stage1st.com/forum/202611/24/223101v6875zw797s7sw50.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-24 22:31 上传
+
+说个笑话，爱看GTA的希望最好每天都GTA，不想看的希望能穿插点其他的直播，唯独没有人想要看她跟其他人联动直播特别是跟大明星一起的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11782#       发表于 2026-11-27 21:52
+
+这次卡池没有拿到市场销量榜一（意料之内）但是运营还是送了一个十连的石头，原因是更新版本把旧bug回滚了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
