@@ -1512,3 +1512,27 @@ https://imgur.com/fKi65zp
 
 有人展示越狱的PS5 Pro可以跑到45fps。
 
+
+*****
+
+####  clyde-wang  
+##### 150#       发表于 2026-11-27 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556524&amp;ptid=2294404" target="_blank">SergeGlenn 发表于 2026-11-27 08:12</a>
+https://imgur.com/fKi65zp
+
+这个配置RTX 5070 Ti, 7800X3D, 32GB DDR5号称跑40-50的，尼玛仔细一看是20帧 ...</blockquote>
+模拟器的各种60帧也会出问题的，其实就是模拟或者AI编译成功，并没有那么多人真玩，很多人玩了一下遇到Bug卡了，有的人玩到帧数不稳就不玩了
+
+但是拿来diss正版或者花了钱的人只需要一个开始界面或者刚进游戏的界面就行
+
+
+*****
+
+####  山岚夜雨  
+##### 151#       发表于 2026-11-27 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556334&amp;ptid=2294404" target="_blank">zhoufl07 发表于 2026-11-27 03:04</a>
+并非啊，r星一直是主机优先的，毕竟优先成这样也就30帧。其次买两遍的人太少了，根本够不成主机优先策略 ...</blockquote>
+按你的说法那不更好了，pc 破解 根本不会影响 GTA 呀<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就该狠狠的破，更不用同情了
+

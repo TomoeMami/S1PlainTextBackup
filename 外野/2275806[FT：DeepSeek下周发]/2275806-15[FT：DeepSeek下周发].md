@@ -8081,3 +8081,25 @@ antigravity
 
 大模型原来真的会打错别字。
 
+
+*****
+
+####  绯色日照  
+##### 21379#       发表于 2026-11-27 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556531&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-27 08:15</a>
+
+不是一个好选择。但是显然，你就是想买，so just buy it。</blockquote>
+有没有其他好选择，比如我在看华硕的ProArt创16之类，也是推便携性和AI部署的，但我看测评下评论说不如加钱买MacBook M5max本<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 21380#       发表于 2026-11-27 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556561&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-27 08:27</a>
+
+有没有其他好选择，比如我在看华硕的ProArt创16之类，也是推便携性和AI部署的，但我看测评下评论说不如加 ...</blockquote>
+你要用笔记本直接跑LLM那就只有mac了，起码卖二手残值高点<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
