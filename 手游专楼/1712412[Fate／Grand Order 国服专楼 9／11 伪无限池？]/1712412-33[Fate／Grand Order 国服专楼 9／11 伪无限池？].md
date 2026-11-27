@@ -230,3 +230,35 @@ MuMu-20261126-174910-465.jpg
 你冠呆准备氪服苦难吗</blockquote>
 不可能，绝对不可能<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 48353#       发表于 2026-11-27 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70558792&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-11-27 16:14</a>
+
+不可能，绝对不可能</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">那你就靠这几十石头吗
+
+
+*****
+
+####  khxooo  
+##### 48354#       发表于 2026-11-27 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70558818&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-11-27 16:17</a>
+那你就靠这几十石头吗</blockquote>
+是29块，连个10连都不够<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno1  
+##### 48355#       发表于 2026-11-27 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70558844&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-11-27 16:21</a>
+
+是29块，连个10连都不够</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">术冠起码能刷出几百石是吧
+
