@@ -8307,3 +8307,43 @@ Sol 6.2给了非常详细的Goal/Harness约束，我还时不时确认下流程�
 
 日本AI要雄起了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  love4aids  
+##### 21402#       发表于 2026-11-27 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70557931&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-27 13:13</a>
+日本AI要雄起了</blockquote>
+真的是日本用户吗？🤔    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  andychen  
+##### 21403#       发表于 2026-11-27 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70557950&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-11-27 13:18</a>
+
+真的是日本用户吗？🤔  我好像也是日本用户  Re:Source</blockquote>
+钱付了，人是不是日本的重要吗？
+
+
+*****
+
+####  紧那罗  
+##### 21404#       发表于 2026-11-27 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70557931&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-27 13:13</a>
+日本AI要雄起了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202611/27/132526wm119az53y81mmyp.jpg" referrerpolicy="no-referrer">
+
+<strong>image-C4C08AE9.jpg</strong> (497.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 13:25 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你漏了最好笑的一条
+
