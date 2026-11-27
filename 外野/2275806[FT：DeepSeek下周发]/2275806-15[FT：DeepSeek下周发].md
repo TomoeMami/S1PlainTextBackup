@@ -8363,3 +8363,33 @@ Sol 6.2给了非常详细的Goal/Harness约束，我还时不时确认下流程�
 
 本来就订阅Youtube Premium $16一个月。如果$99一年AI Pro还送Premium Lite那太划算了。反正满血版的Music我也没啥用。
 
+
+*****
+
+####  艾诺琳  
+##### 21407#       发表于 2026-11-27 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556271&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-11-27 01:24</a>
+迁移到dsh上了，问一下有没有好的显示token速率小插件
+
+还有奇奇怪怪的插件各位觉得体验好的都可以推荐推荐 ...</blockquote>
+让大肥鱼自己写一个
+
+
+*****
+
+####  cocoaghost  
+##### 21408#       发表于 2026-11-27 15:15
+
+笑死我了，我的用GPT Chat 6.2-高，出来一个很久很久没看到过的bug咯，分享一下
+
+<img src="https://img.stage1st.com/forum/202611/27/151447effa2ffyvy237p62.png" referrerpolicy="no-referrer">
+
+<strong>27a1639d-4738-4b4f-8a57-60acfc164bfc.png</strong> (53.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 15:14 上传
+
+不得不说6.2是真得拉
+
