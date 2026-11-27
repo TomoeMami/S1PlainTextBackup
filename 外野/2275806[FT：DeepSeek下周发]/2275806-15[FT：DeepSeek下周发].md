@@ -8951,3 +8951,48 @@ O畜说为了chat特调了，有点gemini3.1pro那味儿了
 谷大善人给个机会吧 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我的号也不知道何时为何绑在了台湾，好几年没理了。前几天发了2次转区申请也都给我驳了。今天又发了一次，再不行就算了……
 
+
+*****
+
+####  lactone  
+##### 21459#       发表于 2026-11-27 23:02
+
+话说最近知乎他们搞的分布式证哥德巴赫猜想的平台出现了一个minimax的新模型M78，感觉是在玩M78星云的梗
+
+<img src="https://img.stage1st.com/forum/202611/27/230156uhyeqrmdgywt1z6y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 23:01 上传
+
+*****
+
+####  xsummer  
+##### 21460#       发表于 2026-11-27 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556271&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-11-27 01:24</a>
+
+迁移到dsh上了，问一下有没有好的显示token速率小插件
+
+还有奇奇怪怪的插件各位觉得体验好的都可以推荐推荐 ...</blockquote>
+自带统计功能，搭配dsh-context想看啥看啥。
+
+*****
+
+####  cocoaghost  
+##### 21461#       发表于 2026-11-27 23:02
+
+我三个地址都是日本，也没有出任何折扣消息..
+
+
+*****
+
+####  自由之紫roy  
+##### 21462#       发表于 2026-11-27 23:06
+
+转到新加坡区，用了visa和mastercard都充不了，放弃了
+
+继续codex和deepseek
+
