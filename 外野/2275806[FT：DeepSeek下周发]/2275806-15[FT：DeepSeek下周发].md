@@ -8044,3 +8044,13 @@ DSH本身就自带速度显示，不过想要更好看可以装个DSH-claude-sty
 其实就是网上案例太少，不知道苹果电脑部署ai后吐字是不是真的很慢，当然如果效果好，慢点也不是不行。。 ...</blockquote>
 不慢，就是没啥性价比<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紧那罗  
+##### 21376#       发表于 2026-11-27 08:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556176&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-27 00:27</a>
+又来咨询MacBookpro M5max 128G部署本地AI的可行性了，考虑到数据的安全性和保密性不适合使用外部大模型处 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不是一个好选择。但是显然，你就是想买，so just buy it。
+
