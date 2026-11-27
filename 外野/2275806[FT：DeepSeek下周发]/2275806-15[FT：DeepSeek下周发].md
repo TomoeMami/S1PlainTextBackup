@@ -8233,3 +8233,24 @@ Gemini黑五还行吧，99刀12个月，就当买5送7呗。关键是沟槽谷�
 
 大善人的fable5.2最近能蹬了，可以把一些gpt写的垃圾UI重构了
 
+
+*****
+
+####  frankCC  
+##### 21395#       发表于 2026-11-27 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556344&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-11-27 03:22</a>
+
+这个能不能细说一下，是直接在网页版操作吗？</blockquote>
+Coding Tools MCP（直连，配置麻烦） 或者 Remote Desktop Commander（走一次第三方，配置简单）
+
+把主机接入网页端，直接在gemini网页上问就行。
+
+
+*****
+
+####  赤星ビスコ  
+##### 21396#       发表于 2026-11-27 12:07
+
+对我来说google drive空间是刚需，但现在完全不给纯空间的套餐，必须绑定ai。就当ai服务是白送的
+
