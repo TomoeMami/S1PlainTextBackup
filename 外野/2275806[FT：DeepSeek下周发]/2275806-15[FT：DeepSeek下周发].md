@@ -9124,3 +9124,44 @@ PI可以用gemini ultra订阅了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">o/最近是不是不太行，最近一个月codex干活能力感觉下降了，网上也很多人在骂
 
+
+*****
+
+####  frankCC  
+##### 21473#       发表于 2026-11-28 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70560637&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-28 01:10</a>
+
+和我无瓜啊，我只是贫穷的 Pro 用户</blockquote><blockquote>Google确实给 Pi 批准了OAuth权限。
+
+刚翻完 Pi 仓库今天新挂出来的 12614 号 Draft PR，代码还没合进 main 分支，但 Google AI Ultra 订阅登录已经实现了。
+
+为什么 Pi 能直接接上 Google 官方 OAuth 订阅登录？
+
+原因很简单，Pi单独向 Google 提交了官方 OAuth接入申请并且通过了。
+
+Google 这个申请要求每个工具自己去建独立的桌面端 OAuth 应用，一家一家单独提交审批。
+
+通过之后，登录时会把刷新令牌绑定在本机生成的密钥上，每次续期都要带本机签名校验，请求直接走 Google 新开的个人配额接口，目前只针对 AI Ultra 订阅开放，Pro 用户暂时未开放。
+
+Pi 团队甚至专门在 README 里加了一段说明，写得很清楚：
+
+这个登录客户端是 Google 单独批给 Pi 的，任何人 fork 仓库或者基于 pi-ai 自己做工具，都必须重新向 Google 申请，不准复用 Pi 的凭据。
+
+想看代码细节的可以直接去 GitHub 搜 earendil-works/pi，点进 PR 12614 或者切到 google-ai-plan 分支，里面的 README 改动和 google-ai-plan.ts 写得清清楚楚。
+
+顺着这套个人配额接口的特征，我把 GitHub 全网翻了一遍，看看还有谁拿到了审批。
+
+除了 Pi，目前公开仓库里能查到走通这套官方通道的开源项目，只有 Nous Research 家的 Hermes Agent。
+
+仓库里叫 Solstice 插件，前几天刚切到和 Pi 一模一样的无状态接口，不过看前两天的 issue 反馈，目前还卡在测试白名单阶段，普通账号直接登还是会被拦下来报 403。
+
+OpenCode 的第三方分支 Shuvcode 虽然代码里也接上了 Solstice，实际是绕道借用了 Nous Portal 的登录通道，并没有拿到 Google 的单独批准。
+
+至于其他开源Agent：OpenClaw、Cline、Roo Code、Zed、Goose 这些目前在公开仓库里全都没有这套官方接入的痕迹。
+
+这么一来，以后第三方工具想接 Google 订阅，只能一家一家排队过审、单独领凭据，出了问题 Google 随时能按单个应用停权。
+
+之前那些靠逆向抓包和共享凭据撑起来的野路子插件，后面基本走不通了。</blockquote>
+按照经验，后面大概会慢慢下放给pro的。
+
