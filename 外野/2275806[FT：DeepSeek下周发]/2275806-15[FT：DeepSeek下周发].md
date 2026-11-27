@@ -8768,3 +8768,40 @@ LLM agent时代，是可以让工具习惯你（真·变成你的形状），而
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Promeus  
+##### 21442#       发表于 2026-11-27 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559594&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-27 19:28</a>
+新版的chat肥龙还是能往哈基米上面靠的</blockquote>
+这种大肥鱼app都能答啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  frankCC  
+##### 21443#       发表于 2026-11-27 19:44
+
+不是，我的时间线上怎么出现了日本人真的信了最近有很多日本人在支持反重力和 Gemini 啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  warlock228  
+##### 21444#       发表于 2026-11-27 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559646&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-11-27 19:43</a>
+这种大肥鱼app都能答啊</blockquote>
+之前不懂的，不知道6.2sol训了些什么
+
+
+*****
+
+####  warlock228  
+##### 21445#       发表于 2026-11-27 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559651&amp;ptid=2275806" target="_blank">frankCC 发表于 2026-11-27 19:44</a>
+不是，我的时间线上怎么出现了日本人真的信了最近有很多日本人在支持反重力和 Gemini 啊 ...</blockquote>
+x上面说哈基米在日本的广告力度是御三家里最高的，美国人说问问ai他掏出来多半是gpt 日本人说问问ai掏出来的就是哈基米
+
