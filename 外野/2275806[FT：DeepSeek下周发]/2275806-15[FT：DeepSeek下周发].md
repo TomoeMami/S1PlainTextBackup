@@ -8461,3 +8461,40 @@ Sol 6.2给了非常详细的Goal/Harness约束，我还时不时确认下流程�
 你看看是不是你的号之前在别的区买过，要把那些非美区的支付信息删了，现在应该是只有美区才有 ...</blockquote>
 难怪看不到优惠，我之前为了买GPT改成日区了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陈八尺  
+##### 21416#       发表于 2026-11-27 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70558750&amp;ptid=2275806" target="_blank">fat 发表于 2026-11-27 16:06</a>
+新用户的优惠方案有了吗？    Re:Source</blockquote>
+看到有人日区刷到新用户惊天六折优惠，之前没五折上车的血亏<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  fat  
+##### 21417#       发表于 2026-11-27 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559139&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-11-27 17:12</a>
+看到有人日区刷到新用户惊天六折优惠，之前没五折上车的血亏
+
+论坛助手,iPhone ...</blockquote>
+要是 6 折也可以了，我就冲了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  andychen  
+##### 21418#       发表于 2026-11-27 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559139&amp;ptid=2275806" target="_blank">陈八尺 发表于 2026-11-27 17:12</a>
+看到有人日区刷到新用户惊天六折优惠，之前没五折上车的血亏
+
+论坛助手,iPhone ...</blockquote>
+日区新用户是25折三个月，我的号都是这个套餐
+
+要么就是折腾学生优惠25折4年，每年审一次学生资格
+
