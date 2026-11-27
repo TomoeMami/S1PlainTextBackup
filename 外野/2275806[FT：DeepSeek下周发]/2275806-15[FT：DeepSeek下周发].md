@@ -8578,3 +8578,47 @@ Google, 你们根本不用怕它会主动识别你是不是中国人
 
 —— 来自 Xiaomi M332BF, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  舞以  
+##### 21426#       发表于 2026-11-27 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559232&amp;ptid=2275806" target="_blank">knnknn 发表于 2026-11-27 17:35</a>
+
+问下正版pro的agy，一周有几管子5小时？
+
+jio的Hydrogen试了下只有4管子</blockquote>
+4管，一般认为pro是一周120刀，氢和氖按api价格严格直接折算进去，碳会在现在的api折扣价上加上一个3.0的倍数折进去。也就是一周能跑120刀的氢基米或者氖基米，全跑碳基米只有40刀。
+
+我个人觉的反重力的5hlimits还是挺难用完的（我是ultra 5x）
+
+*****
+
+####  andychen  
+##### 21427#       发表于 2026-11-27 17:49
+
+google的审查嘛，我就这么说，我知道一个方法可以稳定的给国区账号开antigravity权限<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zxc786  
+##### 21428#       发表于 2026-11-27 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559288&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-11-27 17:47</a>
+
+Google, 你们根本不用怕它会主动识别你是不是中国人
+
+它的 YouTube 上面，你随便选一个国家，收益都可以打到 ...</blockquote>
+识别成拆尼斯会用不了AGY。
+
+
+*****
+
+####  needagf  
+##### 21429#       发表于 2026-11-27 17:53
+
+看了x上还多人刷不到半价，美区的看不到，日区的是部分看不到。
+
+之前我的老用户不让买半价，新用户现在看不到半价。我真是佛了。
+

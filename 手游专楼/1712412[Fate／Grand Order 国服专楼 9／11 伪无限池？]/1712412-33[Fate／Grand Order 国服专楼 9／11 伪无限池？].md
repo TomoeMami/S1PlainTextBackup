@@ -262,3 +262,47 @@ MuMu-20261126-174910-465.jpg
 是29块，连个10连都不够</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">术冠起码能刷出几百石是吧
 
+
+*****
+
+####  khxooo  
+##### 48356#       发表于 2026-11-27 17:50
+
+数了数，10/11的48个，11/12的10个，12/13的2个，还有40个梦火，更何况一堆的6羁绊，8羁绊的，这才是我真正底气所在<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+MuMu-20261127-173423-225.jpg
+(519.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 17:47 上传
+
+<img src="https://img.stage1st.com/forum/202611/27/174755eyer77vsmqwweryi.jpg" referrerpolicy="no-referrer">
+
+MuMu-20261127-173414-531.jpg
+(513.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 17:47 上传
+
+<img src="https://img.stage1st.com/forum/202611/27/174755fj7kjjy2fpj1cfjn.jpg" referrerpolicy="no-referrer">
+
+MuMu-20261127-173429-769.jpg
+(502.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 17:47 上传
+
+<img src="https://img.stage1st.com/forum/202611/27/174755q1c7ugdla7hggd27.jpg" referrerpolicy="no-referrer">
+
+MuMu-20261127-174907-685.jpg
+(286.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 17:47 上传
+
+<img src="https://img.stage1st.com/forum/202611/27/174756xnjmdmmtmwezwecy.jpg" referrerpolicy="no-referrer">
+
