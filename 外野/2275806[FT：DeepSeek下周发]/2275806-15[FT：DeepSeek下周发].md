@@ -8131,3 +8131,23 @@ antigravity
 
 什么时候才有新用户哈基咪pro的99刀包年，我现在看还是199刀，是不是要等到美国时间27号？
 
+
+*****
+
+####  jinyu19922011  
+##### 21384#       发表于 2026-11-27 09:20
+
+大模型时代， 不要包年！
+
+
+*****
+
+####  辞冬  
+##### 21385#       发表于 2026-11-27 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556556&amp;ptid=2275806" target="_blank">fat 发表于 2026-11-27 08:23</a>
+目前订阅哈基米的安全用法只有：
+antigravity
+官方 APP 和网页</blockquote>
+还有ai studio
+
