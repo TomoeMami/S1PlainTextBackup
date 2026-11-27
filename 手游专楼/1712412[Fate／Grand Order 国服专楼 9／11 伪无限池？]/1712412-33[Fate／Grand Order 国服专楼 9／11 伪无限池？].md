@@ -209,3 +209,14 @@ MuMu-20261126-174910-465.jpg
 
 比如月光矿坑，可以掉月石和八连双晶，但是只有月石是必掉的。
 
+
+*****
+
+####  qixinno1  
+##### 48351#       发表于 2026-11-27 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554771&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-11-26 17:49</a>
+
+好了，这次大号全图鉴四星了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你冠呆准备氪服苦难吗
+

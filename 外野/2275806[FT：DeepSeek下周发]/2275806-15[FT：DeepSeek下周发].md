@@ -8403,3 +8403,21 @@ Sol 6.2给了非常详细的Goal/Harness约束，我还时不时确认下流程�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  神必迷你龙  
+##### 21410#       发表于 2026-11-27 16:03
+
+已购入gemini pro，跟codex和ds真不熟了
+
+
+*****
+
+####  fat  
+##### 21411#       发表于 2026-11-27 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70558726&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-11-27 16:03</a>
+已购入gemini pro，跟codex和ds真不熟了</blockquote>
+新用户的优惠方案有了吗？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
