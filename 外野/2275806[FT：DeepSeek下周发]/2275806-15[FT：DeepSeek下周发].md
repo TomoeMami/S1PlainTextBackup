@@ -9068,3 +9068,30 @@ O畜说为了chat特调了，有点gemini3.1pro那味儿了
 今天让 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也许困在上下文缓存里了，换个环境等于换个脑子一下子通了
 
+
+*****
+
+####  StrangerJ  
+##### 21468#       发表于 2026-11-28 01:01
+
+咨询下漏油，用gemini做大型代码项目最好还是用反重力吗？还是pi之类的体验会更好？
+准备先用用gemini看能不能替代astra
+
+—— 来自 OPPO PKU110, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  moekyo  
+##### 21469#       发表于 2026-11-28 01:05
+
+Pi 移除了这个遥测，不会是因为最近很火的那个 t3 code 遥测的事情吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202611/28/010423ml2qqh2u2ntzhyhf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (53.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 01:04 上传
+
