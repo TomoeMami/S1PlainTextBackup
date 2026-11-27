@@ -1666,3 +1666,19 @@ for real?</blockquote>
 
 R星能不能直接收编啊？PC移植工作是不是可以省不少钱<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasdfghjkl  
+##### 162#       发表于 2026-11-27 10:49
+
+尊嘟假嘟<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SergeGlenn  
+##### 163#         楼主| 发表于 2026-11-27 10:55
+
+说的就是这种消息，没玩到手根本不能信，我现在一个能稳到30帧图形功能基本正常的都没下到，也不说4K了，2K就行
+
