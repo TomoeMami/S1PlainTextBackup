@@ -8670,3 +8670,31 @@ compute use居然还是codex的强项？
 
 其次，两者周额度应该是相同的，但是 gemini 5 小时额度给得特别少。我现在只跑了几个定时任务， 5 小时额度就用了 27%，，但周额度才用了 2%，所以只够用来临时应一下急。
 
+
+*****
+
+####  omnitoken  
+##### 21435#       发表于 2026-11-27 19:11
+
+据说google 给ultra 订阅开官方 pi agent支持了
+
+*****
+
+####  warlock228  
+##### 21436#       发表于 2026-11-27 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559170&amp;ptid=2275806" target="_blank">matthewsteel 发表于 2026-11-27 17:20</a>
+支付宝上的pockyt的chatgpt的gift card已经缺货了还行</blockquote>
+区别不大，果机订阅还是要走果子余额支付
+
+
+*****
+
+####  神必迷你龙  
+##### 21437#       发表于 2026-11-27 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70558750&amp;ptid=2275806" target="_blank">fat 发表于 2026-11-27 16:06</a>
+
+新用户的优惠方案有了吗？    Re:Source</blockquote>
+刷到有才敢买的
+
