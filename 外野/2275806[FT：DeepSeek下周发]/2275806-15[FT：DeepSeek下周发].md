@@ -8938,3 +8938,16 @@ O畜说为了chat特调了，有点gemini3.1pro那味儿了
 
 — from motorola XT2603-1, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  xsummer  
+##### 21458#       发表于 2026-11-27 22:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70554580&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-26 17:11</a>
+
+惨了 16年谷歌号发了两封转地区的信都被驳回给我根深蒂固了吗
+
+谷大善人给个机会吧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我的号也不知道何时为何绑在了台湾，好几年没理了。前几天发了2次转区申请也都给我驳了。今天又发了一次，再不行就算了……
+
