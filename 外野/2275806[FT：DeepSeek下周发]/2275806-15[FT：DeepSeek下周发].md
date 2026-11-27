@@ -8188,3 +8188,40 @@ GPT这方面属实毛病，我在自己linux虚拟机上调研一个root提权�
 
 但GPT无论如何做出来的页面都只能查看，不能下发修改请求，斗智斗勇多轮全部以安全原因给我拒绝了
 
+
+*****
+
+####  辞冬  
+##### 21390#       发表于 2026-11-27 11:09
+
+Gemini黑五还行吧，99刀12个月，就当买5送7呗。关键是沟槽谷歌不给我优惠<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  紧那罗  
+##### 21391#       发表于 2026-11-27 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556561&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-27 08:27</a>
+有没有其他好选择，比如我在看华硕的ProArt创16之类，也是推便携性和AI部署的，但我看测评下评论说不如加 ...</blockquote>
+前面说过了，LLM也不是延迟敏感类的应用，本地笔记本跑又热又吵，真要私有化部署也是Macstudio RTX Spark或者4090/5090这些更好。
+
+
+*****
+
+####  heemoon  
+##### 21392#       发表于 2026-11-27 11:14
+
+99刀包年还要什么自行车<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紧那罗  
+##### 21393#       发表于 2026-11-27 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70557012&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-27 10:03</a>
+我是被谷歌定死在国内了想开没得开，不愿开个新号因为有别的服务可用，算球
+
+ ...</blockquote>
+开个新号家庭组共享，好像权益基本都能吃到吧
+
