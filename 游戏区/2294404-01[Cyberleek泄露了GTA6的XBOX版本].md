@@ -1653,3 +1653,16 @@ for real?
 
 <img src="https://img.stage1st.com/forum/202611/27/103746ixwo9hf7rjej1hzm.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  trow233  
+##### 161#       发表于 2026-11-27 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70557160&amp;ptid=2294404" target="_blank">死神只爱吃苹果 发表于 2026-11-27 10:37</a>
+
+for real?</blockquote>
+等到AI搞出个比较完善的版本
+
+R星能不能直接收编啊？PC移植工作是不是可以省不少钱<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
