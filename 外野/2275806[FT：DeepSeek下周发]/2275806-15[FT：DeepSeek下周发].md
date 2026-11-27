@@ -8175,3 +8175,16 @@ antigravity
 
 我是被谷歌定死在国内了想开没得开，不愿开个新号因为有别的服务可用，算球
 
+
+*****
+
+####  nekomimimisuzu  
+##### 21389#       发表于 2026-11-27 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556169&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-11-27 00:23</a>
+
+GPT和codex的安全审查现在搞屁啊。6.2sol和astra，我让它绕过启动器给我打开二游，提示不行。捏麻麻地 ...</blockquote>
+GPT这方面属实毛病，我在自己linux虚拟机上调研一个root提权的玩意，用大肥鱼已经把核心东西做出来了。为了演示效果，想用GPT搞个前端页面展示有哪些权限，并且能动态下发修改请求由大肥鱼那个模块来完成落地。
+
+但GPT无论如何做出来的页面都只能查看，不能下发修改请求，斗智斗勇多轮全部以安全原因给我拒绝了
+

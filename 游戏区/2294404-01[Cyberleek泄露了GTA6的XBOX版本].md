@@ -1617,3 +1617,13 @@ R星怎么都会急，这个是挡他财路的事情
 
 反正现在AI神力也没法管住，等什么时候再平衡了就知道了
 
+
+*****
+
+####  ArowRocher  
+##### 159#       发表于 2026-11-27 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556672&amp;ptid=2294404" target="_blank">WhiteGlint 发表于 2026-11-27 08:56</a>
+第一次接触最近热门的recomp项目，昨天试了一下王泪的recomp震惊瘫坐了，怎么DLSS和HDR都有，甚至手柄图 ...</blockquote>
+时之笛都能支持dualsense的手柄喇叭了，还分音效的，AI真是太神奇(太闲)了
+

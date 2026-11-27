@@ -14989,3 +14989,13 @@ sry，我理解什么意思了，感谢
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第三部来自盛托利翁的救援请求无法触发咋办,已经第四区分了,跑到欧罗拉分店门口啥都没触发,欧罗拉神殿本身早就重建好了
 
+
+*****
+
+####  沙发果冻  
+##### 8782#       发表于 2026-11-27 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556903&amp;ptid=2261859" target="_blank">alex2092 发表于 2026-11-27 09:41</a>
+第三部来自盛托利翁的救援请求无法触发咋办,已经第四区分了,跑到欧罗拉分店门口啥都没触发,欧罗拉神殿本身 ...</blockquote>
+什么叫无法触发，这任务不是第二分区一开始就有的么，没这任务欧若拉怎么来，会不会是你已经完成了
+
