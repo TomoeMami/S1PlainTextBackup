@@ -306,3 +306,11 @@ MuMu-20261127-174907-685.jpg
 
 <img src="https://img.stage1st.com/forum/202611/27/174756xnjmdmmtmwezwecy.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  霄度天  
+##### 48357#       发表于 2026-11-27 18:02
+
+每日单抽出了个怖军，虽然是比较新的卡，但是一来枪阶本来就区，二来这两三年膨胀得好快，按当时评价其实还可以的现在感觉也是挺菜的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

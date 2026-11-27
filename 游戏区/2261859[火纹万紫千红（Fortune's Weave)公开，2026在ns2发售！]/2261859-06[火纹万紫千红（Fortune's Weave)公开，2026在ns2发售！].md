@@ -15065,3 +15065,14 @@ sry，我理解什么意思了，感谢
 但是吧，除开巴西初音，感觉真没其他角色需要合线培养，都是走单一路线就能养好，合线后补的那点大多没啥 ...</blockquote>
 确实 像巴西初音这么适合融合的不多 多数是单线就能很好或者多线也救不回来的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alex2092  
+##### 8790#       发表于 2026-11-27 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70557028&amp;ptid=2261859" target="_blank">沙发果冻 发表于 2026-11-27 10:09</a>
+
+什么叫无法触发，这任务不是第二分区一开始就有的么，没这任务欧若拉怎么来，会不会是你已经完成了 ...</blockquote>
+我也不清楚,攻略上都说是到城内分殿门口就自动触发,但我根本没有触发,且目前欧罗拉神殿在地图上还打红叉(已复原),神殿和分殿内都只有一个神官,根本没见到欧罗拉
+
