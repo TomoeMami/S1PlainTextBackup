@@ -9165,3 +9165,15 @@ OpenCode 的第三方分支 Shuvcode 虽然代码里也接上了 Solstice，实�
 之前那些靠逆向抓包和共享凭据撑起来的野路子插件，后面基本走不通了。</blockquote>
 按照经验，后面大概会慢慢下放给pro的。
 
+
+*****
+
+####  四氧化三铅  
+##### 21474#       发表于 2026-11-28 01:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70560485&amp;ptid=2275806" target="_blank">莱茵哈鲁特 发表于 2026-11-28 00:01</a>
+这么激进，千问官方直接换头像了</blockquote>
+别看官方收编二次元流量吃的欢，实际最后还的看模型能力说话，不要求顶尖但起码的跟上大部队的水平，否则这份流量转眼就变成不务正业只搞营销的帽子扣过来了。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
