@@ -1690,3 +1690,47 @@ R星能不能直接收编啊？PC移植工作是不是可以省不少钱<img src
 
 老区长说8G显存的显卡进游戏最高1-2fps,我觉得我不用试了
 
+
+*****
+
+####  千秋难诉  
+##### 165#       发表于 2026-11-27 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70557331&amp;ptid=2294404" target="_blank">passgan 发表于 2026-11-27 11:08</a>
+
+老区长说8G显存的显卡进游戏最高1-2fps,我觉得我不用试了</blockquote>
+美国贴吧看到的1660 16g内存 10400F的测试了，大概4-5帧
+
+假以时日低配玩肯定是玩的，但肯定不是现在
+
+
+*****
+
+####  千秋难诉  
+##### 166#       发表于 2026-11-27 11:40
+
+同样开船场景下，9800 5070 32g能达到15-25帧
+
+*****
+
+####  wzy200912345  
+##### 167#       发表于 2026-11-27 11:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天比较安静，claude vibecoding天才少年高中生可能真都给拉去过感恩节了
+
+
+*****
+
+####  千秋难诉  
+##### 168#       发表于 2026-11-27 11:43
+
+3050 9-10帧
+
+<img src="https://img.stage1st.com/forum/202611/27/114336qbgbrnmgva2vnlzn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 11:43 上传
+
