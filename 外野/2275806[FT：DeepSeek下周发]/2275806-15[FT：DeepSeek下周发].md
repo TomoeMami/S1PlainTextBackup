@@ -8847,3 +8847,15 @@ https://mp.weixin.qq.com/s/Cx4glqRTxpIbUv6MiAA-9w
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈基米的优惠怎么像抽卡一样X上面现在也是一片哀嚎
 
+
+*****
+
+####  lactone  
+##### 21450#       发表于 2026-11-27 20:36
+
+我觉得ai搞数学可能需要超长上下文
+
+我们能用到的这个上下文规模太短了，智力可能反而次要
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
