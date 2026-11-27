@@ -8600,3 +8600,11 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 https://queens-domain.pure-data.wiki/zh-Hans/checklist/#by=items
 
+
+*****
+
+####  28201  
+##### 672#       发表于 2026-11-27 17:03
+
+城堡记忆中没什么难度，导弹能解决大部分铁皮，喷血飞鱼也是一发带走。三个小boss也不难，甚至还不如知识塔那个。关键还是够亮堂，一黑人就慌<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
