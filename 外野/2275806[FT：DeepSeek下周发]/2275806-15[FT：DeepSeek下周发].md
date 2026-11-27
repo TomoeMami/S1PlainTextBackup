@@ -8902,3 +8902,28 @@ O畜说为了chat特调了，有点gemini3.1pro那味儿了
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  陈八尺  
+##### 21455#       发表于 2026-11-27 22:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559739&amp;ptid=2275806" target="_blank">星野あさみ 发表于 2026-11-27 20:07</a>
+
+怎么到现在还是刷不出$99/yr的哈基米AI Pro 
+
+已经是美区账户了，之前也没开过One的订阅 ...</blockquote>
+完了，先充值再转pro的套路今天下午四点后正式失效<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  warlock228  
+##### 21456#       发表于 2026-11-27 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70560008&amp;ptid=2275806" target="_blank">一牧月 发表于 2026-11-27 21:34</a>
+
+O畜说为了chat特调了，有点gemini3.1pro那味儿了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+更新前就试过，叮咚鸡他要联网搜才答得出，而且回答是解释梗不是接梗，你说的对但是这个是无论如何都接不上原神的
+
