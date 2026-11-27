@@ -1588,3 +1588,14 @@ https://imgur.com/fKi65zp
 把github地址扔给ai，ai会帮你全弄好</blockquote>
 第一次接触最近热门的recomp项目，昨天试了一下王泪的recomp震惊瘫坐了，怎么DLSS和HDR都有，甚至手柄图标都可以换成PS的
 
+
+*****
+
+####  neoaska  
+##### 157#       发表于 2026-11-27 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556627&amp;ptid=2294404" target="_blank">古畑任三郎2015 发表于 2026-11-27 08:46</a>
+
+那么，有mac版吗？我有一个用mac打游戏的朋友</blockquote>
+MAC玩GTA6就先别指望了吧，差距还是比较大的，不如开心地玩玩NS2/NS移植游戏，比如火纹万缕千丝。我这两天刚许愿让WORKBUDDY+DEEPSEEK把模拟器版的MOD移植到NX NATIVE编译的MAC版了，MAC版也能调整成长倍率等等以及增加手动存档位了
+
