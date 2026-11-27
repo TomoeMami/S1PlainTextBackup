@@ -15054,3 +15054,14 @@ sry，我理解什么意思了，感谢
 加点太随机了，上马也只能补补弱势属性，我在重玩凯伊线，给妮涅上战车补力量，给巴西初音上天马补魔防，差 ...</blockquote>
 补啥魔防啊，圣天马的技能先攻，速度不够就蹭神将学个神速。法师出手前先戳死对面就是了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上飞马啥都不如速度好使。魔防够用就成，别被对面雷暴秒了就成。初音是血牛，基本也不会被秒。
 
+
+*****
+
+####  maojiashu  
+##### 8789#       发表于 2026-11-27 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70557867&amp;ptid=2261859" target="_blank">沙发果冻 发表于 2026-11-27 12:56</a>
+
+但是吧，除开巴西初音，感觉真没其他角色需要合线培养，都是走单一路线就能养好，合线后补的那点大多没啥 ...</blockquote>
+确实 像巴西初音这么适合融合的不多 多数是单线就能很好或者多线也救不回来的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
