@@ -8622,3 +8622,39 @@ Google, 你们根本不用怕它会主动识别你是不是中国人
 
 之前我的老用户不让买半价，新用户现在看不到半价。我真是佛了。
 
+
+*****
+
+####  紧那罗  
+##### 21430#       发表于 2026-11-27 18:10
+
+compute use居然还是codex的强项？
+不说我都没注意到AGY没这个，但是我让AGY给我查电脑问题啥啥啥的好像也没啥障碍
+
+
+*****
+
+####  一牧月  
+##### 21431#       发表于 2026-11-27 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559302&amp;ptid=2275806" target="_blank">zxc786 发表于 2026-11-27 17:49</a>
+识别成拆尼斯会用不了AGY。</blockquote>
+写个小作文大多数时候就可以转出去了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  scikirbypoke  
+##### 21432#       发表于 2026-11-27 18:13
+
+昨天还能看到的今天就没了
+
+
+*****
+
+####  gzGaryC  
+##### 21433#       发表于 2026-11-27 18:14
+
+我下午三四点的时候还能看到五折优惠，现在想订阅发现五折优惠没了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
