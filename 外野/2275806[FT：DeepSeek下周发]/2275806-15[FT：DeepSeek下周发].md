@@ -8254,3 +8254,13 @@ Coding Tools MCP（直连，配置麻烦） 或者 Remote Desktop Commander（�
 
 对我来说google drive空间是刚需，但现在完全不给纯空间的套餐，必须绑定ai。就当ai服务是白送的
 
+
+*****
+
+####  fat  
+##### 21397#       发表于 2026-11-27 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70557671&amp;ptid=2275806" target="_blank">赤星ビスコ 发表于 2026-11-27 12:07</a>
+对我来说google drive空间是刚需，但现在完全不给纯空间的套餐，必须绑定ai。就当ai服务是白送的 ...</blockquote>
+drive 能不能直连的？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

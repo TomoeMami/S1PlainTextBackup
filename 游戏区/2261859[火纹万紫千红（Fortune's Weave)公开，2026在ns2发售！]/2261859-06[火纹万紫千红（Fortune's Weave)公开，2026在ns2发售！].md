@@ -15034,3 +15034,13 @@ sry，我理解什么意思了，感谢
 
 女王丢石头就没有不动架势被动效果了感觉挺亏的吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沙发果冻  
+##### 8787#       发表于 2026-11-27 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70557475&amp;ptid=2261859" target="_blank">maojiashu 发表于 2026-11-27 11:29</a>
+可不鸡肋 尤其是像巴西初音这样的 如果你不凹点培养一次要么力烂要么速烂 只需要在迪线和蕾达线当主力各 ...</blockquote>
+但是吧，除开巴西初音，感觉真没其他角色需要合线培养，都是走单一路线就能养好，合线后补的那点大多没啥用
+
