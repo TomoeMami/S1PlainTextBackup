@@ -8817,3 +8817,25 @@ x上面说哈基米在日本的广告力度是御三家里最高的，美国人�
 要么就是折腾学生优惠25折4年，每年审一次学生资格 ...</blockquote>
 新用户25折怎么稳定出啊
 
+
+*****
+
+####  中国人  
+##### 21447#       发表于 2026-11-27 20:04
+
+https://mp.weixin.qq.com/s/Cx4glqRTxpIbUv6MiAA-9w
+
+冯骥的思考，写得挺好的，感觉人类真的快要到一个岔路口了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  星野あさみ  
+##### 21448#       发表于 2026-11-27 20:07
+
+怎么到现在还是刷不出$99/yr的哈基米AI Pro <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+已经是美区账户了，之前也没开过One的订阅
+
