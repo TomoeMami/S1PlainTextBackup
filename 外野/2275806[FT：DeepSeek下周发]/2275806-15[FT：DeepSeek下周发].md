@@ -9095,3 +9095,24 @@ Pi 移除了这个遥测，不会是因为最近很火的那个 t3 code 遥测�
 
 2026-11-28 01:04 上传
 
+
+*****
+
+####  spaceblue  
+##### 21470#       发表于 2026-11-28 01:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70560623&amp;ptid=2275806" target="_blank">moekyo 发表于 2026-11-28 01:05</a>
+
+Pi 移除了这个遥测，不会是因为最近很火的那个 t3 code 遥测的事情吧</blockquote>
+PI可以用gemini ultra订阅了
+
+*****
+
+####  moekyo  
+##### 21471#       发表于 2026-11-28 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70560634&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-11-28 01:09</a>
+
+PI可以用gemini ultra订阅了</blockquote>
+和我无瓜啊，我只是贫穷的 Pro 用户<img src="https://static.stage1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
