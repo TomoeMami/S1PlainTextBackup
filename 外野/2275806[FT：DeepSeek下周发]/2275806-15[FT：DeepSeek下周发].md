@@ -8805,3 +8805,15 @@ LLM agent时代，是可以让工具习惯你（真·变成你的形状），而
 不是，我的时间线上怎么出现了日本人真的信了最近有很多日本人在支持反重力和 Gemini 啊 ...</blockquote>
 x上面说哈基米在日本的广告力度是御三家里最高的，美国人说问问ai他掏出来多半是gpt 日本人说问问ai掏出来的就是哈基米
 
+
+*****
+
+####  蜇灵  
+##### 21446#       发表于 2026-11-27 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559151&amp;ptid=2275806" target="_blank">andychen 发表于 2026-11-27 17:16</a>
+日区新用户是25折三个月，我的号都是这个套餐
+
+要么就是折腾学生优惠25折4年，每年审一次学生资格 ...</blockquote>
+新用户25折怎么稳定出啊
+
