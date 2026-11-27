@@ -8103,3 +8103,31 @@ antigravity
 有没有其他好选择，比如我在看华硕的ProArt创16之类，也是推便携性和AI部署的，但我看测评下评论说不如加 ...</blockquote>
 你要用笔记本直接跑LLM那就只有mac了，起码卖二手残值高点<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  warlock228  
+##### 21381#       发表于 2026-11-27 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556559&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-11-27 08:25</a>
+
+大模型原来真的会打错别字。</blockquote>
+正常的，因为基底就是猜字
+
+
+*****
+
+####  Kazuhira  
+##### 21382#       发表于 2026-11-27 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556175&amp;ptid=2275806" target="_blank">宅男的爱 发表于 2026-11-27 00:25</a>
+为啥你的DS思考是中文的？</blockquote>
+用的久了其实都会中英来回换思维链
+
+*****
+
+####  nagbirdren  
+##### 21383#       发表于 2026-11-27 09:17
+
+什么时候才有新用户哈基咪pro的99刀包年，我现在看还是199刀，是不是要等到美国时间27号？
+
