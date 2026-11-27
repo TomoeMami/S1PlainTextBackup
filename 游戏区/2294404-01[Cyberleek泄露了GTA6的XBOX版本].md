@@ -1599,3 +1599,21 @@ https://imgur.com/fKi65zp
 那么，有mac版吗？我有一个用mac打游戏的朋友</blockquote>
 MAC玩GTA6就先别指望了吧，差距还是比较大的，不如开心地玩玩NS2/NS移植游戏，比如火纹万缕千丝。我这两天刚许愿让WORKBUDDY+DEEPSEEK把模拟器版的MOD移植到NX NATIVE编译的MAC版了，MAC版也能调整成长倍率等等以及增加手动存档位了
 
+
+*****
+
+####  clyde-wang  
+##### 158#       发表于 2026-11-27 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556623&amp;ptid=2294404" target="_blank">fei狗 发表于 2026-11-27 08:46</a>
+所以r星急什么呢？
+
+—— 来自 HUAWEI LMR-AL10, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+R星怎么都会急，这个是挡他财路的事情
+
+还是那句话，会玩AI反编译或者模拟器的为正版付费的意愿就很少了，从厂家角度可能就是潜在客户流失吧
+
+不过玩破解的又喜欢跳脸嘲讽的居多，也会恶心一下那些付费正版玩家。
+
+反正现在AI神力也没法管住，等什么时候再平衡了就知道了
+
