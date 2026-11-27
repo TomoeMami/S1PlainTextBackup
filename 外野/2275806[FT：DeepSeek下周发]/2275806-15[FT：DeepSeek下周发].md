@@ -8698,3 +8698,43 @@ compute use居然还是codex的强项？
 新用户的优惠方案有了吗？    Re:Source</blockquote>
 刷到有才敢买的
 
+
+*****
+
+####  MW1314  
+##### 21438#       发表于 2026-11-27 19:20
+
+借着阿里发鸡蛋的机会用了qoder和hunger G（下称HG），小评一下：
+
+估计免费的缘故，蹬的人多，token效率是挺低的，体感dsf 1017最多1小时能完成的工作量，它足足跑了差不多12小时（吃人嘴短就不吐槽这个了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）。
+
+过程中发现HG比dsf更喜欢做自检自查以确保交付可用，但为此额外增加的token开销就见仁见智了；我不懂为什么开了个国际版账号（估计走了代理，一开始让我用谷歌或GitHub账号我还楞了一下，然后我又下意识地丝滑注册完了才反应过来，布对啊，这不是阿里的吗233），账单就按美元计价了，dsf峰价最多￥20的这个1小时工作量，HG 12小时给我搞了$60的账单，单论效费比的话，有点难以接受<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+我不知道6000 credits（积分） 在qoder系统里算成rmb要多少，usd的话应该就是$1=100点了
+
+<img src="https://img.stage1st.com/forum/202611/27/180430xzoio6zro6yfujj6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 18:04 上传
+
+不过在另外的一些小修小补工作中，HG表现出了对简单具体指令更为周到细心的自主性，并且一次就完成可靠交付，在小范围的代码工作上，是个one-shot的好苗子。
+
+——————
+
+然后这过程中发现两个qoder的小雷：
+
+1. 来源不明的积分消费：就算使用HG不计费，但联网搜索、上下文压缩等非主模型行动，“会使用 Qoder 程序默认的 Auto 档模型，或路由到其他计费模型去执行”（←我要求查明消费来源后qoder的自述），这部分消费会默默的记在账单里，按标准$20/月的pro订阅给2000积分算，都不说那雷霆12小时直接倒欠4000，光是这12小时过程中产生了约70次非主力工作的 Auto 调用就花了60左右积分，plan的这点积分会不会不够看<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+并且实测默认模型设置为HG了，不明来源的积分消费仍会随着继续调用HG而增长（执行了上文提到的“另外一些小修小补工作”）。
+
+2. 有点吓人的GUI表现：在A会话某一次未知原因的工具执行失败后，任务中断，提示用户点“重试”（独立的一个按钮，不是回旋箭头的“重新从头输出”），我点了之后，它表现成直接清空了最近一次用户发送消息后的所有已执行内容小结，变成看起来像是“重新开始执行用户最新交代的内容”，因为它在中断之前已经有实际产出了，吓得我赶紧插一句“你先检查已有结果，不要从头做”，它就幽幽的飘来一句“不是从头丢失：刚才失败发生在“正式写入前”的索引版本检查，草稿和正式数据都还没有被移动。……”，然后我另起一个B会话让它查A会话当时什么情况，B说是当时A正好在上压缩上下文balabala，总之上下文其实没丢balabla，其他我也听得云里雾里，总之虚惊一场，但骇死我力<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+——————
+
+最后感叹一句，用惯简洁直白的pi和dsh后，确实不习惯大厂客户端里，那些为了传统（非专业）客户群体而做的很多“预设性构建”了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+LLM agent时代，是可以让工具习惯你（真·变成你的形状），而不是要先读800页说明书的时代力<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
