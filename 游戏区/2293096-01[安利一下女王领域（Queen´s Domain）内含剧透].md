@@ -8575,3 +8575,18 @@ mod打个怪物不自动刷新和武器经验增加倍率会好很多，探索�
 
 —— 来自 Xiaomi 24129PN74C, Android 17, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  MTDlnZc  
+##### 670#       发表于 2026-11-27 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70558846&amp;ptid=2293096" target="_blank">dookiee 发表于 2026-11-27 16:21</a>
+
+找蛋太折磨了我草，需要一共50个全部找齐吗？还是全收集不止50个？餐券溢出十几张了都，还是跟结局3和解吧 ...</blockquote>
+蛋总共就50个，需要全部找齐。
+
+蛋本身会发光，已经是收集品里除了溢出快30个的餐券外，最好找的那个了。结局4的头骨，全成就的宝藏和暗门都是更难找。
+
+不行就开mod或都和解吧，后面的体验只会更折磨。
+

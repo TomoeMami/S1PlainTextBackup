@@ -1793,3 +1793,16 @@ R星能不能直接收编啊？PC移植工作是不是可以省不少钱<img src
 
 主机每次破解声量最大的就是任天堂，因为任天堂的游戏不破解就只能在任天堂主机上玩，这就是独占的魅力
 
+
+*****
+
+####  罐子  
+##### 175#       发表于 2026-11-27 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70558562&amp;ptid=2294404" target="_blank">多线程之真理解 发表于 2026-11-27 15:34</a>
+
+所以最后会是用Xbox版本还是PS5版本为基础进行破解模拟？挺好奇为啥Xbox泄露的更早，但PS版本的进度基本持 ...</blockquote>
+xbox有啥好破，游戏基本都有pc版
+
+主机独占才有破解的价值<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

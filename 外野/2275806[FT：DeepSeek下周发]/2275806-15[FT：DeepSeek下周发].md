@@ -8429,3 +8429,25 @@ Sol 6.2给了非常详细的Goal/Harness约束，我还时不时确认下流程�
 
 目前看不到优惠方案，只有199刀的。昨天之前能看到99刀的优惠，买的时候却提示没资格。现在好了，连这个优惠也看不到了。
 
+
+*****
+
+####  moekyo  
+##### 21413#       发表于 2026-11-27 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70558907&amp;ptid=2275806" target="_blank">needagf 发表于 2026-11-27 16:30</a>
+
+目前看不到优惠方案，只有199刀的。昨天之前能看到99刀的优惠，买的时候却提示没资格。现在好了，连这个优 ...</blockquote>
+你看看是不是你的号之前在别的区买过，要把那些非美区的支付信息删了，现在应该是只有美区才有
+
+
+*****
+
+####  cocoaghost  
+##### 21414#       发表于 2026-11-27 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70558907&amp;ptid=2275806" target="_blank">needagf 发表于 2026-11-27 16:30</a>
+
+目前看不到优惠方案，只有199刀的。昨天之前能看到99刀的优惠，买的时候却提示没资格。现在好了，连这个优 ...</blockquote>
+不是新账户吧，老账户的黑五半价是到26截止？
+
