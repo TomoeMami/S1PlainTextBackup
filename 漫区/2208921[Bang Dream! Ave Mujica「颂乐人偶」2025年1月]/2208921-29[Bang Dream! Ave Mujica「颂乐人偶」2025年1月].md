@@ -1460,3 +1460,11 @@ Blu-ray附生产限定版将收录Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- D
 
        [https://bang-dream.com/events/evanescence_avemujica/](https://bang-dream.com/events/evanescence_avemujica/)
 
+
+*****
+
+####  mono  
+##### 42236#       发表于 2026-11-27 23:32
+
+新邦这么厉害吗 都上十字架了 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
