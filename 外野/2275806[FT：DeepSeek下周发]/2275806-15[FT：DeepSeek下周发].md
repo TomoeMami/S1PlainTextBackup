@@ -8867,3 +8867,16 @@ https://mp.weixin.qq.com/s/Cx4glqRTxpIbUv6MiAA-9w
 
 阿三的推文下被狂骂，好像阿三删掉了新用户优惠的语句。
 
+
+*****
+
+####  fat  
+##### 21452#       发表于 2026-11-27 21:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559739&amp;ptid=2275806" target="_blank">星野あさみ 发表于 2026-11-27 20:07</a>
+
+怎么到现在还是刷不出$99/yr的哈基米AI Pro 
+
+已经是美区账户了，之前也没开过One的订阅 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我25年10月~26年4月开过one pro。目前也没刷出优惠信息。
+
