@@ -1536,3 +1536,32 @@ https://imgur.com/fKi65zp
 并非啊，r星一直是主机优先的，毕竟优先成这样也就30帧。其次买两遍的人太少了，根本够不成主机优先策略 ...</blockquote>
 按你的说法那不更好了，pc 破解 根本不会影响 GTA 呀<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就该狠狠的破，更不用同情了
 
+
+*****
+
+####  莉可厨  
+##### 152#       发表于 2026-11-27 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70545714&amp;ptid=2294404" target="_blank">莉可厨 发表于 2026-11-24 11:25</a>
+这也太快了，还以为进游戏要一周，能玩要一个月这样</blockquote>
+看起来帧数问题还要几天解决，但大概率两周内能稳定
+
+
+*****
+
+####  fei狗  
+##### 153#       发表于 2026-11-27 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556573&amp;ptid=2294404" target="_blank">clyde-wang 发表于 2026-11-27 08:32</a>
+模拟器的各种60帧也会出问题的，其实就是模拟或者AI编译成功，并没有那么多人真玩，很多人玩了一下遇到Bu ...</blockquote>
+所以r星急什么呢？
+
+—— 来自 HUAWEI LMR-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  古畑任三郎2015  
+##### 154#       发表于 2026-11-27 08:46
+
+那么，有mac版吗？我有一个用mac打游戏的朋友<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
