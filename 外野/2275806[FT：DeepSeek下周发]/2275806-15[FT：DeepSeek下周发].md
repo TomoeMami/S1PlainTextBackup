@@ -8859,3 +8859,11 @@ https://mp.weixin.qq.com/s/Cx4glqRTxpIbUv6MiAA-9w
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nagbirdren  
+##### 21451#       发表于 2026-11-27 20:48
+
+阿三的推文下被狂骂，好像阿三删掉了新用户优惠的语句。
+
