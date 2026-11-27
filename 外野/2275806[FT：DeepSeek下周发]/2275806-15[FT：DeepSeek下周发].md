@@ -8738,3 +8738,33 @@ compute use居然还是codex的强项？
 
 LLM agent时代，是可以让工具习惯你（真·变成你的形状），而不是要先读800页说明书的时代力<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  warlock228  
+##### 21439#       发表于 2026-11-27 19:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新版的chat肥龙还是能往哈基米上面靠的
+
+<img src="https://picui.ogmua.cn/s1/2026/11/27/6b09693e0b3b9.webp" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qz66618  
+##### 21440#       发表于 2026-11-27 19:30
+
+这几天DS的GitHub仓库确实更新频繁，感觉十二月份大概率要出模型了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大肥鱼  
+##### 21441#       发表于 2026-11-27 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559601&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-11-27 19:30</a>
+这几天DS的GitHub仓库确实更新频繁，感觉十二月份大概率要出模型了</blockquote>
+好事情好事情呀。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
