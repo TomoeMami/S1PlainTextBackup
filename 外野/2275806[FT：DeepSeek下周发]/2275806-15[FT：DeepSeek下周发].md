@@ -8020,3 +8020,27 @@ dsh自带统计功能
 
 注意别用magpie插件反代，去找带提示词清洗的项目
 
+
+*****
+
+####  warlock228  
+##### 21374#       发表于 2026-11-27 08:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556271&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-11-27 01:24</a>
+
+迁移到dsh上了，问一下有没有好的显示token速率小插件
+
+还有奇奇怪怪的插件各位觉得体验好的都可以推荐推荐 ...</blockquote>
+DSH本身就自带速度显示，不过想要更好看可以装个DSH-claude-style主题插件
+
+<img src="https://picui.ogmua.cn/s1/2026/11/27/6b08c8e242846.webp" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 21375#       发表于 2026-11-27 08:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70556252&amp;ptid=2275806" target="_blank">绯色日照 发表于 2026-11-27 01:10</a>
+其实就是网上案例太少，不知道苹果电脑部署ai后吐字是不是真的很慢，当然如果效果好，慢点也不是不行。。 ...</blockquote>
+不慢，就是没啥性价比<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
