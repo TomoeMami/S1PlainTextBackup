@@ -8839,3 +8839,11 @@ https://mp.weixin.qq.com/s/Cx4glqRTxpIbUv6MiAA-9w
 
 已经是美区账户了，之前也没开过One的订阅
 
+
+*****
+
+####  warlock228  
+##### 21449#       发表于 2026-11-27 20:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈基米的优惠怎么像抽卡一样X上面现在也是一片哀嚎
+
