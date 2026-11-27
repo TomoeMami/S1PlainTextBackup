@@ -1627,3 +1627,29 @@ R星怎么都会急，这个是挡他财路的事情
 第一次接触最近热门的recomp项目，昨天试了一下王泪的recomp震惊瘫坐了，怎么DLSS和HDR都有，甚至手柄图 ...</blockquote>
 时之笛都能支持dualsense的手柄喇叭了，还分音效的，AI真是太神奇(太闲)了
 
+
+*****
+
+####  死神只爱吃苹果  
+##### 160#       发表于 2026-11-27 10:37
+
+for real?
+
+屏幕截图 2026-11-27 103715.png
+(165.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 10:37 上传
+
+<img src="https://img.stage1st.com/forum/202611/27/103718fmbwdtdb200dkp0e.png" referrerpolicy="no-referrer">
+
+屏幕截图 2026-11-27 103736.png
+(880.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 10:37 上传
+
+<img src="https://img.stage1st.com/forum/202611/27/103746ixwo9hf7rjej1hzm.png" referrerpolicy="no-referrer">
+
