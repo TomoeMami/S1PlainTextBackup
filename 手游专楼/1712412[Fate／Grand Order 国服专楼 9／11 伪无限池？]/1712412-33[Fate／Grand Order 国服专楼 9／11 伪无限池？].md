@@ -220,3 +220,13 @@ MuMu-20261126-174910-465.jpg
 好了，这次大号全图鉴四星了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你冠呆准备氪服苦难吗
 
+
+*****
+
+####  khxooo  
+##### 48352#       发表于 2026-11-27 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70558760&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-11-27 16:07</a>
+你冠呆准备氪服苦难吗</blockquote>
+不可能，绝对不可能<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
