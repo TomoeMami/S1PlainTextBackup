@@ -8272,3 +8272,38 @@ drive 能不能直连的？    [Re:Source](https://stage1st.com/2b/thread-2275
 
 半价包年其实无所谓，一个月不到 50 块。主要是现在astra 有点耐蹬，重置卡都用不出去，我在想能不能换成 100 美元订阅算了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  warlock228  
+##### 21399#       发表于 2026-11-27 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70557366&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-11-27 11:14</a>
+
+开个新号家庭组共享，好像权益基本都能吃到吧</blockquote>
+新号也要时间养吧 来不及了，加上想了想年定风险也大 算了
+
+
+*****
+
+####  泰坦失足  
+##### 21400#       发表于 2026-11-27 13:11
+
+Sol 6.2给了非常详细的Goal/Harness约束，我还时不时确认下流程和当前工作。然后查看结果时候质量还是差的要死，一看最终结果再问下就发现工作流里漏了几个关键的或者用的是旧版的。还是得上Astra了吗，一上Astra那就百分比花花的往下跑。
+
+
+*****
+
+####  andychen  
+##### 21401#       发表于 2026-11-27 13:13
+
+<img src="https://img.stage1st.com/forum/202611/27/131321fsxxbc1xrcxqoco1.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7c5e9c43af1fbf97e4f99a44410b2f6c.jpeg</strong> (169.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-27 13:13 上传
+
+日本AI要雄起了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
