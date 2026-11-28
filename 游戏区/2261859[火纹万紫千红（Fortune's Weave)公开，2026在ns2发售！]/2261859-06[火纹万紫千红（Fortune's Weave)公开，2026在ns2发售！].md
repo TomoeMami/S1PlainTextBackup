@@ -15138,3 +15138,11 @@ sry，我理解什么意思了，感谢
 女 ...</blockquote>
 凯伊的青梅提前把剑和弓的熟练练到b还是可以通过舞娘再就业，毕竟两格跳舞呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灰狼  
+##### 8797#       发表于 2026-11-28 10:11
+
+这游戏第三部数值卡得死么，我理解是困难的话数值再烂也是能对付过去吧
+
