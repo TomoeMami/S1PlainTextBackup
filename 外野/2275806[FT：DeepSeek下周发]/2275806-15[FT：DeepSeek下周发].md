@@ -9418,3 +9418,26 @@ K3.1：？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">土区3折哈基米复活了 狠狠加仓
 
+
+*****
+
+####  matthewsteel  
+##### 21497#       发表于 2026-11-28 13:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559551&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-27 19:11</a>
+
+区别不大，果机订阅还是要走果子余额支付</blockquote>
+帮iphone小伙伴购买，注册没美区账号，一套下来一小时过去了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，有余额快多了。
+
+最近google注册账号也是限制的死死的。。。。。太难了
+
+
+*****
+
+####  猫🐱  
+##### 21498#       发表于 2026-11-28 13:53
+
+<blockquote>紧那罗 发表于 2026-11-28 13:39
+土区3折哈基米复活了 狠狠加仓</blockquote>
+有没有教程
+

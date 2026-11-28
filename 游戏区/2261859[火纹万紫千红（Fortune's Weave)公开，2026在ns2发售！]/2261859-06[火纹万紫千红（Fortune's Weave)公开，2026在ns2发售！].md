@@ -15202,3 +15202,52 @@ image.png
 
 <img src="https://img.stage1st.com/forum/202611/28/114136t0zzguuguqvn4c7u.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Humpy  
+##### 8802#       发表于 2026-11-28 13:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561230&amp;ptid=2261859" target="_blank">灰狼 发表于 2026-11-28 10:11</a>
+这游戏第三部数值卡得死么，我理解是困难的话数值再烂也是能对付过去吧</blockquote>
+卡得不死。
+
+甚至你培养完全不按最优解来（不养一堆剑s，优先培养自己喜欢的角色而不是对着强度榜选人培养，不刻意刷技能熟练度，转职路线和默认偏差不大，一堆关键武器装备没拿，飞兵少，法师是按纯法培养，没怎么抓坐骑之类的），也是能打的，大不了和自己和解，勤用加护这个游戏内外挂。
+
+*****
+
+####  Nez  
+##### 8803#       发表于 2026-11-28 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561079&amp;ptid=2261859" target="_blank">根正苗红 发表于 2026-11-28 09:18</a>
+
+蕾达，迪哥给你点了个赞。
+
+凯伊看了看小胖和古神，觉得有点道理。又看了看旁边的青梅和乌尔坦德大姐姐， ...</blockquote>
+青梅2格跳舞，炼铜姐指挥S移动泉水，凯线都是玩花活的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+莉莉安本质魔鸟对策卡，和小胖一样做好本职工作就行，莱桑达力速及格直接上天，不过需要补个神将的+10技
+
+
+*****
+
+####  沙发果冻  
+##### 8804#       发表于 2026-11-28 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561533&amp;ptid=2261859" target="_blank">灰狼 发表于 2026-11-28 11:46</a>
+这么看我挺好奇回头超难得怎么做，比较悲观的话大概和风花雪月一样是纯数值堆砌逼玩家也找数值解——包括 ...</blockquote>
+第三部就算不考虑因果融合，八个主角的性能都太强了，商人的圣焰技跟作弊似的，花嫁的地图炮也很离谱，还不限次数，准备好两三回合就能放一次，真要照着这种性能去设计难度么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Humpy  
+##### 8805#       发表于 2026-11-28 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561534&amp;ptid=2261859" target="_blank">trotsky 发表于 2026-11-28 11:46</a>
+莉莉安还是强的，这代技速高的没有废物，特技还给攻击和命中
+
+女王托比波拿这仨，在第一部算大爹，第三部用 ...</blockquote>
+托比亚斯如果有好好补技（因为他力量太难长歪了），他第三部用乱射仍然是强者<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+按默认的斧重甲职业走托比亚斯就会难用很多，但如果解决命中问题三连斧仍然威力可怕<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
