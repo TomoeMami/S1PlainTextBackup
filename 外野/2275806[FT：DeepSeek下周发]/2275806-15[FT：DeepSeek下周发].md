@@ -9486,3 +9486,75 @@ K3.1：？
 
 请问有什么稳定干净的魔法可用啊，我想订阅了，还是你们都是搭的**？
 
+
+*****
+
+####  神必迷你龙  
+##### 21503#       发表于 2026-11-28 16:11
+
+HY 3D3.6更新了，效果还行，前后新版和老版生成模型对比。
+
+<img src="https://img.stage1st.com/forum/202611/28/160052n8db591vnnjjjur8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 16:00 上传
+
+<img src="https://img.stage1st.com/forum/202611/28/160155lbey8cs42xolxl6w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 16:01 上传
+
+
+*****
+
+####  神必迷你龙  
+##### 21503#       发表于 2026-11-28 16:11
+
+HY 3D3.6更新了，效果还行，前后新版和老版生成模型对比。
+
+<img src="https://img.stage1st.com/forum/202611/28/160052n8db591vnnjjjur8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 16:00 上传
+
+<img src="https://img.stage1st.com/forum/202611/28/160155lbey8cs42xolxl6w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 16:01 上传
+
+
+*****
+
+####  神必迷你龙  
+##### 21503#       发表于 2026-11-28 16:11
+
+HY 3D3.6更新了，效果还行，前后新版和老版生成模型对比。
+
+<img src="https://img.stage1st.com/forum/202611/28/160052n8db591vnnjjjur8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 16:00 上传
+
+<img src="https://img.stage1st.com/forum/202611/28/160155lbey8cs42xolxl6w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 16:01 上传
+
