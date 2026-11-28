@@ -9787,3 +9787,75 @@ yes，向 Google 申请的，目前第三方都是要走 Google 审核，加入�
 
 2026-11-28 18:58 上传
 
+
+*****
+
+####  lactone  
+##### 21508#       发表于 2026-11-28 18:58
+
+大炼科学来了
+
+<img src="https://img.stage1st.com/forum/202611/28/185802iedbbrybd3ztvjo5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (160.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 18:58 上传
+
+<img src="https://img.stage1st.com/forum/202611/28/185823yoro70khvohxxvqg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (170.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 18:58 上传
+
+
+*****
+
+####  lactone  
+##### 21508#       发表于 2026-11-28 18:58
+
+大炼科学来了
+
+<img src="https://img.stage1st.com/forum/202611/28/185802iedbbrybd3ztvjo5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (160.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 18:58 上传
+
+<img src="https://img.stage1st.com/forum/202611/28/185823yoro70khvohxxvqg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (170.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 18:58 上传
+
+
+*****
+
+####  lactone  
+##### 21508#       发表于 2026-11-28 18:58
+
+大炼科学来了
+
+<img src="https://img.stage1st.com/forum/202611/28/185802iedbbrybd3ztvjo5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (160.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 18:58 上传
+
+<img src="https://img.stage1st.com/forum/202611/28/185823yoro70khvohxxvqg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (170.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 18:58 上传
+
