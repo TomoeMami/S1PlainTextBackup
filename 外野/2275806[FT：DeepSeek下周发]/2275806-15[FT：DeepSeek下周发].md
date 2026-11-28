@@ -9656,3 +9656,14 @@ yes，向 Google 申请的，目前第三方都是要走 Google 审核，加入�
 这个是官方放开的吗</blockquote>
 yes，向 Google 申请的，目前第三方都是要走 Google 审核，加入白名单才行
 
+
+*****
+
+####  moekyo  
+##### 21507#       发表于 2026-11-28 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70562294&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-11-28 17:14</a>
+
+这个是官方放开的吗</blockquote>
+yes，向 Google 申请的，目前第三方都是要走 Google 审核，加入白名单才行
+
