@@ -15146,3 +15146,15 @@ sry，我理解什么意思了，感谢
 
 这游戏第三部数值卡得死么，我理解是困难的话数值再烂也是能对付过去吧
 
+
+*****
+
+####  yangchunsiyue  
+##### 8798#       发表于 2026-11-28 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70559727&amp;ptid=2261859" target="_blank">未熟串烧 发表于 2026-11-27 20:05</a>
+打到女王线支援列表乱数法突然失效吓了一跳，查了查发现更准确的条件似乎是需要有送了礼但是还没挖的角色存 ...</blockquote>
+第三部其实可以用，要回到大厅去祭坛看支援对话，然后再回去就变了。在地图上看支援不行。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
