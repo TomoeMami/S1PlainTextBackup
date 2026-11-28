@@ -15272,3 +15272,16 @@ image.png
 莉莉安本质魔鸟对策卡，和小胖一样做好本职工作就 ...</blockquote>
 凯伊线，古神是严父，乌尔坦达是慈母<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">地图上的治疗略鸡肋，但下迷宫和非战旗战斗是真好使，**世篇最好的陪练。
 
+
+*****
+
+####  沙发果冻  
+##### 8808#       发表于 2026-11-28 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70562000&amp;ptid=2261859" target="_blank">根正苗红 发表于 2026-11-28 14:20</a>
+
+你们都拿青梅跳舞。需要两个跳舞的吗？需要两格跳舞吗？又不是范围技能。
+
+我看不如让小绿去跳舞。跳舞不好 ...</blockquote>
+蕾达跳舞太浪费，我都是让她去前线唱歌顺带砍人，boss前跳一次天女爆发输出足够了，然后再加个蓝毛转神乐，就有两个半舞娘。多人跳舞可真好玩，可以一回合启动花嫁的地图炮，一炮清一片兵感觉真爽<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
