@@ -1599,3 +1599,69 @@ Blu-ray附生产限定版将收录Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- D
 
        [https://www.creativeman.co.jp/artist/2026/12evanescence/](https://www.creativeman.co.jp/artist/2026/12evanescence/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42240#       发表于 2026-11-28 19:30
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/28/192855vlmlvd8nxdrtlbnl.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-28_19-17-51.png</strong> (547.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 19:28 上传
+
+       [https://t.bilibili.com/1275668538910048292](https://t.bilibili.com/1275668538910048292)
+
+       直播间传送门：[http://live.bilibili.com/31160604](http://live.bilibili.com/31160604)
+
+       详情请见：[https://www.bilibili.com/opus/1274213719693328385](https://www.bilibili.com/opus/1274213719693328385)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42240#       发表于 2026-11-28 19:30
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/28/192855vlmlvd8nxdrtlbnl.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-28_19-17-51.png</strong> (547.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 19:28 上传
+
+       [https://t.bilibili.com/1275668538910048292](https://t.bilibili.com/1275668538910048292)
+
+       直播间传送门：[http://live.bilibili.com/31160604](http://live.bilibili.com/31160604)
+
+       详情请见：[https://www.bilibili.com/opus/1274213719693328385](https://www.bilibili.com/opus/1274213719693328385)
+
+
+*****
+
+####  堀内爱里衣  
+##### 42241#       发表于 2026-11-28 19:32
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/28/193048ixz3uurlu9trrgor.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-28_19-23-03.png</strong> (402.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 19:30 上传
+
+       [https://x.com/bang_dream_info/status/2126632202201133119](https://x.com/bang_dream_info/status/2126632202201133119)
+
+       [https://x.com/ReReRe_TUNE/status/2126226296082772060](https://x.com/ReReRe_TUNE/status/2126226296082772060)
+
+       [https://www.youtube.com/watch?v=iX3OwPyPxII](https://www.youtube.com/watch?v=iX3OwPyPxII)
+
