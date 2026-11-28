@@ -9245,3 +9245,20 @@ HY 3d不错啊，生成的3d模型精度挺高
 
 算了，趁着jio的氢基咪没掉，大用特用吧，不作恶的阿三过于啥比了，x上全是吐槽黑五促销到当天之前，当天不促销。
 
+
+*****
+
+####  xsummer  
+##### 21481#       发表于 2026-11-28 10:01
+
+我账号区域是台湾，play商店是日本，支付资料填过日本和美国<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是买了，谷➗别找我算账，我曾经被封过好多号
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  heemoon  
+##### 21482#       发表于 2026-11-28 10:01
+
+是不是算力不够了，我昨天用neon做了一下午视频感觉有点流口水的倾向了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
