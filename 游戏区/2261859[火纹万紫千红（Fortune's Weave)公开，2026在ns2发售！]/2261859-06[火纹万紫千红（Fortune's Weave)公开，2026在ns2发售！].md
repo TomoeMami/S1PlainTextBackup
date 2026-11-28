@@ -15114,3 +15114,15 @@ sry，我理解什么意思了，感谢
 
 其实一周目盯着几条线的初始队友养就行，挖人也互相挖方便融合，加上主角三人组和八焰将刚好25人，等dlc开了再玩其他线的
 
+
+*****
+
+####  根正苗红  
+##### 8795#       发表于 2026-11-28 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70560828&amp;ptid=2261859" target="_blank">Nez 发表于 2026-11-28 06:06</a>
+其实一周目盯着几条线的初始队友养就行，挖人也互相挖方便融合，加上主角三人组和八焰将刚好25人，等dlc开 ...</blockquote>
+蕾达，迪哥给你点了个赞。
+凯伊看了看小胖和古神，又看了看旁边的青梅和乌尔坦德大姐姐，陷入了沉思。
+女王看着手底下的哼哈二将，拍了拍莉莉安的肩膀，表示不想和你说话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
