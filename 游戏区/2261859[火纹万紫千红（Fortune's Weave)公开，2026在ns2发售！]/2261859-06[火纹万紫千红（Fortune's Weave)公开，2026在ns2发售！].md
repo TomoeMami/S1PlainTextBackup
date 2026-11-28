@@ -15126,3 +15126,15 @@ sry，我理解什么意思了，感谢
 凯伊看了看小胖和古神，又看了看旁边的青梅和乌尔坦德大姐姐，陷入了沉思。
 女王看着手底下的哼哈二将，拍了拍莉莉安的肩膀，表示不想和你说话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沙发果冻  
+##### 8796#       发表于 2026-11-28 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561079&amp;ptid=2261859" target="_blank">根正苗红 发表于 2026-11-28 09:18</a>
+蕾达，迪哥给你点了个赞。
+凯伊看了看小胖和古神，又看了看旁边的青梅和乌尔坦德大姐姐，陷入了沉思。
+女 ...</blockquote>
+凯伊的青梅提前把剑和弓的熟练练到b还是可以通过舞娘再就业，毕竟两格跳舞呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
