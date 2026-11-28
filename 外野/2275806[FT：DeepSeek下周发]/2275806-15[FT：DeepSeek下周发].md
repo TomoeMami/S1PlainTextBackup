@@ -9368,3 +9368,19 @@ HY 3d不错啊，生成的3d模型精度挺高
 
 最后appstore日区21800上车了<img src="https://static.stage1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer"> 感觉好亏啊
 
+
+*****
+
+####  neptunehs  
+##### 21493#       发表于 2026-11-28 13:17
+
+ 本帖最后由 neptunehs 于 2026-11-28 13:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561766&amp;ptid=2275806" target="_blank">lactone 发表于 2026-11-28 12:57</a>
+国模在3d，文生视频都拿到sota了，文生图也是准sota</blockquote>
+只可惜就算是国模 只要能做到sota 就一定不会开源
+说不定未来真的只有ds一家坚持开源 其他只有闭源的sota跟尸体
+
+之前hy3d的免费福利比tripo好 期待如果hy现在超过了tripo的话hy也砍福利
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

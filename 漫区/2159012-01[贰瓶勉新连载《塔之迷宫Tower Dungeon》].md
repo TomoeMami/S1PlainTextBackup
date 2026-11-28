@@ -2008,3 +2008,13 @@ QQ20260321-165505.jpg
 
 —— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Mr1z  
+##### 190#       发表于 2026-11-28 13:20
+
+这部漫画给我一种很强的玩游戏的感觉，更具体来说，像是在玩儿黑魂
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
