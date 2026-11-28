@@ -9384,3 +9384,29 @@ HY 3d不错啊，生成的3d模型精度挺高
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  一牧月  
+##### 21494#       发表于 2026-11-28 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561374&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-11-28 10:59</a>
+为什么从来没听说过deepseek算力不够流口水？</blockquote>
+国模除了算力不够或者推理服务器炸了重上线有漂移之外，很少主动降智
+和谷歌o畜那种给你路由到低端模型不是一个概念
+傻逼o畜还出过给用户chat路由到5.5mini结果5.5下架以后用户chat用不了的情况，就是上个月的事
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  一牧月  
+##### 21495#       发表于 2026-11-28 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561823&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-11-28 13:17</a>
+只可惜就算是国模 只要能做到sota 就一定不会开源
+说不定未来真的只有ds一家坚持开源 其他只有闭源的sota ...</blockquote>
+K3.1：？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
