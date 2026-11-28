@@ -732,10 +732,10 @@
     "totalreply": 7117,
     "title": "[想要成为影之实力者 TV动画 2022年10月]",
     "newtitle": "[2022.10『想要成为影之实力者』 剧场动画残响篇制作决定]",
-    "lastedit": 1795861070,
+    "lastedit": 1795863180,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1993571": {
     "totalreply": 716,
@@ -8217,10 +8217,10 @@
     "update": false
   },
   "2178694": {
-    "totalreply": 2120,
+    "totalreply": 2121,
     "title": "[『机动战士高达SEED FREEDOM』请勿讨论除动画本身的相关内容]",
     "newtitle": "[『机动战士高达SEED FREEDOM』／ SEED FREEDOM 前传动画制作决定]",
-    "lastedit": 1795862661,
+    "lastedit": 1795863079,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9399,10 +9399,10 @@
     "totalreply": 48356,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1795861028,
+    "lastedit": 1795862760,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2194780": {
     "totalreply": 453,
@@ -12381,7 +12381,7 @@
     "lastedit": 1795862400,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2268807": {
     "totalreply": 512,
@@ -13071,10 +13071,10 @@
     "totalreply": 46395,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1795861864,
+    "lastedit": 1795863300,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1992785": {
     "totalreply": 447,
@@ -14675,15 +14675,6 @@
     "newtitle": "[你们说五十岁的艾达王会不会还是……]",
     "lastedit": 1794665169,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2293874": {
-    "totalreply": 62,
-    "title": "[美国AI和半导体产业基本上就完蛋了吧]",
-    "newtitle": "[美国AI和半导体产业基本上就完蛋了吧]",
-    "lastedit": 1794653405,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -16596,10 +16587,10 @@
     "update": false
   },
   "2294169": {
-    "totalreply": 53,
+    "totalreply": 54,
     "title": "[（世界首发）异度之刃2 Switch2 版本重编译（recomp）项目2.1]",
     "newtitle": "[（世界首发）异度之刃2 Switch2 版本重编译（recomp）项目 0.3.0版]",
-    "lastedit": 1795849085,
+    "lastedit": 1795863051,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16830,10 +16821,10 @@
     "update": false
   },
   "2294185": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[星之海(Sea of Stars)通关纪念]",
     "newtitle": "[星之海(Sea of Stars)通关纪念]",
-    "lastedit": 1795858975,
+    "lastedit": 1795863052,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17544,10 +17535,10 @@
     "totalreply": 59,
     "title": "[梁文锋身家攀升至 550 亿美元，成全球最富 AI 模型创始人]",
     "newtitle": "[梁文锋身家攀升至 550 亿美元，成全球最富 AI 模型创始人]",
-    "lastedit": 1795846328,
+    "lastedit": 1795863240,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2294898": {
     "totalreply": 51,
@@ -17616,10 +17607,10 @@
     "totalreply": 67,
     "title": "[【SNK格斗部年终决赛】SWC 2026专楼]",
     "newtitle": "[【SNK格斗部年终决赛】SWC 2026专楼]",
-    "lastedit": 1795862663,
+    "lastedit": 1795863240,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2163361": {
     "totalreply": 433,
@@ -17710,5 +17701,14 @@
     "category": "外野",
     "active": true,
     "update": false
+  },
+  "2294974": {
+    "totalreply": 0,
+    "title": "[这是哪家的高管嫌弃自家粉丝呢]",
+    "newtitle": "[这是哪家的高管嫌弃自家粉丝呢]",
+    "lastedit": 1795863360,
+    "category": "外野",
+    "active": true,
+    "update": true
   }
 }
