@@ -87,7 +87,7 @@
     "lastedit": 1795860660,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2041774": {
     "totalreply": 16972,
@@ -11823,7 +11823,7 @@
     "lastedit": 1795861320,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1038832": {
     "totalreply": 682,
@@ -12276,13 +12276,13 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 23971,
+    "totalreply": 23972,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「穿越甚大蘑境与你相逢」版本现已开放]",
-    "lastedit": 1795861080,
+    "lastedit": 1795861771,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2266103": {
     "totalreply": 837,
@@ -12381,7 +12381,7 @@
     "lastedit": 1795861500,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2268807": {
     "totalreply": 512,
@@ -13074,7 +13074,7 @@
     "lastedit": 1795861560,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1992785": {
     "totalreply": 447,
@@ -13218,7 +13218,7 @@
     "lastedit": 1795860900,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1856998": {
     "totalreply": 6063,
@@ -13578,7 +13578,7 @@
     "lastedit": 1795861560,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2288933": {
     "totalreply": 1119,
@@ -13605,7 +13605,7 @@
     "lastedit": 1795861320,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2289805": {
     "totalreply": 470,
@@ -14037,7 +14037,7 @@
     "lastedit": 1795860780,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2292952": {
     "totalreply": 131,
@@ -16565,7 +16565,7 @@
     "newtitle": "[黑神话悟空美术总监杨奇谈GTA6：“工业化”一词是对其贬损，昂贵且低效的艺术品]",
     "lastedit": 1795602750,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2293987": {
@@ -17529,7 +17529,7 @@
     "lastedit": 1795861200,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2294855": {
     "totalreply": 43,
@@ -17655,7 +17655,7 @@
     "lastedit": 1795861500,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2291969": {
     "totalreply": 50,
