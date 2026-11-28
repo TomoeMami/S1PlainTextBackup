@@ -15158,3 +15158,47 @@ sry，我理解什么意思了，感谢
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  otakun  
+##### 8799#       发表于 2026-11-28 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561230&amp;ptid=2261859" target="_blank">灰狼 发表于 2026-11-28 10:11</a>
+这游戏第三部数值卡得死么，我理解是困难的话数值再烂也是能对付过去吧</blockquote>
+能的，我没凹点没专门搞过水桶属性因果融合都能打完，现在困难难度不难
+
+
+*****
+
+####  灰狼  
+##### 8800#       发表于 2026-11-28 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561511&amp;ptid=2261859" target="_blank">otakun 发表于 2026-11-28 11:40</a>
+
+能的，我没凹点没专门搞过水桶属性因果融合都能打完，现在困难难度不难 ...</blockquote>
+这么看我挺好奇回头超难得怎么做，比较悲观的话大概和风花雪月一样是纯数值堆砌逼玩家也找数值解——包括各种非战斗小游戏。
+
+可能第一二部还好，毕竟固定成长数值多少可以预估，就是到了第三部因果融合以后如果就要体现难度又要考虑因果融合以后队友实力增强的话数值不知道会不会很抽象——或者单纯以单主角单次通关为基础设计数值
+
+当然我觉得超难的话就3个人应该过不了。。。
+
+
+*****
+
+####  trotsky  
+##### 8801#       发表于 2026-11-28 11:46
+
+莉莉安还是强的，这代技速高的没有废物，特技还给攻击和命中<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+女王托比波拿这仨，在第一部算大爹，第三部用起来反而不如莉莉安和莱桑达了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+image.png
+(1.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 11:41 上传
+
+<img src="https://img.stage1st.com/forum/202611/28/114136t0zzguuguqvn4c7u.png" referrerpolicy="no-referrer">
+
