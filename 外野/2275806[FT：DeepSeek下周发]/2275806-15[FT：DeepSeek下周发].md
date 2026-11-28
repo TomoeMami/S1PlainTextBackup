@@ -9323,3 +9323,13 @@ Gemini 的审美还是一如既往的糟糕，依旧东北袄子般的花花绿�
 Gemini 的审美还是一如既往的糟糕，依旧东北袄子般的花花绿绿。OpenAI 知道自己的审美很雷霆，起码明白要把 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反重力里面不是住了一个opus5.5吗，前端给它就行了吧
 
+
+*****
+
+####  heemoon  
+##### 21489#       发表于 2026-11-28 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561652&amp;ptid=2275806" target="_blank">warlock228 发表于 2026-11-28 12:22</a>
+反重力里面不是住了一个opus5.5吗，前端给它就行了吧</blockquote>
+我之前让opus5.5改了下neon做的可视化动态面板，结果也是一言难尽，可能被neon带偏了，估计从零开始独立设计效果更好吧。。。
+
