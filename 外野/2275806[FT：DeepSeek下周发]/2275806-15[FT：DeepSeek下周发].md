@@ -9207,3 +9207,13 @@ OpenCode 的第三方分支 Shuvcode 虽然代码里也接上了 Solstice，实�
 o/最近是不是不太行，最近一个月codex干活能力感觉下降了，网上也很多人在骂 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">每年11月是O/的至暗时刻
 
+
+*****
+
+####  谎称  
+##### 21477#       发表于 2026-11-28 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70560485&amp;ptid=2275806" target="_blank">莱茵哈鲁特 发表于 2026-11-28 00:01</a>
+这么激进，千问官方直接换头像了</blockquote>
+这要给原作者钱吗，或者叫辛苦费？
+
