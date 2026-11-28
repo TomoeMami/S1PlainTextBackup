@@ -9358,3 +9358,13 @@ HY 3d不错啊，生成的3d模型精度挺高
 
 —— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  星野あさみ  
+##### 21492#       发表于 2026-11-28 13:03
+
+整整一天还是没见到$99的哈基米AI Pro。连120的也没有
+
+最后appstore日区21800上车了<img src="https://static.stage1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer"> 感觉好亏啊
+
