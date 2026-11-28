@@ -15251,3 +15251,24 @@ image.png
 
 按默认的斧重甲职业走托比亚斯就会难用很多，但如果解决命中问题三连斧仍然威力可怕<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  根正苗红  
+##### 8806#       发表于 2026-11-28 14:20
+
+你们都拿青梅跳舞。需要两个跳舞的吗？需要两格跳舞吗？又不是范围技能。
+我看不如让小绿去跳舞，跳烦了直接砍人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  根正苗红  
+##### 8807#       发表于 2026-11-28 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561919&amp;ptid=2261859" target="_blank">Nez 发表于 2026-11-28 13:53</a>
+青梅2格跳舞，炼铜姐指挥S移动泉水，凯线都是玩花活的
+
+莉莉安本质魔鸟对策卡，和小胖一样做好本职工作就 ...</blockquote>
+凯伊线，古神是严父，乌尔坦达是慈母<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">地图上的治疗略鸡肋，但下迷宫和非战旗战斗是真好使，**世篇最好的陪练。
+

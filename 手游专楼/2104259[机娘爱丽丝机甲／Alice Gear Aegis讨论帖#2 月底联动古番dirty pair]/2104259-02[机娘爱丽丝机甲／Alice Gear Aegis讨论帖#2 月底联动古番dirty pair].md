@@ -52,3 +52,16 @@
 
 更新完好多字的字体怎么变圆圆的了，还挺可爱（
 
+
+*****
+
+####  不灭的旋律  
+##### 2185#       发表于 2026-11-28 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70551674&amp;ptid=2104259" target="_blank">madcow 发表于 2026-11-26 00:43</a>
+
+更新完好多字的字体怎么变圆圆的了，还挺可爱（</blockquote>
+上上次的直播已经说了因为不方便说的原因会换字体。这“不方便说的原因”据说是因为字体的年费突然涨了53倍。
+
+话说这两个新人已经有AN和FA的格子了，该不会接着连续实装吧？
+
