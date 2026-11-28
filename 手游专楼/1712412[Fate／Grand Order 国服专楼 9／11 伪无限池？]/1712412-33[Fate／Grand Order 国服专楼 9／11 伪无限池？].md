@@ -314,3 +314,11 @@ MuMu-20261127-174907-685.jpg
 
 每日单抽出了个怖军，虽然是比较新的卡，但是一来枪阶本来就区，二来这两三年膨胀得好快，按当时评价其实还可以的现在感觉也是挺菜的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyzzhj  
+##### 48358#       发表于 2026-11-28 08:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">早上爬起来想给1001补宝，结果120抽下去歪了个钓鱼佬，放弃抵抗了...
+
