@@ -9177,3 +9177,22 @@ OpenCode 的第三方分支 Shuvcode 虽然代码里也接上了 Solstice，实�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mitzvah  
+##### 21475#       发表于 2026-11-28 07:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+这种玩意在kimi不会投毒吗
+
+3b802834e5dde711c23421ffe1efce1b9c16613d.jpg
+(170.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 07:48 上传
+
+<img src="https://img.stage1st.com/forum/202611/28/074819k3zebo7ttl4idbzt.jpg" referrerpolicy="no-referrer">
+
