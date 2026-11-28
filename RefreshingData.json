@@ -2238,7 +2238,7 @@
     "lastedit": 1795855860,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2043629": {
     "totalreply": 793,
@@ -8217,13 +8217,13 @@
     "update": false
   },
   "2178694": {
-    "totalreply": 2115,
+    "totalreply": 2116,
     "title": "[『机动战士高达SEED FREEDOM』请勿讨论除动画本身的相关内容]",
     "newtitle": "[『机动战士高达SEED FREEDOM』／ SEED FREEDOM 前传动画制作决定]",
-    "lastedit": 1795855980,
+    "lastedit": 1795856686,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2178883": {
     "totalreply": 530,
@@ -12942,13 +12942,13 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 21504,
+    "totalreply": 21505,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1795856100,
+    "lastedit": 1795856301,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2245675": {
     "totalreply": 739,
@@ -13074,7 +13074,7 @@
     "lastedit": 1795856220,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1992785": {
     "totalreply": 447,
@@ -13572,13 +13572,13 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 44510,
+    "totalreply": 44511,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1795856220,
+    "lastedit": 1795856314,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2288933": {
     "totalreply": 1119,
@@ -16943,7 +16943,7 @@
     "newtitle": "[【高端已成】小米集团 2026 Q3 财报发布，经调整净利润 48.84 亿元，同比下降56.8%]",
     "lastedit": 1795597225,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2210351": {
@@ -17496,13 +17496,13 @@
     "update": false
   },
   "2294892": {
-    "totalreply": 157,
+    "totalreply": 158,
     "title": "[聊聊这次gta6剧情人设被污名化背后逻辑]",
     "newtitle": "[聊聊这次gta6剧情人设被污名化背后逻辑]",
-    "lastedit": 1795856160,
+    "lastedit": 1795856340,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2294888": {
     "totalreply": 41,
@@ -17685,10 +17685,10 @@
     "update": false
   },
   "2294958": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[你们那里高一学生政治成绩都是这么低吗]",
     "newtitle": "[你们那里高一学生政治成绩都是这么低吗]",
-    "lastedit": 1795854238,
+    "lastedit": 1795856679,
     "category": "外野",
     "active": true,
     "update": false
