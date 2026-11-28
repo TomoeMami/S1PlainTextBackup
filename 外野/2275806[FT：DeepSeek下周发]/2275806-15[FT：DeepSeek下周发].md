@@ -9344,3 +9344,17 @@ Gemini 的审美还是一如既往的糟糕，依旧东北袄子般的花花绿�
 我之前让opus5.5改了下neon做的可视化动态面板，结果也是一言难尽，可能被neon带偏了，估计从零开始独立 ...</blockquote>
 后改一般llm都做得束手束脚的，最好还是项目开始就让opus给前端打个版
 
+
+*****
+
+####  lactone  
+##### 21491#       发表于 2026-11-28 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561105&amp;ptid=2275806" target="_blank">77BBC 发表于 2026-11-28 09:27</a>
+HY 3d不错啊，生成的3d模型精度挺高
+
+—— 来自 S1Fun</blockquote>
+国模在3d，文生视频都拿到sota了，文生图也是准sota
+
+—— 来自 vivo V2505A, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
