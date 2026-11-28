@@ -9558,3 +9558,48 @@ HY 3D3.6更新了，效果还行，前后新版和老版生成模型对比。
 
 2026-11-28 16:01 上传
 
+
+*****
+
+####  unrealMeeSeeks  
+##### 21504#       发表于 2026-11-28 16:30
+
+AGY奇妙小更新，把升级套餐放在了选择模型—查看用量的下面。
+
+
+*****
+
+####  unrealMeeSeeks  
+##### 21504#       发表于 2026-11-28 16:30
+
+AGY奇妙小更新，把升级套餐放在了选择模型—查看用量的下面。
+
+
+*****
+
+####  unrealMeeSeeks  
+##### 21504#       发表于 2026-11-28 16:30
+
+AGY奇妙小更新，把升级套餐放在了选择模型—查看用量的下面。
+
+*****
+
+####  moekyo  
+##### 21505#       发表于 2026-11-28 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70560692&amp;ptid=2275806" target="_blank">frankCC 发表于 2026-11-28 01:41</a>
+
+按照经验，后面大概会慢慢下放给pro的。</blockquote>
+大概会吧，而且这个额度还是单独一个额度池的，貌似和 antigravity 的不重叠
+
+
+*****
+
+####  moekyo  
+##### 21505#       发表于 2026-11-28 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70560692&amp;ptid=2275806" target="_blank">frankCC 发表于 2026-11-28 01:41</a>
+
+按照经验，后面大概会慢慢下放给pro的。</blockquote>
+大概会吧，而且这个额度还是单独一个额度池的，貌似和 antigravity 的不重叠
+
