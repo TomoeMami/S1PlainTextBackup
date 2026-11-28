@@ -9441,3 +9441,27 @@ K3.1：？
 土区3折哈基米复活了 狠狠加仓</blockquote>
 有没有教程
 
+
+*****
+
+####  紧那罗  
+##### 21499#       发表于 2026-11-28 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561918&amp;ptid=2275806" target="_blank">猫🐱 发表于 2026-11-28 13:53</a>
+
+有没有教程</blockquote>
+[https://github.com/Dgkncn/g1-acq-plus](https://github.com/Dgkncn/g1-acq-plus)
+
+参考这个
+
+*****
+
+####  陈八尺  
+##### 21500#       发表于 2026-11-28 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561173&amp;ptid=2275806" target="_blank">nagbirdren 发表于 2026-11-28 09:53</a>
+算了，趁着jio的氢基咪没掉，大用特用吧，不作恶的阿三过于啥比了，x上全是吐槽黑五促销到当天之前，当天不 ...</blockquote>
+最难绷的是负责人说新用户也有优惠的推删除了，六折也刷不出来了，大好局势搞了个寂寞。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

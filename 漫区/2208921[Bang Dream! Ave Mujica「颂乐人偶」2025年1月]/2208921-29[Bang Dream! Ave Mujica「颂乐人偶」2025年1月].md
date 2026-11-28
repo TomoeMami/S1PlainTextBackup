@@ -1468,3 +1468,23 @@ Blu-ray附生产限定版将收录Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- D
 
 新邦这么厉害吗 都上十字架了 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 42237#       发表于 2026-11-28 14:01
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/28/140152y4g5b7g1e1c4ae4b.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-11-28_13-58-48.jpg</strong> (355.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 14:01 上传
+
+       [https://x.com/bang_dream_info/status/2126481209039687786](https://x.com/bang_dream_info/status/2126481209039687786)
+
+       [https://x.com/musicday_ntv/status/2126473647485264240](https://x.com/musicday_ntv/status/2126473647485264240)
+
