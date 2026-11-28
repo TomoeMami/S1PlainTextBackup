@@ -9312,3 +9312,14 @@ HY 3d不错啊，生成的3d模型精度挺高
 
 Gemini 的审美还是一如既往的糟糕，依旧东北袄子般的花花绿绿。OpenAI 知道自己的审美很雷霆，起码明白要把色彩饱和度降低显得不那么扎眼。
 
+
+*****
+
+####  warlock228  
+##### 21488#       发表于 2026-11-28 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561594&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-11-28 12:06</a>
+
+Gemini 的审美还是一如既往的糟糕，依旧东北袄子般的花花绿绿。OpenAI 知道自己的审美很雷霆，起码明白要把 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反重力里面不是住了一个opus5.5吗，前端给它就行了吧
+
