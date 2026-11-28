@@ -9614,3 +9614,23 @@ AGY奇妙小更新，把升级套餐放在了选择模型—查看用量的下�
 按照经验，后面大概会慢慢下放给pro的。</blockquote>
 大概会吧，而且这个额度还是单独一个额度池的，貌似和 antigravity 的不重叠
 
+
+*****
+
+####  真红之闪电  
+##### 21506#       发表于 2026-11-28 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70560634&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-11-28 01:09</a>
+PI可以用gemini ultra订阅了</blockquote>
+这个是官方放开的吗
+
+
+*****
+
+####  真红之闪电  
+##### 21506#       发表于 2026-11-28 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70560634&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-11-28 01:09</a>
+PI可以用gemini ultra订阅了</blockquote>
+这个是官方放开的吗
+
