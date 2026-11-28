@@ -9262,3 +9262,31 @@ HY 3d不错啊，生成的3d模型精度挺高
 
 是不是算力不够了，我昨天用neon做了一下午视频感觉有点流口水的倾向了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  唠叨  
+##### 21483#       发表于 2026-11-28 10:59
+
+为什么从来没听说过deepseek算力不够流口水？
+
+
+*****
+
+####  hugosol  
+##### 21484#       发表于 2026-11-28 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561374&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-11-28 10:59</a>
+
+为什么从来没听说过deepseek算力不够流口水？</blockquote>
+这楼你往前翻两页就能看到<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  warlock228  
+##### 21485#       发表于 2026-11-28 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561374&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-11-28 10:59</a>
+为什么从来没听说过deepseek算力不够流口水？</blockquote>
+opencode的肥鱼会，本家的因为官key服务器应该都差不多吧，本质就是服务器性能参差，每次连接赌轮盘抽到不好的服务器表现就差
+
