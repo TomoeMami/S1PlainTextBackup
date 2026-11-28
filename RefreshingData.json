@@ -399,10 +399,10 @@
     "totalreply": 11782,
     "title": "[【ぷにち】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "newtitle": "[【七代目】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
-    "lastedit": 1795787647,
+    "lastedit": 1795863960,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2086516": {
     "totalreply": 727,
@@ -729,13 +729,13 @@
     "update": false
   },
   "2034229": {
-    "totalreply": 7117,
+    "totalreply": 7118,
     "title": "[想要成为影之实力者 TV动画 2022年10月]",
     "newtitle": "[2022.10『想要成为影之实力者』 剧场动画残响篇制作决定]",
-    "lastedit": 1795863180,
+    "lastedit": 1795863754,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1993571": {
     "totalreply": 716,
@@ -5088,10 +5088,10 @@
     "totalreply": 50729,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》11.12 莉经万难]",
-    "lastedit": 1795859437,
+    "lastedit": 1795863840,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1025935": {
     "totalreply": 2152,
@@ -9399,7 +9399,7 @@
     "totalreply": 48356,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1795862760,
+    "lastedit": 1795863600,
     "category": "手游专楼",
     "active": true,
     "update": true
@@ -11145,10 +11145,10 @@
     "totalreply": 1561,
     "title": "[蓝色星原：旅谣(7.12-7.14 上海BW2024参展）二号楼]",
     "newtitle": "[蓝色星原：旅谣 二号楼  s1群：1093603339]",
-    "lastedit": 1795860380,
+    "lastedit": 1795863840,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2250158": {
     "totalreply": 446,
@@ -12375,13 +12375,13 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 23661,
+    "totalreply": 23662,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼11月]",
-    "lastedit": 1795862400,
+    "lastedit": 1795863378,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2268807": {
     "totalreply": 512,
@@ -12945,7 +12945,7 @@
     "totalreply": 21507,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[261111 Qwen4-Max-Preview 上线 ｜ 大模型讨论专楼]",
-    "lastedit": 1795858124,
+    "lastedit": 1795863480,
     "category": "外野",
     "active": true,
     "update": false
@@ -13068,13 +13068,13 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 46395,
+    "totalreply": 46397,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1795863300,
+    "lastedit": 1795863754,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1992785": {
     "totalreply": 447,
@@ -15332,7 +15332,7 @@
     "newtitle": "[腾讯内部发文称已到生死存亡时刻]",
     "lastedit": 1795603935,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1981060": {
@@ -17532,13 +17532,13 @@
     "update": false
   },
   "2294909": {
-    "totalreply": 59,
+    "totalreply": 60,
     "title": "[梁文锋身家攀升至 550 亿美元，成全球最富 AI 模型创始人]",
     "newtitle": "[梁文锋身家攀升至 550 亿美元，成全球最富 AI 模型创始人]",
-    "lastedit": 1795863240,
+    "lastedit": 1795863753,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2294898": {
     "totalreply": 51,
@@ -17604,13 +17604,13 @@
     "update": false
   },
   "2294814": {
-    "totalreply": 67,
+    "totalreply": 68,
     "title": "[【SNK格斗部年终决赛】SWC 2026专楼]",
     "newtitle": "[【SNK格斗部年终决赛】SWC 2026专楼]",
-    "lastedit": 1795863240,
+    "lastedit": 1795863600,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2163361": {
     "totalreply": 433,
@@ -17709,6 +17709,6 @@
     "lastedit": 1795863360,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }
