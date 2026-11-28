@@ -9465,3 +9465,16 @@ K3.1：？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  蜇灵  
+##### 21501#       发表于 2026-11-28 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561783&amp;ptid=2275806" target="_blank">星野あさみ 发表于 2026-11-28 13:03</a>
+
+整整一天还是没见到$99的哈基米AI Pro。连120的也没有
+
+最后appstore日区21800上车了 感觉好亏啊 ...</blockquote>
+你有苹果号可以买低价sku啊
+
