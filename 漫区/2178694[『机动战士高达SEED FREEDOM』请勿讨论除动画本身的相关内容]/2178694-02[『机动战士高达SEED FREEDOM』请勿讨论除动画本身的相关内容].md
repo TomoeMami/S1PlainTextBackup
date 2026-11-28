@@ -158,3 +158,18 @@ https://youtu.be/hW_NDIKdpr4
 
 大气层内强自的龙骑背包确实是没有命运的背包好用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ironman_mk5  
+##### 2118#       发表于 2026-11-28 17:37
+
+种自回忆抢夺事件被黑骑砍爆时还是原来的背包吧
+
+*****
+
+####  pokemon最爱  
+##### 2119#       发表于 2026-11-28 17:43
+
+大气层内强自的龙骑背包确实是没有命运的背包好用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
