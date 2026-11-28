@@ -1579,3 +1579,23 @@ Blu-ray附生产限定版将收录Ave Mujica LIVE TOUR 2026「Exitus」-FINAL- D
 
        [https://www.creativeman.co.jp/artist/2026/12evanescence/](https://www.creativeman.co.jp/artist/2026/12evanescence/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42239#       发表于 2026-11-28 16:27
+
+       
+
+<img src="https://img.stage1st.com/forum/202611/28/162627fy7x7nyfvmm8diiq.png" referrerpolicy="no-referrer">
+
+<strong>2026-11-28_16-16-02.png</strong> (1.74 MB, 下载次数: 0)
+
+下载附件
+
+2026-11-28 16:26 上传
+
+       [https://x.com/bang_dream_info/status/2126587397483725291](https://x.com/bang_dream_info/status/2126587397483725291)
+
+       [https://www.creativeman.co.jp/artist/2026/12evanescence/](https://www.creativeman.co.jp/artist/2026/12evanescence/)
+
