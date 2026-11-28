@@ -9333,3 +9333,14 @@ Gemini 的审美还是一如既往的糟糕，依旧东北袄子般的花花绿�
 反重力里面不是住了一个opus5.5吗，前端给它就行了吧</blockquote>
 我之前让opus5.5改了下neon做的可视化动态面板，结果也是一言难尽，可能被neon带偏了，估计从零开始独立设计效果更好吧。。。
 
+
+*****
+
+####  warlock228  
+##### 21490#       发表于 2026-11-28 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70561694&amp;ptid=2275806" target="_blank">heemoon 发表于 2026-11-28 12:35</a>
+
+我之前让opus5.5改了下neon做的可视化动态面板，结果也是一言难尽，可能被neon带偏了，估计从零开始独立 ...</blockquote>
+后改一般llm都做得束手束脚的，最好还是项目开始就让opus给前端打个版
+
