@@ -692,3 +692,13 @@ Gaia第三印象：汤姆索亚历险记
 
 正式的迷宫普遍都有设计。一开始我看到价格签上9800円疑惑这游戏这么贵？尤其是一开始音乐剧情都不怎么吸引人的时候更是感到不值。现在正儿八经解了5个遗迹之谜了，对它们的设计还挺认可。怪物的难度曲线到了第5座遗迹才开始突然变陡，在此之前都已经攒满了999个球到了上限……能回满血的药草到这会儿应该最多能找到10个，但是一路上用掉了6个，其中3个给了这第5遗迹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagamasa  
+##### 51#       发表于 2026-11-28 15:10
+
+我记得有个位置能听到很短的一段前作《信使》碧竹之溪bgm缓慢版变奏，那里有个石门，以为dlc就这个了吧，结果并没有，遗憾<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">前作最喜欢就是这个地区和bgm了
+
+——来自 [S1er 客户端](https://s1er.pages.dev)
+
